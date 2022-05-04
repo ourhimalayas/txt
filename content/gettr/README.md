@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/4/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18a7470a0a.md)
+
+5月4号：尊敬的战友们好……这一次病毒阳性增长，一定要小心，这是疫苗灾难的开始……
+
+<img src="https://media.gettr.com/group44/getter/2022/05/04/14/51cc436a-de10-ad5c-7b97-3a4af09b1dcf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p18arss418b.md)
+
+5/3/2022 Miles Guo: Why did I choose Xia Ping among many investment partners back then? First, it was because Xia's family had deep grudges against the CCP and had never succumbed to the evil regime, which coincided with my pursuit...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/04/14/2d38b76e-a4c4-812a-0c87-15a635e24166/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p18atpmad54.md)
 
 2022.05.04  早 新中国联邦 | 新闻访谈   欧盟警告成员国为断供做好准备；用卢布购买天然气违反制裁
@@ -31,14 +47,6 @@
 2022.05.04  AM NFSC news   Korean Volunteer Believes Our Next Encounter Will Be in a Free World
 
 <img src="https://media.gettr.com/group25/origin/2022/05/04/11/278dc230-4452-785a-5b25-3194f616efde/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p18arss418b.md)
-
-5/3/2022 Miles Guo: Why did I choose Xia Ping among many investment partners back then? First, it was because Xia's family had deep grudges against the CCP and had never succumbed to the evil regime, which coincided with my pursuit...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/04/14/2d38b76e-a4c4-812a-0c87-15a635e24166/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 5/3/2022 Miles Guo: Whether or not parents let their children step into society early determines whether the person will succeed. Success requires faith and ambition beyond the ordinary. After I was released from the Qingfeng Deten...
 
 <img src="https://media.gettr.com/group19/getter/2022/05/04/01/6b53f022-dd55-00d1-fbcc-eb518e1e8897/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1880gjc36a.md)
-
-5/3/2022 Miles Guo: Almost all my old photos were confiscated by the CCP police and State Security agents. The CCP also classified my photos and those of my family as top state secrets. It is quite difficult to find the photos that...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/04/00/45f5fcf5-575a-5f18-71da-21f371ace061/out.jpg" width="506" height="284">
 
 ---
 
