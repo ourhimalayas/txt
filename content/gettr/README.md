@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/4/2022 2:04 PM UTC  - :tv:直播](/content/gettr/p18agu9c728.md)
+
+ 5月4号：尊敬的战友们好……郑州这回又惨大了！
+
+<img src="https://media.gettr.com/group43/getter/2022/05/04/14/37cd3804-9896-e0e9-52cd-ffe5f2842824/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p18atpmad54.md)
+
+2022.05.04  早 新中国联邦 | 新闻访谈   欧盟警告成员国为断供做好准备；用卢布购买天然气违反制裁
+
+<img src="https://media.gettr.com/group50/origin/2022/05/04/13/31ca4dc2-47bd-e3a1-9126-86ebcf82321c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 12:40 PM UTC  - :tv:直播](/content/gettr/p18act8cb56.md)
 
 2022.05.04  早 新中国联邦 | 新闻   英国志愿者加入乌克兰抗俄战斗；意大利社会学家称中共实为独裁政府
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 5/4/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p18atpmad54.md)
+[@miles 5/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p18arss418b.md)
 
-2022.05.04  早 新中国联邦 | 新闻访谈   欧盟警告成员国为断供做好准备；用卢布购买天然气违反制裁
+5/3/2022 Miles Guo: Why did I choose Xia Ping among many investment partners back then? First, it was because Xia's family had deep grudges against the CCP and had never succumbed to the evil regime, which coincided with my pursuit...
 
-<img src="https://media.gettr.com/group50/origin/2022/05/04/13/31ca4dc2-47bd-e3a1-9126-86ebcf82321c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/05/04/14/2d38b76e-a4c4-812a-0c87-15a635e24166/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,22 +153,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 5/3/2022 Miles Guo: Whether or not parents let their children step into society early determines whether the person will succeed. Success requires faith and ambition beyond the ordinary. After I was released from the Qingfeng Deten...
 
 <img src="https://media.gettr.com/group19/getter/2022/05/04/01/6b53f022-dd55-00d1-fbcc-eb518e1e8897/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p187m7u3e6a.md)
-
-5/3/2022 Miles Guo: When I got out of Qingfeng Detention Center, I was under border control and my name was on the CCP's surveillance list due to my support of the June 4, 1989 event. I was unable to get loans or own any legal enti...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/04/00/da2e7227-7817-8f9f-7679-07293918522b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p188b2y8d59.md)
-
-2022.05.03  晚 新中国联邦 | 新闻   联合国证实俄乌战争已致3000多平民丧生；俄罗斯总参谋长赴前线督战時受伤
-
-<img src="https://media.gettr.com/group47/origin/2022/05/04/00/0d8f6f8e-fa75-3a9c-8c57-d11b264df2a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
