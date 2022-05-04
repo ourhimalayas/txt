@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18as73bcc0.md)
+
+2022.05.04  新中国联邦 | 军情室  军情室连线文疯而动战友，讲述前线战况
+
+<img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p189e2wefd9.md)
 
 NFSC frontline reporter Nicole interviewed a European volunteer. They discussed the current politic games of the communist dictatorship in power. People around the world no matter what races have to unite and get rid of the communi...
@@ -66,11 +74,11 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 
 ---
 
-[@miles 5/4/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18as73bcc0.md)
+[@miles 5/4/2022 11:34 AM UTC  - 2圖](/content/gettr/p18api7a7a0.md)
 
-2022.05.04  新中国联邦 | 军情室  军情室连线文疯而动战友，讲述前线战况
+🙏🙏🙏🙏🙏🙏🙏【2022年5月4日上午，我们收到西班牙巴塞罗那⾮政府组织协会 “TERRASSA AJUDA A NENS D’UCRAÏNA”（特雷萨救助乌克兰⼉童之家，简称TANU）主席José Muñoz Cosialls 先生致新中国联邦的感谢信，感谢新中国联邦在俄乌战争爆发初期成功解救96名乌克兰未成年儿童到达西班牙的壮举。我们感谢七哥、感谢爆料革命、新中国联邦、法治基金、喜马拉雅联盟委员会以及所有为这次救援付出努力的战友们，这个世界...
 
-<img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/05/04/11/e7002695-e856-675a-3a93-e29131d18420/a9a10deb3ffe961444b0ba0e4875ca8b.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 5/3/2022 Miles Guo: Here is a photo I took at Chu-yuan Lee's office in the Hung Kuo Headquarters Building in Taipei. The Taiwanese people have helped the Chinese people to preserve the most wonderful and important cultures, religio...
 
 <img src="https://media.gettr.com/group33/getter/2022/05/03/22/7f038726-00c4-4228-f75e-2b153b5867c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p187v6u7842.md)
-
-5/3/2022 Miles Guo: The very first thing that the Whistleblowers' Movement should do is to oppose the cult of personality, which is the foundation of the dictatorship's propaganda, brainwashing, and fabrication of lies and heresies...
-
-<img src="https://media.gettr.com/group28/getter/2022/05/03/22/20faf322-1b4a-5ea3-5dc9-ec45a7febad5/out.jpg" width="506" height="284">
 
 ---
 
