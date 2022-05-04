@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/4/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p187ye0ced9.md)
+[@miles 5/4/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p18821aa548.md)
 
-2022.05.03  晚 新中国联邦 | 新闻访谈   老照片看到文貴先生的人生目標：信譽，生存， 發達，捨棄，無我--滅共
+2022.05.03  新中国联邦 | 喜财经    股市汇市黄金走势；马斯克收购推特后，GETTR美国注册量飙升了323%
 
-<img src="https://media.gettr.com/group41/origin/2022/05/04/01/61a5cdf2-b6dc-28f9-7f9f-56f624b78123/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 没有爆料革命一定不可能有轴...
 
 <img src="https://media.gettr.com/group13/origin/2022/05/04/01/973d6621-7ffb-8bb2-e786-a5932e587f5d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p187ye0ced9.md)
+
+2022.05.03  晚 新中国联邦 | 新闻访谈   老照片看到文貴先生的人生目標：信譽，生存， 發達，捨棄，無我--滅共
+
+<img src="https://media.gettr.com/group41/origin/2022/05/04/01/61a5cdf2-b6dc-28f9-7f9f-56f624b78123/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 2022.05.03  AM NFSC news   India Volunteer: Political Parties will Perish, and Peace will Endure
 
 <img src="https://media.gettr.com/group38/origin/2022/05/03/11/8e435855-2bd4-11b7-8df6-496760153572/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/3/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p18569i1ff2.md)
-
-5月3号：尊敬的战友们好！所有的中国人，只需要知道．自己是人．不是畜生．什么问题都能解决了！【其实就是两脚的事，用不着敲盆，更用不着跳楼】
-
-<img src="https://media.gettr.com/group13/getter/2022/05/03/10/7da37600-42a9-79e7-ecc0-67c9b5211988/out.jpg" width="506" height="284">
 
 ---
 
