@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 5:06 AM UTC  - :tv:直播](/content/gettr/p189w6c9849.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group13/origin/2022/05/04/04/1770b868-ec1e-391f-93c3-17712e0fdf85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 3:26 AM UTC ](/content/gettr/p188xdi558d.md)
 
 The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subversion act, and calls for "the Chinese Communist Party is not the same as the Chinese people, the Chinese Communist Party is the cause of all disasters i...
@@ -34,11 +42,11 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 
 ---
 
-[@miles 5/4/2022 5:06 AM UTC  - :tv:直播](/content/gettr/p189w6c9849.md)
+[@miles 5/4/2022 6:16 AM UTC  - :tv:直播](/content/gettr/p189dlrf8c5.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+5/3/2022 Miles Guo: The experience of Qingfeng Detention Center made me see through life and death, and no longer only lived for survival, but lived for faith; Chinese people should get rid of the shackles of material desires and t...
 
-<img src="https://media.gettr.com/group13/origin/2022/05/04/04/1770b868-ec1e-391f-93c3-17712e0fdf85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/05/04/06/502d01c0-36b7-bf84-cb70-7bcb7f3fb730/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 【Ukraine Rescue】05/03/2022 A volunteer from the U.S. comes and asks what the NFSC is and gives us an interview before he leaves after completing his relief work at the Ukrainian border. He expresses his love for Tibet and praises o...
 
 <img src="https://media.gettr.com/group44/getter/2022/05/03/16/1cf57072-abf8-227b-596e-11a69b63a9d7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p185wu28aa2.md)
-
-【Ukraine Rescue】05/02/2022 A mother and son from Moscow say that, like the Communist China, there is no freedom of speech in Russia under Putin; and like the new Chinese people from the NFSC, they come here to show the world that t...
-
-<img src="https://media.gettr.com/group18/getter/2022/05/03/15/86dbe36c-e033-4823-93b7-36a404dc4872/out.jpg" width="506" height="284">
 
 ---
 
