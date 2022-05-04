@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p18cwpbd56c.md)
+
+5/3/2022 Miles Guo: When I was in my twenties, Wang Dongxing asked me a question about when Sima Yi had the ambition to take over the country. My life in the past several decades during which I dealt with the CCP was as dangerous a...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/04/23/b9ad155d-08a4-3940-24b9-62cc3a36668a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18cqbba178.md)
 
 5/3/2022 Miles Guo: The photo of Mr. He and I was taken at my home. Mr. He knew my determination to take down the CCP. The reason why he could come over and had a conversation with me was because he totally understood my mind and s...
@@ -10,11 +18,13 @@
 
 ---
 
-[@miles 5/4/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p18cwpbd56c.md)
+[@miles 5/4/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p18dek9cd97.md)
 
-5/3/2022 Miles Guo: When I was in my twenties, Wang Dongxing asked me a question about when Sima Yi had the ambition to take over the country. My life in the past several decades during which I dealt with the CCP was as dangerous a...
+2022.05.04  NFSC fringe  Episode 183
 
-<img src="https://media.gettr.com/group17/getter/2022/05/04/23/b9ad155d-08a4-3940-24b9-62cc3a36668a/out.jpg" width="506" height="284">
+中文同传：https://gettr.com/streaming/p18d3xn10d5
+
+<img src="https://media.gettr.com/group26/origin/2022/05/04/23/77a1ca07-83e4-17d0-a989-74c067376600/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +161,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
 2022.05.04  新中国联邦 | 军情室  军情室连线文疯而动战友，讲述前线战况
 
 <img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p189e2wefd9.md)
-
-NFSC frontline reporter Nicole interviewed a European volunteer. They discussed the current politic games of the communist dictatorship in power. People around the world no matter what races have to unite and get rid of the communi...
-
-<img src="https://media.gettr.com/group11/origin/2022/05/04/09/238c5bc3-e8a5-bf07-1d7d-9f80ca0fe8f8/out.jpg" width="506" height="284">
 
 ---
 
