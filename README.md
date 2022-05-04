@@ -11,14 +11,41 @@
 
 ---
 
+#### [秘翻在线：美国务院称如果俄罗斯在纪念日宣战将是个巨大的讽刺](/content/gnews/2463853.md)
+ `秘密翻譯組G-Translators`
+
+#### [【说事儿】中共防疫宣传又翻车：3个人照顾全村禽畜，累到求救！](/content/gnews/2463832.md)
+ `TokyoSakuraDesignGroup`
+
+#### [5/3/2022 文贵直播：文贵几乎所有的老照片都被中共警察、国安搜罗殆尽，中共还把文贵和家人的照片列为国家最高机密，这几天推出的老照片是多么的来之不易啊](/content/gnews/2463818.md)
+ `秘密翻译组-北美组`
+
+#### [【说事儿】一名勇敢的英国志愿者去乌克兰加入战斗以对抗普京的军队](/content/gnews/2463810.md)
+ `TokyoSakuraDesignGroup`
+
+#### [巴拿马国民议会通过加密货币监管法案](/content/gnews/2463806.md)
+ `纽约香草山MOS02`
+
+#### [顶级大企业、投资人正加紧与喜币合作，2022成中共治下最黑暗起始年](/content/gnews/2463780.md)
+ `YALUN 亚伦`
+
+#### [秘翻在线：有报道称马云因颠覆国家罪被调查，阿里巴巴股价暴跌](/content/gnews/2463771.md)
+ `秘密翻譯組G-Translators`
+
+#### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月3日晚](/content/gnews/2463731.md)
+ `纽约香草山MOS01`
+
+#### [20220503郭文贵大直播 ：七哥讲诉生活中的“高人”给他解释人为何不生不死让他从此有了自己心中的信仰](/content/gnews/2463723.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220503郭文贵大直播 ：郭先生离开清丰看守所照片](/content/gnews/2463717.md)
+ `Tokyo Sakura Video Group`
+
 #### [20220503郭文贵大直播 ：5月3号是七哥从清风看守所出来的那一天](/content/gnews/2463707.md)
  `Tokyo Sakura Video Group`
 
 #### [七哥的照片已是国家最高机密（一）](/content/gnews/2463693.md)
  `雅典娜GNotes`
-
-#### [【说事儿】美国大使馆有望于5月底前返回基辅](/content/gnews/2463676.md)
- `TokyoSakuraDesignGroup`
 
 #### [共产党很多重要高官都是共济会培养，没有善恶观念，只有控制](/content/gnews/2463653.md)
  `雅典娜GNotes`
@@ -32,29 +59,17 @@
 #### [七哥在美国见识到世界真正的运行的事实，七哥很早就和神秘组织说要消灭共产党(2)](/content/gnews/2463638.md)
  `雅典娜GNotes`
 
-#### [七哥在美国见识到世界真正的运行的事实，七哥很早就和神秘组织说要消灭共产党 (1)](/content/gnews/2463625.md)
- `雅典娜GNotes`
-
-#### [20220503郭文贵大直播 ：郭先生从清丰看守所出来之后的照片](/content/gnews/2463606.md)
- `Tokyo Sakura Video Group`
-
 #### [【说事儿】习近平已做好中国人死一半的准备 中共国进入畜奴社会](/content/gnews/2463602.md)
  `TokyoSakuraDesignGroup`
 
 #### [2022年5月3日大直播速记精萃](/content/gnews/2463589.md)
  `雅典娜GNotes`
 
-#### [20220503郭文贵大直播 ：和香港沼泽地接触显示文贵先生灭共决心](/content/gnews/2463564.md)
- `Tokyo Sakura Video Group`
-
-#### [裕达花园的工地](/content/gnews/2463559.md)
- `雅典娜GNotes`
-
 #### [俄罗斯实施对妇女和儿童的性犯罪](/content/gnews/2463546.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [5月3日文贵大直播“人生地图”（图片1-23）](/content/gnews/2463520.md)
- `波士顿五月花农场`
+#### [西医在中国的发展（十三）-湘雅医院/医学院（下）](/content/gnews/2463501.md)
+ `喜马拉雅纽约磐石农场`
 
 #### [中共国“辽宁”号航母编队在西太平洋进行实战化训练](/content/gnews/2463490.md)
  `日本东京方舟农场`
@@ -98,14 +113,8 @@
 #### [中日财经爆┃一则中共国新闻引发的闹剧](/content/gnews/2462839.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花时政┃中共正以疫情防控之名将新疆模式推行到全中国](/content/gnews/2462837.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [“恶意吃饭”三货车司机吃饭被行拘 中共恶法非法](/content/gnews/2462793.md)
  `波士顿五月花农场金融部`
-
-#### [中共寄托美国的绿色经济来保持稀土强国位置](/content/gnews/2462633.md)
- `秘密翻譯組G-Translators`
 
 #### [五月花简报（03/05/2022）](/content/gnews/2462632.md)
  `mayflowertranslate`
@@ -113,14 +122,8 @@
 #### [截至5.3 俄乌战事汇总](/content/gnews/2462614.md)
  `秘密翻譯組G-Translators`
 
-#### [参议员兰德·保罗要调查COVID的起源](/content/gnews/2462602.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月3日早](/content/gnews/2462574.md)
  `纽约香草山MOS01`
-
-#### [习轴心要建立的畜奴社会形态](/content/gnews/2462549.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [文贵爆料 5.3：清风看守所的救赎](/content/gnews/2462465.md)
  `秘密翻译组-原创组`
@@ -130,9 +133,6 @@
 
 #### [5/3/2022国际财经快讯：中共国封锁面临欧盟和俄罗斯石油禁令，石油价格下跌；风险投资家掀起加密货币热潮](/content/gnews/2462014.md)
  `秘密翻译组金融团队`
-
-#### [樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人](/content/gnews/2461269.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃两名乌克兰记者获德国之声言论自由奖](/content/gnews/2461159.md)
  `東京櫻花団-Tokyo Sakura Group`
