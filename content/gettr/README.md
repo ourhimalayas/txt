@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/4/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p18cmol8382.md)
+[@miles 5/4/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p18cwpbd56c.md)
 
-5/3/2022 Miles Guo: The Zhongyuan Hotel behind me in this photo is where I met Li Changchu, Li Desheng and Zhang Wannian. After that I went to Beijing and met with Wang Dongxing, Yang Dezhong and their families. I was supposed to b...
+5/3/2022 Miles Guo: When I was in my twenties, Wang Dongxing asked me a question about when Sima Yi had the ambition to take over the country. My life in the past several decades during which I dealt with the CCP was as dangerous a...
 
-<img src="https://media.gettr.com/group44/getter/2022/05/04/22/5644ceaf-3862-2cdb-a3d7-bfe7555ef6ef/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/05/04/23/b9ad155d-08a4-3940-24b9-62cc3a36668a/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 2022.05.04  PM NFSC news   UN Confirms Russian-Ukrainian war killed Over 3,000 civilians 
 
 <img src="https://media.gettr.com/group35/origin/2022/05/04/22/fdfefbc3-72c3-6913-c7eb-8fd5d70ab3fc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p18cmol8382.md)
+
+5/3/2022 Miles Guo: The Zhongyuan Hotel behind me in this photo is where I met Li Changchu, Li Desheng and Zhang Wannian. After that I went to Beijing and met with Wang Dongxing, Yang Dezhong and their families. I was supposed to b...
+
+<img src="https://media.gettr.com/group44/getter/2022/05/04/22/5644ceaf-3862-2cdb-a3d7-bfe7555ef6ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
 NFSC frontline reporter Nicole interviewed a European volunteer. They discussed the current politic games of the communist dictatorship in power. People around the world no matter what races have to unite and get rid of the communi...
 
 <img src="https://media.gettr.com/group11/origin/2022/05/04/09/238c5bc3-e8a5-bf07-1d7d-9f80ca0fe8f8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p189uc898a3.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group3/origin/2022/05/04/06/7a4c39ca-1d93-4d5e-6033-4bcf67228c74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
