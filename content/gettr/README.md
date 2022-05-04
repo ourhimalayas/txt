@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p189uc898a3.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group3/origin/2022/05/04/06/7a4c39ca-1d93-4d5e-6033-4bcf67228c74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 6:16 AM UTC  - :tv:直播](/content/gettr/p189dlrf8c5.md)
 
 5/3/2022 Miles Guo: The experience of Qingfeng Detention Center made me see through life and death, and no longer only lived for survival, but lived for faith; Chinese people should get rid of the shackles of material desires and t...
@@ -50,11 +58,11 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 
 ---
 
-[@miles 5/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p189uc898a3.md)
+[@miles 5/4/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p189e2wefd9.md)
 
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+NFSC frontline reporter Nicole interviewed a European volunteer. They discussed the current politic games of the communist dictatorship in power. People around the world no matter what races have to unite and get rid of the communi...
 
-<img src="https://media.gettr.com/group3/origin/2022/05/04/06/7a4c39ca-1d93-4d5e-6033-4bcf67228c74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/05/04/09/238c5bc3-e8a5-bf07-1d7d-9f80ca0fe8f8/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 2022.05.03  新中国联邦 | 喜健康   资本家，科学家谋财害命的“科学原理”—不仅儿童肝炎爆发，任何疾病均可扎扎实实大流行
 
 <img src="https://media.gettr.com/group48/origin/2022/05/03/20/be486d69-d4dd-89fb-58a8-5298287dff79/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1875bw4d76.md)
-
-2022-5-3《避风港》（43）疫苗——全球公共卫生系统的黑暗写照
-
-<img src="https://media.gettr.com/group7/origin/2022/05/03/18/2705e4d8-d9d2-3a45-b770-ea3eed7a616b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
