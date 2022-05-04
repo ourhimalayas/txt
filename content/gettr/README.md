@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 5/4/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p18cmol8382.md)
+
+5/3/2022 Miles Guo: The Zhongyuan Hotel behind me in this photo is where I met Li Changchu, Li Desheng and Zhang Wannian. After that I went to Beijing and met with Wang Dongxing, Yang Dezhong and their families. I was supposed to b...
+
+<img src="https://media.gettr.com/group44/getter/2022/05/04/22/5644ceaf-3862-2cdb-a3d7-bfe7555ef6ef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p18cwg525e4.md)
+
+“腾讯音乐” 飞飞秀救援快报 2022-05-04
+
+For English：gettr.com/streaming/p18ceqpfc9b
+
+<img src="https://media.gettr.com/group18/origin/2022/05/04/22/15962b51-5fd7-a8d3-29c7-d2dc1eec7e15/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 8:52 PM UTC  - :tv:直播](/content/gettr/p18cr6l517d.md)
 
 2022.05.04  新中国联邦 | 喜健康   疫苗灾难时代的心理调适之道
@@ -48,13 +66,11 @@
 
 ---
 
-[@miles 5/4/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p18cwg525e4.md)
+[@miles 5/4/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p18cu2c82f7.md)
 
-“腾讯音乐” 飞飞秀救援快报 2022-05-04
+5/3/2022 Miles Guo: The photo taken in my apartment at the Enji Garden witnessed my infiltration into the core of the CCP's intelligence agencies back in the day. All three of my apartments at the Enji Garden were confiscated by th...
 
-For English：gettr.com/streaming/p18ceqpfc9b
-
-<img src="https://media.gettr.com/group18/origin/2022/05/04/22/15962b51-5fd7-a8d3-29c7-d2dc1eec7e15/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/05/04/22/647b6bfd-9fd0-7040-25fe-6676cca0c4d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,22 +159,6 @@ NFSC frontline reporter Nicole interviewed a European volunteer. They discussed 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group13/origin/2022/05/04/04/1770b868-ec1e-391f-93c3-17712e0fdf85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 3:26 AM UTC ](/content/gettr/p188xdi558d.md)
-
-The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subversion act, and calls for "the Chinese Communist Party is not the same as the Chinese people, the Chinese Communist Party is the cause of all disasters i...
-
-<img src="https://media.gettr.com/group41/origin/2022/05/04/03/7e11b64c-577b-09f6-d072-cc0acdb57866/24db7a7d13fee34202e61014344daafc.png" width="506" height="284">
-
----
-
-[@miles 5/4/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1885ife28b.md)
-
-2022-5-《鸡血王喜币大作战》 第一百八十四集 嘉宾：无双柳薇薇、文空
-
-<img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
