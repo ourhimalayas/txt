@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 5/4/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18cqbba178.md)
+
+5/3/2022 Miles Guo: The photo of Mr. He and I was taken at my home. Mr. He knew my determination to take down the CCP. The reason why he could come over and had a conversation with me was because he totally understood my mind and s...
+
+<img src="https://media.gettr.com/group11/getter/2022/05/04/22/cc5ea183-a7b7-ba92-9bc4-30980b28335a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p18cmol8382.md)
 
 5/3/2022 Miles Guo: The Zhongyuan Hotel behind me in this photo is where I met Li Changchu, Li Desheng and Zhang Wannian. After that I went to Beijing and met with Wang Dongxing, Yang Dezhong and their families. I was supposed to b...
 
 <img src="https://media.gettr.com/group44/getter/2022/05/04/22/5644ceaf-3862-2cdb-a3d7-bfe7555ef6ef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p18cgrd7666.md)
+
+2022.05.04  PM NFSC news   UN Confirms Russian-Ukrainian war killed Over 3,000 civilians 
+
+<img src="https://media.gettr.com/group35/origin/2022/05/04/22/fdfefbc3-72c3-6913-c7eb-8fd5d70ab3fc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p18cu2c82f7.md)
+
+5/3/2022 Miles Guo: The photo taken in my apartment at the Enji Garden witnessed my infiltration into the core of the CCP's intelligence agencies back in the day. All three of my apartments at the Enji Garden were confiscated by th...
+
+<img src="https://media.gettr.com/group44/getter/2022/05/04/22/647b6bfd-9fd0-7040-25fe-6676cca0c4d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -63,14 +87,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
  5月4号：尊敬的战友们好……郑州这回又惨大了！
 
 <img src="https://media.gettr.com/group43/getter/2022/05/04/14/37cd3804-9896-e0e9-52cd-ffe5f2842824/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p18cu2c82f7.md)
-
-5/3/2022 Miles Guo: The photo taken in my apartment at the Enji Garden witnessed my infiltration into the core of the CCP's intelligence agencies back in the day. All three of my apartments at the Enji Garden were confiscated by th...
-
-<img src="https://media.gettr.com/group44/getter/2022/05/04/22/647b6bfd-9fd0-7040-25fe-6676cca0c4d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,22 +159,6 @@ NFSC frontline reporter Nicole interviewed a European volunteer. They discussed 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group3/origin/2022/05/04/06/7a4c39ca-1d93-4d5e-6033-4bcf67228c74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 6:16 AM UTC  - :tv:直播](/content/gettr/p189dlrf8c5.md)
-
-5/3/2022 Miles Guo: The experience of Qingfeng Detention Center made me see through life and death, and no longer only lived for survival, but lived for faith; Chinese people should get rid of the shackles of material desires and t...
-
-<img src="https://media.gettr.com/group49/getter/2022/05/04/06/502d01c0-36b7-bf84-cb70-7bcb7f3fb730/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 5:06 AM UTC  - :tv:直播](/content/gettr/p189w6c9849.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group13/origin/2022/05/04/04/1770b868-ec1e-391f-93c3-17712e0fdf85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
