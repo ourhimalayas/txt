@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p18bbfv8a18.md)
+
+5/3/2022 Miles Guo: I will show you the big picture of my personal history. The rise of the Whistleblowers' Movement and the New Federal State of China is by no means random, and I believe there is a mysterious force guiding us. St...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/04/15/316023ec-26f9-f500-e4a3-4a4e390d102f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 3:11 PM UTC ](/content/gettr/p18ay2w2e30.md)
 
 5月4号：这是七哥．今年收到最早的．第一个．祝七哥生日快乐的视频，感谢日本银河农场和美……帅哥妹妹．兄弟们！
@@ -24,11 +32,11 @@
 
 ---
 
-[@miles 5/4/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p18bbfv8a18.md)
+[@miles 5/4/2022 4:21 PM UTC  - :tv:直播](/content/gettr/p18b2ii191d.md)
 
-5/3/2022 Miles Guo: I will show you the big picture of my personal history. The rise of the Whistleblowers' Movement and the New Federal State of China is by no means random, and I believe there is a mysterious force guiding us. St...
+【Ukraine Rescue】05/04/2022 A British friend who has just joined the NFSC volunteer team, expressed his willingness to help the Ukrainian refugees with us. He says that the Chinese Communist Party is very evil and does not respect h...
 
-<img src="https://media.gettr.com/group17/getter/2022/05/04/15/316023ec-26f9-f500-e4a3-4a4e390d102f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/05/04/16/f34a0a35-aa6a-c14a-be0f-91068b58edf4/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,14 +149,6 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 2022.05.03  新中国联邦 | 喜财经    股市汇市黄金走势；马斯克收购推特后，GETTR美国注册量飙升了323%
 
 <img src="https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/4/2022 1:21 AM UTC  - :tv:直播](/content/gettr/p1888jvc12b.md)
-
-5/3/2022 Miles Guo: This is a photo of the place where I met with Ji Shengde, then deputy director of the Second Bureau of the PLA's General Staff Department, when I was young. In this photo, behind the Beijing Botanical Garden is ...
-
-<img src="https://media.gettr.com/group15/getter/2022/05/04/01/510049e3-affa-c569-de3b-0a55f39ddc8a/out.jpg" width="506" height="284">
 
 ---
 
