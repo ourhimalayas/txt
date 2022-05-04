@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 6:16 AM UTC  - :tv:直播](/content/gettr/p189dlrf8c5.md)
+
+5/3/2022 Miles Guo: The experience of Qingfeng Detention Center made me see through life and death, and no longer only lived for survival, but lived for faith; Chinese people should get rid of the shackles of material desires and t...
+
+<img src="https://media.gettr.com/group49/getter/2022/05/04/06/502d01c0-36b7-bf84-cb70-7bcb7f3fb730/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 5:06 AM UTC  - :tv:直播](/content/gettr/p189w6c9849.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -42,11 +50,11 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 
 ---
 
-[@miles 5/4/2022 6:16 AM UTC  - :tv:直播](/content/gettr/p189dlrf8c5.md)
+[@miles 5/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p189uc898a3.md)
 
-5/3/2022 Miles Guo: The experience of Qingfeng Detention Center made me see through life and death, and no longer only lived for survival, but lived for faith; Chinese people should get rid of the shackles of material desires and t...
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group49/getter/2022/05/04/06/502d01c0-36b7-bf84-cb70-7bcb7f3fb730/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/05/04/06/7a4c39ca-1d93-4d5e-6033-4bcf67228c74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 2022-5-3《避风港》（43）疫苗——全球公共卫生系统的黑暗写照
 
 <img src="https://media.gettr.com/group7/origin/2022/05/03/18/2705e4d8-d9d2-3a45-b770-ea3eed7a616b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p185y3n9194.md)
-
-【Ukraine Rescue】05/03/2022 A volunteer from the U.S. comes and asks what the NFSC is and gives us an interview before he leaves after completing his relief work at the Ukrainian border. He expresses his love for Tibet and praises o...
-
-<img src="https://media.gettr.com/group44/getter/2022/05/03/16/1cf57072-abf8-227b-596e-11a69b63a9d7/out.jpg" width="506" height="284">
 
 ---
 
