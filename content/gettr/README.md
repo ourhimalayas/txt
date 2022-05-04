@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 5/4/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p187m7u3e6a.md)
+
+5/3/2022 Miles Guo: When I got out of Qingfeng Detention Center, I was under border control and my name was on the CCP's surveillance list due to my support of the June 4, 1989 event. I was unable to get loans or own any legal enti...
+
+<img src="https://media.gettr.com/group24/getter/2022/05/04/00/da2e7227-7817-8f9f-7679-07293918522b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p188b2y8d59.md)
+
+2022.05.03  晚 新中国联邦 | 新闻   联合国证实俄乌战争已致3000多平民丧生；俄罗斯总参谋长赴前线督战時受伤
+
+<img src="https://media.gettr.com/group47/origin/2022/05/04/00/0d8f6f8e-fa75-3a9c-8c57-d11b264df2a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/3/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p187yac601e.md)
+
+2022.05.03  NFSC fringe  Episode 182
+
+<img src="https://media.gettr.com/group4/origin/2022/05/03/23/ea669af6-eb53-61e0-a0e8-1e0cc49a1b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p18801l2e4c.md)
 
 2022.05.03  PM NFSC news   Ukraine Forces Strike Down 10 Russian Drones
@@ -26,11 +50,11 @@
 
 ---
 
-[@miles 5/3/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p187yac601e.md)
+[@miles 5/4/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1880gjc36a.md)
 
-2022.05.03  NFSC fringe  Episode 182
+5/3/2022 Miles Guo: Almost all my old photos were confiscated by the CCP police and State Security agents. The CCP also classified my photos and those of my family as top state secrets. It is quite difficult to find the photos that...
 
-<img src="https://media.gettr.com/group4/origin/2022/05/03/23/ea669af6-eb53-61e0-a0e8-1e0cc49a1b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/05/04/00/45f5fcf5-575a-5f18-71da-21f371ace061/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,56 +183,6 @@ Day 59 - Date: Ma...
 5/2/2022 Each of these old photos has witnessed the trajectory of my personal growth. What is the connection between these photos and my revelations in the past five years? Now it is the time to let the world know the history of th...
 
 <img src="https://media.gettr.com/group31/getter/2022/05/03/07/c94fd58d-b897-458a-7554-10f1dc575f7a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 6:47 AM UTC  - :tv:直播](/content/gettr/p184iihb5ba.md)
-
-May 2nd, 2022, many media report that Putin was diagnosed with abdominal cancer a year and a half ago and has Parkinson's disease, may undergo cancer surgery in the near future and temporarily hand power to another person.
-
- Since ...
-
-<img src="https://media.gettr.com/group28/getter/2022/05/03/06/73599b79-0b95-b40d-8564-0ffa0d085efe/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p184jtg9164.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group29/origin/2022/05/03/04/a24bd2d5-1ea7-7830-4c06-816787e2242c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 3:45 AM UTC ](/content/gettr/p183pyy2e49.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月1日第58天当日救援统计：
-
-Medyka救援站接待：约178人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16186人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 58 - Date: Ma...
-
-<img src="https://media.gettr.com/group32/getter/2022/05/03/03/e7fe8521-8ada-61b5-05ec-7db415ce5f69/16b1d27c96b939f67456e84f0f2c02e2.jpg" width="506" height="284">
 
 ---
 
