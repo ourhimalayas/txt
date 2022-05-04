@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 8:52 PM UTC  - :tv:直播](/content/gettr/p18cr6l517d.md)
+
+2022.05.04  新中国联邦 | 喜健康   疫苗灾难时代的心理调适之道
+
+<img src="https://media.gettr.com/group34/origin/2022/05/04/20/eaf65a7a-346e-cedf-8fb4-27c655435365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 4:21 PM UTC  - :tv:直播](/content/gettr/p18b2ii191d.md)
 
 【Ukraine Rescue】05/04/2022 A British friend who has just joined the NFSC volunteer team, expressed his willingness to help the Ukrainian refugees with us. He says that the Chinese Communist Party is very evil and does not respect h...
@@ -40,11 +48,13 @@
 
 ---
 
-[@miles 5/4/2022 8:52 PM UTC  - :tv:直播](/content/gettr/p18cr6l517d.md)
+[@miles 5/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p18ctfw8b19.md)
 
-2022.05.04  新中国联邦 | 喜健康   疫苗灾难时代的心理调适之道
+“腾讯音乐” 飞飞秀救援快报 2022-05-04
 
-<img src="https://media.gettr.com/group34/origin/2022/05/04/20/eaf65a7a-346e-cedf-8fb4-27c655435365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p18chcsf63b
+
+<img src="https://media.gettr.com/group18/origin/2022/05/04/22/15962b51-5fd7-a8d3-29c7-d2dc1eec7e15/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,14 +159,6 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 2022-5-《鸡血王喜币大作战》 第一百八十四集 嘉宾：无双柳薇薇、文空
 
 <img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p18821aa548.md)
-
-2022.05.03  新中国联邦 | 喜财经    股市汇市黄金走势；马斯克收购推特后，GETTR美国注册量飙升了323%
-
-<img src="https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
