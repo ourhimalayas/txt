@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 4:21 PM UTC  - :tv:直播](/content/gettr/p18b2ii191d.md)
+
+【Ukraine Rescue】05/04/2022 A British friend who has just joined the NFSC volunteer team, expressed his willingness to help the Ukrainian refugees with us. He says that the Chinese Communist Party is very evil and does not respect h...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/04/16/f34a0a35-aa6a-c14a-be0f-91068b58edf4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p18bbfv8a18.md)
 
 5/3/2022 Miles Guo: I will show you the big picture of my personal history. The rise of the Whistleblowers' Movement and the New Federal State of China is by no means random, and I believe there is a mysterious force guiding us. St...
@@ -32,11 +40,11 @@
 
 ---
 
-[@miles 5/4/2022 4:21 PM UTC  - :tv:直播](/content/gettr/p18b2ii191d.md)
+[@miles 5/4/2022 8:52 PM UTC  - :tv:直播](/content/gettr/p18cr6l517d.md)
 
-【Ukraine Rescue】05/04/2022 A British friend who has just joined the NFSC volunteer team, expressed his willingness to help the Ukrainian refugees with us. He says that the Chinese Communist Party is very evil and does not respect h...
+2022.05.04  新中国联邦 | 喜健康   疫苗灾难时代的心理调适之道
 
-<img src="https://media.gettr.com/group35/getter/2022/05/04/16/f34a0a35-aa6a-c14a-be0f-91068b58edf4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/05/04/20/eaf65a7a-346e-cedf-8fb4-27c655435365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,16 +157,6 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 2022.05.03  新中国联邦 | 喜财经    股市汇市黄金走势；马斯克收购推特后，GETTR美国注册量飙升了323%
 
 <img src="https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/4/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p188jvo2ce7.md)
-
-This is certainly that the Axis Act wouldn’t exist without the Whistle-blower Movement. The Whistle-blower movement clearly told the West, communism, the Chinese Communist Party does not represent all Chinese people.
-
-没有爆料革命一定不可能有轴...
-
-<img src="https://media.gettr.com/group13/origin/2022/05/04/01/973d6621-7ffb-8bb2-e786-a5932e587f5d/out.jpg" width="506" height="284">
 
 ---
 
