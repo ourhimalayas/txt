@@ -2,20 +2,44 @@
 ---
 
 
-#### [秘翻在线：美国务院称如果俄罗斯在纪念日宣战将是个巨大的讽刺](/content/gnews/2463853.md)
+#### [秘翻在线：美报道称众多对俄网络攻击是因为对暴行的义愤](/content/gnews/2463944.md)
  `秘密翻譯組G-Translators`
 
-#### [【说事儿】中共防疫宣传又翻车：3个人照顾全村禽畜，累到求救！](/content/gnews/2463832.md)
- `TokyoSakuraDesignGroup`
+#### [因传闻马云被捕，阿里巴巴股价下跌9%](/content/gnews/2463940.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [5/3/2022 文贵直播：这是文贵年轻的时候跟时任中共总参二部副部长姬胜德见面地点的照片，这张照片中北京植物园的后面就是总参二部最大的情报机构，是中共的情报中心](/content/gnews/2463936.md)
+ `秘密翻译组-北美组`
+
+#### [上海仍未完全解封，老百姓出门面临各种限制](/content/gnews/2463919.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [郭氏情报站- 2022.05.02 文贵先生盖特乱聊摘要](/content/gnews/2463917.md)
+ `MOS Designer香草山设计部`
+
+#### [郭先生老照片背后之港币签名的羊子林和珠海书记梁广大](/content/gnews/2463916.md)
+ `喜马拉雅日本银河系农场`
+
+#### [俄电视台威胁“用巨大的放射性海啸和撒旦-2导弹毁灭英国”](/content/gnews/2463910.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [秘翻在线：意大利报纸称教皇与普京会面的要求没得到回应](/content/gnews/2463904.md)
+ `秘密翻譯組G-Translators`
+
+#### [俄罗斯外长的言论激怒了以色列](/content/gnews/2463902.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [5/3/2022 文贵直播：成功需要有信仰和超出常人的抱负，文贵从清丰看守所出来后一切都是为了灭共，结交了不少中共党政军的精英](/content/gnews/2463898.md)
+ `秘密翻译组-北美组`
+
+#### [共产主义和自由主义的较量](/content/gnews/2463881.md)
+ `加拿大温哥华英里农场`
+
+#### [战友日常之-庆祝自由](/content/gnews/2463858.md)
+ `MOS Designer香草山设计部`
 
 #### [5/3/2022 文贵直播：文贵几乎所有的老照片都被中共警察、国安搜罗殆尽，中共还把文贵和家人的照片列为国家最高机密，这几天推出的老照片是多么的来之不易啊](/content/gnews/2463818.md)
  `秘密翻译组-北美组`
-
-#### [【说事儿】一名勇敢的英国志愿者去乌克兰加入战斗以对抗普京的军队](/content/gnews/2463810.md)
- `TokyoSakuraDesignGroup`
-
-#### [巴拿马国民议会通过加密货币监管法案](/content/gnews/2463806.md)
- `纽约香草山MOS02`
 
 #### [顶级大企业、投资人正加紧与喜币合作，2022成中共治下最黑暗起始年](/content/gnews/2463780.md)
  `YALUN 亚伦`
@@ -23,32 +47,14 @@
 #### [秘翻在线：有报道称马云因颠覆国家罪被调查，阿里巴巴股价暴跌](/content/gnews/2463771.md)
  `秘密翻譯組G-Translators`
 
+#### [随着中共国经济衰退的加深，知名市场分析师被封杀](/content/gnews/2463763.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月3日晚](/content/gnews/2463731.md)
  `纽约香草山MOS01`
 
-#### [20220503郭文贵大直播 ：七哥讲诉生活中的“高人”给他解释人为何不生不死让他从此有了自己心中的信仰](/content/gnews/2463723.md)
- `Tokyo Sakura Video Group`
-
-#### [20220503郭文贵大直播 ：郭先生离开清丰看守所照片](/content/gnews/2463717.md)
- `Tokyo Sakura Video Group`
-
-#### [20220503郭文贵大直播 ：5月3号是七哥从清风看守所出来的那一天](/content/gnews/2463707.md)
- `Tokyo Sakura Video Group`
-
-#### [七哥的照片已是国家最高机密（一）](/content/gnews/2463693.md)
- `雅典娜GNotes`
-
-#### [共产党很多重要高官都是共济会培养，没有善恶观念，只有控制](/content/gnews/2463653.md)
- `雅典娜GNotes`
-
 #### [【说事儿】疫情｜台湾疫情中重症患者 过半数“接种三剂”新冠疫苗](/content/gnews/2463643.md)
  `TokyoSakuraDesignGroup`
-
-#### [20220503郭文贵大直播 ：七哥离开清丰看守所的照片](/content/gnews/2463642.md)
- `Tokyo Sakura Video Group`
-
-#### [七哥在美国见识到世界真正的运行的事实，七哥很早就和神秘组织说要消灭共产党(2)](/content/gnews/2463638.md)
- `雅典娜GNotes`
 
 #### [【说事儿】习近平已做好中国人死一半的准备 中共国进入畜奴社会](/content/gnews/2463602.md)
  `TokyoSakuraDesignGroup`
@@ -58,9 +64,6 @@
 
 #### [俄罗斯实施对妇女和儿童的性犯罪](/content/gnews/2463546.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [西医在中国的发展（十三）-湘雅医院/医学院（下）](/content/gnews/2463501.md)
- `喜马拉雅纽约磐石农场`
 
 #### [中共国“辽宁”号航母编队在西太平洋进行实战化训练](/content/gnews/2463490.md)
  `日本东京方舟农场`
@@ -129,9 +132,6 @@
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [斯坦福大学的未来式重力望远镜可拍摄系外行星 比现有技术强大1000倍](/content/gnews/2461047.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [中日财经爆┃德国用印度代替中国？](/content/gnews/2460857.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共因畏惧美国制裁，正制定方案来保护海外资产](/content/gnews/2460790.md)
