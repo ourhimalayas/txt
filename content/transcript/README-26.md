@@ -3,6 +3,8 @@
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年7月22日 談談華爾街日報的報導](/content/transcript/2019/07/20190724-4998396878425414363.md)
+
 [文字版：2019年7月23日健身后直播](/content/transcript/2019/07/20190723-3137442274090003733.md)
 
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/transcript/2019/07/20190722-5623982298172574655.md)
@@ -50,8 +52,6 @@
 [文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190621-2858079650750078361.md)
 
 [文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/transcript/2019/06/20190620-2817897737957212509.md)
-
-[文字稿：香港時間2019年6月17日上午直播](/content/transcript/2019/06/20190618-7972608617443196420.md)
 
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

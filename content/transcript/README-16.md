@@ -3,6 +3,8 @@
 
 ## 頁面 16/42 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
 
+[新中国联邦六四建国直播图文版](/content/transcript/2020/06/20200606-8976575972430129554.md)
+
 [文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/transcript/2020/06/20200604-1889289193459336361.md)
 
 [文字版：5月30日郭先生GTV第二次直播](/content/transcript/2020/06/20200602-4381535378837818753.md)
@@ -50,8 +52,6 @@
 [文字版：5月6日郭先生GTV直播连线Twins](/content/transcript/2020/05/20200510-2903203991693841280.md)
 
 [文字版：郭先生5月5日GTV直播](/content/transcript/2020/05/20200507-1653317726052582270.md)
-
-[文字版：5月4日郭先生GTV直播](/content/transcript/2020/05/20200507-758917873142808151.md)
 
 
 ## 頁面 16/42 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)

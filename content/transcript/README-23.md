@@ -3,6 +3,8 @@
 
 ## 頁面 23/42 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年10月28日文贵紧急直播](/content/transcript/2019/11/20191104-5535756797858660589.md)
+
 [文字版：2019年10月27日文贵试直播乱聊](/content/transcript/2019/11/20191104-2431489573018737402.md)
 
 [文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/content/transcript/2019/11/20191104-7849947075695036861.md)
@@ -50,8 +52,6 @@
 [文字版：2019年9月30日开篇演讲](/content/transcript/2019/10/20191001-5934250796818600450.md)
 
 [文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/transcript/2019/09/20190929-7939918714279530876.md)
-
-[文字版：2019年9月27日郭先生联合班农先生、Kathy Sloan女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/transcript/2019/09/20190928-167661051507921662.md)
 
 
 ## 頁面 23/42 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)

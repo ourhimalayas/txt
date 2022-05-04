@@ -3,6 +3,8 @@
 
 ## 頁面 22/42 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年11月23日文贵报平安直播](/content/transcript/2019/11/20191125-6475275943691135995.md)
+
 [文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/content/transcript/2019/11/20191122-9185268058186409613.md)
 
 [文字版：2019年11月19日庆祝香港人权与民主法案全票通过](/content/transcript/2019/11/20191121-5294984680700709371.md)
@@ -50,8 +52,6 @@
 [文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/transcript/2019/11/20191104-6223234375354578515.md)
 
 [文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/content/transcript/2019/11/20191104-6256642616766807144.md)
-
-[文字版：2019年10月28日文贵紧急直播](/content/transcript/2019/11/20191104-5535756797858660589.md)
 
 
 ## 頁面 22/42 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)

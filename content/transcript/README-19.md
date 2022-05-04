@@ -3,6 +3,8 @@
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/content/transcript/2020/02/20200218-4076658468529416877.md)
+
 [文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/transcript/2020/02/20200216-8326399150836754935.md)
 
 [文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/transcript/2020/02/20200214-4470688033484197678.md)
@@ -50,8 +52,6 @@
 [文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因](/content/transcript/2020/01/20200122-2341307363254649322.md)
 
 [文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/content/transcript/2020/01/20200121-9098198645527028408.md)
-
-[文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/transcript/2020/01/20200120-5512396279941051665.md)
 
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

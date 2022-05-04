@@ -3,6 +3,8 @@
 
 ## 頁面 42/42 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [查看全部](/content/transcript/README-all.md)
 
+[2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳](/content/transcript/2018/04/20180418-4084377282763556.md)
+
 [2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委](/content/transcript/2018/04/20180418-1721457250505894859.md)
 
 [文贵9月15日直播第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习主席，党中央！](/content/transcript/2018/04/20180418-3737775031867528364.md)

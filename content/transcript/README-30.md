@@ -3,6 +3,8 @@
 
 ## 頁面 30/42 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[For CHINA, Is GUO Wengui More Important Than A State Level Ally?](/content/transcript/2019/02/20190206-4750659155472193962.md)
+
 [文字版：2019年1月29日（上，下）郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料](/content/transcript/2019/01/20190131-8326021185101637411.md)
 
 [文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动](/content/transcript/2019/01/20190131-1680667895953644784.md)
@@ -50,8 +52,6 @@
 [翻译：两名与中国国安有关联的中国黑客被控告违法入侵和盗取全球范围的知识产权和商业机密](/content/transcript/2018/12/20181220-8361136447914723605.md)
 
 [文字版：2018年12月19号和12月20号郭先生报平](/content/transcript/2018/12/20181220-3642429743012520927.md)
-
-[文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息](/content/transcript/2018/12/20181218-205233234738962001.md)
 
 
 ## 頁面 30/42 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[路透社：美国国会催促要求中国记者注册为特工](/content/transcript/2018/04/20180418-1850311727870023205.md)
+
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/content/transcript/2018/04/20180418-2996614567598336236.md)
 
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/transcript/2018/04/20180418-6885559451730743203.md)
@@ -50,8 +52,6 @@
 [CNBC 报导：中国内部影响世界的绝密“法宝”](/content/transcript/2018/04/20180418-6039693712536282425.md)
 
 [文字版 郭先生10月27报平安](/content/transcript/2018/04/20180418-1204915936908036259.md)
-
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/transcript/2018/04/20180418-8757739535920514791.md)
 
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

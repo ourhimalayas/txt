@@ -3,6 +3,8 @@
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/transcript/2019/05/20190510-4083283175191346612.md)
+
 [文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/content/transcript/2019/05/20190510-3983721227880771175.md)
 
 [文字版：2017年4月28日郭先生接受BBC采訪的視頻](/content/transcript/2019/05/20190510-8107152999267349007.md)
@@ -50,8 +52,6 @@
 [文字版：2019年4月7日美欧日等将对中资国营，香港自贸协定，中共及香港官员的一系列立法制裁，或调查，或列入黑名单，行动，将是中共灭亡的第一步！](/content/transcript/2019/04/20190408-8215608975739288782.md)
 
 [文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/transcript/2019/04/20190407-6044925743176035036.md)
-
-[翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/content/transcript/2019/04/20190404-1301610143804687789.md)
 
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

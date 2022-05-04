@@ -3,6 +3,8 @@
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/content/transcript/2018/11/20181102-2322680967443605626.md)
+
 [文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/content/transcript/2018/11/20181102-6608329269804536528.md)
 
 [文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/transcript/2018/11/20181101-6081222795262941074.md)
@@ -50,8 +52,6 @@
 [文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/content/transcript/2018/09/20180922-4402169540593751293.md)
 
 [文字版：郭文贵9月20日:马云开始被“狩猎”时间王岐山穿睡衣大谈中美贸易战,FBI约谈博讯西诺](/content/transcript/2018/09/20180921-2736922515347046582.md)
-
-[文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！](/content/transcript/2018/09/20180917-8550776674007589502.md)
 
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

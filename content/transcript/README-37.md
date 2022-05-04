@@ -3,6 +3,8 @@
 
 ## 頁面 37/42 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪](/content/transcript/2018/04/20180418-456944924800011468.md)
+
 [文字版2018年3月7日郭媒体郭先生视频](/content/transcript/2018/04/20180418-2835349421572666159.md)
 
 [重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释](/content/transcript/2018/04/20180418-3510219950010298563.md)
@@ -50,8 +52,6 @@
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/transcript/2018/04/20180418-5726696199328694940.md)
 
 [2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/content/transcript/2018/04/20180418-619291156807124954.md)
-
-[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/transcript/2018/04/20180418-6993418396066281259.md)
 
 
 ## 頁面 37/42 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

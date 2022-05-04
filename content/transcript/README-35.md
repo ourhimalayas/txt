@@ -3,6 +3,8 @@
 
 ## 頁面 35/42 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/transcript/2018/05/20180525-5314910770568044153.md)
+
 [文字版郭文贵先生2018 05 17 Broadcast试播](/content/transcript/2018/05/20180520-991291288208648069.md)
 
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/transcript/2018/05/20180512-8900938020145834574.md)
@@ -50,8 +52,6 @@
 [文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！](/content/transcript/2018/04/20180418-6417716069003334186.md)
 
 [文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/transcript/2018/04/20180418-26077859752910433.md)
-
-[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/transcript/2018/04/20180418-8927936442107582299.md)
 
 
 ## 頁面 35/42 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
