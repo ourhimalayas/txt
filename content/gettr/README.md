@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 12:40 PM UTC  - :tv:直播](/content/gettr/p18act8cb56.md)
+
+2022.05.04  早 新中国联邦 | 新闻   英国志愿者加入乌克兰抗俄战斗；意大利社会学家称中共实为独裁政府
+
+<img src="https://media.gettr.com/group50/origin/2022/05/04/12/dcef136d-c64b-74cb-717a-27b1d16c0066/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18aejv621e.md)
 
 2022.05.04  AM NFSC news   Korean Volunteer Believes Our Next Encounter Will Be in a Free World
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/4/2022 12:40 PM UTC  - :tv:直播](/content/gettr/p18act8cb56.md)
+[@miles 5/4/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p18atpmad54.md)
 
-2022.05.04  早 新中国联邦 | 新闻   英国志愿者加入乌克兰抗俄战斗；意大利社会学家称中共实为独裁政府
+2022.05.04  早 新中国联邦 | 新闻访谈   欧盟警告成员国为断供做好准备；用卢布购买天然气违反制裁
 
-<img src="https://media.gettr.com/group50/origin/2022/05/04/12/dcef136d-c64b-74cb-717a-27b1d16c0066/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/05/04/13/31ca4dc2-47bd-e3a1-9126-86ebcf82321c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 5/3/2022 Miles Guo: Almost all my old photos were confiscated by the CCP police and State Security agents. The CCP also classified my photos and those of my family as top state secrets. It is quite difficult to find the photos that...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/04/00/45f5fcf5-575a-5f18-71da-21f371ace061/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p187yac601e.md)
-
-2022.05.03  NFSC fringe  Episode 182
-
-<img src="https://media.gettr.com/group4/origin/2022/05/03/23/ea669af6-eb53-61e0-a0e8-1e0cc49a1b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
