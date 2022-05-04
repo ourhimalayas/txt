@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p189e2wefd9.md)
+
+NFSC frontline reporter Nicole interviewed a European volunteer. They discussed the current politic games of the communist dictatorship in power. People around the world no matter what races have to unite and get rid of the communi...
+
+<img src="https://media.gettr.com/group11/origin/2022/05/04/09/238c5bc3-e8a5-bf07-1d7d-9f80ca0fe8f8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p189uc898a3.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -58,11 +66,11 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 
 ---
 
-[@miles 5/4/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p189e2wefd9.md)
+[@miles 5/4/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18as73bcc0.md)
 
-NFSC frontline reporter Nicole interviewed a European volunteer. They discussed the current politic games of the communist dictatorship in power. People around the world no matter what races have to unite and get rid of the communi...
+2022.05.04  新中国联邦 | 军情室  军情室连线文疯而动战友，讲述前线战况
 
-<img src="https://media.gettr.com/group11/origin/2022/05/04/09/238c5bc3-e8a5-bf07-1d7d-9f80ca0fe8f8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 5/3/2022 Miles Guo: What is the story behind the photo taken at the observation deck on the 70th floor of the Bank of China Tower in Hong Kong in 1994 or 1995? The Bank of China (Hong Kong) was willing to provide me with a loan of ...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/03/22/19ee2d88-5c19-2663-5d00-aabf0fac1f53/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p186xftc07c.md)
-
-2022.05.03  新中国联邦 | 喜健康   资本家，科学家谋财害命的“科学原理”—不仅儿童肝炎爆发，任何疾病均可扎扎实实大流行
-
-<img src="https://media.gettr.com/group48/origin/2022/05/03/20/be486d69-d4dd-89fb-58a8-5298287dff79/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
