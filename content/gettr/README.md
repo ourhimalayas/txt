@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1885ife28b.md)
+
+2022-5-《鸡血王喜币大作战》 第一百八十四集 嘉宾：无双柳薇薇、文空
+
+<img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p18821aa548.md)
 
 2022.05.03  新中国联邦 | 喜财经    股市汇市黄金走势；马斯克收购推特后，GETTR美国注册量飙升了323%
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/4/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1885ife28b.md)
+[@miles 5/4/2022 3:26 AM UTC ](/content/gettr/p188xdi558d.md)
 
-2022-5-《鸡血王喜币大作战》 第一百八十四集 嘉宾：无双柳薇薇、文空
+The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subversion act, and calls for "the Chinese Communist Party is not the same as the Chinese people, the Chinese Communist Party is the cause of all disasters i...
 
-<img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/05/04/03/7e11b64c-577b-09f6-d072-cc0acdb57866/24db7a7d13fee34202e61014344daafc.png" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 【Ukraine Rescue】05/03/2022 The mayor of Medyka comes to visit the relief camp accompanied by his officials. The Director of Communications is pleased to learn about the humanitarian work of the NFSC & ROLF in Medyka, and takes out ...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/03/13/60dd37f1-2412-2f56-9633-a3ec999d05dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p185fmv14e7.md)
-
-2022.05.03 文贵大直播：谈谈老照片，普京手术， 民生问题
-
-<img src="https://media.gettr.com/group25/origin/2022/05/03/12/da5dfe71-ce46-65ce-f694-571056b78a8b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
