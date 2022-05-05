@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 3:37 PM UTC  - :tv:直播](/content/gettr/p18gg88d4b6.md)
+
+【Ukraine Rescue】05/03/2022 Jan, founder of Bright Jar, a British humanitarian relief organization, visits the tent of the NFSC and the ROLF. He says he’d be happy to learn more about the evil nature of the CCP and the cause of dest...
+
+<img src="https://media.gettr.com/group48/getter/2022/05/05/15/cf10ec33-c779-b188-57e4-321a66710f07/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p18f69h13df.md)
 
 叶钊颖-郝海东-飞飞 《大实话·第十九场》： “好”  2022-05-05
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/5/2022 3:37 PM UTC  - :tv:直播](/content/gettr/p18gg88d4b6.md)
+[@miles 5/5/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p18f67ja691.md)
 
-【Ukraine Rescue】05/03/2022 Jan, founder of Bright Jar, a British humanitarian relief organization, visits the tent of the NFSC and the ROLF. He says he’d be happy to learn more about the evil nature of the CCP and the cause of dest...
+2022.05.05 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group48/getter/2022/05/05/15/cf10ec33-c779-b188-57e4-321a66710f07/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/05/05/17/7f2dc092-e055-f261-2689-6b72f1495a97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 60 - Date: May...
 5/1/2022 Miles Guo: Shi Taifeng, who suppressed Mongolian culture and language, will be the President and Party Secretary of the Chinese Academy of Social Sciences, Chen Quanguo will probably be in charge of the CCP's ideologies. X...
 
 <img src="https://media.gettr.com/group15/getter/2022/05/05/04/815ea778-60f9-8d7f-d2c9-a92a697f1270/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 3:58 AM UTC  - :tv:直播](/content/gettr/p18dvv8a3bf.md)
-
-5/4/2022 Miles Guo’s GETTR: Qin Gang, the former “wolf warrior”, is now kowtowing and begging for friendship in the US. Jack Ma was arrested long time ago, and the reason that CCP deliberately released the news of Mr. Ma so-and-so ...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/05/03/b5e387d4-66b1-b88c-3327-eb08ef267529/out.jpg" width="506" height="284">
 
 ---
 
