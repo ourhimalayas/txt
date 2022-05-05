@@ -3,6 +3,8 @@
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/transcript/2019/06/20190620-2817897737957212509.md)
+
 [文字稿：香港時間2019年6月17日上午直播](/content/transcript/2019/06/20190618-7972608617443196420.md)
 
 [文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/transcript/2019/06/20190615-9025117161508016054.md)
@@ -50,8 +52,6 @@
 [文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/content/transcript/2019/05/20190512-8072600133061975327.md)
 
 [文字版：2019年5月10日文贵50岁生日感言](/content/transcript/2019/05/20190511-4805446820921789375.md)
-
-[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/transcript/2019/05/20190511-3890850294287177156.md)
 
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 20/42 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/content/transcript/2020/01/20200121-9098198645527028408.md)
+
 [文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/transcript/2020/01/20200120-5512396279941051665.md)
 
 [文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/content/transcript/2020/01/20200119-3958906328707892329.md)
@@ -50,8 +52,6 @@
 [文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开](/content/transcript/2019/12/20191228-6979826398362851059.md)
 
 [文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/content/transcript/2019/12/20191228-7349804487258741094.md)
-
-[文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化](/content/transcript/2019/12/20191228-6154119938253081684.md)
 
 
 ## 頁面 20/42 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年12月19号和12月20号郭先生报平](/content/transcript/2018/12/20181220-3642429743012520927.md)
+
 [文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息](/content/transcript/2018/12/20181218-205233234738962001.md)
 
 [文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流](/content/transcript/2018/12/20181218-4408266402406274127.md)
@@ -50,8 +52,6 @@
 [翻译世界论坛报导：跌落死的中国商人很可能“知道的太多”](/content/transcript/2018/11/20181108-8983368335590394256.md)
 
 [文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/content/transcript/2018/11/20181108-3694443382811258849.md)
-
-[翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/content/transcript/2018/11/20181102-7756356782375038893.md)
 
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)

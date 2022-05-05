@@ -3,6 +3,8 @@
 
 ## 頁面 9/42 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
 
+[全文字版2021年8月25日郭文贵先生以毒灭共时间线](/content/transcript/2021/08/20210825-1490238.md)
+
 [全文字版2021年8月24日郭文贵先生G-TV直播](/content/transcript/2021/08/20210824-1491517.md)
 
 [全文字版2021年8月23日郭文贵先生G-TV直播](/content/transcript/2021/08/20210823-1489502.md)
@@ -50,8 +52,6 @@
 [全文字版2021年8月4日郭文贵先生G-TV直播](/content/transcript/2021/08/20210804-1446074.md)
 
 [全文字版2021年8月3日郭文贵先生G-TV直播](/content/transcript/2021/08/20210803-1444955.md)
-
-[全文字版2021年8月1日郭文贵先生G-TV直播](/content/transcript/2021/08/20210801-1440210.md)
 
 
 ## 頁面 9/42 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)

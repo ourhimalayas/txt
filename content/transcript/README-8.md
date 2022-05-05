@@ -3,6 +3,8 @@
 
 ## 頁面 8/42 [**<**](/content/transcript/README-7.md) [1](/content/transcript/README.md) ... [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) **8** [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-9.md) [查看全部](/content/transcript/README-all.md)
 
+[2021年9月13日郭文贵先生做健腹轮盖特全文字版](/content/transcript/2021/09/20210913-1561708.md)
+
 [2021年9月13日郭文贵先生送小郑州雪茄盖特全文字版](/content/transcript/2021/09/20210913-1561743.md)
 
 [2021年9月12日郭文贵先生签名送小郑州雪茄盒子全文字版](/content/transcript/2021/09/20210912-1563739.md)
@@ -50,8 +52,6 @@
 [全文字版2021年8月26日郭文贵先生G-TV直播](/content/transcript/2021/08/20210826-1494569.md)
 
 [全文字版2021年8月25日郭文贵先生G-TV直播](/content/transcript/2021/08/20210825-1493884.md)
-
-[全文字版2021年8月25日郭文贵先生以毒灭共时间线](/content/transcript/2021/08/20210825-1490238.md)
 
 
 ## 頁面 8/42 [**<**](/content/transcript/README-7.md) [1](/content/transcript/README.md) ... [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) **8** [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-9.md) [查看全部](/content/transcript/README-all.md)

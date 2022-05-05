@@ -3,6 +3,8 @@
 
 ## 頁面 34/42 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/content/transcript/2018/08/20180809-4256963212298749895.md)
+
 [文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/content/transcript/2018/08/20180809-3627104687795521023.md)
 
 [文字版：8月5号王健被杀的过程和涉及的人](/content/transcript/2018/08/20180808-5918968027514942039.md)
@@ -50,8 +52,6 @@
 [文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/transcript/2018/05/20180531-5466761042269971935.md)
 
 [文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/transcript/2018/05/20180529-639277482984082138.md)
-
-[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/transcript/2018/05/20180529-6991075700483755264.md)
 
 
 ## 頁面 34/42 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)

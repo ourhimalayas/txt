@@ -3,6 +3,8 @@
 
 ## 頁面 15/42 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：郭先生2020年7月25日GTV直播](/content/transcript/2020/07/20200729-6515817926208283674.md)
+
 [文字版：2020年7月22日郭先生8分钟盖特](/content/transcript/2020/07/20200726-4617342392146265454.md)
 
 [文字版：郭先生2020年7月22日GTV直播](/content/transcript/2020/07/20200726-865086789235456284.md)
@@ -50,8 +52,6 @@
 [文字版:2020年6月8日郭先生连线木兰乱聊直播](/content/transcript/2020/06/20200611-1109197692077432203.md)
 
 [文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想](/content/transcript/2020/06/20200611-7286733971832697894.md)
-
-[文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/content/transcript/2020/06/20200609-6663996851433423244.md)
 
 
 ## 頁面 15/42 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

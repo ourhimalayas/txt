@@ -3,6 +3,8 @@
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/content/transcript/2018/04/20180418-619291156807124954.md)
+
 [2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/transcript/2018/04/20180418-6993418396066281259.md)
 
 [郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/content/transcript/2018/04/20180418-3865257394170288457.md)
@@ -50,8 +52,6 @@
 [翻译：班农在第十二届族群青年领袖研习营演讲](/content/transcript/2018/04/20180418-291103909959910855.md)
 
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/content/transcript/2018/04/20180418-7738901583406026314.md)
-
-[自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/transcript/2018/04/20180418-184430822548389263.md)
 
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

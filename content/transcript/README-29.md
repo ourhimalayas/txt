@@ -3,6 +3,8 @@
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/transcript/2019/04/20190407-6044925743176035036.md)
+
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/content/transcript/2019/04/20190404-1301610143804687789.md)
 
 [文字版：2019年4月2日郭文贵先生报平安](/content/transcript/2019/04/20190403-7393706925448798261.md)
@@ -50,8 +52,6 @@
 [文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/content/transcript/2019/02/20190209-3549584960178600210.md)
 
 [文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/content/transcript/2019/02/20190208-3310541803704262131.md)
-
-[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/content/transcript/2019/02/20190207-4952752821783304200.md)
 
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
