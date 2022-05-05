@@ -2,11 +2,39 @@
 ---
 
 
+[@miles 5/5/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p18d571333d.md)
+
+2022.05.04  晚 新中国联邦 | 新闻访谈    台湾大停电的背后玄机; 疫情清零：军管？政治斗争？集中营？压力测试？
+
+<img src="https://media.gettr.com/group25/origin/2022/05/05/00/3e406289-5e1b-7b13-ee49-7f7190d025c0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18cycsef94.md)
 
 2022.05.04  晚 新中国联邦 | 新闻   俄乌战场最新消息精选；新一轮欧盟制裁瞄准俄能源和更多银行
 
 <img src="https://media.gettr.com/group3/origin/2022/05/05/00/3ece9902-a466-c274-43e2-7c9ee954da57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p18d16se712.md)
+
+Precious Memories
+
+In 1991 I just got out of the Qingfeng detention center and met my cellmates who were released earlier.
+
+In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell phone, and met the representativ...
+
+<img src="https://media.gettr.com/group8/origin/2022/05/05/01/d3cc68d5-a0ad-4517-4216-f398ef73a84c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 12:39 AM UTC  - :tv:直播](/content/gettr/p18da1952a6.md)
+
+5/3/2022 Miles Guo: The photo of Mr. He Lingle and I riding in a limo to meet the people from the Morgan Group shows us the importance of seeing through life and death and sticking to our faith. The gods created by the CCP are all ...
+
+<img src="https://media.gettr.com/group15/getter/2022/05/05/00/b594425c-bad7-2521-142a-b6144d6491c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,14 +61,6 @@
 5/3/2022 Miles Guo: The photo of Mr. He and I was taken at my home. Mr. He knew my determination to take down the CCP. The reason why he could come over and had a conversation with me was because he totally understood my mind and s...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/04/22/cc5ea183-a7b7-ba92-9bc4-30980b28335a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 12:39 AM UTC  - :tv:直播](/content/gettr/p18da1952a6.md)
-
-5/3/2022 Miles Guo: The photo of Mr. He Lingle and I riding in a limo to meet the people from the Morgan Group shows us the importance of seeing through life and death and sticking to our faith. The gods created by the CCP are all ...
-
-<img src="https://media.gettr.com/group15/getter/2022/05/05/00/b594425c-bad7-2521-142a-b6144d6491c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,22 +165,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
 2022.05.04  早 新中国联邦 | 新闻   英国志愿者加入乌克兰抗俄战斗；意大利社会学家称中共实为独裁政府
 
 <img src="https://media.gettr.com/group50/origin/2022/05/04/12/dcef136d-c64b-74cb-717a-27b1d16c0066/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18aejv621e.md)
-
-2022.05.04  AM NFSC news   Korean Volunteer Believes Our Next Encounter Will Be in a Free World
-
-<img src="https://media.gettr.com/group25/origin/2022/05/04/11/278dc230-4452-785a-5b25-3194f616efde/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/4/2022 12:12 PM UTC  - 2圖](/content/gettr/p18a3j7533b.md)
-
-🙏🙏🙏🙏🙏🙏🙏【On the morning of May 4, 2022, we received a letter of thanks from the Association of the non-governmental organization "TERRASSA AJUDA A NENS D'UCRAÏNA" (Teresa Home for Ukrainian Children, or TANU) in Barcelona, Sp...
-
-<img src="https://media.gettr.com/group22/getter/2022/05/04/12/918d1520-b7f3-ed46-ebba-70e2992ae395/cb713d9a8ebc552f0d0d4e1e59f9f098.jpg" width="506" height="284">
 
 ---
 
