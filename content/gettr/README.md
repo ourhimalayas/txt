@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18ejb3b11a.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group22/origin/2022/05/05/04/b2e1b1ce-f655-3b5e-b185-e5aa95da55c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 4:57 AM UTC  - :tv:直播](/content/gettr/p18ey71b4d7.md)
 
 5/4/2022 Miles Guo’s GETTR: The recently released pictures are not only a microcosm of my life in the past years, but also reflect various relationships between people, people and money, bravery and cowardice, religion and faith an...
@@ -36,11 +44,11 @@
 
 ---
 
-[@miles 5/5/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18ejb3b11a.md)
+[@miles 5/5/2022 6:08 AM UTC  - :tv:直播](/content/gettr/p18evfi092e.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+5/4/2022 Miles Guo’s GETTR: The recent rampage of the virus was caused by the COVID vaccines and the shedding of the spike proteins in these vaccines. After the Yuda Palace Hotel was snatched by the CCP, it hasn't brought them any ...
 
-<img src="https://media.gettr.com/group22/origin/2022/05/05/04/b2e1b1ce-f655-3b5e-b185-e5aa95da55c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/05/05/06/71bb8180-cf0e-75f0-5fad-89743c27f0a1/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell p
 5/3/2022 Miles Guo: When I was in my twenties, Wang Dongxing asked me a question about when Sima Yi had the ambition to take over the country. My life in the past several decades during which I dealt with the CCP was as dangerous a...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/04/23/b9ad155d-08a4-3940-24b9-62cc3a36668a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p18cgrd7666.md)
-
-2022.05.04  PM NFSC news   UN Confirms Russian-Ukrainian war killed Over 3,000 civilians 
-
-<img src="https://media.gettr.com/group35/origin/2022/05/04/22/fdfefbc3-72c3-6913-c7eb-8fd5d70ab3fc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
