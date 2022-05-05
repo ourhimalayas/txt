@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/5/2022 12:51 PM UTC  - :tv:直播](/content/gettr/p18fp8hb736.md)
+
+【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
+
+<img src="https://media.gettr.com/group43/getter/2022/05/05/12/1b252734-beef-af20-0b5e-3352fed5028a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p18fob88fec.md)
+
+5月5号：尊敬的战友们好．你有喜币吗？将成为未来的最有力量的．问候语！
+
+<img src="https://media.gettr.com/group34/getter/2022/05/05/12/ca27424d-f4be-f2f0-d9e7-4adae21f094a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p18f7s99571.md)
 
 【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
@@ -124,14 +140,6 @@ Day 60 - Date: May...
 
 ---
 
-[@miles 5/5/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p18fob88fec.md)
-
-5月5号：尊敬的战友们好．你有喜币吗？将成为未来的最有力量的．问候语！
-
-<img src="https://media.gettr.com/group34/getter/2022/05/05/12/ca27424d-f4be-f2f0-d9e7-4adae21f094a/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/5/2022 3:54 AM UTC  - :tv:直播](/content/gettr/p18dukc2179.md)
 
 Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take down the Chinese Communist Party (CCP) to a group of French volunteers. The CCP is supporting Putin’s invasion of Ukraine, and is eying on Taiwan. French ...
@@ -187,14 +195,6 @@ Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take dow
 就是感觉这歌曲特别好，哪怕能给您带来一丝安慰也好🙏想与您分享一下🌹🙏】
 
 <img src="https://media.gettr.com/group3/getter/2022/05/05/01/04994c2e-e50f-eb3e-e50d-9948f3b1ac03/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p18d27307ec.md)
-
-5/3/2022 Mile Guo: I kept my promise made in the Qingfeng Detention center of taking down the CCP, and was not distracted by fame, wealth, or celebrities. Neither did I choose an easier life of emigrating to Europe or the US or eng...
-
-<img src="https://media.gettr.com/group46/getter/2022/05/05/01/fb353fc7-beec-bc02-7199-b2a2e3376642/out.jpg" width="506" height="284">
 
 ---
 
