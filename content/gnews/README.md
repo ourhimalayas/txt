@@ -2,53 +2,83 @@
 ---
 
 
+#### [【说事儿】巴拿马国民议会通过加密货币监管法案](/content/gnews/2474184.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】欧盟反虚假信息机构首发中文报告以对抗中共](/content/gnews/2474153.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】巴基斯坦反叛组织警告中共国将进行更严厉的攻击](/content/gnews/2474142.md)
+ `TokyoSakuraDesignGroup`
+
+#### [俄乌冲突俄阵亡将领不完全统计](/content/gnews/2474141.md)
+ `Tokyo Sakura Video Group`
+
+#### [樱花时政&#124;京东等88家中企被美证监委“预摘牌”](/content/gnews/2474134.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【说事儿】麦考尔警告说，下周是俄罗斯乌克兰战争的“关键”](/content/gnews/2474125.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】俄罗斯持续入侵表明联合国迫切需要改革](/content/gnews/2474109.md)
+ `TokyoSakuraDesignGroup`
+
+#### [中日财经爆┃德国纯电车中共国市场占有率翻一番](/content/gnews/2474092.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [罗援将军谈转基因，现代生物战](/content/gnews/2474086.md)
+ `Tokyo Sakura Video Group`
+
+#### [樱花时政&#124;中共“清零”政策，涉及中共内斗 恐激起民变](/content/gnews/2474039.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [俄罗斯城的捷儿任斯克（Dzerzhinsk）又突发了大火](/content/gnews/2474037.md)
+ `Tokyo Sakura Video Group`
+
+#### [上海只给本地人物资！外地人折半，甚至没有](/content/gnews/2474032.md)
+ `Tokyo Sakura Video Group`
+
+#### [有声&#124;日本与泰国达成新防务协议](/content/gnews/2474028.md)
+ `MOSREC`
+
+#### [SEC增加加密货币部门力量以保护投资者](/content/gnews/2474009.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [樱花时政&#124;中共已无国 “妖魔”绑架下的核酸检测异常诡异](/content/gnews/2474001.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [CCP 把上海居住的人粮食断了，不顾人民死活](/content/gnews/2473981.md)
+ `Tokyo Sakura Video Group`
+
+#### [中日财经爆┃美将严厉制裁海康威视](/content/gnews/2473961.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [CCP制造的物资短缺，一个月过去了，没一点长进](/content/gnews/2473926.md)
+ `Tokyo Sakura Video Group`
+
+#### [5/4/2022 文贵盖特: 曾经的战狼秦刚现在美国到处磕头下跪请求中美友好；马云早已被抓，中共故意放出逮捕马某某的消息是试探老百姓的心理](/content/gnews/2473925.md)
+ `秘密翻译组-北美组`
+
+#### [德国政府讨论应急物资准备](/content/gnews/2473911.md)
+ `澳喜特战旅Gnews`
+
 #### [【说事儿】制药公司借疫苗灾难在血栓治疗业务上牟取巨额暴利](/content/gnews/2473889.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】多伦多仇恨犯罪率呈明显上升趋势](/content/gnews/2473879.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】辉瑞公布第二份文件 引爆新一轮质疑恐慌:史诗般安全灾难](/content/gnews/2473875.md)
  `TokyoSakuraDesignGroup`
 
 #### [5/3/2022 文贵直播：普京身体状况是国家安全情报，而文贵在5年前就已掌握且是向世界透露该情报的第一人；普京曾接受中共国提供的汉人的血清，这里面存在巨大信息](/content/gnews/2473863.md)
  `秘密翻译组-北美组`
 
-#### [中日财经爆┃燃料价格上涨加剧全球粮食危机](/content/gnews/2473849.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [马斯克从拉里·埃里森和红杉资本等投资者获得超 70 亿美元资金](/content/gnews/2473843.md)
  `波士顿五月花农场金融部`
-
-#### [美联储22年来首次升息0.5% 6月开始阶段性压缩金融资产](/content/gnews/2473806.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [【饥饿疗法】](/content/gnews/2473792.md)
- `SpicyWorld`
-
-#### [反习还是反华？悉尼华人区抗议习近平的“民主人士”疑似洋伪类](/content/gnews/2473778.md)
- `澳喜农场`
 
 #### [2022年5月5日战时快讯](/content/gnews/2473776.md)
  `墨尔本雅典娜农场`
 
-#### [近期中共病毒确诊是因受到刺突蛋白的攻击](/content/gnews/2473741.md)
- `银河歌舞厅`
-
 #### [俄罗斯禁止日本首相等63名日本人入境 为阁僚成员以及媒体相关者](/content/gnews/2473736.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [樱花时政┃对抗中共审查 上海人利用NFT平台记录苦难](/content/gnews/2473726.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [欧盟公布对俄罗斯产石油进口禁令的追加制裁方案](/content/gnews/2473674.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [文·贵天成——文贵先生谈孟建柱（七十）](/content/gnews/2473611.md)
- `墨尔本雅典娜农场`
-
-#### [灭共者郭文贵先生](/content/gnews/2473605.md)
- `银河勇气之星`
 
 #### [美国证券交易委员会将京东等80多家中概股加入到面临退市风险的公司名单中](/content/gnews/2473592.md)
  `波士顿五月花农场金融部`
@@ -59,29 +89,8 @@
 #### [中共国增加富人在澳大利亚申请签证的难度](/content/gnews/2473509.md)
  `走进澳洲`
 
-#### [中共国社交媒体强制展示用户IP地址](/content/gnews/2473450.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【乌克兰救援】每一场运动都始于一个人，归结为每一个参与者的行动](/content/gnews/2473387.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀(五)](/content/gnews/2473354.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [有声｜乌克兰军队重新夺回哈尔科夫附近的村庄](/content/gnews/2473262.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [由于著名的第五条款，芬兰计划加入北约](/content/gnews/2473249.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [有声｜传上海独居老人家中死近月 尸体恶臭才被发现](/content/gnews/2473229.md)
  `秘密翻译组-即时新闻播报组`
-
-#### [瑞士国家银行表态BTC不符合储备货币的要求](/content/gnews/2473216.md)
- `墨尔本雅典娜农场`
-
-#### [瑞典称如果递交北约申请将得到美国的安全保证](/content/gnews/2473198.md)
- `Shuizhuyu`
 
 #### [闲聊澳洲：北京市委常委要求彻底肃清傅政华等流毒的影响](/content/gnews/2472965.md)
  `墨尔本雅典娜农场`
@@ -91,9 +100,6 @@
 
 #### [CDC使用手机定位数据来监控教堂和学校](/content/gnews/2472913.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [中共国107岁老爷子抗疫记](/content/gnews/2472862.md)
- `澳喜特战旅Gnews`
 
 #### [欧洲终于同意停买俄石油 计划逐步“有序”停止进口（2/2）](/content/gnews/2472775.md)
  `西班牙巴塞罗那喜悦农场`
@@ -107,14 +113,8 @@
 #### [文贵大直播精要听写 2022/05/03](/content/gnews/2472592.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [05/05每日播报｜社媒消息：班农先生 罗伯特马龙](/content/gnews/2472418.md)
- `秘密翻译组-即时新闻播报组`
-
 #### [与中共有关的黑客组织从约30家跨国公司窃取了数万亿知识产权](/content/gnews/2472416.md)
  `秘密翻譯組G-Translators`
-
-#### [中共国最终消费率、居民消费率大幅低于改革开放前！](/content/gnews/2472385.md)
- `经济小组`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作](/content/gnews/2471803.md)
  `關注組`
