@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p18fadfec41.md)
+
+5月5号：在21世纪的今天．只能在中国共产党极权统治下的中国社会……才能发生这种惨不忍睹的事情……这些老人的昨天．就是我们的今天．我们的明天……【武汉大妈亲口讲述，武汉封城时，很多被感染的老人被从医院包裹起来，直接送进焚化炉！】
+
+<img src="https://media.gettr.com/group4/getter/2022/05/05/13/f1234e38-0a58-665d-36c8-bee0cb568852/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p18f6bxbf04.md)
 
 2022.05.05 早 新中国联邦 | 新闻 美国志愿者对新中国联邦灭共行动表示支持；西班牙非政府组织主席致信感谢新中国联邦
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/5/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p18fadfec41.md)
+[@miles 5/5/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p18f69h13df.md)
 
-5月5号：在21世纪的今天．只能在中国共产党极权统治下的中国社会……才能发生这种惨不忍睹的事情……这些老人的昨天．就是我们的今天．我们的明天……【武汉大妈亲口讲述，武汉封城时，很多被感染的老人被从医院包裹起来，直接送进焚化炉！】
+叶钊颖-郝海东-飞飞 《大实话·第十九场》： “好”  2022-05-05
 
-<img src="https://media.gettr.com/group4/getter/2022/05/05/13/f1234e38-0a58-665d-36c8-bee0cb568852/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/05/05/14/b32a3e24-4201-8a4d-5f7d-6ea04386646b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ Day 60 - Date: May...
 5/1/2022 Miles Guo: Shi Taifeng, who suppressed Mongolian culture and language, will be the President and Party Secretary of the Chinese Academy of Social Sciences, Chen Quanguo will probably be in charge of the CCP's ideologies. X...
 
 <img src="https://media.gettr.com/group15/getter/2022/05/05/04/815ea778-60f9-8d7f-d2c9-a92a697f1270/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 3:51 AM UTC  - :tv:直播](/content/gettr/p18dysaf975.md)
-
-
-
-5/3/2022 Miles Guo: Putin's heath is absolute a piece of national security information, but Miles got the firsthand information 5 years ago and was the first person disclosing it to the world; the CCP China has supplied Chinese p...
-
-<img src="https://media.gettr.com/group5/getter/2022/05/05/03/c8f42d97-4521-4f0a-4f25-917218da3817/out.jpg" width="506" height="284">
 
 ---
 
