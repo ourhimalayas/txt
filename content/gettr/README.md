@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 1:31 AM UTC  - :tv:直播](/content/gettr/p18df285e3d.md)
+
+ 5月4号，这是什么情况放了一辈子毒⋯这毒难道在自己身上发作了……在中国会发生这样的情况吗？又会发生在谁的身上呢？
+
+<img src="https://media.gettr.com/group45/getter/2022/05/05/01/6974787d-9a61-8756-2921-cb18ea8e2f40/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 1:21 AM UTC  - :tv:直播](/content/gettr/p18d41i60de.md)
 
 5/3/2022 Miles Guo: The year 2022 will be the darkest time for the Chinese people! Natural disasters and economic crises will lead to shortages of food supplies, collapses of banks, and social turmoil. Our fellow fighters who own t...
@@ -10,11 +18,21 @@
 
 ---
 
-[@miles 5/5/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p18d571333d.md)
+[@miles 5/5/2022 1:34 AM UTC  - :tv:直播](/content/gettr/p18d9yt80ac.md)
 
-2022.05.04  晚 新中国联邦 | 新闻访谈    台湾大停电的背后玄机; 疫情清零：军管？政治斗争？集中营？压力测试？
+5月4号衷心地，感谢．李文星战友制作的，让七哥水哗啦啦流的视频！【七哥🙏
 
-<img src="https://media.gettr.com/group25/origin/2022/05/05/00/3e406289-5e1b-7b13-ee49-7f7190d025c0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+文星以前特别气父母，这两年心里才对父母心疼那颗心刚刚复苏萌芽，这两年每逢过生日心里才有那种痛的感觉，知道生日那天爸爸的期盼，妈妈那种痛苦，以前从来没有😓
+
+
+
+七哥再过几天就是您的生日了🎂🌹
+
+突然有感觉就做了这个视频，七哥您千万别哭🙏
+
+就是感觉这歌曲特别好，哪怕能给您带来一丝安慰也好🙏想与您分享一下🌹🙏】
+
+<img src="https://media.gettr.com/group3/getter/2022/05/05/01/04994c2e-e50f-eb3e-e50d-9948f3b1ac03/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +41,14 @@
 5/3/2022 Mile Guo: I kept my promise made in the Qingfeng Detention center of taking down the CCP, and was not distracted by fame, wealth, or celebrities. Neither did I choose an easier life of emigrating to Europe or the US or eng...
 
 <img src="https://media.gettr.com/group46/getter/2022/05/05/01/fb353fc7-beec-bc02-7199-b2a2e3376642/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p18d571333d.md)
+
+2022.05.04  晚 新中国联邦 | 新闻访谈    台湾大停电的背后玄机; 疫情清零：军管？政治斗争？集中营？压力测试？
+
+<img src="https://media.gettr.com/group25/origin/2022/05/05/00/3e406289-5e1b-7b13-ee49-7f7190d025c0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,22 +175,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
 5月4号：尊敬的战友们好……这一次病毒阳性增长，一定要小心，这是疫苗灾难的开始……
 
 <img src="https://media.gettr.com/group44/getter/2022/05/04/14/51cc436a-de10-ad5c-7b97-3a4af09b1dcf/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 2:04 PM UTC  - :tv:直播](/content/gettr/p18agu9c728.md)
-
- 5月4号：尊敬的战友们好……郑州这回又惨大了！
-
-<img src="https://media.gettr.com/group43/getter/2022/05/04/14/37cd3804-9896-e0e9-52cd-ffe5f2842824/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p18arss418b.md)
-
-5/3/2022 Miles Guo: Why did I choose Xia Ping among many investment partners back then? First, it was because Xia's family had deep grudges against the CCP and had never succumbed to the evil regime, which coincided with my pursuit...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/04/14/2d38b76e-a4c4-812a-0c87-15a635e24166/out.jpg" width="506" height="284">
 
 ---
 
