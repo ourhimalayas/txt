@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 7:46 AM UTC  - :tv:直播](/content/gettr/p18eug9b4e3.md)
+
+2022.05.05 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group30/origin/2022/05/05/06/0f794835-00c8-ec28-b02f-7220edc10008/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 6:08 AM UTC  - :tv:直播](/content/gettr/p18evfi092e.md)
 
 5/4/2022 Miles Guo’s GETTR: The recent rampage of the virus was caused by the COVID vaccines and the shedding of the spike proteins in these vaccines. After the Yuda Palace Hotel was snatched by the CCP, it hasn't brought them any ...
@@ -52,11 +60,35 @@
 
 ---
 
-[@miles 5/5/2022 7:46 AM UTC  - :tv:直播](/content/gettr/p18eug9b4e3.md)
+[@miles 5/5/2022 9:39 AM UTC ](/content/gettr/p18euol77c7.md)
 
-2022.05.05 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group30/origin/2022/05/05/06/0f794835-00c8-ec28-b02f-7220edc10008/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月3日第60天当日救援统计：
+
+Medyka救援站接待：约47人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16393人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 60 - Date: May...
+
+<img src="https://media.gettr.com/group34/getter/2022/05/05/09/2aae8add-d376-f0d1-3891-18b95b29c6db/a848180386b0c1c57b459f98966ae976.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +199,6 @@ In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell p
 5/3/2022 Miles Guo: The photo of Mr. He Lingle and I riding in a limo to meet the people from the Morgan Group shows us the importance of seeing through life and death and sticking to our faith. The gods created by the CCP are all ...
 
 <img src="https://media.gettr.com/group15/getter/2022/05/05/00/b594425c-bad7-2521-142a-b6144d6491c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p18dek9cd97.md)
-
-2022.05.04  NFSC fringe  Episode 183
-
-中文同传：https://gettr.com/streaming/p18d3xn10d5
-
-<img src="https://media.gettr.com/group26/origin/2022/05/04/23/77a1ca07-83e4-17d0-a989-74c067376600/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
