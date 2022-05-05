@@ -11,14 +11,29 @@
 
 ---
 
+#### [【说事儿】多数加拿大年轻人拒绝接种疫苗加强剂](/content/gnews/2474300.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】自由党政府或掩盖温尼伯P4实验室的间谍活动](/content/gnews/2474286.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】加拿大军方计划巨资购买新防空系统](/content/gnews/2474255.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】中共国“辽宁”号航母编队在西太平洋进行实战化训练](/content/gnews/2474213.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【全文字幕】2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](/content/gnews/2474200.md)
+ `文贵视频字幕全集`
+
 #### [【说事儿】巴拿马国民议会通过加密货币监管法案](/content/gnews/2474184.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】欧盟反虚假信息机构首发中文报告以对抗中共](/content/gnews/2474153.md)
- `TokyoSakuraDesignGroup`
+#### [特斯拉将建上海第二工厂](/content/gnews/2474170.md)
+ `银河歌舞厅`
 
-#### [【说事儿】巴基斯坦反叛组织警告中共国将进行更严厉的攻击](/content/gnews/2474142.md)
- `TokyoSakuraDesignGroup`
+#### [美国降低关税看似妥协，实为灭共策略](/content/gnews/2474159.md)
+ `波士顿五月花农场`
 
 #### [俄乌冲突俄阵亡将领不完全统计](/content/gnews/2474141.md)
  `Tokyo Sakura Video Group`
@@ -26,11 +41,8 @@
 #### [樱花时政&#124;京东等88家中企被美证监委“预摘牌”](/content/gnews/2474134.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [【说事儿】麦考尔警告说，下周是俄罗斯乌克兰战争的“关键”](/content/gnews/2474125.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】俄罗斯持续入侵表明联合国迫切需要改革](/content/gnews/2474109.md)
- `TokyoSakuraDesignGroup`
+#### [有声&#124;近百名乌克兰平民撤离亚速钢铁厂](/content/gnews/2474102.md)
+ `MOSREC`
 
 #### [中日财经爆┃德国纯电车中共国市场占有率翻一番](/content/gnews/2474092.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -56,11 +68,8 @@
 #### [樱花时政&#124;中共已无国 “妖魔”绑架下的核酸检测异常诡异](/content/gnews/2474001.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [CCP 把上海居住的人粮食断了，不顾人民死活](/content/gnews/2473981.md)
- `Tokyo Sakura Video Group`
-
-#### [中日财经爆┃美将严厉制裁海康威视](/content/gnews/2473961.md)
- `東京櫻花団-Tokyo Sakura Group`
+#### [【G时新闻】郭先生的人生决择](/content/gnews/2473991.md)
+ `G-时新闻`
 
 #### [CCP制造的物资短缺，一个月过去了，没一点长进](/content/gnews/2473926.md)
  `Tokyo Sakura Video Group`
@@ -73,9 +82,6 @@
 
 #### [【说事儿】制药公司借疫苗灾难在血栓治疗业务上牟取巨额暴利](/content/gnews/2473889.md)
  `TokyoSakuraDesignGroup`
-
-#### [5/3/2022 文贵直播：普京身体状况是国家安全情报，而文贵在5年前就已掌握且是向世界透露该情报的第一人；普京曾接受中共国提供的汉人的血清，这里面存在巨大信息](/content/gnews/2473863.md)
- `秘密翻译组-北美组`
 
 #### [马斯克从拉里·埃里森和红杉资本等投资者获得超 70 亿美元资金](/content/gnews/2473843.md)
  `波士顿五月花农场金融部`
@@ -101,9 +107,6 @@
 #### [有声｜传上海独居老人家中死近月 尸体恶臭才被发现](/content/gnews/2473229.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [闲聊澳洲：北京市委常委要求彻底肃清傅政华等流毒的影响](/content/gnews/2472965.md)
- `墨尔本雅典娜农场`
-
 #### [中共惨无人道的 &#8220;清零 &#8220;封锁给中国人敲响了警钟](/content/gnews/2472957.md)
  `topnews`
 
@@ -118,9 +121,6 @@
 
 #### [中共开始为上海封城恶行推卸责任](/content/gnews/2472648.md)
  `澳喜特战旅Gnews`
-
-#### [文贵大直播精要听写 2022/05/03](/content/gnews/2472592.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [与中共有关的黑客组织从约30家跨国公司窃取了数万亿知识产权](/content/gnews/2472416.md)
  `秘密翻譯組G-Translators`
