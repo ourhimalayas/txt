@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18i6kl9818.md)
+
+2022.05.05  PM NFSC news   Russia Targets East Ukraine While it Suffers Heavy Losses
+
+<img src="https://media.gettr.com/group23/origin/2022/05/05/22/e5aadf06-5f67-af0d-91d1-24ecec92a725/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18hflo773a.md)
+
+5/5/2022 Miles Guo’s GETTR: As long a s the CCP still exists, the Sino-US relationship will never improve. Only by destroying the CCP can the economy of the US and the West sustain. The Americans’ talk of canceling the tariffs impo...
+
+<img src="https://media.gettr.com/group44/getter/2022/05/05/22/529bffe4-159c-fc91-3537-204a872c0927/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 10:42 PM UTC  - :tv:直播](/content/gettr/p18hm8y5fab.md)
 
 5/5/2022 Miles Guo’s GETTR: The recent spike in stock markets is due to the over-issued currency and has no underlying economic support. The amount of over-issued currency in Communist China goes far beyond your imagination!
@@ -72,11 +88,11 @@ For English：gettr.com/streaming/p18hhlyddb1
 
 ---
 
-[@miles 5/5/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18hflo773a.md)
+[@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18ibya789b.md)
 
-5/5/2022 Miles Guo’s GETTR: As long a s the CCP still exists, the Sino-US relationship will never improve. Only by destroying the CCP can the economy of the US and the West sustain. The Americans’ talk of canceling the tariffs impo...
+5/5/2022 Miles Guo’s GETTR: My advice is that you should not participate in the kind of games played by the big shots in the stock market. We must live through the next couple of years and stay safe. The CCP virus will possibly be ...
 
-<img src="https://media.gettr.com/group44/getter/2022/05/05/22/529bffe4-159c-fc91-3537-204a872c0927/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/05/05/23/9160731b-0fa7-6036-1e6d-08784bd614e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,22 +189,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 60 - Date: May...
 
 <img src="https://media.gettr.com/group34/getter/2022/05/05/09/2aae8add-d376-f0d1-3891-18b95b29c6db/a848180386b0c1c57b459f98966ae976.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 7:46 AM UTC  - :tv:直播](/content/gettr/p18eug9b4e3.md)
-
-2022.05.05 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group30/origin/2022/05/05/06/0f794835-00c8-ec28-b02f-7220edc10008/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 6:08 AM UTC  - :tv:直播](/content/gettr/p18evfi092e.md)
-
-5/4/2022 Miles Guo’s GETTR: The recent rampage of the virus was caused by the COVID vaccines and the shedding of the spike proteins in these vaccines. After the Yuda Palace Hotel was snatched by the CCP, it hasn't brought them any ...
-
-<img src="https://media.gettr.com/group49/getter/2022/05/05/06/71bb8180-cf0e-75f0-5fad-89743c27f0a1/out.jpg" width="506" height="284">
 
 ---
 
