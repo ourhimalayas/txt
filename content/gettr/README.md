@@ -12,11 +12,27 @@
 
 ---
 
+[@miles 5/5/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p18dykhd54a.md)
+
+5/1/2022 Miles Guo: Shi Taifeng, who suppressed Mongolian culture and language, will be the President and Party Secretary of the Chinese Academy of Social Sciences, Chen Quanguo will probably be in charge of the CCP's ideologies. X...
+
+<img src="https://media.gettr.com/group15/getter/2022/05/05/04/815ea778-60f9-8d7f-d2c9-a92a697f1270/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 3:54 AM UTC  - :tv:直播](/content/gettr/p18dukc2179.md)
 
 Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take down the Chinese Communist Party (CCP) to a group of French volunteers. The CCP is supporting Putin’s invasion of Ukraine, and is eying on Taiwan. French ...
 
 <img src="https://media.gettr.com/group38/origin/2022/05/05/03/c0c84d9e-47d9-80de-882f-4c498756134b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 3:58 AM UTC  - :tv:直播](/content/gettr/p18dvv8a3bf.md)
+
+5/4/2022 Miles Guo’s GETTR: Qin Gang, the former “wolf warrior”, is now kowtowing and begging for friendship in the US. Jack Ma was arrested long time ago, and the reason that CCP deliberately released the news of Mr. Ma so-and-so ...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/05/03/b5e387d4-66b1-b88c-3327-eb08ef267529/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +57,6 @@ Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take dow
  5月4号，这是什么情况放了一辈子毒⋯这毒难道在自己身上发作了……在中国会发生这样的情况吗？又会发生在谁的身上呢？
 
 <img src="https://media.gettr.com/group45/getter/2022/05/05/01/6974787d-9a61-8756-2921-cb18ea8e2f40/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 3:58 AM UTC  - :tv:直播](/content/gettr/p18dvv8a3bf.md)
-
-5/4/2022 Miles Guo’s GETTR: Qin Gang, the former “wolf warrior”, is now kowtowing and begging for friendship in the US. Jack Ma was arrested long time ago, and the reason that CCP deliberately released the news of Mr. Ma so-and-so ...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/05/03/b5e387d4-66b1-b88c-3327-eb08ef267529/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell p
 5/3/2022 Miles Guo: The photo taken in my apartment at the Enji Garden witnessed my infiltration into the core of the CCP's intelligence agencies back in the day. All three of my apartments at the Enji Garden were confiscated by th...
 
 <img src="https://media.gettr.com/group44/getter/2022/05/04/22/647b6bfd-9fd0-7040-25fe-6676cca0c4d0/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p18cwg525e4.md)
-
-“腾讯音乐” 飞飞秀救援快报 2022-05-04
-
-For English：gettr.com/streaming/p18ceqpfc9b
-
-<img src="https://media.gettr.com/group18/origin/2022/05/04/22/15962b51-5fd7-a8d3-29c7-d2dc1eec7e15/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
