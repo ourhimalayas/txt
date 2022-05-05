@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 5/5/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p18fadfec41.md)
+
+5月5号：在21世纪的今天．只能在中国共产党极权统治下的中国社会……才能发生这种惨不忍睹的事情……这些老人的昨天．就是我们的今天．我们的明天……【武汉大妈亲口讲述，武汉封城时，很多被感染的老人被从医院包裹起来，直接送进焚化炉！】
+
+<img src="https://media.gettr.com/group4/getter/2022/05/05/13/f1234e38-0a58-665d-36c8-bee0cb568852/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p18f6c1ccc6.md)
 
 2022.05.05 早  新中国联邦 | 新闻访谈 
 
 <img src="https://media.gettr.com/group31/origin/2022/05/05/13/7ae816ab-3d79-c535-73d0-286aa7da9a15/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 1:13 PM UTC  - :tv:直播](/content/gettr/p18frndc260.md)
+
+5月5号：尊敬的战友们好，今天没有直播，明天上午9:00开始大直播，非常的抱歉……很多战友向我咨询．关于昨天．美国股市的变化的看法，我在这里以个人的观点和大家分享一下！
+
+<img src="https://media.gettr.com/group40/getter/2022/05/05/13/bbbd7939-7415-5b5d-d473-d198d4902ca4/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,14 +47,6 @@
 2022.05.05 早 新中国联邦 | 新闻 美国志愿者对新中国联邦灭共行动表示支持；西班牙非政府组织主席致信感谢新中国联邦
 
 <img src="https://media.gettr.com/group33/origin/2022/05/05/12/8455ec45-c591-785a-a430-59787af1a52e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:13 PM UTC  - :tv:直播](/content/gettr/p18frndc260.md)
-
-5月5号：尊敬的战友们好，今天没有直播，明天上午9:00开始大直播，非常的抱歉……很多战友向我咨询．关于昨天．美国股市的变化的看法，我在这里以个人的观点和大家分享一下！
-
-<img src="https://media.gettr.com/group40/getter/2022/05/05/13/bbbd7939-7415-5b5d-d473-d198d4902ca4/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take dow
 5/4/2022 Miles Guo’s GETTR: Qin Gang, the former “wolf warrior”, is now kowtowing and begging for friendship in the US. Jack Ma was arrested long time ago, and the reason that CCP deliberately released the news of Mr. Ma so-and-so ...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/05/03/b5e387d4-66b1-b88c-3327-eb08ef267529/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p18dvbr153e.md)
-
-2022-5-4《鸡血王喜币大作战》 第一百八十五集 嘉宾：Nick、封神榜
-
-<img src="https://media.gettr.com/group23/origin/2022/04/06/02/e711cb0d-f987-8820-e005-ece002bb4cb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
