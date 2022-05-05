@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 6:08 AM UTC  - :tv:直播](/content/gettr/p18evfi092e.md)
+
+5/4/2022 Miles Guo’s GETTR: The recent rampage of the virus was caused by the COVID vaccines and the shedding of the spike proteins in these vaccines. After the Yuda Palace Hotel was snatched by the CCP, it hasn't brought them any ...
+
+<img src="https://media.gettr.com/group49/getter/2022/05/05/06/71bb8180-cf0e-75f0-5fad-89743c27f0a1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18ejb3b11a.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -44,11 +52,11 @@
 
 ---
 
-[@miles 5/5/2022 6:08 AM UTC  - :tv:直播](/content/gettr/p18evfi092e.md)
+[@miles 5/5/2022 7:46 AM UTC  - :tv:直播](/content/gettr/p18eug9b4e3.md)
 
-5/4/2022 Miles Guo’s GETTR: The recent rampage of the virus was caused by the COVID vaccines and the shedding of the spike proteins in these vaccines. After the Yuda Palace Hotel was snatched by the CCP, it hasn't brought them any ...
+2022.05.05 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group49/getter/2022/05/05/06/71bb8180-cf0e-75f0-5fad-89743c27f0a1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/05/05/06/0f794835-00c8-ec28-b02f-7220edc10008/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell p
 中文同传：https://gettr.com/streaming/p18d3xn10d5
 
 <img src="https://media.gettr.com/group26/origin/2022/05/04/23/77a1ca07-83e4-17d0-a989-74c067376600/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p18cwpbd56c.md)
-
-5/3/2022 Miles Guo: When I was in my twenties, Wang Dongxing asked me a question about when Sima Yi had the ambition to take over the country. My life in the past several decades during which I dealt with the CCP was as dangerous a...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/04/23/b9ad155d-08a4-3940-24b9-62cc3a36668a/out.jpg" width="506" height="284">
 
 ---
 
