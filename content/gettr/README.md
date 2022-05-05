@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/5/2022 1:21 AM UTC  - :tv:直播](/content/gettr/p18d41i60de.md)
+[@miles 5/5/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p18dn5v4698.md)
 
-5/3/2022 Miles Guo: The year 2022 will be the darkest time for the Chinese people! Natural disasters and economic crises will lead to shortages of food supplies, collapses of banks, and social turmoil. Our fellow fighters who own t...
+2022.05.04  新中国联邦 | 喜财经   全球危机刚开始；分布式记账如何帮助加密货币战胜法币
 
-<img src="https://media.gettr.com/group39/getter/2022/05/05/01/805ffc7c-c378-e706-c55d-0610e2a2467a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/05/05/02/eb77a2c4-9777-5089-d1e1-362b943a9266/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -33,6 +33,14 @@
 就是感觉这歌曲特别好，哪怕能给您带来一丝安慰也好🙏想与您分享一下🌹🙏】
 
 <img src="https://media.gettr.com/group3/getter/2022/05/05/01/04994c2e-e50f-eb3e-e50d-9948f3b1ac03/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 1:21 AM UTC  - :tv:直播](/content/gettr/p18d41i60de.md)
+
+5/3/2022 Miles Guo: The year 2022 will be the darkest time for the Chinese people! Natural disasters and economic crises will lead to shortages of food supplies, collapses of banks, and social turmoil. Our fellow fighters who own t...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/05/01/805ffc7c-c378-e706-c55d-0610e2a2467a/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
 [@miles 5/4/2022 3:11 PM UTC ](/content/gettr/p18ay2w2e30.md)
 
 5月4号：这是七哥．今年收到最早的．第一个．祝七哥生日快乐的视频，感谢日本银河农场和美……帅哥妹妹．兄弟们！
-
----
-
-[@miles 5/4/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18a7470a0a.md)
-
-5月4号：尊敬的战友们好……这一次病毒阳性增长，一定要小心，这是疫苗灾难的开始……
-
-<img src="https://media.gettr.com/group44/getter/2022/05/04/14/51cc436a-de10-ad5c-7b97-3a4af09b1dcf/out.jpg" width="506" height="284">
 
 ---
 
