@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/5/2022 9:39 AM UTC ](/content/gettr/p18euol77c7.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月3日第60天当日救援统计：
+
+Medyka救援站接待：约47人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16393人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 60 - Date: May...
+
+<img src="https://media.gettr.com/group34/getter/2022/05/05/09/2aae8add-d376-f0d1-3891-18b95b29c6db/a848180386b0c1c57b459f98966ae976.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 7:46 AM UTC  - :tv:直播](/content/gettr/p18eug9b4e3.md)
 
 2022.05.05 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -60,35 +92,11 @@
 
 ---
 
-[@miles 5/5/2022 9:39 AM UTC ](/content/gettr/p18euol77c7.md)
+[@miles 5/5/2022 10:33 AM UTC  - :tv:直播](/content/gettr/p18fwj186a7.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+Dean, a volunteer at the Medyka camp from the Polish Red Cross, was pleased to know that the New Federal State of China was destroying the CCP. He said that someone must stand up to end the tyranny of the CCP. He was very happy to ...
 
-
-
-2022年5月3日第60天当日救援统计：
-
-Medyka救援站接待：约47人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16393人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 60 - Date: May...
-
-<img src="https://media.gettr.com/group34/getter/2022/05/05/09/2aae8add-d376-f0d1-3891-18b95b29c6db/a848180386b0c1c57b459f98966ae976.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/05/10/ac0dfbbd-8bfd-f0f3-27bb-5e910ac34d07/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ In 1991 I just got out of the Qingfeng detention center and met my cellmates who
 In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell phone, and met the representativ...
 
 <img src="https://media.gettr.com/group8/origin/2022/05/05/01/d3cc68d5-a0ad-4517-4216-f398ef73a84c/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18cycsef94.md)
-
-2022.05.04  晚 新中国联邦 | 新闻   俄乌战场最新消息精选；新一轮欧盟制裁瞄准俄能源和更多银行
-
-<img src="https://media.gettr.com/group3/origin/2022/05/05/00/3ece9902-a466-c274-43e2-7c9ee954da57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
