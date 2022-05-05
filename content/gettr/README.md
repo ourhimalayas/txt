@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18i2650dbf.md)
+
+“郑州裕达” 飞飞秀救援快报 2022-05-05
+
+For English：gettr.com/streaming/p18hhlyddb1
+
+<img src="https://media.gettr.com/group20/origin/2022/04/20/22/340ded9d-cf09-6f6b-bfe8-04a7da687024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18h99w347d.md)
 
 2022.05.05  新中国联邦 | 喜健康   胖得要死？！这是玩笑吗？
@@ -50,13 +60,15 @@
 
 ---
 
-[@miles 5/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18i2650dbf.md)
+[@miles 5/5/2022 10:42 PM UTC  - :tv:直播](/content/gettr/p18hm8y5fab.md)
 
-“郑州裕达” 飞飞秀救援快报 2022-05-05
+5/5/2022 Miles Guo’s GETTR: The recent spike in stock markets is due to the over-issued currency and has no underlying economic support. The amount of over-issued currency in Communist China goes far beyond your imagination!
 
-For English：gettr.com/streaming/p18hhlyddb1
 
-<img src="https://media.gettr.com/group20/origin/2022/04/20/22/340ded9d-cf09-6f6b-bfe8-04a7da687024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+5/5...
+
+<img src="https://media.gettr.com/group16/getter/2022/05/05/22/a4c8fcd1-07d8-13c6-8651-8d278d06e38d/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +189,6 @@ Day 60 - Date: May...
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group22/origin/2022/05/05/04/b2e1b1ce-f655-3b5e-b185-e5aa95da55c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 4:57 AM UTC  - :tv:直播](/content/gettr/p18ey71b4d7.md)
-
-5/4/2022 Miles Guo’s GETTR: The recently released pictures are not only a microcosm of my life in the past years, but also reflect various relationships between people, people and money, bravery and cowardice, religion and faith an...
-
-<img src="https://media.gettr.com/group8/getter/2022/05/05/04/3d77a10f-560a-02a6-49c6-ecca2133dfa2/out.jpg" width="506" height="284">
 
 ---
 
