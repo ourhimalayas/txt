@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18h99w347d.md)
+
+2022.05.05  新中国联邦 | 喜健康   胖得要死？！这是玩笑吗？
+
+<img src="https://media.gettr.com/group40/origin/2022/05/05/20/4315ab00-333c-0fea-9af2-8526e64a2d74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 5/5/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p18gw317dcd.md)
 
 2022-5-5《避风港》（44）大量疫苗接种者失明
@@ -42,11 +50,13 @@
 
 ---
 
-[@miles 5/5/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18h99w347d.md)
+[@miles 5/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18i2650dbf.md)
 
-2022.05.05  新中国联邦 | 喜健康   胖得要死？！这是玩笑吗？
+“郑州裕达” 飞飞秀救援快报 2022-05-05
 
-<img src="https://media.gettr.com/group40/origin/2022/05/05/20/4315ab00-333c-0fea-9af2-8526e64a2d74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p18hhlyddb1
+
+<img src="https://media.gettr.com/group20/origin/2022/04/20/22/340ded9d-cf09-6f6b-bfe8-04a7da687024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ Day 60 - Date: May...
 5/4/2022 Miles Guo’s GETTR: The recently released pictures are not only a microcosm of my life in the past years, but also reflect various relationships between people, people and money, bravery and cowardice, religion and faith an...
 
 <img src="https://media.gettr.com/group8/getter/2022/05/05/04/3d77a10f-560a-02a6-49c6-ecca2133dfa2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 4:21 AM UTC  - :tv:直播](/content/gettr/p18e4f462cb.md)
-
-5/1/2022 Miles Guo: The CCP's economy is indeed unrecoverable, and the Chinese people are being dragged into an unprecedented disaster; the people of the New Federal State of China are trying our best to save as many like-minded an...
-
-<img src="https://media.gettr.com/group33/getter/2022/05/05/04/38e5512f-0bc3-1f33-9fb6-2724bb8232d5/out.jpg" width="506" height="284">
 
 ---
 
