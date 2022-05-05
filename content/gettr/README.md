@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p18f67ja691.md)
+
+2022.05.05 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group23/origin/2022/05/05/17/7f2dc092-e055-f261-2689-6b72f1495a97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 3:37 PM UTC  - :tv:直播](/content/gettr/p18gg88d4b6.md)
 
 【Ukraine Rescue】05/03/2022 Jan, founder of Bright Jar, a British humanitarian relief organization, visits the tent of the NFSC and the ROLF. He says he’d be happy to learn more about the evil nature of the CCP and the cause of dest...
@@ -26,19 +34,11 @@
 
 ---
 
-[@miles 5/5/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p18f6bxbf04.md)
+[@newyorkrock 5/5/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p18gw317dcd.md)
 
-2022.05.05 早 新中国联邦 | 新闻 美国志愿者对新中国联邦灭共行动表示支持；西班牙非政府组织主席致信感谢新中国联邦
+2022-5-5《避风港》（44）大量疫苗接种者失明
 
-<img src="https://media.gettr.com/group33/origin/2022/05/05/12/8455ec45-c591-785a-a430-59787af1a52e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p18f67ja691.md)
-
-2022.05.05 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group23/origin/2022/05/05/17/7f2dc092-e055-f261-2689-6b72f1495a97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
