@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 10:33 AM UTC  - :tv:直播](/content/gettr/p18fwj186a7.md)
+
+Dean, a volunteer at the Medyka camp from the Polish Red Cross, was pleased to know that the New Federal State of China was destroying the CCP. He said that someone must stand up to end the tyranny of the CCP. He was very happy to ...
+
+<img src="https://media.gettr.com/group14/origin/2022/05/05/10/ac0dfbbd-8bfd-f0f3-27bb-5e910ac34d07/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 9:39 AM UTC ](/content/gettr/p18euol77c7.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -92,11 +100,11 @@ Day 60 - Date: May...
 
 ---
 
-[@miles 5/5/2022 10:33 AM UTC  - :tv:直播](/content/gettr/p18fwj186a7.md)
+[@miles 5/5/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18flog5821.md)
 
-Dean, a volunteer at the Medyka camp from the Polish Red Cross, was pleased to know that the New Federal State of China was destroying the CCP. He said that someone must stand up to end the tyranny of the CCP. He was very happy to ...
+2022.05.05  AM NFSC news   Daily Update on NFSC Ukraine Rescue Effort
 
-<img src="https://media.gettr.com/group14/origin/2022/05/05/10/ac0dfbbd-8bfd-f0f3-27bb-5e910ac34d07/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/05/05/11/8babc0dc-b0ae-7619-4d16-eacfe2efc301/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ In 1991 I just got out of the Qingfeng detention center and met my cellmates who
 In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell phone, and met the representativ...
 
 <img src="https://media.gettr.com/group8/origin/2022/05/05/01/d3cc68d5-a0ad-4517-4216-f398ef73a84c/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 12:39 AM UTC  - :tv:直播](/content/gettr/p18da1952a6.md)
-
-5/3/2022 Miles Guo: The photo of Mr. He Lingle and I riding in a limo to meet the people from the Morgan Group shows us the importance of seeing through life and death and sticking to our faith. The gods created by the CCP are all ...
-
-<img src="https://media.gettr.com/group15/getter/2022/05/05/00/b594425c-bad7-2521-142a-b6144d6491c0/out.jpg" width="506" height="284">
 
 ---
 
