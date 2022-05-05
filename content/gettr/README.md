@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/5/2022 10:42 PM UTC  - :tv:直播](/content/gettr/p18hm8y5fab.md)
+
+5/5/2022 Miles Guo’s GETTR: The recent spike in stock markets is due to the over-issued currency and has no underlying economic support. The amount of over-issued currency in Communist China goes far beyond your imagination!
+
+
+
+5/5...
+
+<img src="https://media.gettr.com/group16/getter/2022/05/05/22/a4c8fcd1-07d8-13c6-8651-8d278d06e38d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18i2650dbf.md)
 
 “郑州裕达” 飞飞秀救援快报 2022-05-05
@@ -60,15 +72,11 @@ For English：gettr.com/streaming/p18hhlyddb1
 
 ---
 
-[@miles 5/5/2022 10:42 PM UTC  - :tv:直播](/content/gettr/p18hm8y5fab.md)
+[@miles 5/5/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18hflo773a.md)
 
-5/5/2022 Miles Guo’s GETTR: The recent spike in stock markets is due to the over-issued currency and has no underlying economic support. The amount of over-issued currency in Communist China goes far beyond your imagination!
+5/5/2022 Miles Guo’s GETTR: As long a s the CCP still exists, the Sino-US relationship will never improve. Only by destroying the CCP can the economy of the US and the West sustain. The Americans’ talk of canceling the tariffs impo...
 
-
-
-5/5...
-
-<img src="https://media.gettr.com/group16/getter/2022/05/05/22/a4c8fcd1-07d8-13c6-8651-8d278d06e38d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/05/05/22/529bffe4-159c-fc91-3537-204a872c0927/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Day 60 - Date: May...
 5/4/2022 Miles Guo’s GETTR: The recent rampage of the virus was caused by the COVID vaccines and the shedding of the spike proteins in these vaccines. After the Yuda Palace Hotel was snatched by the CCP, it hasn't brought them any ...
 
 <img src="https://media.gettr.com/group49/getter/2022/05/05/06/71bb8180-cf0e-75f0-5fad-89743c27f0a1/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18ejb3b11a.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group22/origin/2022/05/05/04/b2e1b1ce-f655-3b5e-b185-e5aa95da55c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
