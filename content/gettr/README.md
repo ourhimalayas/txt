@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 4:57 AM UTC  - :tv:直播](/content/gettr/p18ey71b4d7.md)
+
+5/4/2022 Miles Guo’s GETTR: The recently released pictures are not only a microcosm of my life in the past years, but also reflect various relationships between people, people and money, bravery and cowardice, religion and faith an...
+
+<img src="https://media.gettr.com/group8/getter/2022/05/05/04/3d77a10f-560a-02a6-49c6-ecca2133dfa2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 4:21 AM UTC  - :tv:直播](/content/gettr/p18e4f462cb.md)
 
 5/1/2022 Miles Guo: The CCP's economy is indeed unrecoverable, and the Chinese people are being dragged into an unprecedented disaster; the people of the New Federal State of China are trying our best to save as many like-minded an...
@@ -28,11 +36,11 @@
 
 ---
 
-[@miles 5/5/2022 4:57 AM UTC  - :tv:直播](/content/gettr/p18ey71b4d7.md)
+[@miles 5/5/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18ejb3b11a.md)
 
-5/4/2022 Miles Guo’s GETTR: The recently released pictures are not only a microcosm of my life in the past years, but also reflect various relationships between people, people and money, bravery and cowardice, religion and faith an...
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group8/getter/2022/05/05/04/3d77a10f-560a-02a6-49c6-ecca2133dfa2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/05/05/04/b2e1b1ce-f655-3b5e-b185-e5aa95da55c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell p
 5/3/2022 Miles Guo: When I was in my twenties, Wang Dongxing asked me a question about when Sima Yi had the ambition to take over the country. My life in the past several decades during which I dealt with the CCP was as dangerous a...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/04/23/b9ad155d-08a4-3940-24b9-62cc3a36668a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18cqbba178.md)
-
-5/3/2022 Miles Guo: The photo of Mr. He and I was taken at my home. Mr. He knew my determination to take down the CCP. The reason why he could come over and had a conversation with me was because he totally understood my mind and s...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/04/22/cc5ea183-a7b7-ba92-9bc4-30980b28335a/out.jpg" width="506" height="284">
 
 ---
 
