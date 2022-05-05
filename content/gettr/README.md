@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 5/5/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18cycsef94.md)
+
+2022.05.04  晚 新中国联邦 | 新闻   俄乌战场最新消息精选；新一轮欧盟制裁瞄准俄能源和更多银行
+
+<img src="https://media.gettr.com/group3/origin/2022/05/05/00/3ece9902-a466-c274-43e2-7c9ee954da57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p18dek9cd97.md)
+
+2022.05.04  NFSC fringe  Episode 183
+
+中文同传：https://gettr.com/streaming/p18d3xn10d5
+
+<img src="https://media.gettr.com/group26/origin/2022/05/04/23/77a1ca07-83e4-17d0-a989-74c067376600/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p18cwpbd56c.md)
 
 5/3/2022 Miles Guo: When I was in my twenties, Wang Dongxing asked me a question about when Sima Yi had the ambition to take over the country. My life in the past several decades during which I dealt with the CCP was as dangerous a...
@@ -18,13 +36,11 @@
 
 ---
 
-[@miles 5/4/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p18dek9cd97.md)
+[@miles 5/5/2022 12:39 AM UTC  - :tv:直播](/content/gettr/p18da1952a6.md)
 
-2022.05.04  NFSC fringe  Episode 183
+5/3/2022 Miles Guo: The photo of Mr. He Lingle and I riding in a limo to meet the people from the Morgan Group shows us the importance of seeing through life and death and sticking to our faith. The gods created by the CCP are all ...
 
-中文同传：https://gettr.com/streaming/p18d3xn10d5
-
-<img src="https://media.gettr.com/group26/origin/2022/05/04/23/77a1ca07-83e4-17d0-a989-74c067376600/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/05/05/00/b594425c-bad7-2521-142a-b6144d6491c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,22 +161,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
 🙏🙏🙏🙏🙏🙏🙏【On the morning of May 4, 2022, we received a letter of thanks from the Association of the non-governmental organization "TERRASSA AJUDA A NENS D'UCRAÏNA" (Teresa Home for Ukrainian Children, or TANU) in Barcelona, Sp...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/04/12/918d1520-b7f3-ed46-ebba-70e2992ae395/cb713d9a8ebc552f0d0d4e1e59f9f098.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 11:34 AM UTC  - 2圖](/content/gettr/p18api7a7a0.md)
-
-🙏🙏🙏🙏🙏🙏🙏【2022年5月4日上午，我们收到西班牙巴塞罗那⾮政府组织协会 “TERRASSA AJUDA A NENS D’UCRAÏNA”（特雷萨救助乌克兰⼉童之家，简称TANU）主席José Muñoz Cosialls 先生致新中国联邦的感谢信，感谢新中国联邦在俄乌战争爆发初期成功解救96名乌克兰未成年儿童到达西班牙的壮举。我们感谢七哥、感谢爆料革命、新中国联邦、法治基金、喜马拉雅联盟委员会以及所有为这次救援付出努力的战友们，这个世界...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/04/11/e7002695-e856-675a-3a93-e29131d18420/a9a10deb3ffe961444b0ba0e4875ca8b.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18as73bcc0.md)
-
-2022.05.04  新中国联邦 | 军情室  军情室连线文疯而动战友，讲述前线战况
-
-<img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
