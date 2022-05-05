@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 5/5/2022 3:51 AM UTC  - :tv:直播](/content/gettr/p18dysaf975.md)
+
+
+
+5/3/2022 Miles Guo: Putin's heath is absolute a piece of national security information, but Miles got the firsthand information 5 years ago and was the first person disclosing it to the world; the CCP China has supplied Chinese p...
+
+<img src="https://media.gettr.com/group5/getter/2022/05/05/03/c8f42d97-4521-4f0a-4f25-917218da3817/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 3:54 AM UTC  - :tv:直播](/content/gettr/p18dukc2179.md)
+
+Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take down the Chinese Communist Party (CCP) to a group of French volunteers. The CCP is supporting Putin’s invasion of Ukraine, and is eying on Taiwan. French ...
+
+<img src="https://media.gettr.com/group38/origin/2022/05/05/03/c0c84d9e-47d9-80de-882f-4c498756134b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p18dvbr153e.md)
+
+2022-5-4《鸡血王喜币大作战》 第一百八十五集 嘉宾：Nick、封神榜
+
+<img src="https://media.gettr.com/group23/origin/2022/04/06/02/e711cb0d-f987-8820-e005-ece002bb4cb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p18dn5v4698.md)
 
 2022.05.04  新中国联邦 | 喜财经   全球危机刚开始；分布式记账如何帮助加密货币战胜法币
@@ -18,11 +44,11 @@
 
 ---
 
-[@miles 5/5/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p18dvbr153e.md)
+[@miles 5/5/2022 3:58 AM UTC  - :tv:直播](/content/gettr/p18dvv8a3bf.md)
 
-2022-5-4《鸡血王喜币大作战》 第一百八十五集 嘉宾：Nick、封神榜
+5/4/2022 Miles Guo’s GETTR: Qin Gang, the former “wolf warrior”, is now kowtowing and begging for friendship in the US. Jack Ma was arrested long time ago, and the reason that CCP deliberately released the news of Mr. Ma so-and-so ...
 
-<img src="https://media.gettr.com/group23/origin/2022/04/06/02/e711cb0d-f987-8820-e005-ece002bb4cb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/05/05/03/b5e387d4-66b1-b88c-3327-eb08ef267529/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +179,6 @@ In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell p
 For English：gettr.com/streaming/p18ceqpfc9b
 
 <img src="https://media.gettr.com/group18/origin/2022/05/04/22/15962b51-5fd7-a8d3-29c7-d2dc1eec7e15/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 8:52 PM UTC  - :tv:直播](/content/gettr/p18cr6l517d.md)
-
-2022.05.04  新中国联邦 | 喜健康   疫苗灾难时代的心理调适之道
-
-<img src="https://media.gettr.com/group34/origin/2022/05/04/20/eaf65a7a-346e-cedf-8fb4-27c655435365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 4:21 PM UTC  - :tv:直播](/content/gettr/p18b2ii191d.md)
-
-【Ukraine Rescue】05/04/2022 A British friend who has just joined the NFSC volunteer team, expressed his willingness to help the Ukrainian refugees with us. He says that the Chinese Communist Party is very evil and does not respect h...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/04/16/f34a0a35-aa6a-c14a-be0f-91068b58edf4/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p18bbfv8a18.md)
-
-5/3/2022 Miles Guo: I will show you the big picture of my personal history. The rise of the Whistleblowers' Movement and the New Federal State of China is by no means random, and I believe there is a mysterious force guiding us. St...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/04/15/316023ec-26f9-f500-e4a3-4a4e390d102f/out.jpg" width="506" height="284">
 
 ---
 
