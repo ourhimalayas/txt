@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p18dn5v4698.md)
+
+2022.05.04  新中国联邦 | 喜财经   全球危机刚开始；分布式记账如何帮助加密货币战胜法币
+
+<img src="https://media.gettr.com/group48/origin/2022/05/05/02/eb77a2c4-9777-5089-d1e1-362b943a9266/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 1:31 AM UTC  - :tv:直播](/content/gettr/p18df285e3d.md)
 
  5月4号，这是什么情况放了一辈子毒⋯这毒难道在自己身上发作了……在中国会发生这样的情况吗？又会发生在谁的身上呢？
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/5/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p18dn5v4698.md)
+[@miles 5/5/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p18dvbr153e.md)
 
-2022.05.04  新中国联邦 | 喜财经   全球危机刚开始；分布式记账如何帮助加密货币战胜法币
+2022-5-4《鸡血王喜币大作战》 第一百八十五集 嘉宾：Nick、封神榜
 
-<img src="https://media.gettr.com/group48/origin/2022/05/05/02/eb77a2c4-9777-5089-d1e1-362b943a9266/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/04/06/02/e711cb0d-f987-8820-e005-ece002bb4cb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,12 +177,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
 5/3/2022 Miles Guo: I will show you the big picture of my personal history. The rise of the Whistleblowers' Movement and the New Federal State of China is by no means random, and I believe there is a mysterious force guiding us. St...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/04/15/316023ec-26f9-f500-e4a3-4a4e390d102f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 3:11 PM UTC ](/content/gettr/p18ay2w2e30.md)
-
-5月4号：这是七哥．今年收到最早的．第一个．祝七哥生日快乐的视频，感谢日本银河农场和美……帅哥妹妹．兄弟们！
 
 ---
 
