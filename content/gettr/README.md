@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18flog5821.md)
+
+2022.05.05  AM NFSC news   Daily Update on NFSC Ukraine Rescue Effort
+
+<img src="https://media.gettr.com/group48/origin/2022/05/05/11/8babc0dc-b0ae-7619-4d16-eacfe2efc301/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 10:33 AM UTC  - :tv:直播](/content/gettr/p18fwj186a7.md)
 
 Dean, a volunteer at the Medyka camp from the Polish Red Cross, was pleased to know that the New Federal State of China was destroying the CCP. He said that someone must stand up to end the tyranny of the CCP. He was very happy to ...
@@ -100,11 +108,11 @@ Day 60 - Date: May...
 
 ---
 
-[@miles 5/5/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18flog5821.md)
+[@miles 5/5/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p18f7s99571.md)
 
-2022.05.05  AM NFSC news   Daily Update on NFSC Ukraine Rescue Effort
+【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
 
-<img src="https://media.gettr.com/group48/origin/2022/05/05/11/8babc0dc-b0ae-7619-4d16-eacfe2efc301/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/05/05/12/de419345-9dbd-0371-98ad-8d77145b1a1f/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take dow
 5/3/2022 Mile Guo: I kept my promise made in the Qingfeng Detention center of taking down the CCP, and was not distracted by fame, wealth, or celebrities. Neither did I choose an easier life of emigrating to Europe or the US or eng...
 
 <img src="https://media.gettr.com/group46/getter/2022/05/05/01/fb353fc7-beec-bc02-7199-b2a2e3376642/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p18d571333d.md)
-
-2022.05.04  晚 新中国联邦 | 新闻访谈    台湾大停电的背后玄机; 疫情清零：军管？政治斗争？集中营？压力测试？
-
-<img src="https://media.gettr.com/group25/origin/2022/05/05/00/3e406289-5e1b-7b13-ee49-7f7190d025c0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
