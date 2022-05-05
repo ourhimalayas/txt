@@ -2,11 +2,42 @@
 ---
 
 
+[@himalayaathena 5/4/2022 12:47 PM UTC ](/content/gettr/p18a3gq7a90.md)
+
+7.24系列——起底于品海之南海控股
+
+在“起底于品海”系列文章中，我们首先挖掘了于品海疑窦丛生的发迹史，围绕着他的各种创业奇迹，依稀间可以看到幕后势力（大资金）的操作痕迹，因为中共治下所有的传奇幕后都有故事。今天，我们重点关注于品海多年运作的一家港交所上市公司——南海控股。
+
+
+
+目前，于品海是南海控股的董事局主席，公开资料显示，2000年于品海通过其控制的港交所上市公司中国数码，收购学习动力控股有限公（Savoy Concepts），而后更名南海控股。
+...
+
+---
+
 [@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18i6kl9818.md)
 
 2022.05.05  PM NFSC news   Russia Targets East Ukraine While it Suffers Heavy Losses
 
 <img src="https://media.gettr.com/group23/origin/2022/05/05/22/e5aadf06-5f67-af0d-91d1-24ecec92a725/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p18hunj361d.md)
+
+2022.05.05  NFSC fringe  Episode 184
+
+中文同传：https://gettr.com/streaming/p18htch2cf5
+
+<img src="https://media.gettr.com/group31/origin/2022/05/05/23/8621421a-7b2b-41e0-9f37-2ca1c3d5c17d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18ibya789b.md)
+
+5/5/2022 Miles Guo’s GETTR: My advice is that you should not participate in the kind of games played by the big shots in the stock market. We must live through the next couple of years and stay safe. The CCP virus will possibly be ...
+
+<img src="https://media.gettr.com/group9/getter/2022/05/05/23/9160731b-0fa7-6036-1e6d-08784bd614e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -88,14 +119,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 
 ---
 
-[@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18ibya789b.md)
-
-5/5/2022 Miles Guo’s GETTR: My advice is that you should not participate in the kind of games played by the big shots in the stock market. We must live through the next couple of years and stay safe. The CCP virus will possibly be ...
-
-<img src="https://media.gettr.com/group9/getter/2022/05/05/23/9160731b-0fa7-6036-1e6d-08784bd614e8/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/5/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p18f6c1ccc6.md)
 
 2022.05.05 早  新中国联邦 | 新闻访谈 
@@ -149,46 +172,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 2022.05.05  AM NFSC news   Daily Update on NFSC Ukraine Rescue Effort
 
 <img src="https://media.gettr.com/group48/origin/2022/05/05/11/8babc0dc-b0ae-7619-4d16-eacfe2efc301/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/5/2022 10:33 AM UTC  - :tv:直播](/content/gettr/p18fwj186a7.md)
-
-Dean, a volunteer at the Medyka camp from the Polish Red Cross, was pleased to know that the New Federal State of China was destroying the CCP. He said that someone must stand up to end the tyranny of the CCP. He was very happy to ...
-
-<img src="https://media.gettr.com/group14/origin/2022/05/05/10/ac0dfbbd-8bfd-f0f3-27bb-5e910ac34d07/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 9:39 AM UTC ](/content/gettr/p18euol77c7.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月3日第60天当日救援统计：
-
-Medyka救援站接待：约47人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16393人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 60 - Date: May...
-
-<img src="https://media.gettr.com/group34/getter/2022/05/05/09/2aae8add-d376-f0d1-3891-18b95b29c6db/a848180386b0c1c57b459f98966ae976.jpg" width="506" height="284">
 
 ---
 
