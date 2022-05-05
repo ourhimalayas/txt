@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p18dykhd54a.md)
+
+5/1/2022 Miles Guo: Shi Taifeng, who suppressed Mongolian culture and language, will be the President and Party Secretary of the Chinese Academy of Social Sciences, Chen Quanguo will probably be in charge of the CCP's ideologies. X...
+
+<img src="https://media.gettr.com/group15/getter/2022/05/05/04/815ea778-60f9-8d7f-d2c9-a92a697f1270/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 3:51 AM UTC  - :tv:直播](/content/gettr/p18dysaf975.md)
 
 
@@ -12,11 +20,11 @@
 
 ---
 
-[@miles 5/5/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p18dykhd54a.md)
+[@miles 5/5/2022 4:21 AM UTC  - :tv:直播](/content/gettr/p18e4f462cb.md)
 
-5/1/2022 Miles Guo: Shi Taifeng, who suppressed Mongolian culture and language, will be the President and Party Secretary of the Chinese Academy of Social Sciences, Chen Quanguo will probably be in charge of the CCP's ideologies. X...
+5/1/2022 Miles Guo: The CCP's economy is indeed unrecoverable, and the Chinese people are being dragged into an unprecedented disaster; the people of the New Federal State of China are trying our best to save as many like-minded an...
 
-<img src="https://media.gettr.com/group15/getter/2022/05/05/04/815ea778-60f9-8d7f-d2c9-a92a697f1270/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/05/05/04/38e5512f-0bc3-1f33-9fb6-2724bb8232d5/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell p
 2022.05.04  PM NFSC news   UN Confirms Russian-Ukrainian war killed Over 3,000 civilians 
 
 <img src="https://media.gettr.com/group35/origin/2022/05/04/22/fdfefbc3-72c3-6913-c7eb-8fd5d70ab3fc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/4/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p18cmol8382.md)
-
-5/3/2022 Miles Guo: The Zhongyuan Hotel behind me in this photo is where I met Li Changchu, Li Desheng and Zhang Wannian. After that I went to Beijing and met with Wang Dongxing, Yang Dezhong and their families. I was supposed to b...
-
-<img src="https://media.gettr.com/group44/getter/2022/05/04/22/5644ceaf-3862-2cdb-a3d7-bfe7555ef6ef/out.jpg" width="506" height="284">
 
 ---
 
