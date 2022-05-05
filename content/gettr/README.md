@@ -2,6 +2,14 @@
 ---
 
 
+[@newyorkrock 5/5/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p18gw317dcd.md)
+
+2022-5-5《避风港》（44）大量疫苗接种者失明
+
+<img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p18f67ja691.md)
 
 2022.05.05 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -34,11 +42,11 @@
 
 ---
 
-[@newyorkrock 5/5/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p18gw317dcd.md)
+[@miles 5/5/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18h99w347d.md)
 
-2022-5-5《避风港》（44）大量疫苗接种者失明
+2022.05.05  新中国联邦 | 喜健康   胖得要死？！这是玩笑吗？
 
-<img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/05/05/20/4315ab00-333c-0fea-9af2-8526e64a2d74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 60 - Date: May...
 5/1/2022 Miles Guo: The CCP's economy is indeed unrecoverable, and the Chinese people are being dragged into an unprecedented disaster; the people of the New Federal State of China are trying our best to save as many like-minded an...
 
 <img src="https://media.gettr.com/group33/getter/2022/05/05/04/38e5512f-0bc3-1f33-9fb6-2724bb8232d5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p18dykhd54a.md)
-
-5/1/2022 Miles Guo: Shi Taifeng, who suppressed Mongolian culture and language, will be the President and Party Secretary of the Chinese Academy of Social Sciences, Chen Quanguo will probably be in charge of the CCP's ideologies. X...
-
-<img src="https://media.gettr.com/group15/getter/2022/05/05/04/815ea778-60f9-8d7f-d2c9-a92a697f1270/out.jpg" width="506" height="284">
 
 ---
 
