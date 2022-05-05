@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/5/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p18f6bob626.md)
+
+2022.05.05 早 新中国联邦 | 新闻 美国志愿者对新中国联邦灭共行动表示支持；西班牙非政府组织主席致信感谢新中国联邦
+
+<img src="https://media.gettr.com/group33/origin/2022/05/05/12/8455ec45-c591-785a-a430-59787af1a52e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p18f7s99571.md)
+
+【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/05/12/de419345-9dbd-0371-98ad-8d77145b1a1f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18flog5821.md)
 
 2022.05.05  AM NFSC news   Daily Update on NFSC Ukraine Rescue Effort
@@ -108,11 +124,11 @@ Day 60 - Date: May...
 
 ---
 
-[@miles 5/5/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p18f7s99571.md)
+[@miles 5/5/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p18fob88fec.md)
 
-【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
+5月5号：尊敬的战友们好．你有喜币吗？将成为未来的最有力量的．问候语！
 
-<img src="https://media.gettr.com/group23/getter/2022/05/05/12/de419345-9dbd-0371-98ad-8d77145b1a1f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/05/05/12/ca27424d-f4be-f2f0-d9e7-4adae21f094a/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,31 +190,11 @@ Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take dow
 
 ---
 
-[@miles 5/5/2022 1:21 AM UTC  - :tv:直播](/content/gettr/p18d41i60de.md)
-
-5/3/2022 Miles Guo: The year 2022 will be the darkest time for the Chinese people! Natural disasters and economic crises will lead to shortages of food supplies, collapses of banks, and social turmoil. Our fellow fighters who own t...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/05/01/805ffc7c-c378-e706-c55d-0610e2a2467a/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/5/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p18d27307ec.md)
 
 5/3/2022 Mile Guo: I kept my promise made in the Qingfeng Detention center of taking down the CCP, and was not distracted by fame, wealth, or celebrities. Neither did I choose an easier life of emigrating to Europe or the US or eng...
 
 <img src="https://media.gettr.com/group46/getter/2022/05/05/01/fb353fc7-beec-bc02-7199-b2a2e3376642/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p18d16se712.md)
-
-Precious Memories
-
-In 1991 I just got out of the Qingfeng detention center and met my cellmates who were released earlier.
-
-In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell phone, and met the representativ...
-
-<img src="https://media.gettr.com/group8/origin/2022/05/05/01/d3cc68d5-a0ad-4517-4216-f398ef73a84c/out.jpg" width="506" height="284">
 
 ---
 
