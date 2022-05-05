@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p18f69h13df.md)
+
+叶钊颖-郝海东-飞飞 《大实话·第十九场》： “好”  2022-05-05
+
+<img src="https://media.gettr.com/group36/origin/2022/05/05/14/b32a3e24-4201-8a4d-5f7d-6ea04386646b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p18fadfec41.md)
 
 5月5号：在21世纪的今天．只能在中国共产党极权统治下的中国社会……才能发生这种惨不忍睹的事情……这些老人的昨天．就是我们的今天．我们的明天……【武汉大妈亲口讲述，武汉封城时，很多被感染的老人被从医院包裹起来，直接送进焚化炉！】
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/5/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p18f69h13df.md)
+[@miles 5/5/2022 3:37 PM UTC  - :tv:直播](/content/gettr/p18gg88d4b6.md)
 
-叶钊颖-郝海东-飞飞 《大实话·第十九场》： “好”  2022-05-05
+【Ukraine Rescue】05/03/2022 Jan, founder of Bright Jar, a British humanitarian relief organization, visits the tent of the NFSC and the ROLF. He says he’d be happy to learn more about the evil nature of the CCP and the cause of dest...
 
-<img src="https://media.gettr.com/group36/origin/2022/05/05/14/b32a3e24-4201-8a4d-5f7d-6ea04386646b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/05/05/15/cf10ec33-c779-b188-57e4-321a66710f07/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Day 60 - Date: May...
 5/1/2022 Miles Guo: Shi Taifeng, who suppressed Mongolian culture and language, will be the President and Party Secretary of the Chinese Academy of Social Sciences, Chen Quanguo will probably be in charge of the CCP's ideologies. X...
 
 <img src="https://media.gettr.com/group15/getter/2022/05/05/04/815ea778-60f9-8d7f-d2c9-a92a697f1270/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 3:54 AM UTC  - :tv:直播](/content/gettr/p18dukc2179.md)
-
-Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take down the Chinese Communist Party (CCP) to a group of French volunteers. The CCP is supporting Putin’s invasion of Ukraine, and is eying on Taiwan. French ...
-
-<img src="https://media.gettr.com/group38/origin/2022/05/05/03/c0c84d9e-47d9-80de-882f-4c498756134b/out.jpg" width="506" height="284">
 
 ---
 
