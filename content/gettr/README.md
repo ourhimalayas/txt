@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/5/2022 1:21 AM UTC  - :tv:直播](/content/gettr/p18d41i60de.md)
+
+5/3/2022 Miles Guo: The year 2022 will be the darkest time for the Chinese people! Natural disasters and economic crises will lead to shortages of food supplies, collapses of banks, and social turmoil. Our fellow fighters who own t...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/05/01/805ffc7c-c378-e706-c55d-0610e2a2467a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/5/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p18d571333d.md)
 
 2022.05.04  晚 新中国联邦 | 新闻访谈    台湾大停电的背后玄机; 疫情清零：军管？政治斗争？集中营？压力测试？
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/5/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18cycsef94.md)
+[@miles 5/5/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p18d27307ec.md)
 
-2022.05.04  晚 新中国联邦 | 新闻   俄乌战场最新消息精选；新一轮欧盟制裁瞄准俄能源和更多银行
+5/3/2022 Mile Guo: I kept my promise made in the Qingfeng Detention center of taking down the CCP, and was not distracted by fame, wealth, or celebrities. Neither did I choose an easier life of emigrating to Europe or the US or eng...
 
-<img src="https://media.gettr.com/group3/origin/2022/05/05/00/3ece9902-a466-c274-43e2-7c9ee954da57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/05/05/01/fb353fc7-beec-bc02-7199-b2a2e3376642/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +35,14 @@ In 1991 I just got out of the Qingfeng detention center and met my cellmates who
 In 1992 I owned a “Boss” furniture factory at Zhengzhou using a fancy cell phone, and met the representativ...
 
 <img src="https://media.gettr.com/group8/origin/2022/05/05/01/d3cc68d5-a0ad-4517-4216-f398ef73a84c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18cycsef94.md)
+
+2022.05.04  晚 新中国联邦 | 新闻   俄乌战场最新消息精选；新一轮欧盟制裁瞄准俄能源和更多银行
+
+<img src="https://media.gettr.com/group3/origin/2022/05/05/00/3ece9902-a466-c274-43e2-7c9ee954da57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,22 +165,6 @@ For English：gettr.com/streaming/p18ceqpfc9b
 5/3/2022 Miles Guo: Why did I choose Xia Ping among many investment partners back then? First, it was because Xia's family had deep grudges against the CCP and had never succumbed to the evil regime, which coincided with my pursuit...
 
 <img src="https://media.gettr.com/group47/getter/2022/05/04/14/2d38b76e-a4c4-812a-0c87-15a635e24166/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p18atpmad54.md)
-
-2022.05.04  早 新中国联邦 | 新闻访谈   欧盟警告成员国为断供做好准备；用卢布购买天然气违反制裁
-
-<img src="https://media.gettr.com/group50/origin/2022/05/04/13/31ca4dc2-47bd-e3a1-9126-86ebcf82321c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/4/2022 12:40 PM UTC  - :tv:直播](/content/gettr/p18act8cb56.md)
-
-2022.05.04  早 新中国联邦 | 新闻   英国志愿者加入乌克兰抗俄战斗；意大利社会学家称中共实为独裁政府
-
-<img src="https://media.gettr.com/group50/origin/2022/05/04/12/dcef136d-c64b-74cb-717a-27b1d16c0066/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
