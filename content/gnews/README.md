@@ -2,6 +2,21 @@
 ---
 
 
+#### [辉瑞公司的欺诈证据会导致辉瑞公司承担重大赔偿金](/content/gnews/2480074.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [世界新闻自由指数发布，中共国排名倒数第六](/content/gnews/2480059.md)
+ `G-NEWS TAIWAN`
+
+#### [人们像僵尸一样在情绪上对失去家庭成员毫无反应](/content/gnews/2480030.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [湖南江华，一名身穿城管制服男子被群众追着满街跑](/content/gnews/2480029.md)
+ `Tokyo Sakura Video Group`
+
+#### [习近平召开“常萎会”，继续严酷执行“动态清零”](/content/gnews/2480019.md)
+ `波士顿五月花农场`
+
 #### [江阴某镇，被医院拒诊，最后腹痛难耐，直接在地上生产了](/content/gnews/2479945.md)
  `Tokyo Sakura Video Group`
 
@@ -22,12 +37,6 @@
 
 #### [爆料革命是推动轴心法案的主要力量](/content/gnews/2479693.md)
  `NFSC News`
-
-#### [【说事儿】英媒揭习近平曾下令各地做压力测试 内容激似郭文贵爆料](/content/gnews/2479689.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】日本和英国达成防务合作协议以应对中共威胁](/content/gnews/2479681.md)
- `TokyoSakuraDesignGroup`
 
 #### [俄罗斯在毗邻北约边界地区进行模拟核打击演练](/content/gnews/2479622.md)
  `秘密翻譯組G-Translators`
@@ -71,13 +80,7 @@
 #### [日本和英国就中共国在印太地区的“崛起”达成防务协议](/content/gnews/2479435.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [有声｜中共套路：先制造困难然后“努力解决”](/content/gnews/2479428.md)
- `秘密翻译组-即时新闻播报组`
-
 #### [有声｜马里乌波尔保卫者表明立场 不会投降](/content/gnews/2479416.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [有声｜美助乌克兰击沉俄大型军舰](/content/gnews/2479378.md)
  `秘密翻译组-即时新闻播报组`
 
 #### [有声&#124;盖特全新升级 战友将有更多选择](/content/gnews/2479377.md)
@@ -92,14 +95,14 @@
 #### [全球疫情疫苗数据更新](/content/gnews/2479367.md)
  `墨尔本雅典娜农场`
 
-#### [有声｜清零政策致欧洲在华企业考虑撤出中共国](/content/gnews/2479348.md)
- `秘密翻译组-即时新闻播报组`
-
 #### [美欧联手遏制中共挑战国际秩序的威胁（中）](/content/gnews/2479250.md)
  `澳喜农场`
 
 #### [有声｜亚洲股市再遭重挫 全球经济前景令人担忧](/content/gnews/2479218.md)
  `秘密翻译组-即时新闻播报组`
+
+#### [中共作恶 华人遭难](/content/gnews/2479186.md)
+ `MilesGuoLivePPT`
 
 #### [美欧联手遏制中共挑战国际秩序的威胁（上）](/content/gnews/2479144.md)
  `澳喜农场`
@@ -121,9 +124,6 @@
 
 #### [秘翻在线：乌克兰称俄罗斯在开战后70天内犯下约1万起战争罪行](/content/gnews/2478972.md)
  `秘密翻譯組G-Translators`
-
-#### [【全文字幕】2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线股市数字货币](/content/gnews/2478913.md)
- `文贵视频字幕全集`
 
 #### [杭州亚运、成都世大运均宣布延期 闭关锁国全面脱钩再升级](/content/gnews/2478605.md)
  `東京櫻花団-Tokyo Sakura Group`
