@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/6/2022 2:55 AM UTC ](/content/gettr/p18if6ha18f.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月4日第61天当日救援统计：
+
+Medyka救援站接待：约276人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16669人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 61 - Date: Ma...
+
+<img src="https://media.gettr.com/group38/getter/2022/05/06/02/db955f2d-c814-6bf9-5c75-36468c0b7f36/979f0a03d516c16a77c9e908a66d60a1.jpg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p18iqbv6569.md)
 
 2022.05.05 新中国联邦 | 喜财经   国内取款状况；取款应对措施
@@ -47,35 +79,11 @@ The university student from the United States learnt that the CCP had hacked the
 
 ---
 
-[@miles 5/6/2022 2:55 AM UTC ](/content/gettr/p18if6ha18f.md)
+[@miles 5/6/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18ilwk842a.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+2022-5-5《鸡血王喜币大作战》 第一百八十六集 嘉宾：无双柳薇薇、Tex
 
-
-
-2022年5月4日第61天当日救援统计：
-
-Medyka救援站接待：约276人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16669人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 61 - Date: Ma...
-
-<img src="https://media.gettr.com/group38/getter/2022/05/06/02/db955f2d-c814-6bf9-5c75-36468c0b7f36/979f0a03d516c16a77c9e908a66d60a1.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -180,14 +188,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 5月5号：在21世纪的今天．只能在中国共产党极权统治下的中国社会……才能发生这种惨不忍睹的事情……这些老人的昨天．就是我们的今天．我们的明天……【武汉大妈亲口讲述，武汉封城时，很多被感染的老人被从医院包裹起来，直接送进焚化炉！】
 
 <img src="https://media.gettr.com/group4/getter/2022/05/05/13/f1234e38-0a58-665d-36c8-bee0cb568852/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p18f6c1ccc6.md)
-
-2022.05.05 早  新中国联邦 | 新闻访谈 
-
-<img src="https://media.gettr.com/group31/origin/2022/05/05/13/7ae816ab-3d79-c535-73d0-286aa7da9a15/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
