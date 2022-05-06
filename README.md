@@ -11,8 +11,29 @@
 
 ---
 
+#### [20220506郭文贵大直播 ：在战争中散发人性光辉的人会成为下个时代的栋梁精英](/content/gnews/2480321.md)
+ `Tokyo Sakura Video Group`
+
+#### [马斯克将就任推特的临时CEO，确保收购所需的71亿美元资金](/content/gnews/2480314.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [秘翻在线：美国制裁后中俄表示加强央行在结算方面的合作](/content/gnews/2480284.md)
+ `秘密翻譯組G-Translators`
+
+#### [意大利宣布推出乌托邦式的社会信用体系](/content/gnews/2480283.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [秘翻在线：短短三个月逃离俄罗斯的的人口已达388万](/content/gnews/2480255.md)
  `秘密翻譯組G-Translators`
+
+#### [20220506郭文贵大直播 ：俄乌战争对中国的影响](/content/gnews/2480246.md)
+ `Tokyo Sakura Video Group`
+
+#### [普京召见网络专家，将创建一个俄罗斯式的维基百科的类似网站](/content/gnews/2480230.md)
+ `Tokyo Sakura Video Group`
+
+#### [05/06/22 香港快讯 【大跌市】恒指急泻791点 死守20000点 科指挫逾5%](/content/gnews/2480215.md)
+ `英喜-粵語組`
 
 #### [马立波市剧院遇难者恐翻番 600平民空袭中丧生](/content/gnews/2480214.md)
  `NFSC News`
@@ -32,17 +53,11 @@
 #### [科技进步推翻莫德尔周期](/content/gnews/2480142.md)
  `NFSC News`
 
-#### [中共劳动课重出江湖来教学生居家隔离](/content/gnews/2480115.md)
- `G-NEWS TAIWAN`
-
 #### [有声&#124;郭先生展示传奇经历 爆料革命坚决反对个人崇拜](/content/gnews/2480114.md)
  `MOSREC`
 
 #### [香港海关5月4日起全面采用中式步操，CCP 赤化香港进行中](/content/gnews/2480113.md)
  `Tokyo Sakura Video Group`
-
-#### [【乌克兰救援】“中国人民在我心里有个位置。”—一位西班牙义工的心声](/content/gnews/2480111.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [中共国新闻自由指数全球排名倒数第六](/content/gnews/2480107.md)
  `NFSC News`
@@ -53,17 +68,8 @@
 #### [5月5日，河南郑州，中小学劳动课程独立](/content/gnews/2480091.md)
  `Tokyo Sakura Video Group`
 
-#### [辉瑞公司的欺诈证据会导致辉瑞公司承担重大赔偿金](/content/gnews/2480074.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [世界新闻自由指数发布，中共国排名倒数第六](/content/gnews/2480059.md)
- `G-NEWS TAIWAN`
-
 #### [湖南江华，一名身穿城管制服男子被群众追着满街跑](/content/gnews/2480029.md)
  `Tokyo Sakura Video Group`
-
-#### [习近平召开“常萎会”，继续严酷执行“动态清零”](/content/gnews/2480019.md)
- `波士顿五月花农场`
 
 #### [有声&#124;法国：币安获得金融市场管理局AMF的数字资产服务商PSAN资格](/content/gnews/2479989.md)
  `MOSREC`
@@ -110,17 +116,11 @@
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家团结对抗专制政权](/content/gnews/2479373.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花时政┃布林肯对华政策演讲将确认中共国为美国主要对手](/content/gnews/2479372.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [全球疫情疫苗数据更新](/content/gnews/2479367.md)
  `墨尔本雅典娜农场`
 
 #### [美欧联手遏制中共挑战国际秩序的威胁（中）](/content/gnews/2479250.md)
  `澳喜农场`
-
-#### [有声｜亚洲股市再遭重挫 全球经济前景令人担忧](/content/gnews/2479218.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [中共作恶 华人遭难](/content/gnews/2479186.md)
  `MilesGuoLivePPT`
