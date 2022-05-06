@@ -2,6 +2,42 @@
 ---
 
 
+#### [俄乌战争为我们带来什么](/content/gnews/2482036.md)
+ `雅典娜GNotes`
+
+#### [以新冠清零的名义，中国禁言经济学家](/content/gnews/2482035.md)
+ `日本东京方舟农场`
+
+#### [二战结束后发生了什么](/content/gnews/2482031.md)
+ `雅典娜GNotes`
+
+#### [二战前发生什么，对比今天的中共国](/content/gnews/2482024.md)
+ `雅典娜GNotes`
+
+#### [俄乌战争疫苗灾难第一重要影响的是粮食](/content/gnews/2482022.md)
+ `雅典娜GNotes`
+
+#### [疫苗灾难通讯不是最重要](/content/gnews/2482014.md)
+ `雅典娜GNotes`
+
+#### [涉嫌协助打压维吾尔人 海康威视或遭美国全面封杀](/content/gnews/2482003.md)
+ `日本东京方舟农场`
+
+#### [亡腚缸等坏人伪类带走了很多骗子混子幻想者为爆料革命逆增上缘](/content/gnews/2482001.md)
+ `雅典娜GNotes`
+
+#### [中共国淘汰国外电脑和Windows软件](/content/gnews/2481995.md)
+ `秘密翻譯組G-Translators`
+
+#### [俄乌战争赋予参与乌克兰营救援Medyka营地战友重大人生意义](/content/gnews/2481994.md)
+ `雅典娜GNotes`
+
+#### [抵制推特“言论自由”的幕后推手走上前台](/content/gnews/2481987.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [5月6号是天大的日子，世界已经进入巨变](/content/gnews/2481985.md)
+ `雅典娜GNotes`
+
 #### [油价飙升安省加油站盗窃案也在增加](/content/gnews/2481967.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -10,6 +46,9 @@
 
 #### [加拿大外交即将重返乌克兰](/content/gnews/2481953.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [美国国务院：粮食问题比以往任何时候都更加严重](/content/gnews/2481946.md)
+ `美国政要直译推`
 
 #### [每日快报：美国考虑对中共国科技巨头海康威视实施史无前例的制裁](/content/gnews/2481945.md)
  `喜马拉雅-华盛顿DC农场`
@@ -23,15 +62,6 @@
 #### [在美上市的中共国实体被列入SEC退市风险名单](/content/gnews/2481918.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [DC大中华时事：炒作中国“核威胁”，华盛顿想要“核自由”](/content/gnews/2481917.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [俄罗斯在宣布了为期三天的停火计划后仍向马里乌波尔钢铁厂发起进攻](/content/gnews/2481904.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [习近平提出的‘全球安全倡议’是寻求摧毁美国的新策略](/content/gnews/2481893.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [五月花简报（06/05/2022）](/content/gnews/2481889.md)
  `mayflowertranslate`
 
@@ -41,9 +71,6 @@
 #### [美网络安全公司揭露中共黑客组织大规模窃取商业机密](/content/gnews/2481824.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [【粤语配音】2022年5月6日：美国和共产党一决生死时刻即将到来](/content/gnews/2481753.md)
- `MOS香港部`
-
 #### [【商见你我他】第53期新闻简讯（四）](/content/gnews/2481702.md)
  `MayflowerBiz`
 
@@ -52,18 +79,6 @@
 
 #### [文贵先生直播重点大纲2022/05/06](/content/gnews/2481656.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [【商见你我他】第53期新闻简讯（二）](/content/gnews/2481652.md)
- `MayflowerBiz`
-
-#### [有声&#124;郭先生与知己贺老的珍贵回忆](/content/gnews/2481632.md)
- `MOSREC`
-
-#### [有声&#124;郭先生照片被中共列为最高机密](/content/gnews/2481609.md)
- `MOSREC`
-
-#### [【粤语配音】2022年5月6日：俄乌战争最后的结果](/content/gnews/2481593.md)
- `MOS香港部`
 
 #### [新一轮冠状病毒变种袭击是否来临](/content/gnews/2481546.md)
  `秘密翻譯組G-Translators`
@@ -86,14 +101,8 @@
 #### [中共国如何通过操纵化肥和钢铁价格输出通胀 （一）](/content/gnews/2481282.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [【G时新闻】中共严审出国公证 闭关锁国再临](/content/gnews/2481281.md)
- `G-时新闻`
-
 #### [2022年4月国际社会对中共的打击制裁汇总与分析](/content/gnews/2481260.md)
  `经济小组`
-
-#### [【G时新闻】疫苗产业的惊天黑幕与利润](/content/gnews/2481242.md)
- `G-时新闻`
 
 #### [2022.5.6大直播 战友们同舟共济，共建诺亚方舟](/content/gnews/2481240.md)
  `秘密翻译组-原创组`
@@ -125,9 +134,6 @@
 #### [日本和英国就中共国在印太地区的“崛起”达成防务协议](/content/gnews/2479435.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [史无前例危机即将到来 做好准备度过黑暗时光](/content/gnews/2479369.md)
- `MilesGuoLivePPT`
-
 #### [美欧联手遏制中共挑战国际秩序的威胁（中）](/content/gnews/2479250.md)
  `澳喜农场`
 
@@ -151,12 +157,6 @@
 
 #### [新冠疫苗｜娇生疫苗“罕见”血栓风险引起重视 美FDA急限缩使用授权范围](/content/gnews/2477836.md)
  `關注組`
-
-#### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权](/content/gnews/2476019.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [速报┃岸田首相在伦敦金融城呼吁“投资岸田！”](/content/gnews/2475635.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福](/content/gnews/2460487.md)
  `東京櫻花団-Tokyo Sakura Group`
