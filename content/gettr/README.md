@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 6:57 AM UTC  - :tv:直播](/content/gettr/p18jh4ad42f.md)
+
+2022.05.06 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group7/origin/2022/05/06/06/42a6e51d-ed93-0efe-d55c-423a66b187a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18js712dc5.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -95,11 +103,11 @@ The university student from the United States learnt that the CCP had hacked the
 
 ---
 
-[@miles 5/6/2022 6:57 AM UTC  - :tv:直播](/content/gettr/p18jh4ad42f.md)
+[@miles 5/6/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18kkfu15b2.md)
 
-2022.05.06 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+2022.05.06  新中国联邦 | 军情室  德涅斯特河沿岸的假旗行动，卢卡申科认为俄军拖得太久，美乌互通海洋情报击沉俄舰，多国海军采购美制防空导弹
 
-<img src="https://media.gettr.com/group7/origin/2022/05/06/06/42a6e51d-ed93-0efe-d55c-423a66b187a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/05/06/10/cd3f3144-d457-e69e-909c-251ddfdf1c3f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 【Ukraine Rescue】05/03/2022 Jan, founder of Bright Jar, a British humanitarian relief organization, visits the tent of the NFSC and the ROLF. He says he’d be happy to learn more about the evil nature of the CCP and the cause of dest...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/05/15/cf10ec33-c779-b188-57e4-321a66710f07/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p18f69h13df.md)
-
-叶钊颖-郝海东-飞飞 《大实话·第十九场》： “好”  2022-05-05
-
-<img src="https://media.gettr.com/group36/origin/2022/05/05/14/b32a3e24-4201-8a4d-5f7d-6ea04386646b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
