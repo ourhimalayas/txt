@@ -2,6 +2,12 @@
 ---
 
 
+#### [油价飙升安省加油站盗窃案也在增加](/content/gnews/2481967.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [北京出台六项措施假防疫真奴役](/content/gnews/2481965.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [加拿大外交即将重返乌克兰](/content/gnews/2481953.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -22,9 +28,6 @@
 
 #### [俄罗斯在宣布了为期三天的停火计划后仍向马里乌波尔钢铁厂发起进攻](/content/gnews/2481904.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [卑诗省正因政府的低能而逐渐丧失耐心](/content/gnews/2481894.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [习近平提出的‘全球安全倡议’是寻求摧毁美国的新策略](/content/gnews/2481893.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -51,9 +54,6 @@
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [【商见你我他】第53期新闻简讯（二）](/content/gnews/2481652.md)
- `MayflowerBiz`
-
-#### [【商见你我他】第53期新闻简讯（一）](/content/gnews/2481644.md)
  `MayflowerBiz`
 
 #### [有声&#124;郭先生与知己贺老的珍贵回忆](/content/gnews/2481632.md)
