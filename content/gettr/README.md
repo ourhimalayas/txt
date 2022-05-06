@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p18irbh9e53.md)
+
+2022.05.05 晚 新中国联邦 | 新闻访谈       美国的三驾马车中心；推特投资进展；俄罗斯重建乌克兰
+
+<img src="https://media.gettr.com/group20/origin/2022/05/06/01/5b0c3a7c-e340-7790-efaf-84d4002a0063/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18i4lq2b50.md)
 
 2022.05.05 晚 新中国联邦 | 新闻     郭先生展示传奇经历 爆料革命坚决反对个人崇拜； 郭先生照片被中共列为最高机密
@@ -23,11 +31,11 @@
 
 ---
 
-[@miles 5/6/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p18irbh9e53.md)
+[@miles 5/6/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p18ifmf7c0c.md)
 
-2022.05.05 晚 新中国联邦 | 新闻访谈       美国的三驾马车中心；推特投资进展；俄罗斯重建乌克兰
+The university student from the United States learnt that the CCP had hacked the QR codes and email addresses of the ROLF and NFSC and that our billboard cables had been vandalized, he said that your presence and what you are doing...
 
-<img src="https://media.gettr.com/group20/origin/2022/05/06/01/5b0c3a7c-e340-7790-efaf-84d4002a0063/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/05/06/01/94e45e31-ee8d-4246-3fa9-8d20c9e9eab4/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,14 +164,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/05/12/1b252734-beef-af20-0b5e-3352fed5028a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p18f6bob626.md)
-
-2022.05.05 早 新中国联邦 | 新闻 美国志愿者对新中国联邦灭共行动表示支持；西班牙非政府组织主席致信感谢新中国联邦
-
-<img src="https://media.gettr.com/group33/origin/2022/05/05/12/8455ec45-c591-785a-a430-59787af1a52e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
