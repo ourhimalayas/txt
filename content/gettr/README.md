@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p18n1142c6b.md)
+
+“河南封城” 飞飞秀救援快报 2022-05-06
+
+For English：gettr.com/streaming/p18n2yc9c8c
+
+<img src="https://media.gettr.com/group18/origin/2022/05/06/22/2cce1268-fa19-5114-4e24-ce86957fb68b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18m92qcb8f.md)
 
 2022.05.06  新中国联邦 | 喜健康   什么是路西法效应？-- 普通人如何变成魔鬼？
@@ -50,13 +60,15 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
-[@miles 5/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p18n1142c6b.md)
+[@miles 5/6/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p18n74ffae8.md)
 
-“河南封城” 飞飞秀救援快报 2022-05-06
+Volunteers from the New Federal State of China distributed some supplies to people stuck in traffic. Drivers have to follow the traffic, so they can’t get supplies or even go to the restroom. 
 
-For English：gettr.com/streaming/p18n2yc9c8c
 
-<img src="https://media.gettr.com/group18/origin/2022/05/06/22/2cce1268-fa19-5114-4e24-ce86957fb68b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+新中国联邦义工给堵在路上的人们分发物资。司机们必须跟着车流走，所以他们...
+
+<img src="https://media.gettr.com/group13/origin/2022/05/06/22/62d28233-58f5-a990-8fad-959ae16f6b71/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,14 +196,6 @@ The university student from the United States learnt that the CCP had hacked the
 中文同传：https://gettr.com/streaming/p18htch2cf5
 
 <img src="https://media.gettr.com/group31/origin/2022/05/05/23/8621421a-7b2b-41e0-9f37-2ca1c3d5c17d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18ibya789b.md)
-
-5/5/2022 Miles Guo’s GETTR: My advice is that you should not participate in the kind of games played by the big shots in the stock market. We must live through the next couple of years and stay safe. The CCP virus will possibly be ...
-
-<img src="https://media.gettr.com/group9/getter/2022/05/05/23/9160731b-0fa7-6036-1e6d-08784bd614e8/out.jpg" width="506" height="284">
 
 ---
 
