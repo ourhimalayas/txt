@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18ilwk842a.md)
+
+2022-5-5《鸡血王喜币大作战》 第一百八十六集 嘉宾：无双柳薇薇、Tex
+
+<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 2:55 AM UTC ](/content/gettr/p18if6ha18f.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -79,11 +87,11 @@ The university student from the United States learnt that the CCP had hacked the
 
 ---
 
-[@miles 5/6/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18ilwk842a.md)
+[@miles 5/6/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18js712dc5.md)
 
-2022-5-5《鸡血王喜币大作战》 第一百八十六集 嘉宾：无双柳薇薇、Tex
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/05/06/04/2ac7e7b8-c262-435b-7386-635011641488/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 5月5号：在21世纪的今天．只能在中国共产党极权统治下的中国社会……才能发生这种惨不忍睹的事情……这些老人的昨天．就是我们的今天．我们的明天……【武汉大妈亲口讲述，武汉封城时，很多被感染的老人被从医院包裹起来，直接送进焚化炉！】
 
 <img src="https://media.gettr.com/group4/getter/2022/05/05/13/f1234e38-0a58-665d-36c8-bee0cb568852/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:13 PM UTC  - :tv:直播](/content/gettr/p18frndc260.md)
-
-5月5号：尊敬的战友们好，今天没有直播，明天上午9:00开始大直播，非常的抱歉……很多战友向我咨询．关于昨天．美国股市的变化的看法，我在这里以个人的观点和大家分享一下！
-
-<img src="https://media.gettr.com/group40/getter/2022/05/05/13/bbbd7939-7415-5b5d-d473-d198d4902ca4/out.jpg" width="506" height="284">
 
 ---
 
