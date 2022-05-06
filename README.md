@@ -11,11 +11,17 @@
 
 ---
 
+#### [【粤语配音】2022年5月6日：美国和共产党一决生死时刻即将到来](/content/gnews/2481753.md)
+ `MOS香港部`
+
 #### [【商见你我他】第53期新闻简讯（四）](/content/gnews/2481702.md)
  `MayflowerBiz`
 
 #### [【商见你我他】第53期新闻简讯（三）](/content/gnews/2481671.md)
  `MayflowerBiz`
+
+#### [雅典娜时报-第284期](/content/gnews/2481658.md)
+ `墨尔本雅典娜农场`
 
 #### [【商见你我他】第53期新闻简讯（二）](/content/gnews/2481652.md)
  `MayflowerBiz`
@@ -58,9 +64,6 @@
 
 #### [【G时新闻】美国已将中共列为最大的政治对手](/content/gnews/2481511.md)
  `G-时新闻`
-
-#### [由于存在凝血风险，美国FDA 限制强生新冠疫苗的使用](/content/gnews/2481507.md)
- `mayflowertranslate`
 
 #### [中共命令公务员和大多数公司弃用国外电脑和软件](/content/gnews/2481497.md)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -112,9 +115,6 @@
 
 #### [衝撃！上海全面封鎖の中、介護士が高齢患者を暴行死](/content/gnews/2480468.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [2022年5月6日，全球中共病毒疫情情况汇总](/content/gnews/2480409.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [韩国成为首个加入北约合作网络防御卓越中心的亚洲国家](/content/gnews/2480186.md)
  `Tokyo Sakura Video Group`
