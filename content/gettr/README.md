@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p18iqbv6569.md)
+
+2022.05.05 新中国联邦 | 喜财经   国内取款状况；取款应对措施
+
+<img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p18ifmf7c0c.md)
 
 The university student from the United States learnt that the CCP had hacked the QR codes and email addresses of the ROLF and NFSC and that our billboard cables had been vandalized, he said that your presence and what you are doing...
@@ -39,11 +47,35 @@ The university student from the United States learnt that the CCP had hacked the
 
 ---
 
-[@miles 5/6/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p18iqbv6569.md)
+[@miles 5/6/2022 2:55 AM UTC ](/content/gettr/p18if6ha18f.md)
 
-2022.05.05 新中国联邦 | 喜财经   国内取款状况；取款应对措施
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+2022年5月4日第61天当日救援统计：
+
+Medyka救援站接待：约276人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16669人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 61 - Date: Ma...
+
+<img src="https://media.gettr.com/group38/getter/2022/05/06/02/db955f2d-c814-6bf9-5c75-36468c0b7f36/979f0a03d516c16a77c9e908a66d60a1.jpg" width="506" height="284">
 
 ---
 
@@ -164,14 +196,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 5月5号：尊敬的战友们好，今天没有直播，明天上午9:00开始大直播，非常的抱歉……很多战友向我咨询．关于昨天．美国股市的变化的看法，我在这里以个人的观点和大家分享一下！
 
 <img src="https://media.gettr.com/group40/getter/2022/05/05/13/bbbd7939-7415-5b5d-d473-d198d4902ca4/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 12:51 PM UTC  - :tv:直播](/content/gettr/p18fp8hb736.md)
-
-【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
-
-<img src="https://media.gettr.com/group43/getter/2022/05/05/12/1b252734-beef-af20-0b5e-3352fed5028a/out.jpg" width="506" height="284">
 
 ---
 
