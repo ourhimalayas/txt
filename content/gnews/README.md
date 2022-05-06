@@ -2,11 +2,20 @@
 ---
 
 
+#### [【G時新聞】美國視中共為最大的政治對手](/content/gnews/2481551.md)
+ `G-时新闻`
+
+#### [新一轮冠状病毒变种袭击是否来临](/content/gnews/2481546.md)
+ `秘密翻譯組G-Translators`
+
 #### [中共疫情来自境外？毫不动摇坚持动态清零总方针](/content/gnews/2481528.md)
  `秘密翻譯組G-Translators`
 
 #### [包括俄罗斯在内的联合国安理会对乌克兰表示担忧](/content/gnews/2481520.md)
  `Shuizhuyu`
+
+#### [【G时新闻】美国已将中共列为最大的政治对手](/content/gnews/2481511.md)
+ `G-时新闻`
 
 #### [由于存在凝血风险，美国FDA 限制强生新冠疫苗的使用](/content/gnews/2481507.md)
  `mayflowertranslate`
@@ -77,12 +86,6 @@
 #### [【G叻睇真D】英国许诺将提供乌克兰逾3亿英镑的军事援助](/content/gnews/2481218.md)
  `G-时新闻`
 
-#### [20220506郭文贵大直播 ：宋学斌案例讲解 智慧是看清事情本质](/content/gnews/2481217.md)
- `Tokyo Sakura Video Group`
-
-#### [20220506郭文贵大直播 ：中共1983年大逮捕杀人如麻，杨洁篪 王毅威胁美国官员](/content/gnews/2481192.md)
- `Tokyo Sakura Video Group`
-
 #### [截至5.6 俄乌战事汇总](/content/gnews/2481148.md)
  `秘密翻譯組G-Translators`
 
@@ -90,9 +93,6 @@
  `秘密翻译组-原创组`
 
 #### [摩根大通大量减持中资港股](/content/gnews/2480868.md)
- `NFSC News`
-
-#### [美联储22年来最大幅度加息 鹰派政策应对通胀](/content/gnews/2480867.md)
  `NFSC News`
 
 #### [文贵大直播 5/6 俄乌战争，中国百姓遭难](/content/gnews/2480690.md)
