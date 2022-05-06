@@ -2,6 +2,27 @@
 ---
 
 
+#### [2022年5月6日，全球中共病毒疫情情况汇总](/content/gnews/2480409.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [视频&#124;传欧盟打算豁免匈牙利和斯洛伐克履行俄罗斯石油禁运令](/content/gnews/2480400.md)
+ `MOSVIDEO`
+
+#### [中共政权试图控制全球电动车供应链，使美国易受影响](/content/gnews/2480359.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [岸田首相宣布对俄罗斯实施新制裁，新冠病毒措施下月重整](/content/gnews/2480358.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [5/06/2022 银河快讯： 岸田首相在结束海外访问归国的途中，宣布对俄罗斯实施新的制裁；在上海60%的日企工厂还没有开始运营](/content/gnews/2480346.md)
+ `日本银河系农场-阿尔法星球`
+
+#### [20220506郭文贵大直播 ：同舟共济 好好生活 珍惜家人和志同道合的朋友](/content/gnews/2480343.md)
+ `Tokyo Sakura Video Group`
+
+#### [文编&#124;建国以来首次北京和沿海地区发不出工资，福建战区不稳，粮食出大问题，曾庆红避谈政治](/content/gnews/2480325.md)
+ `KarmaLabs`
+
 #### [20220506郭文贵大直播 ：在战争中散发人性光辉的人会成为下个时代的栋梁精英](/content/gnews/2480321.md)
  `Tokyo Sakura Video Group`
 
@@ -13,6 +34,9 @@
 
 #### [意大利宣布推出乌托邦式的社会信用体系](/content/gnews/2480283.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [文编&#124;韩正违背习令，乔装回上海，韩正又说，俄乌开战我们都得完蛋](/content/gnews/2480257.md)
+ `KarmaLabs`
 
 #### [秘翻在线：短短三个月逃离俄罗斯的的人口已达388万](/content/gnews/2480255.md)
  `秘密翻譯組G-Translators`
@@ -38,14 +62,8 @@
 #### [有声&#124;Alhurra电视台采访新中国联邦志愿者并对灭共表支持](/content/gnews/2480160.md)
  `MOSREC`
 
-#### [澳大利亚宣布制裁75名俄罗斯议员](/content/gnews/2480153.md)
- `G-NEWS TAIWAN`
-
 #### [科技进步推翻莫德尔周期](/content/gnews/2480142.md)
  `NFSC News`
-
-#### [有声&#124;郭先生展示传奇经历 爆料革命坚决反对个人崇拜](/content/gnews/2480114.md)
- `MOSREC`
 
 #### [香港海关5月4日起全面采用中式步操，CCP 赤化香港进行中](/content/gnews/2480113.md)
  `Tokyo Sakura Video Group`
@@ -86,29 +104,17 @@
 #### [突破：北京当局称全员三轮核酸筛查出现五管混采阳性](/content/gnews/2479576.md)
  `战云长天时评`
 
-#### [【G时新闻】郭先生的人生信念](/content/gnews/2479552.md)
- `G-时新闻`
-
 #### [度过三大灾难 迎接最伟大时代](/content/gnews/2479518.md)
  `NFSC News`
 
 #### [樱花时政┃七国集团峰会：泽连斯基荣誉与会](/content/gnews/2479514.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [【说事儿】郭文贵先生：没有爆料革命就没有《轴心法》](/content/gnews/2479493.md)
- `TokyoSakuraDesignGroup`
-
 #### [马里乌波尔钢厂的乌克兰战士誓言坚持到底](/content/gnews/2479460.md)
  `墨尔本雅典娜农场`
 
 #### [日本和英国就中共国在印太地区的“崛起”达成防务协议](/content/gnews/2479435.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [樱花时政┃英、日达成历史性防卫协议 强调民主国家团结对抗专制政权](/content/gnews/2479373.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [全球疫情疫苗数据更新](/content/gnews/2479367.md)
- `墨尔本雅典娜农场`
 
 #### [美欧联手遏制中共挑战国际秩序的威胁（中）](/content/gnews/2479250.md)
  `澳喜农场`
@@ -143,9 +149,6 @@
 #### [新冠疫苗｜娇生疫苗“罕见”血栓风险引起重视 美FDA急限缩使用授权范围](/content/gnews/2477836.md)
  `關注組`
 
-#### [中日财经爆┃人民币跌破6.7关口 创18个月以来新低](/content/gnews/2477821.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权](/content/gnews/2476019.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -154,9 +157,6 @@
 
 #### [樱花时政┃岸田首相宣布对俄罗斯实施新制裁](/content/gnews/2475604.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [国际｜日、英合作取得重大突破 将加快国防、贸易合作](/content/gnews/2471803.md)
- `關注組`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福](/content/gnews/2460487.md)
  `東京櫻花団-Tokyo Sakura Group`
