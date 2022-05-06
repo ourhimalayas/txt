@@ -2,6 +2,21 @@
 ---
 
 
+#### [在美上市的中共国实体被列入SEC退市风险名单](/content/gnews/2481918.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [俄罗斯在宣布了为期三天的停火计划后仍向马里乌波尔钢铁厂发起进攻](/content/gnews/2481904.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [卑诗省正因政府的低能而逐渐丧失耐心](/content/gnews/2481894.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [习近平提出的‘全球安全倡议’是寻求摧毁美国的新策略](/content/gnews/2481893.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [五月花简报（06/05/2022）](/content/gnews/2481889.md)
+ `mayflowertranslate`
+
 #### [谈古论今 &#124; 氧化石墨烯在你身体里要干什么？](/content/gnews/2481864.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -50,29 +65,14 @@
 #### [【粤语配音】2022年5月6日：俄乌战争最后的结果](/content/gnews/2481593.md)
  `MOS香港部`
 
-#### [加拿大机场延误将成为新常态](/content/gnews/2481588.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [全美婴儿配方奶粉短缺达到“令人震惊 ”的程度](/content/gnews/2481570.md)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [新一轮冠状病毒变种袭击是否来临](/content/gnews/2481546.md)
  `秘密翻譯組G-Translators`
 
 #### [中共疫情来自境外？毫不动摇坚持动态清零总方针](/content/gnews/2481528.md)
  `秘密翻譯組G-Translators`
 
-#### [【G时新闻】美国已将中共列为最大的政治对手](/content/gnews/2481511.md)
- `G-时新闻`
-
-#### [中共命令公务员和大多数公司弃用国外电脑和软件](/content/gnews/2481497.md)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月6日早](/content/gnews/2481417.md)
  `纽约香草山MOS01`
-
-#### [[G时新闻】台湾在斯洛伐克设立乌克兰难民幼儿园](/content/gnews/2481415.md)
- `G-时新闻`
 
 #### [中共国如何通过操纵化肥和钢铁价格输出通胀 （三）](/content/gnews/2481388.md)
  `西班牙巴塞罗那喜悦农场`
