@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/6/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p18n74ffae8.md)
+
+Volunteers from the New Federal State of China distributed some supplies to people stuck in traffic. Drivers have to follow the traffic, so they can’t get supplies or even go to the restroom. 
+
+
+
+新中国联邦义工给堵在路上的人们分发物资。司机们必须跟着车流走，所以他们...
+
+<img src="https://media.gettr.com/group13/origin/2022/05/06/22/62d28233-58f5-a990-8fad-959ae16f6b71/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p18n1142c6b.md)
 
 “河南封城” 飞飞秀救援快报 2022-05-06
@@ -60,15 +72,11 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
-[@miles 5/6/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p18n74ffae8.md)
+[@miles 5/6/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p18mtkw70e5.md)
 
-Volunteers from the New Federal State of China distributed some supplies to people stuck in traffic. Drivers have to follow the traffic, so they can’t get supplies or even go to the restroom. 
+2022.05.06  PM NFSC news   A British friend joins the NFSC’s rescue team at the Ukraine frontline
 
-
-
-新中国联邦义工给堵在路上的人们分发物资。司机们必须跟着车流走，所以他们...
-
-<img src="https://media.gettr.com/group13/origin/2022/05/06/22/62d28233-58f5-a990-8fad-959ae16f6b71/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/06/22/9fb6d45a-9b36-ad33-2e73-07ea8cd58d18/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -173,19 +181,6 @@ The university student from the United States learnt that the CCP had hacked the
 2022.05.05 晚 新中国联邦 | 新闻     郭先生展示传奇经历 爆料革命坚决反对个人崇拜； 郭先生照片被中共列为最高机密
 
 <img src="https://media.gettr.com/group36/origin/2022/05/06/00/09b47a0a-13be-5d8a-f424-2e358b5b6e4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayaathena 5/4/2022 12:47 PM UTC ](/content/gettr/p18a3gq7a90.md)
-
-7.24系列——起底于品海之南海控股
-
-在“起底于品海”系列文章中，我们首先挖掘了于品海疑窦丛生的发迹史，围绕着他的各种创业奇迹，依稀间可以看到幕后势力（大资金）的操作痕迹，因为中共治下所有的传奇幕后都有故事。今天，我们重点关注于品海多年运作的一家港交所上市公司——南海控股。
-
-
-
-目前，于品海是南海控股的董事局主席，公开资料显示，2000年于品海通过其控制的港交所上市公司中国数码，收购学习动力控股有限公（Savoy Concepts），而后更名南海控股。
-...
 
 ---
 
