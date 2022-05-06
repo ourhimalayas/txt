@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18i4lq2b50.md)
+
+2022.05.05 晚 新中国联邦 | 新闻     郭先生展示传奇经历 爆料革命坚决反对个人崇拜； 郭先生照片被中共列为最高机密
+
+<img src="https://media.gettr.com/group36/origin/2022/05/06/00/09b47a0a-13be-5d8a-f424-2e358b5b6e4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@himalayaathena 5/4/2022 12:47 PM UTC ](/content/gettr/p18a3gq7a90.md)
 
 7.24系列——起底于品海之南海控股
@@ -15,11 +23,11 @@
 
 ---
 
-[@miles 5/6/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18i4lq2b50.md)
+[@miles 5/6/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p18irbh9e53.md)
 
-2022.05.05 晚 新中国联邦 | 新闻     郭先生展示传奇经历 爆料革命坚决反对个人崇拜； 郭先生照片被中共列为最高机密
+2022.05.05 晚 新中国联邦 | 新闻访谈       美国的三驾马车中心；推特投资进展；俄罗斯重建乌克兰
 
-<img src="https://media.gettr.com/group36/origin/2022/05/06/00/09b47a0a-13be-5d8a-f424-2e358b5b6e4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/05/06/01/5b0c3a7c-e340-7790-efaf-84d4002a0063/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -164,14 +172,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 5月5号：尊敬的战友们好．你有喜币吗？将成为未来的最有力量的．问候语！
 
 <img src="https://media.gettr.com/group34/getter/2022/05/05/12/ca27424d-f4be-f2f0-d9e7-4adae21f094a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p18f7s99571.md)
-
-【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/05/12/de419345-9dbd-0371-98ad-8d77145b1a1f/out.jpg" width="506" height="284">
 
 ---
 
