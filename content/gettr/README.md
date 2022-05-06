@@ -10,6 +10,22 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
+[@miles 5/6/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p18l6ada9b4.md)
+
+【Ukraine Rescue】05/04/2022 A young volunteer from Spain, Lidia, says that the Chinese people have a very important place in her heart. She sees a change in Chinese here and a new China who wants to abandon communism and to devote h...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/06/14/708bad1a-96a6-f8a3-ae82-3b79061c573e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/6/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p18k9yf555e.md)
+
+2022年5月6日 文贵大直播：如何应对世界经济危机；俄乌战争对我们的影响
+
+<img src="https://media.gettr.com/group43/origin/2022/05/06/12/922da29e-10a7-f9c9-4220-c1b48b2cd82a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18kkfu15b2.md)
 
 2022.05.06  新中国联邦 | 军情室  德涅斯特河沿岸的假旗行动，卢卡申科认为俄军拖得太久，美乌互通海洋情报击沉俄舰，多国海军采购美制防空导弹
@@ -119,14 +135,6 @@ The university student from the United States learnt that the CCP had hacked the
 
 ---
 
-[@miles 5/6/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p18k9yf555e.md)
-
-2022年5月6日 文贵大直播：如何应对世界经济危机；俄乌战争对我们的影响
-
-<img src="https://media.gettr.com/group43/origin/2022/05/06/12/922da29e-10a7-f9c9-4220-c1b48b2cd82a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/5/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p18hunj361d.md)
 
 2022.05.05  NFSC fringe  Episode 184
@@ -188,14 +196,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 2022.05.05  新中国联邦 | 喜健康   胖得要死？！这是玩笑吗？
 
 <img src="https://media.gettr.com/group40/origin/2022/05/05/20/4315ab00-333c-0fea-9af2-8526e64a2d74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 5/5/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p18gw317dcd.md)
-
-2022-5-5《避风港》（44）大量疫苗接种者失明
-
-<img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
