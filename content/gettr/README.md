@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 4:09 PM UTC  - :tv:直播](/content/gettr/p18l7bg75a2.md)
+
+ 5月6号：分享给战友们快乐的时刻……花来啦，花来了……
+
+<img src="https://media.gettr.com/group5/getter/2022/05/06/16/acf6ed0f-8f7c-d66b-f04f-1701f11ac449/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p18l6ada9b4.md)
 
 【Ukraine Rescue】05/04/2022 A young volunteer from Spain, Lidia, says that the Chinese people have a very important place in her heart. She sees a change in Chinese here and a new China who wants to abandon communism and to devote h...
@@ -18,11 +26,11 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
-[@miles 5/6/2022 4:09 PM UTC  - :tv:直播](/content/gettr/p18l7bg75a2.md)
+[@miles 5/6/2022 4:23 PM UTC  - :tv:直播](/content/gettr/p18k9u88723.md)
 
- 5月6号：分享给战友们快乐的时刻……花来啦，花来了……
+NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
-<img src="https://media.gettr.com/group5/getter/2022/05/06/16/acf6ed0f-8f7c-d66b-f04f-1701f11ac449/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/05/06/16/ea51a16e-971f-1058-e710-6db73bbf8e89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -186,16 +194,6 @@ The university student from the United States learnt that the CCP had hacked the
 5/5...
 
 <img src="https://media.gettr.com/group16/getter/2022/05/05/22/a4c8fcd1-07d8-13c6-8651-8d278d06e38d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18i2650dbf.md)
-
-“郑州裕达” 飞飞秀救援快报 2022-05-05
-
-For English：gettr.com/streaming/p18hhlyddb1
-
-<img src="https://media.gettr.com/group20/origin/2022/04/20/22/340ded9d-cf09-6f6b-bfe8-04a7da687024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
