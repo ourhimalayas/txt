@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 4:23 PM UTC  - :tv:直播](/content/gettr/p18k9u88723.md)
+
+NFSC and ROLF Ukraine Humanitarian Rescue Mission
+
+<img src="https://media.gettr.com/group50/origin/2022/05/06/16/ea51a16e-971f-1058-e710-6db73bbf8e89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 4:09 PM UTC  - :tv:直播](/content/gettr/p18l7bg75a2.md)
 
  5月6号：分享给战友们快乐的时刻……花来啦，花来了……
@@ -26,11 +34,11 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
-[@miles 5/6/2022 4:23 PM UTC  - :tv:直播](/content/gettr/p18k9u88723.md)
+[@miles 5/6/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p18m7je5977.md)
 
-NFSC and ROLF Ukraine Humanitarian Rescue Mission
+2022年5月6日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group50/origin/2022/05/06/16/ea51a16e-971f-1058-e710-6db73bbf8e89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/05/06/17/324d18e2-f529-3516-dd69-c242d2b563df/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -182,18 +190,6 @@ The university student from the United States learnt that the CCP had hacked the
 5/5/2022 Miles Guo’s GETTR: As long a s the CCP still exists, the Sino-US relationship will never improve. Only by destroying the CCP can the economy of the US and the West sustain. The Americans’ talk of canceling the tariffs impo...
 
 <img src="https://media.gettr.com/group44/getter/2022/05/05/22/529bffe4-159c-fc91-3537-204a872c0927/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 10:42 PM UTC  - :tv:直播](/content/gettr/p18hm8y5fab.md)
-
-5/5/2022 Miles Guo’s GETTR: The recent spike in stock markets is due to the over-issued currency and has no underlying economic support. The amount of over-issued currency in Communist China goes far beyond your imagination!
-
-
-
-5/5...
-
-<img src="https://media.gettr.com/group16/getter/2022/05/05/22/a4c8fcd1-07d8-13c6-8651-8d278d06e38d/out.jpg" width="506" height="284">
 
 ---
 
