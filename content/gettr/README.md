@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p18l6ada9b4.md)
+
+【Ukraine Rescue】05/04/2022 A young volunteer from Spain, Lidia, says that the Chinese people have a very important place in her heart. She sees a change in Chinese here and a new China who wants to abandon communism and to devote h...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/06/14/708bad1a-96a6-f8a3-ae82-3b79061c573e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 12:06 PM UTC ](/content/gettr/p18kilu7e6a.md)
 
 We are the citizens of the New Federal State of China. Our mission is to take down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party i...
@@ -10,11 +18,11 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
-[@miles 5/6/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p18l6ada9b4.md)
+[@miles 5/6/2022 4:09 PM UTC  - :tv:直播](/content/gettr/p18l7bg75a2.md)
 
-【Ukraine Rescue】05/04/2022 A young volunteer from Spain, Lidia, says that the Chinese people have a very important place in her heart. She sees a change in Chinese here and a new China who wants to abandon communism and to devote h...
+ 5月6号：分享给战友们快乐的时刻……花来啦，花来了……
 
-<img src="https://media.gettr.com/group35/getter/2022/05/06/14/708bad1a-96a6-f8a3-ae82-3b79061c573e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/05/06/16/acf6ed0f-8f7c-d66b-f04f-1701f11ac449/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ The university student from the United States learnt that the CCP had hacked the
 For English：gettr.com/streaming/p18hhlyddb1
 
 <img src="https://media.gettr.com/group20/origin/2022/04/20/22/340ded9d-cf09-6f6b-bfe8-04a7da687024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18h99w347d.md)
-
-2022.05.05  新中国联邦 | 喜健康   胖得要死？！这是玩笑吗？
-
-<img src="https://media.gettr.com/group40/origin/2022/05/05/20/4315ab00-333c-0fea-9af2-8526e64a2d74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
