@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/6/2022 12:06 PM UTC ](/content/gettr/p18kilu7e6a.md)
+
+We are the citizens of the New Federal State of China. Our mission is to take down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party i...
+
+<img src="https://media.gettr.com/group15/origin/2022/05/06/12/102eb0b5-b3f4-537a-b5c0-9a59b308faa4/d11e5bed830ee26e42de1c85e2cda91f.jpg" width="506" height="284">
+
+---
+
+[@miles 5/6/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18kkfu15b2.md)
+
+2022.05.06  新中国联邦 | 军情室  德涅斯特河沿岸的假旗行动，卢卡申科认为俄军拖得太久，美乌互通海洋情报击沉俄舰，多国海军采购美制防空导弹
+
+<img src="https://media.gettr.com/group32/origin/2022/05/06/10/cd3f3144-d457-e69e-909c-251ddfdf1c3f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 6:57 AM UTC  - :tv:直播](/content/gettr/p18jh4ad42f.md)
 
 2022.05.06 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -103,11 +119,11 @@ The university student from the United States learnt that the CCP had hacked the
 
 ---
 
-[@miles 5/6/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18kkfu15b2.md)
+[@miles 5/6/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p18k9yf555e.md)
 
-2022.05.06  新中国联邦 | 军情室  德涅斯特河沿岸的假旗行动，卢卡申科认为俄军拖得太久，美乌互通海洋情报击沉俄舰，多国海军采购美制防空导弹
+2022年5月6日 文贵大直播：如何应对世界经济危机；俄乌战争对我们的影响
 
-<img src="https://media.gettr.com/group32/origin/2022/05/06/10/cd3f3144-d457-e69e-909c-251ddfdf1c3f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/06/12/922da29e-10a7-f9c9-4220-c1b48b2cd82a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -180,22 +196,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 2022-5-5《避风港》（44）大量疫苗接种者失明
 
 <img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p18f67ja691.md)
-
-2022.05.05 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group23/origin/2022/05/05/17/7f2dc092-e055-f261-2689-6b72f1495a97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/5/2022 3:37 PM UTC  - :tv:直播](/content/gettr/p18gg88d4b6.md)
-
-【Ukraine Rescue】05/03/2022 Jan, founder of Bright Jar, a British humanitarian relief organization, visits the tent of the NFSC and the ROLF. He says he’d be happy to learn more about the evil nature of the CCP and the cause of dest...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/05/15/cf10ec33-c779-b188-57e4-321a66710f07/out.jpg" width="506" height="284">
 
 ---
 
