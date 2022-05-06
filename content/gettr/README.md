@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p18ifmf7c0c.md)
+
+The university student from the United States learnt that the CCP had hacked the QR codes and email addresses of the ROLF and NFSC and that our billboard cables had been vandalized, he said that your presence and what you are doing...
+
+<img src="https://media.gettr.com/group41/origin/2022/05/06/01/94e45e31-ee8d-4246-3fa9-8d20c9e9eab4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p18irbh9e53.md)
 
 2022.05.05 晚 新中国联邦 | 新闻访谈       美国的三驾马车中心；推特投资进展；俄罗斯重建乌克兰
@@ -31,11 +39,11 @@
 
 ---
 
-[@miles 5/6/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p18ifmf7c0c.md)
+[@miles 5/6/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p18iqbv6569.md)
 
-The university student from the United States learnt that the CCP had hacked the QR codes and email addresses of the ROLF and NFSC and that our billboard cables had been vandalized, he said that your presence and what you are doing...
+2022.05.05 新中国联邦 | 喜财经   国内取款状况；取款应对措施
 
-<img src="https://media.gettr.com/group41/origin/2022/05/06/01/94e45e31-ee8d-4246-3fa9-8d20c9e9eab4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -164,14 +172,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/05/12/1b252734-beef-af20-0b5e-3352fed5028a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p18fob88fec.md)
-
-5月5号：尊敬的战友们好．你有喜币吗？将成为未来的最有力量的．问候语！
-
-<img src="https://media.gettr.com/group34/getter/2022/05/05/12/ca27424d-f4be-f2f0-d9e7-4adae21f094a/out.jpg" width="506" height="284">
 
 ---
 
