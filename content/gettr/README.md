@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18m92qcb8f.md)
+
+2022.05.06  新中国联邦 | 喜健康   什么是路西法效应？-- 普通人如何变成魔鬼？
+
+<img src="https://media.gettr.com/group41/origin/2022/05/06/20/6607cd87-14c2-7b89-3427-6b817519c5cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p18m7je5977.md)
 
 2022年5月6日 俄乌战争战况播报
@@ -42,11 +50,13 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
-[@miles 5/6/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18m92qcb8f.md)
+[@miles 5/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p18n1142c6b.md)
 
-2022.05.06  新中国联邦 | 喜健康   什么是路西法效应？-- 普通人如何变成魔鬼？
+“河南封城” 飞飞秀救援快报 2022-05-06
 
-<img src="https://media.gettr.com/group41/origin/2022/05/06/20/6607cd87-14c2-7b89-3427-6b817519c5cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p18n2yc9c8c
+
+<img src="https://media.gettr.com/group18/origin/2022/05/06/22/2cce1268-fa19-5114-4e24-ce86957fb68b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -174,14 +184,6 @@ The university student from the United States learnt that the CCP had hacked the
 中文同传：https://gettr.com/streaming/p18htch2cf5
 
 <img src="https://media.gettr.com/group31/origin/2022/05/05/23/8621421a-7b2b-41e0-9f37-2ca1c3d5c17d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18i6kl9818.md)
-
-2022.05.05  PM NFSC news   Russia Targets East Ukraine While it Suffers Heavy Losses
-
-<img src="https://media.gettr.com/group23/origin/2022/05/05/22/e5aadf06-5f67-af0d-91d1-24ecec92a725/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
