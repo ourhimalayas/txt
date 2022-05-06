@@ -15,11 +15,11 @@
 
 ---
 
-[@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18i6kl9818.md)
+[@miles 5/6/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18i4lq2b50.md)
 
-2022.05.05  PM NFSC news   Russia Targets East Ukraine While it Suffers Heavy Losses
+2022.05.05 晚 新中国联邦 | 新闻     郭先生展示传奇经历 爆料革命坚决反对个人崇拜； 郭先生照片被中共列为最高机密
 
-<img src="https://media.gettr.com/group23/origin/2022/05/05/22/e5aadf06-5f67-af0d-91d1-24ecec92a725/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/05/06/00/09b47a0a-13be-5d8a-f424-2e358b5b6e4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -30,6 +30,14 @@
 中文同传：https://gettr.com/streaming/p18htch2cf5
 
 <img src="https://media.gettr.com/group31/origin/2022/05/05/23/8621421a-7b2b-41e0-9f37-2ca1c3d5c17d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p18i6kl9818.md)
+
+2022.05.05  PM NFSC news   Russia Targets East Ukraine While it Suffers Heavy Losses
+
+<img src="https://media.gettr.com/group23/origin/2022/05/05/22/e5aadf06-5f67-af0d-91d1-24ecec92a725/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -164,14 +172,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/05/12/de419345-9dbd-0371-98ad-8d77145b1a1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18flog5821.md)
-
-2022.05.05  AM NFSC news   Daily Update on NFSC Ukraine Rescue Effort
-
-<img src="https://media.gettr.com/group48/origin/2022/05/05/11/8babc0dc-b0ae-7619-4d16-eacfe2efc301/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
