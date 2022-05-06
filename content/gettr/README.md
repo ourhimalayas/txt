@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18js712dc5.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group30/origin/2022/05/06/04/2ac7e7b8-c262-435b-7386-635011641488/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18ilwk842a.md)
 
 2022-5-5《鸡血王喜币大作战》 第一百八十六集 嘉宾：无双柳薇薇、Tex
@@ -87,11 +95,11 @@ The university student from the United States learnt that the CCP had hacked the
 
 ---
 
-[@miles 5/6/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18js712dc5.md)
+[@miles 5/6/2022 6:57 AM UTC  - :tv:直播](/content/gettr/p18jh4ad42f.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+2022.05.06 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group30/origin/2022/05/06/04/2ac7e7b8-c262-435b-7386-635011641488/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/05/06/06/42a6e51d-ed93-0efe-d55c-423a66b187a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ For English：gettr.com/streaming/p18hhlyddb1
 叶钊颖-郝海东-飞飞 《大实话·第十九场》： “好”  2022-05-05
 
 <img src="https://media.gettr.com/group36/origin/2022/05/05/14/b32a3e24-4201-8a4d-5f7d-6ea04386646b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p18fadfec41.md)
-
-5月5号：在21世纪的今天．只能在中国共产党极权统治下的中国社会……才能发生这种惨不忍睹的事情……这些老人的昨天．就是我们的今天．我们的明天……【武汉大妈亲口讲述，武汉封城时，很多被感染的老人被从医院包裹起来，直接送进焚化炉！】
-
-<img src="https://media.gettr.com/group4/getter/2022/05/05/13/f1234e38-0a58-665d-36c8-bee0cb568852/out.jpg" width="506" height="284">
 
 ---
 
