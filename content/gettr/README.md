@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/6/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p18n91xdde7.md)
+
+5/6/2022 Miles Guo: The CCP made the same mistake as Empress Dowager Cixi by foolishly launching a war against the entire humankind. The Russia-Ukraine war made Wang Huning and "Xi the Sun" further believe in George Modelski's theo...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/06/23/5f63a482-646f-6333-df76-027bf8589897/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/6/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p18mzcvfe8a.md)
+
+5/6/2022 Miles Guo: What does the Russia-Ukraine war tell us? Food and water are the most important life necessities, followed by medicines. Elderly people are the most vulnerable population during the war, and the CCP is taking an...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/06/23/6c013c9a-f75c-4e6a-444a-dc0c60930297/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p18mtkw70e5.md)
 
 2022.05.06  PM NFSC news   A British friend joins the NFSC’s rescue team at the Ukraine frontline
@@ -85,14 +101,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 We are the citizens of the New Federal State of China. Our mission is to take down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party i...
 
 <img src="https://media.gettr.com/group15/origin/2022/05/06/12/102eb0b5-b3f4-537a-b5c0-9a59b308faa4/d11e5bed830ee26e42de1c85e2cda91f.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p18mzcvfe8a.md)
-
-5/6/2022 Miles Guo: What does the Russia-Ukraine war tell us? Food and water are the most important life necessities, followed by medicines. Elderly people are the most vulnerable population during the war, and the CCP is taking an...
-
-<img src="https://media.gettr.com/group21/getter/2022/05/06/23/6c013c9a-f75c-4e6a-444a-dc0c60930297/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Day 61 - Date: Ma...
 The university student from the United States learnt that the CCP had hacked the QR codes and email addresses of the ROLF and NFSC and that our billboard cables had been vandalized, he said that your presence and what you are doing...
 
 <img src="https://media.gettr.com/group41/origin/2022/05/06/01/94e45e31-ee8d-4246-3fa9-8d20c9e9eab4/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p18irbh9e53.md)
-
-2022.05.05 晚 新中国联邦 | 新闻访谈       美国的三驾马车中心；推特投资进展；俄罗斯重建乌克兰
-
-<img src="https://media.gettr.com/group20/origin/2022/05/06/01/5b0c3a7c-e340-7790-efaf-84d4002a0063/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
