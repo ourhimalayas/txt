@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p18m7je5977.md)
+
+2022年5月6日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group30/origin/2022/05/06/17/324d18e2-f529-3516-dd69-c242d2b563df/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 4:23 PM UTC  - :tv:直播](/content/gettr/p18k9u88723.md)
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission
@@ -34,11 +42,11 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
-[@miles 5/6/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p18m7je5977.md)
+[@miles 5/6/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18m92qcb8f.md)
 
-2022年5月6日 俄乌战争战况播报
+2022.05.06  新中国联邦 | 喜健康   什么是路西法效应？-- 普通人如何变成魔鬼？
 
-<img src="https://media.gettr.com/group30/origin/2022/05/06/17/324d18e2-f529-3516-dd69-c242d2b563df/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/05/06/20/6607cd87-14c2-7b89-3427-6b817519c5cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ The university student from the United States learnt that the CCP had hacked the
 5/5/2022 Miles Guo’s GETTR: My advice is that you should not participate in the kind of games played by the big shots in the stock market. We must live through the next couple of years and stay safe. The CCP virus will possibly be ...
 
 <img src="https://media.gettr.com/group9/getter/2022/05/05/23/9160731b-0fa7-6036-1e6d-08784bd614e8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18hflo773a.md)
-
-5/5/2022 Miles Guo’s GETTR: As long a s the CCP still exists, the Sino-US relationship will never improve. Only by destroying the CCP can the economy of the US and the West sustain. The Americans’ talk of canceling the tariffs impo...
-
-<img src="https://media.gettr.com/group44/getter/2022/05/05/22/529bffe4-159c-fc91-3537-204a872c0927/out.jpg" width="506" height="284">
 
 ---
 
