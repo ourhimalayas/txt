@@ -2,14 +2,53 @@
 ---
 
 
+#### [秘翻在线：短短三个月逃离俄罗斯的的人口已达388万](/content/gnews/2480255.md)
+ `秘密翻譯組G-Translators`
+
+#### [马立波市剧院遇难者恐翻番 600平民空袭中丧生](/content/gnews/2480214.md)
+ `NFSC News`
+
+#### [秘翻在线：中共战狼开骂岸田首相的 &#8220;乌克兰就是明天的东亚 &#8220;](/content/gnews/2480213.md)
+ `秘密翻譯組G-Translators`
+
+#### [韩国成为首个加入北约合作网络防御卓越中心的亚洲国家](/content/gnews/2480186.md)
+ `Tokyo Sakura Video Group`
+
+#### [有声&#124;Alhurra电视台采访新中国联邦志愿者并对灭共表支持](/content/gnews/2480160.md)
+ `MOSREC`
+
+#### [澳大利亚宣布制裁75名俄罗斯议员](/content/gnews/2480153.md)
+ `G-NEWS TAIWAN`
+
+#### [科技进步推翻莫德尔周期](/content/gnews/2480142.md)
+ `NFSC News`
+
+#### [中共劳动课重出江湖来教学生居家隔离](/content/gnews/2480115.md)
+ `G-NEWS TAIWAN`
+
+#### [有声&#124;郭先生展示传奇经历 爆料革命坚决反对个人崇拜](/content/gnews/2480114.md)
+ `MOSREC`
+
+#### [香港海关5月4日起全面采用中式步操，CCP 赤化香港进行中](/content/gnews/2480113.md)
+ `Tokyo Sakura Video Group`
+
+#### [【乌克兰救援】“中国人民在我心里有个位置。”—一位西班牙义工的心声](/content/gnews/2480111.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中共国新闻自由指数全球排名倒数第六](/content/gnews/2480107.md)
+ `NFSC News`
+
+#### [5/6/2022国际财经快讯：ING未达到第一季度利润预期；Axa报告第一季度收入增长2%](/content/gnews/2480097.md)
+ `秘密翻译组金融团队`
+
+#### [5月5日，河南郑州，中小学劳动课程独立](/content/gnews/2480091.md)
+ `Tokyo Sakura Video Group`
+
 #### [辉瑞公司的欺诈证据会导致辉瑞公司承担重大赔偿金](/content/gnews/2480074.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [世界新闻自由指数发布，中共国排名倒数第六](/content/gnews/2480059.md)
  `G-NEWS TAIWAN`
-
-#### [人们像僵尸一样在情绪上对失去家庭成员毫无反应](/content/gnews/2480030.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [湖南江华，一名身穿城管制服男子被群众追着满街跑](/content/gnews/2480029.md)
  `Tokyo Sakura Video Group`
@@ -17,26 +56,20 @@
 #### [习近平召开“常萎会”，继续严酷执行“动态清零”](/content/gnews/2480019.md)
  `波士顿五月花农场`
 
-#### [江阴某镇，被医院拒诊，最后腹痛难耐，直接在地上生产了](/content/gnews/2479945.md)
- `Tokyo Sakura Video Group`
+#### [有声&#124;法国：币安获得金融市场管理局AMF的数字资产服务商PSAN资格](/content/gnews/2479989.md)
+ `MOSREC`
 
 #### [秘翻在线：中共国家副主席王岐山将出席韩国总统的就职典礼](/content/gnews/2479931.md)
  `秘密翻譯組G-Translators`
 
-#### [上海达丰，越来越混乱，普通人的命就贱如草](/content/gnews/2479761.md)
- `Tokyo Sakura Video Group`
-
 #### [美国及世界疫情简报（05-06-2022）](/content/gnews/2479732.md)
  `波士顿五月花农场`
 
-#### [【说事儿】日美防长达成密切合作共识 强调中共海上威胁、台海重要性](/content/gnews/2479704.md)
- `TokyoSakuraDesignGroup`
-
-#### [俄罗斯模拟发射可搭载核弹头导弹](/content/gnews/2479700.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [爆料革命是推动轴心法案的主要力量](/content/gnews/2479693.md)
  `NFSC News`
+
+#### [20220506郭文贵大直播 ：战争前夕各个国家移民人数暴增](/content/gnews/2479661.md)
+ `Tokyo Sakura Video Group`
 
 #### [俄罗斯在毗邻北约边界地区进行模拟核打击演练](/content/gnews/2479622.md)
  `秘密翻譯組G-Translators`
@@ -44,17 +77,11 @@
 #### [“马某被捕”风波实为中共心理测试](/content/gnews/2479596.md)
  `NFSC News`
 
-#### [北京香山饭店是中共情报机构](/content/gnews/2479587.md)
- `纽约香草山MOS02`
-
 #### [突破：北京当局称全员三轮核酸筛查出现五管混采阳性](/content/gnews/2479576.md)
  `战云长天时评`
 
 #### [【G时新闻】郭先生的人生信念](/content/gnews/2479552.md)
  `G-时新闻`
-
-#### [有声｜五角大楼否认美助乌军瞄准并杀死俄将军](/content/gnews/2479526.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [度过三大灾难 迎接最伟大时代](/content/gnews/2479518.md)
  `NFSC News`
@@ -62,29 +89,14 @@
 #### [樱花时政┃七国集团峰会：泽连斯基荣誉与会](/content/gnews/2479514.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [【G叻睇真D】特鲁多会承认温尼伯P4实验室涉及间谍活动吗？](/content/gnews/2479503.md)
- `G-时新闻`
-
 #### [【说事儿】郭文贵先生：没有爆料革命就没有《轴心法》](/content/gnews/2479493.md)
  `TokyoSakuraDesignGroup`
 
 #### [马里乌波尔钢厂的乌克兰战士誓言坚持到底](/content/gnews/2479460.md)
  `墨尔本雅典娜农场`
 
-#### [股市上涨只是回光返照的假象](/content/gnews/2479459.md)
- `NFSC News`
-
-#### [有声｜大连三列有轨电车相撞 唐山轿车撞火车](/content/gnews/2479454.md)
- `秘密翻译组-即时新闻播报组`
-
 #### [日本和英国就中共国在印太地区的“崛起”达成防务协议](/content/gnews/2479435.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [有声｜马里乌波尔保卫者表明立场 不会投降](/content/gnews/2479416.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [有声&#124;盖特全新升级 战友将有更多选择](/content/gnews/2479377.md)
- `MOSREC`
 
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家团结对抗专制政权](/content/gnews/2479373.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -110,20 +122,11 @@
 #### [日本向菲律宾提供大型巡逻舰以保障南海安全](/content/gnews/2479137.md)
  `温哥华圆成农场🇨🇦`
 
-#### [2022年5月6日战时快讯](/content/gnews/2479135.md)
- `墨尔本雅典娜农场`
-
 #### [秘翻在线：美国政府对中国海康威视侵犯人权行为追加制裁](/content/gnews/2479066.md)
  `秘密翻譯組G-Translators`
 
 #### [乌克兰战争：丈夫发誓要在“这场毫无意义的战争”中继续被杀妻子的营救难民工作](/content/gnews/2479051.md)
  `波士顿五月花农场金融部`
-
-#### [调查显示90%的银行都在研究数字货币](/content/gnews/2478979.md)
- `银河歌舞厅`
-
-#### [秘翻在线：乌克兰称俄罗斯在开战后70天内犯下约1万起战争罪行](/content/gnews/2478972.md)
- `秘密翻譯組G-Translators`
 
 #### [杭州亚运、成都世大运均宣布延期 闭关锁国全面脱钩再升级](/content/gnews/2478605.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -142,9 +145,6 @@
 
 #### [中日财经爆┃人民币跌破6.7关口 创18个月以来新低](/content/gnews/2477821.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共80多家公司面临在美退市](/content/gnews/2477656.md)
- `墨尔本雅典娜农场`
 
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权](/content/gnews/2476019.md)
  `東京櫻花団-Tokyo Sakura Group`
