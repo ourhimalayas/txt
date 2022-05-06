@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/6/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p18n5z9442b.md)
+
+5/06/2022 Miles Guo: What should Chinese people learn from the Russia-Ukraine war? Food supply is the most critical; the war between Communist China and the US already started in the aspects of unrestricted warfare, economic warfar...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/06/23/a033bffc-7c25-1586-a542-8ab470aecb9b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/6/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p18mtkw70e5.md)
+
+2022.05.06  PM NFSC news   A British friend joins the NFSC’s rescue team at the Ukraine frontline
+
+<img src="https://media.gettr.com/group43/origin/2022/05/06/22/9fb6d45a-9b36-ad33-2e73-07ea8cd58d18/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p18n74ffae8.md)
 
 Volunteers from the New Federal State of China distributed some supplies to people stuck in traffic. Drivers have to follow the traffic, so they can’t get supplies or even go to the restroom. 
@@ -72,11 +88,11 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 
 ---
 
-[@miles 5/6/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p18mtkw70e5.md)
+[@miles 5/6/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p18mzcvfe8a.md)
 
-2022.05.06  PM NFSC news   A British friend joins the NFSC’s rescue team at the Ukraine frontline
+5/6/2022 Miles Guo: What does the Russia-Ukraine war tell us? Food and water are the most important life necessities, followed by medicines. Elderly people are the most vulnerable population during the war, and the CCP is taking an...
 
-<img src="https://media.gettr.com/group43/origin/2022/05/06/22/9fb6d45a-9b36-ad33-2e73-07ea8cd58d18/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/05/06/23/6c013c9a-f75c-4e6a-444a-dc0c60930297/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,24 +189,6 @@ The university student from the United States learnt that the CCP had hacked the
 2022.05.05 晚 新中国联邦 | 新闻访谈       美国的三驾马车中心；推特投资进展；俄罗斯重建乌克兰
 
 <img src="https://media.gettr.com/group20/origin/2022/05/06/01/5b0c3a7c-e340-7790-efaf-84d4002a0063/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/6/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p18i4lq2b50.md)
-
-2022.05.05 晚 新中国联邦 | 新闻     郭先生展示传奇经历 爆料革命坚决反对个人崇拜； 郭先生照片被中共列为最高机密
-
-<img src="https://media.gettr.com/group36/origin/2022/05/06/00/09b47a0a-13be-5d8a-f424-2e358b5b6e4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p18hunj361d.md)
-
-2022.05.05  NFSC fringe  Episode 184
-
-中文同传：https://gettr.com/streaming/p18htch2cf5
-
-<img src="https://media.gettr.com/group31/origin/2022/05/05/23/8621421a-7b2b-41e0-9f37-2ca1c3d5c17d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
