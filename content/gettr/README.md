@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/6/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p18n91xdde7.md)
+
+5/6/2022 Miles Guo: The CCP made the same mistake as Empress Dowager Cixi by foolishly launching a war against the entire humankind. The Russia-Ukraine war made Wang Huning and "Xi the Sun" further believe in George Modelski's theo...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/06/23/5f63a482-646f-6333-df76-027bf8589897/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p18n5z9442b.md)
 
 5/06/2022 Miles Guo: What should Chinese people learn from the Russia-Ukraine war? Food supply is the most critical; the war between Communist China and the US already started in the aspects of unrestricted warfare, economic warfar...
@@ -10,11 +18,13 @@
 
 ---
 
-[@miles 5/6/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p18n91xdde7.md)
+[@miles 5/6/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p18na21eac6.md)
 
-5/6/2022 Miles Guo: The CCP made the same mistake as Empress Dowager Cixi by foolishly launching a war against the entire humankind. The Russia-Ukraine war made Wang Huning and "Xi the Sun" further believe in George Modelski's theo...
+2022.05.06  NFSC fringe  Episode 185
 
-<img src="https://media.gettr.com/group17/getter/2022/05/06/23/5f63a482-646f-6333-df76-027bf8589897/out.jpg" width="506" height="284">
+中文同传：https://gettr.com/streaming/p18ndixd0c4
+
+<img src="https://media.gettr.com/group46/origin/2022/05/06/23/0246da4a-ae87-afff-3ec0-1828009a6bc4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +191,6 @@ Day 61 - Date: Ma...
 2022.05.05 新中国联邦 | 喜财经   国内取款状况；取款应对措施
 
 <img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/6/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p18ifmf7c0c.md)
-
-The university student from the United States learnt that the CCP had hacked the QR codes and email addresses of the ROLF and NFSC and that our billboard cables had been vandalized, he said that your presence and what you are doing...
-
-<img src="https://media.gettr.com/group41/origin/2022/05/06/01/94e45e31-ee8d-4246-3fa9-8d20c9e9eab4/out.jpg" width="506" height="284">
 
 ---
 
