@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 5/7/2022 6:48 AM UTC  - :tv:直播](/content/gettr/p18ofvoa61f.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group21/origin/2022/05/07/06/780ccebe-bc7b-f9a1-e10c-77061d0546c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18p1jm173f.md)
 
 2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
 
 <img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 6:49 AM UTC  - :tv:直播](/content/gettr/p18ox6316c2.md)
+
+5/6/2022 Miles Guo: Our livestream is like the olive leaf and the dove in the biblical story "Noah’s Ark", sending a message of survival hope to everyone. I hope that everyone can build a Noah's Ark in their hearts and help each ot...
+
+<img src="https://media.gettr.com/group30/getter/2022/05/07/06/bbb2526b-b0ac-b22d-24ed-810d196a42ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p18onck5f14.md)
+
+中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group43/origin/2022/05/07/05/292d864f-8154-e880-905a-1c995ca51da6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -84,14 +108,6 @@
 
 ---
 
-[@miles 5/7/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p18onck5f14.md)
-
-中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group43/origin/2022/05/07/05/292d864f-8154-e880-905a-1c995ca51da6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/6/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p18mzcvfe8a.md)
 
 5/6/2022 Miles Guo: What does the Russia-Ukraine war tell us? Food and water are the most important life necessities, followed by medicines. Elderly people are the most vulnerable population during the war, and the CCP is taking an...
@@ -151,22 +167,6 @@ For English：gettr.com/streaming/p18n2yc9c8c
 NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 <img src="https://media.gettr.com/group50/origin/2022/05/06/16/ea51a16e-971f-1058-e710-6db73bbf8e89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 4:09 PM UTC  - :tv:直播](/content/gettr/p18l7bg75a2.md)
-
- 5月6号：分享给战友们快乐的时刻……花来啦，花来了……
-
-<img src="https://media.gettr.com/group5/getter/2022/05/06/16/acf6ed0f-8f7c-d66b-f04f-1701f11ac449/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p18l6ada9b4.md)
-
-【Ukraine Rescue】05/04/2022 A young volunteer from Spain, Lidia, says that the Chinese people have a very important place in her heart. She sees a change in Chinese here and a new China who wants to abandon communism and to devote h...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/06/14/708bad1a-96a6-f8a3-ae82-3b79061c573e/out.jpg" width="506" height="284">
 
 ---
 
