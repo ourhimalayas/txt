@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/7/2022 8:56 AM UTC  - :tv:直播](/content/gettr/p18ouq7345d.md)
+
+It is very sad to see some animals are living better than hundreds of millions of Chinese people who are going through a tough time during the lockdown. Many products sold to Western countries are made by slaved Chinese prisoners. ...
+
+<img src="https://media.gettr.com/group36/origin/2022/05/07/08/e991b7d5-6f78-a893-8c0d-75bf446c175f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p18owuwd8a6.md)
 
 2022.05.06 文贵大直播（精华版）
@@ -18,11 +26,35 @@
 
 ---
 
-[@miles 5/7/2022 8:56 AM UTC  - :tv:直播](/content/gettr/p18ouq7345d.md)
+[@miles 5/7/2022 9:14 AM UTC ](/content/gettr/p18obnff180.md)
 
-It is very sad to see some animals are living better than hundreds of millions of Chinese people who are going through a tough time during the lockdown. Many products sold to Western countries are made by slaved Chinese prisoners. ...
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group36/origin/2022/05/07/08/e991b7d5-6f78-a893-8c0d-75bf446c175f/out.jpg" width="506" height="284">
+
+
+2022年5月5日第62天当日救援统计：
+
+Medyka救援站接待：约192人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16861人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 62 - Date: Ma...
+
+<img src="https://media.gettr.com/group11/getter/2022/05/07/09/bde6c63a-1e8c-0b23-4bdf-68861b7210fc/436fd44ea2a3b91859dfe467fb830e7b.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +191,6 @@ Volunteers from the New Federal State of China distributed some supplies to peop
 For English：gettr.com/streaming/p18n2yc9c8c
 
 <img src="https://media.gettr.com/group18/origin/2022/05/06/22/2cce1268-fa19-5114-4e24-ce86957fb68b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p18m92qcb8f.md)
-
-2022.05.06  新中国联邦 | 喜健康   什么是路西法效应？-- 普通人如何变成魔鬼？
-
-<img src="https://media.gettr.com/group41/origin/2022/05/06/20/6607cd87-14c2-7b89-3427-6b817519c5cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
