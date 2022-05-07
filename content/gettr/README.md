@@ -12,11 +12,11 @@ For English: https://gettr.com/streaming/p18pudu601d
 
 ---
 
-[@miles 5/7/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p18q0hh4179.md)
+[@miles 5/7/2022 3:17 PM UTC  - :tv:直播](/content/gettr/p18qcrreb31.md)
 
-MILES GUO 直播 2022-05-07
+5/6/2022: Noah's Ark is in our hearts as well as in the place where we were born, so we must save our country! I firmly believe we can destroy the CCP, China can be restored to a truly civilized country which is suitable for human ...
 
-<img src="https://media.gettr.com/group43/liveorigin/2022/05/07/14/f1fb9559-03ed-cda3-39f5-a1b1856151fc/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/05/07/15/f3da2907-5682-edae-986e-a848d622a977/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ MILES GUO 直播 2022-05-07
 5/6/2022 Miles Guo: For those who are capable and can survive abroad, I suggest that you leave Communist China. Even if you stay in the small neighboring countries, you will be better off than in Communist China. Everyone should ma...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/07/14/299c59e0-31b7-a8d1-b2ce-a74d40223207/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p18q0hh4179.md)
+
+MILES GUO 直播 2022-05-07
+
+<img src="https://media.gettr.com/group43/liveorigin/2022/05/07/14/f1fb9559-03ed-cda3-39f5-a1b1856151fc/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ It is very sad to see some animals are living better than hundreds of millions o
 2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
 
 <img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 2:08 AM UTC  - :tv:直播](/content/gettr/p18ngn486a4.md)
-
-5/6/2022 Miles Guo: If the Chinese do not take down the CCP now, China will be in a miserable situation of cannibalism and anarchy for a long time, and the overseas Chinese may suffer a fate similar to the anti-Chinese riots in Ind...
-
-<img src="https://media.gettr.com/group40/getter/2022/05/07/02/13487181-46c7-29f4-6b24-74eb895b59b5/out.jpg" width="506" height="284">
 
 ---
 
