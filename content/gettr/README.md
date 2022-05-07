@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/7/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p18owuwd8a6.md)
+
+2022.05.06 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group21/origin/2022/05/07/08/0f62d1fb-aa48-1740-3ee8-cfdfe75d8c5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 6:48 AM UTC  - :tv:直播](/content/gettr/p18ofvoa61f.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/7/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p18owuwd8a6.md)
+[@miles 5/7/2022 8:56 AM UTC  - :tv:直播](/content/gettr/p18ouq7345d.md)
 
-2022.05.06 文贵大直播（精华版）
+It is very sad to see some animals are living better than hundreds of millions of Chinese people who are going through a tough time during the lockdown. Many products sold to Western countries are made by slaved Chinese prisoners. ...
 
-<img src="https://media.gettr.com/group21/origin/2022/05/07/08/0f62d1fb-aa48-1740-3ee8-cfdfe75d8c5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/05/07/08/e991b7d5-6f78-a893-8c0d-75bf446c175f/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/streaming/p18n2yc9c8c
 2022.05.06  新中国联邦 | 喜健康   什么是路西法效应？-- 普通人如何变成魔鬼？
 
 <img src="https://media.gettr.com/group41/origin/2022/05/06/20/6607cd87-14c2-7b89-3427-6b817519c5cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p18m7je5977.md)
-
-2022年5月6日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group30/origin/2022/05/06/17/324d18e2-f529-3516-dd69-c242d2b563df/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
