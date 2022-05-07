@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/7/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p18nbam3fbc.md)
+
+5/6/2022 Miles Guo: The recent plunge in both the stock market and the government bonds is unprecedented. Many people committed suicides in the past 12 months because they purchased Bitcoin, ETH, and/or NFT. 90% of the trade volume...
+
+<img src="https://media.gettr.com/group30/getter/2022/05/07/00/dd43ff58-9625-2c58-9d8e-4d31faf844f6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p18na21eac6.md)
 
 2022.05.06  NFSC fringe  Episode 185
@@ -28,11 +36,11 @@
 
 ---
 
-[@miles 5/7/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p18nbam3fbc.md)
+[@miles 5/7/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p18n7g760d4.md)
 
-5/6/2022 Miles Guo: The recent plunge in both the stock market and the government bonds is unprecedented. Many people committed suicides in the past 12 months because they purchased Bitcoin, ETH, and/or NFT. 90% of the trade volume...
+2022.05.06  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
 
-<img src="https://media.gettr.com/group30/getter/2022/05/07/00/dd43ff58-9625-2c58-9d8e-4d31faf844f6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/05/07/00/5f9d56f2-ec61-e731-236c-9910de04747b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,38 +167,6 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 2022-5-5《鸡血王喜币大作战》 第一百八十六集 嘉宾：无双柳薇薇、Tex
 
 <img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 2:55 AM UTC ](/content/gettr/p18if6ha18f.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月4日第61天当日救援统计：
-
-Medyka救援站接待：约276人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16669人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 61 - Date: Ma...
-
-<img src="https://media.gettr.com/group38/getter/2022/05/06/02/db955f2d-c814-6bf9-5c75-36468c0b7f36/979f0a03d516c16a77c9e908a66d60a1.jpg" width="506" height="284">
 
 ---
 
