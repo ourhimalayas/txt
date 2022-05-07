@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/7/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p18nn0v5bb8.md)
+
+2022.05.06  新中国联邦 | 喜财经   美对中国惩罚性关税7月到期 将斟酌是否延长
+
+<img src="https://media.gettr.com/group7/origin/2022/05/07/01/a6dfb448-f60d-7f04-48a1-c515b6ba9ca0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p18nbxg0232.md)
 
 2022.05.06  晚 新中国联邦 | 新闻访谈    封城 北京-郑州 上海解封难 人道灾难蔓延；俄方准备“胜利日”庆典 俄军急于拿下亚速钢铁厂向普京献礼
@@ -52,11 +60,11 @@
 
 ---
 
-[@miles 5/7/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p18nn0v5bb8.md)
+[@miles 5/7/2022 2:08 AM UTC  - :tv:直播](/content/gettr/p18ngn486a4.md)
 
-2022.05.06  新中国联邦 | 喜财经   美对中国惩罚性关税7月到期 将斟酌是否延长
+5/6/2022 Miles Guo: If the Chinese do not take down the CCP now, China will be in a miserable situation of cannibalism and anarchy for a long time, and the overseas Chinese may suffer a fate similar to the anti-Chinese riots in Ind...
 
-<img src="https://media.gettr.com/group7/origin/2022/05/07/01/a6dfb448-f60d-7f04-48a1-c515b6ba9ca0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/05/07/02/13487181-46c7-29f4-6b24-74eb895b59b5/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 2022.05.06  新中国联邦 | 军情室  德涅斯特河沿岸的假旗行动，卢卡申科认为俄军拖得太久，美乌互通海洋情报击沉俄舰，多国海军采购美制防空导弹
 
 <img src="https://media.gettr.com/group32/origin/2022/05/06/10/cd3f3144-d457-e69e-909c-251ddfdf1c3f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 6:57 AM UTC  - :tv:直播](/content/gettr/p18jh4ad42f.md)
-
-2022.05.06 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group7/origin/2022/05/06/06/42a6e51d-ed93-0efe-d55c-423a66b187a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
