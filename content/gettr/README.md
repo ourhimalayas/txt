@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/7/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p18pmpq2844.md)
+
+新中国联邦｜真人真事 第52期   香草山农场  Jessica G     
+
+For English: https://gettr.com/streaming/p18pudu601d
+
+<img src="https://media.gettr.com/group29/origin/2022/05/07/14/8165d6c3-2ec8-47fa-cee3-053c1be5b3a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p18q0hh4179.md)
 
 MILES GUO 直播 2022-05-07
@@ -10,11 +20,27 @@ MILES GUO 直播 2022-05-07
 
 ---
 
+[@miles 5/7/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p18polc1b6c.md)
+
+5/6/2022 Miles Guo: For those who are capable and can survive abroad, I suggest that you leave Communist China. Even if you stay in the small neighboring countries, you will be better off than in Communist China. Everyone should ma...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/07/14/299c59e0-31b7-a8d1-b2ce-a74d40223207/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18pki5140c.md)
 
 MILES GUO 直播 2022-05-07
 
 <img src="https://media.gettr.com/group21/liveorigin/2022/05/07/14/1e6a355c-3952-2b0e-3d8a-ada77f3fe154/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18q1zie71c.md)
+
+2022年5月6日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group26/origin/2022/05/06/17/62116cfd-468c-534c-b920-2e37c09b937c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -41,14 +67,6 @@ MILES GUO 直播 2022-05-07
 2022.05.07  早 新中国联邦 | 新闻访谈
 
 <img src="https://media.gettr.com/group16/origin/2022/05/07/13/60a061aa-23d8-e867-a2c1-8133b4e9a10a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18q1zie71c.md)
-
-2022年5月6日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group26/origin/2022/05/06/17/62116cfd-468c-534c-b920-2e37c09b937c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -169,22 +187,6 @@ It is very sad to see some animals are living better than hundreds of millions o
 5/6/2022 Miles Guo: If the Chinese do not take down the CCP now, China will be in a miserable situation of cannibalism and anarchy for a long time, and the overseas Chinese may suffer a fate similar to the anti-Chinese riots in Ind...
 
 <img src="https://media.gettr.com/group40/getter/2022/05/07/02/13487181-46c7-29f4-6b24-74eb895b59b5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p18nn0v5bb8.md)
-
-2022.05.06  新中国联邦 | 喜财经   美对中国惩罚性关税7月到期 将斟酌是否延长
-
-<img src="https://media.gettr.com/group7/origin/2022/05/07/01/a6dfb448-f60d-7f04-48a1-c515b6ba9ca0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p18nbxg0232.md)
-
-2022.05.06  晚 新中国联邦 | 新闻访谈    封城 北京-郑州 上海解封难 人道灾难蔓延；俄方准备“胜利日”庆典 俄军急于拿下亚速钢铁厂向普京献礼
-
-<img src="https://media.gettr.com/group3/origin/2022/05/07/01/9a2f280e-fb78-ecf9-dd2d-32541134c76d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
