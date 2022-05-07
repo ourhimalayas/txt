@@ -2,6 +2,12 @@
 ---
 
 
+#### [【樱话】中共国只有1206万人左右老年人未接种疫苗](/content/gnews/2484335.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】樱花时政｜日本将在六月份实施国内设施全面开放政策](/content/gnews/2484319.md)
+ `TokyoSakuraDesignGroup`
+
 #### [美欧联手遏制中共挑战国际秩序的威胁（下）](/content/gnews/2484312.md)
  `澳喜农场`
 
@@ -23,9 +29,6 @@
 #### [【樱话】调查显示90%的银行都在研究数字货币](/content/gnews/2484247.md)
  `TokyoSakuraDesignGroup`
 
-#### [樱花时政&#124;大批中共战机和轰炸机侵犯领空 台湾进入高度戒备状态](/content/gnews/2484231.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [樱花财经爆&#124;古驰将接受比特币等加密货币](/content/gnews/2484214.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -43,9 +46,6 @@
 
 #### [马斯克竞购推特资助者中，中共利益集团赫然在列](/content/gnews/2484121.md)
  `秘密翻譯組G-Translators`
-
-#### [樱花时政&#124;日本政府考虑6月恢复游客入境](/content/gnews/2484107.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [【樱话】05/06/22 香港快讯 【大跌市】恒指急泻791点 死守20000点 科指挫逾5%](/content/gnews/2484100.md)
  `TokyoSakuraDesignGroup`
