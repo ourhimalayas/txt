@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/7/2022 10:45 PM UTC  - :tv:直播](/content/gettr/p18rkru2359.md)
+[@miles 5/7/2022 1:12 PM UTC  - :tv:直播](/content/gettr/p18poytc32b.md)
 
-5/7/2022 Miles Guo:  Having imposed sanctions on Russia, the West will repreat the same measure on anything CCP-related, which means all the overseas assets of oligarchs, enterprises, individuals and organizations connected to the ...
+5月7号，尊敬的战友们好．新的一波科技大潮，将彻底改变人类的生存和生活模式．而共产党的．假．骗：黑．偷．会彻底被消灭。【波士顿动力 Mobile Eccentric Droid 。  中共一天天还在捅嗓子眼，看看人家都静悄悄干了什么。】
 
-<img src="https://media.gettr.com/group47/getter/2022/05/07/22/09a7b007-7d41-0938-e69d-f27a351cb265/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/05/07/13/d1eeab1b-59fd-341a-24ce-3f994194570b/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,14 @@
 5/7/2022 Miles Guo: There are definitely more than 50 million Chinese people who want to emigrate abroad. The situation in Beijing will only get worse. Those who rescued fellow fighters should have no other wants and desires, and t...
 
 <img src="https://media.gettr.com/group39/getter/2022/05/07/22/9430e2c7-f06c-df26-a850-0c3a5d5a4989/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p18r52ja212.md)
+
+2022.05.07  PM NFSC news   Lithuanian-Polish Gas Pipeline GIPL Officially Opened
+
+<img src="https://media.gettr.com/group19/origin/2022/05/07/22/86328764-3f49-06fa-bd5f-df57dfec6628/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -31,14 +39,6 @@
 5月7号：这样的事情发生的太晚了，如果从第一天这个样子……就不会有那么多人，吃屎吃到死，也不会有那么多人自杀。【大白己成为了过街老鼠】
 
 <img src="https://media.gettr.com/group17/getter/2022/05/07/22/50784e52-96d0-2748-a0a4-2bd8291bf8cd/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p18r52ja212.md)
-
-2022.05.07  PM NFSC news   Lithuanian-Polish Gas Pipeline GIPL Officially Opened
-
-<img src="https://media.gettr.com/group19/origin/2022/05/07/22/86328764-3f49-06fa-bd5f-df57dfec6628/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
