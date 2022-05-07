@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/7/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18p1jm173f.md)
+
+2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
+
+<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p18neqr1194.md)
+
+2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
+
+<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 2:08 AM UTC  - :tv:直播](/content/gettr/p18ngn486a4.md)
 
 5/6/2022 Miles Guo: If the Chinese do not take down the CCP now, China will be in a miserable situation of cannibalism and anarchy for a long time, and the overseas Chinese may suffer a fate similar to the anti-Chinese riots in Ind...
@@ -68,11 +84,11 @@
 
 ---
 
-[@miles 5/7/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p18neqr1194.md)
+[@miles 5/7/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p18onck5f14.md)
 
-2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
+中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/07/05/292d864f-8154-e880-905a-1c995ca51da6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,22 +167,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 【Ukraine Rescue】05/04/2022 A young volunteer from Spain, Lidia, says that the Chinese people have a very important place in her heart. She sees a change in Chinese here and a new China who wants to abandon communism and to devote h...
 
 <img src="https://media.gettr.com/group35/getter/2022/05/06/14/708bad1a-96a6-f8a3-ae82-3b79061c573e/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 12:06 PM UTC ](/content/gettr/p18kilu7e6a.md)
-
-We are the citizens of the New Federal State of China. Our mission is to take down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party i...
-
-<img src="https://media.gettr.com/group15/origin/2022/05/06/12/102eb0b5-b3f4-537a-b5c0-9a59b308faa4/d11e5bed830ee26e42de1c85e2cda91f.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p18k9yf555e.md)
-
-2022年5月6日 文贵大直播：如何应对世界经济危机；俄乌战争对我们的影响
-
-<img src="https://media.gettr.com/group43/origin/2022/05/06/12/922da29e-10a7-f9c9-4220-c1b48b2cd82a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
