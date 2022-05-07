@@ -11,6 +11,21 @@
 
 ---
 
+#### [秘翻在线：泽连斯基表示要与俄罗斯停止战争必须回到2月23日的情况](/content/gnews/2484730.md)
+ `秘密翻譯組G-Translators`
+
+#### [秘翻在线：联合国安理会通过支持和平解决乌克兰局势的声明](/content/gnews/2484705.md)
+ `秘密翻譯組G-Translators`
+
+#### [2022年5月7日，全球中共病毒疫情情况汇总](/content/gnews/2484685.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [郑州：对连续三轮不参加区域核酸检测居民，一律标记为红码](/content/gnews/2484675.md)
+ `Tokyo Sakura Video Group`
+
+#### [秘翻在线：乌克兰今年小麦生产减少35%世界粮食危机加剧](/content/gnews/2484674.md)
+ `秘密翻譯組G-Translators`
+
 #### [装置作品《和平鸽》（五）](/content/gnews/2484639.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -83,12 +98,6 @@
 #### [国际｜拜登促参众两院尽快通过两党创新法案 推动半导体产业摆脱依赖](/content/gnews/2484300.md)
  `關注組`
 
-#### [【樱话】共匪千方百计也没能稳住市场主体](/content/gnews/2484274.md)
- `TokyoSakuraDesignGroup`
-
-#### [魔都上海,又一个居委会倒卖物资让市民抓个正着，真是伤了捐赠省的心](/content/gnews/2484272.md)
- `Tokyo Sakura Video Group`
-
 #### [泽连科医生“为真不破”打脸推特](/content/gnews/2484242.md)
  `喜马拉雅纽约磐石农场`
 
@@ -111,15 +120,6 @@
  `波士顿五月花农场金融部`
 
 #### [法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2483987.md)
- `NFSC News`
-
-#### [意大利奢侈品牌Gucci将接受加密货币支付方式](/content/gnews/2483986.md)
- `NFSC News`
-
-#### [存血栓风险 美国限制使用强生疫苗](/content/gnews/2483984.md)
- `NFSC News`
-
-#### [澳大利亚检测到3种奥米克戎新变种](/content/gnews/2483972.md)
  `NFSC News`
 
 #### [樱花时政&#124;联合国机构确认 俄军掠夺了约70万吨粮食运往俄罗斯](/content/gnews/2483908.md)
