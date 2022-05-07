@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/7/2022 1:49 PM UTC  - :tv:直播](/content/gettr/p18pdp602b7.md)
+
+ 5月7号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗．清零政策灾难的真相了吗？一切都已经开始！
+
+<img src="https://media.gettr.com/group23/getter/2022/05/07/13/96cca3d2-a656-7cff-dcfb-447eb6f76cff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p18pxg62547.md)
 
 2022.05.07  早 新中国联邦 | 新闻访谈
@@ -10,11 +18,13 @@
 
 ---
 
-[@miles 5/7/2022 1:49 PM UTC  - :tv:直播](/content/gettr/p18pdp602b7.md)
+[@miles 5/7/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p18poj5c216.md)
 
- 5月7号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗．清零政策灾难的真相了吗？一切都已经开始！
 
-<img src="https://media.gettr.com/group23/getter/2022/05/07/13/96cca3d2-a656-7cff-dcfb-447eb6f76cff/out.jpg" width="506" height="284">
+
+5月7号：很多战友希望七哥能直播几分钟，请兄弟姐妹等一下．让我拉完身，我就直播上一，20分钟！
+
+<img src="https://media.gettr.com/group40/getter/2022/05/07/14/9490db6d-07fe-445c-0ddc-2ef774148a7d/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ It is very sad to see some animals are living better than hundreds of millions o
 中文同传：https://gettr.com/streaming/p18ndixd0c4
 
 <img src="https://media.gettr.com/group46/origin/2022/05/06/23/0246da4a-ae87-afff-3ec0-1828009a6bc4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p18n91xdde7.md)
-
-5/6/2022 Miles Guo: The CCP made the same mistake as Empress Dowager Cixi by foolishly launching a war against the entire humankind. The Russia-Ukraine war made Wang Huning and "Xi the Sun" further believe in George Modelski's theo...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/06/23/5f63a482-646f-6333-df76-027bf8589897/out.jpg" width="506" height="284">
 
 ---
 
