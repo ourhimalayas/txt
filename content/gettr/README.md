@@ -2,11 +2,33 @@
 ---
 
 
+[@miles 5/7/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p18r9t6cdce.md)
+
+Mr. Guido Koppes agreed with Nicole that western mainstream media control the narrative. He suggested that the New Federal State of China should have its own media channels to communicate these interviews. 
+
+
+
+Guido Koppes先生同意Nicol...
+
+<img src="https://media.gettr.com/group32/origin/2022/05/07/21/76151bb7-a53d-c37d-9c5a-82768e1d4f1f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p18r7fe32cc.md)
 
 Guido Koppes is an excellent professional photographer, providing news images to many European Medias. When he saw our vests, he started taking pictures. He condemned the unscrupulous Western Medias, big companies and politicians k...
 
 <img src="https://media.gettr.com/group15/origin/2022/05/07/21/601baa6f-f0c0-74c8-c46a-3d0b08a9eb41/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 9:28 PM UTC  - :tv:直播](/content/gettr/p18r1t6dc41.md)
+
+Guido Koppes thanked the New Federal States of China （NFSC）for bringing hope to the world, and he strongly hoped that NFSC would have its own media to have the right to speak.
+
+ Guido Koppes 他感谢新中国联邦给世界带来了希望，他强烈希望新中国联邦有自己的媒体，掌握话语权。
+
+<img src="https://media.gettr.com/group44/origin/2022/05/07/21/92ba0c07-eaf7-0d62-bf1b-e792521df3e7/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,27 +188,11 @@ It is very sad to see some animals are living better than hundreds of millions o
 
 ---
 
-[@miles 5/7/2022 6:48 AM UTC  - :tv:直播](/content/gettr/p18ofvoa61f.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group21/origin/2022/05/07/06/780ccebe-bc7b-f9a1-e10c-77061d0546c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/7/2022 6:49 AM UTC  - :tv:直播](/content/gettr/p18ox6316c2.md)
 
 5/6/2022 Miles Guo: Our livestream is like the olive leaf and the dove in the biblical story "Noah’s Ark", sending a message of survival hope to everyone. I hope that everyone can build a Noah's Ark in their hearts and help each ot...
 
 <img src="https://media.gettr.com/group30/getter/2022/05/07/06/bbb2526b-b0ac-b22d-24ed-810d196a42ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p18onck5f14.md)
-
-中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group43/origin/2022/05/07/05/292d864f-8154-e880-905a-1c995ca51da6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
