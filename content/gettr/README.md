@@ -2,30 +2,6 @@
 ---
 
 
-[@miles 5/7/2022 8:56 AM UTC  - :tv:直播](/content/gettr/p18ouq7345d.md)
-
-It is very sad to see some animals are living better than hundreds of millions of Chinese people who are going through a tough time during the lockdown. Many products sold to Western countries are made by slaved Chinese prisoners. ...
-
-<img src="https://media.gettr.com/group36/origin/2022/05/07/08/e991b7d5-6f78-a893-8c0d-75bf446c175f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p18owuwd8a6.md)
-
-2022.05.06 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group21/origin/2022/05/07/08/0f62d1fb-aa48-1740-3ee8-cfdfe75d8c5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 6:48 AM UTC  - :tv:直播](/content/gettr/p18ofvoa61f.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group21/origin/2022/05/07/06/780ccebe-bc7b-f9a1-e10c-77061d0546c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/7/2022 9:14 AM UTC ](/content/gettr/p18obnff180.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -55,6 +31,38 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 62 - Date: Ma...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/07/09/bde6c63a-1e8c-0b23-4bdf-68861b7210fc/436fd44ea2a3b91859dfe467fb830e7b.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 8:56 AM UTC  - :tv:直播](/content/gettr/p18ouq7345d.md)
+
+It is very sad to see some animals are living better than hundreds of millions of Chinese people who are going through a tough time during the lockdown. Many products sold to Western countries are made by slaved Chinese prisoners. ...
+
+<img src="https://media.gettr.com/group36/origin/2022/05/07/08/e991b7d5-6f78-a893-8c0d-75bf446c175f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p18owuwd8a6.md)
+
+2022.05.06 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group21/origin/2022/05/07/08/0f62d1fb-aa48-1740-3ee8-cfdfe75d8c5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 6:48 AM UTC  - :tv:直播](/content/gettr/p18ofvoa61f.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group21/origin/2022/05/07/06/780ccebe-bc7b-f9a1-e10c-77061d0546c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18pqk8ffe5.md)
+
+2022.05.07  AM NFSC news     Mariupol Theatre Victims May Double; 600 Civilians Killed in Airstrike
+
+<img src="https://media.gettr.com/group3/origin/2022/05/07/11/3d7607c2-902f-934c-67a9-51bdc7f9246e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -181,16 +189,6 @@ Volunteers from the New Federal State of China distributed some supplies to peop
 新中国联邦义工给堵在路上的人们分发物资。司机们必须跟着车流走，所以他们...
 
 <img src="https://media.gettr.com/group13/origin/2022/05/06/22/62d28233-58f5-a990-8fad-959ae16f6b71/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p18n1142c6b.md)
-
-“河南封城” 飞飞秀救援快报 2022-05-06
-
-For English：gettr.com/streaming/p18n2yc9c8c
-
-<img src="https://media.gettr.com/group18/origin/2022/05/06/22/2cce1268-fa19-5114-4e24-ce86957fb68b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
