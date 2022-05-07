@@ -1,0 +1,11 @@
+###  [:house:返回](README.md)
+---
+
+
+`@miles 5/7/2022 6:37 PM UTC`
+
+[轉發自GETTR](https://gettr.com/post/p18q0mla1cc)
+
+2022.05.07 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+![img](https://media.gettr.com/group29/origin/2022/05/07/17/1c3afe39-d259-79ac-f5d4-b0940ad71200/9548d67018b19975dcafea4c4484666a.png)
