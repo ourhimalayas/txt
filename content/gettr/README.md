@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 5/7/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p18q0hh4179.md)
+
+MILES GUO 直播 2022-05-07
+
+<img src="https://media.gettr.com/group43/liveorigin/2022/05/07/14/f1fb9559-03ed-cda3-39f5-a1b1856151fc/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18pki5140c.md)
+
+MILES GUO 直播 2022-05-07
+
+<img src="https://media.gettr.com/group21/liveorigin/2022/05/07/14/1e6a355c-3952-2b0e-3d8a-ada77f3fe154/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p18poj5c216.md)
+
+
+
+5月7号：很多战友希望七哥能直播几分钟，请兄弟姐妹等一下．让我拉完身，我就直播上一，20分钟！
+
+<img src="https://media.gettr.com/group40/getter/2022/05/07/14/9490db6d-07fe-445c-0ddc-2ef774148a7d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 1:49 PM UTC  - :tv:直播](/content/gettr/p18pdp602b7.md)
 
  5月7号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗．清零政策灾难的真相了吗？一切都已经开始！
@@ -18,13 +44,11 @@
 
 ---
 
-[@miles 5/7/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p18poj5c216.md)
+[@miles 5/7/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18q1zie71c.md)
 
+2022年5月6日 俄乌战争战况播报
 
-
-5月7号：很多战友希望七哥能直播几分钟，请兄弟姐妹等一下．让我拉完身，我就直播上一，20分钟！
-
-<img src="https://media.gettr.com/group40/getter/2022/05/07/14/9490db6d-07fe-445c-0ddc-2ef774148a7d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/05/06/17/62116cfd-468c-534c-b920-2e37c09b937c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,32 +185,6 @@ It is very sad to see some animals are living better than hundreds of millions o
 2022.05.06  晚 新中国联邦 | 新闻访谈    封城 北京-郑州 上海解封难 人道灾难蔓延；俄方准备“胜利日”庆典 俄军急于拿下亚速钢铁厂向普京献礼
 
 <img src="https://media.gettr.com/group3/origin/2022/05/07/01/9a2f280e-fb78-ecf9-dd2d-32541134c76d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p18n7g760d4.md)
-
-2022.05.06  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
-
-<img src="https://media.gettr.com/group4/origin/2022/05/07/00/5f9d56f2-ec61-e731-236c-9910de04747b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p18nbam3fbc.md)
-
-5/6/2022 Miles Guo: The recent plunge in both the stock market and the government bonds is unprecedented. Many people committed suicides in the past 12 months because they purchased Bitcoin, ETH, and/or NFT. 90% of the trade volume...
-
-<img src="https://media.gettr.com/group30/getter/2022/05/07/00/dd43ff58-9625-2c58-9d8e-4d31faf844f6/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p18na21eac6.md)
-
-2022.05.06  NFSC fringe  Episode 185
-
-中文同传：https://gettr.com/streaming/p18ndixd0c4
-
-<img src="https://media.gettr.com/group46/origin/2022/05/06/23/0246da4a-ae87-afff-3ec0-1828009a6bc4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
