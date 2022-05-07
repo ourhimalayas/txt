@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/7/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p18rb27842d.md)
+
+5/6/2022 Miles Guo: The US and Europe will take actions in two areas: 1) sanction the CCP’s overseas businesses and seize all the overseas assets of the CCP, their families and agents. 2) at least seven legislations are underway in...
+
+<img src="https://media.gettr.com/group43/getter/2022/05/07/22/ad2ab113-e349-e555-c358-17f6e65ea993/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 10:21 PM UTC  - 4圖](/content/gettr/p18rd066fa4.md)
 
  5月7号：尊敬的战友们好．这些事情只有新中国联邦和我们爆料革命……早在几年前就已经警告了全世界……可悲呀，又有多少人拥有真正的生存的智慧．和明是非．辩善恶的能力呢？
@@ -23,6 +31,14 @@
 The photo of Mr. He Lingle and I riding in a limo to meet the people from the Morgan Group shows us the importance of seeing through life and death and sticking to our faith. The gods created by the CCP are all lies, while I remain...
 
 <img src="https://media.gettr.com/group35/origin/2022/05/07/22/23a03fac-6dc4-819b-77b9-078e534cb549/819497511366766e3d12cb1618a1a6ba.png" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 10:28 PM UTC ](/content/gettr/p18rd8b5c31.md)
+
+On May 6th Miles Guo pointed out in the live broadcast that the New Federal State of China (NFSC) and the Whistleblow Movement need and gather good people. The standard of good people is honest, brave, kind, and selfless. We should...
+
+<img src="https://media.gettr.com/group29/origin/2022/05/07/22/f3bf9584-5f3c-ee58-a654-880ac3b19cb9/83fd6720821a3b64372c7f4257cf8770.png" width="506" height="284">
 
 ---
 
@@ -45,14 +61,6 @@ Mr. Guido Koppes agreed with Nicole that western mainstream media control the na
 Guido Koppes先生同意Nicol...
 
 <img src="https://media.gettr.com/group32/origin/2022/05/07/21/76151bb7-a53d-c37d-9c5a-82768e1d4f1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:28 PM UTC ](/content/gettr/p18rd8b5c31.md)
-
-On May 6th Miles Guo pointed out in the live broadcast that the New Federal State of China (NFSC) and the Whistleblow Movement need and gather good people. The standard of good people is honest, brave, kind, and selfless. We should...
-
-<img src="https://media.gettr.com/group29/origin/2022/05/07/22/f3bf9584-5f3c-ee58-a654-880ac3b19cb9/83fd6720821a3b64372c7f4257cf8770.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ MILES GUO 直播 2022-05-07
 5月7号，尊敬的战友们好．新的一波科技大潮，将彻底改变人类的生存和生活模式．而共产党的．假．骗：黑．偷．会彻底被消灭。【波士顿动力 Mobile Eccentric Droid 。  中共一天天还在捅嗓子眼，看看人家都静悄悄干了什么。】
 
 <img src="https://media.gettr.com/group19/getter/2022/05/07/13/d1eeab1b-59fd-341a-24ce-3f994194570b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p18pxtj6f53.md)
-
-2022.05.07  早 新中国联邦 | 新闻   新中国人正在向世界证明其与正义站在一方；郭先生解读诺亚方舟的真正含义
-
-<img src="https://media.gettr.com/group29/origin/2022/05/07/12/86a043cf-c0c2-0ff8-18a6-b1e826528ae6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
