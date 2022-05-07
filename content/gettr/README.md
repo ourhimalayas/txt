@@ -2,6 +2,40 @@
 ---
 
 
+[@miles 5/7/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p18rqujb036.md)
+
+5月7号：这样的事情发生的太晚了，如果从第一天这个样子……就不会有那么多人，吃屎吃到死，也不会有那么多人自杀。【大白己成为了过街老鼠】
+
+<img src="https://media.gettr.com/group17/getter/2022/05/07/22/50784e52-96d0-2748-a0a4-2bd8291bf8cd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 10:21 PM UTC  - 4圖](/content/gettr/p18rd066fa4.md)
+
+ 5月7号：尊敬的战友们好．这些事情只有新中国联邦和我们爆料革命……早在几年前就已经警告了全世界……可悲呀，又有多少人拥有真正的生存的智慧．和明是非．辩善恶的能力呢？
+
+<img src="https://media.gettr.com/group44/getter/2022/05/07/22/7f79afcc-c693-34b9-28af-40b24d60757e/b7a0ff36ba4065919abd561c96e282e3.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 10:23 PM UTC ](/content/gettr/p18r8tu8c7e.md)
+
+The photo of Mr. He Lingle and I riding in a limo to meet the people from the Morgan Group shows us the importance of seeing through life and death and sticking to our faith. The gods created by the CCP are all lies, while I remain...
+
+<img src="https://media.gettr.com/group35/origin/2022/05/07/22/23a03fac-6dc4-819b-77b9-078e534cb549/819497511366766e3d12cb1618a1a6ba.png" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p18r2df4702.md)
+
+“纤夫的灾难” 飞飞秀救援快报 2022-05-07
+
+For English：gettr.com/streaming/p18quia72bc
+
+<img src="https://media.gettr.com/group11/origin/2022/05/07/22/ba923023-d292-d66d-8fbb-80632fb1e20e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p18r9t6cdce.md)
 
 Mr. Guido Koppes agreed with Nicole that western mainstream media control the narrative. He suggested that the New Federal State of China should have its own media channels to communicate these interviews. 
@@ -14,13 +48,11 @@ Guido Koppes先生同意Nicol...
 
 ---
 
-[@miles 5/7/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p18r2df4702.md)
+[@miles 5/7/2022 10:28 PM UTC ](/content/gettr/p18rd8b5c31.md)
 
-“纤夫的灾难” 飞飞秀救援快报 2022-05-07
+On May 6th Miles Guo pointed out in the live broadcast that the New Federal State of China (NFSC) and the Whistleblow Movement need and gather good people. The standard of good people is honest, brave, kind, and selfless. We should...
 
-For English：gettr.com/streaming/p18quia72bc
-
-<img src="https://media.gettr.com/group11/origin/2022/05/07/22/ba923023-d292-d66d-8fbb-80632fb1e20e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/07/22/f3bf9584-5f3c-ee58-a654-880ac3b19cb9/83fd6720821a3b64372c7f4257cf8770.png" width="506" height="284">
 
 ---
 
@@ -139,62 +171,6 @@ MILES GUO 直播 2022-05-07
 2022.05.07  早 新中国联邦 | 新闻   新中国人正在向世界证明其与正义站在一方；郭先生解读诺亚方舟的真正含义
 
 <img src="https://media.gettr.com/group29/origin/2022/05/07/12/86a043cf-c0c2-0ff8-18a6-b1e826528ae6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18pqk8ffe5.md)
-
-2022.05.07  AM NFSC news     Mariupol Theatre Victims May Double; 600 Civilians Killed in Airstrike
-
-<img src="https://media.gettr.com/group3/origin/2022/05/07/11/3d7607c2-902f-934c-67a9-51bdc7f9246e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 9:14 AM UTC ](/content/gettr/p18obnff180.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月5日第62天当日救援统计：
-
-Medyka救援站接待：约192人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16861人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 62 - Date: Ma...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/07/09/bde6c63a-1e8c-0b23-4bdf-68861b7210fc/436fd44ea2a3b91859dfe467fb830e7b.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 8:56 AM UTC  - :tv:直播](/content/gettr/p18ouq7345d.md)
-
-It is very sad to see some animals are living better than hundreds of millions of Chinese people who are going through a tough time during the lockdown. Many products sold to Western countries are made by slaved Chinese prisoners. ...
-
-<img src="https://media.gettr.com/group36/origin/2022/05/07/08/e991b7d5-6f78-a893-8c0d-75bf446c175f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p18owuwd8a6.md)
-
-2022.05.06 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group21/origin/2022/05/07/08/0f62d1fb-aa48-1740-3ee8-cfdfe75d8c5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
