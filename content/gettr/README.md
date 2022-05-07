@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/7/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p18pxg62547.md)
+
+2022.05.07  早 新中国联邦 | 新闻访谈
+
+<img src="https://media.gettr.com/group16/origin/2022/05/07/13/60a061aa-23d8-e867-a2c1-8133b4e9a10a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p18pxtj6f53.md)
+
+2022.05.07  早 新中国联邦 | 新闻   新中国人正在向世界证明其与正义站在一方；郭先生解读诺亚方舟的真正含义
+
+<img src="https://media.gettr.com/group29/origin/2022/05/07/12/86a043cf-c0c2-0ff8-18a6-b1e826528ae6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18pqk8ffe5.md)
 
 2022.05.07  AM NFSC news     Mariupol Theatre Victims May Double; 600 Civilians Killed in Airstrike
@@ -66,11 +82,11 @@ It is very sad to see some animals are living better than hundreds of millions o
 
 ---
 
-[@miles 5/7/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p18pxtj6f53.md)
+[@miles 5/7/2022 1:12 PM UTC  - :tv:直播](/content/gettr/p18poytc32b.md)
 
-2022.05.07  早 新中国联邦 | 新闻   新中国人正在向世界证明其与正义站在一方；郭先生解读诺亚方舟的真正含义
+5月7号，尊敬的战友们好．新的一波科技大潮，将彻底改变人类的生存和生活模式．而共产党的．假．骗：黑．偷．会彻底被消灭。【波士顿动力 Mobile Eccentric Droid 。  中共一天天还在捅嗓子眼，看看人家都静悄悄干了什么。】
 
-<img src="https://media.gettr.com/group29/origin/2022/05/07/12/86a043cf-c0c2-0ff8-18a6-b1e826528ae6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/05/07/13/d1eeab1b-59fd-341a-24ce-3f994194570b/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,27 +180,11 @@ It is very sad to see some animals are living better than hundreds of millions o
 
 ---
 
-[@miles 5/6/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p18n5z9442b.md)
-
-5/06/2022 Miles Guo: What should Chinese people learn from the Russia-Ukraine war? Food supply is the most critical; the war between Communist China and the US already started in the aspects of unrestricted warfare, economic warfar...
-
-<img src="https://media.gettr.com/group12/getter/2022/05/06/23/a033bffc-7c25-1586-a542-8ab470aecb9b/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/6/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p18mzcvfe8a.md)
 
 5/6/2022 Miles Guo: What does the Russia-Ukraine war tell us? Food and water are the most important life necessities, followed by medicines. Elderly people are the most vulnerable population during the war, and the CCP is taking an...
 
 <img src="https://media.gettr.com/group21/getter/2022/05/06/23/6c013c9a-f75c-4e6a-444a-dc0c60930297/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p18mtkw70e5.md)
-
-2022.05.06  PM NFSC news   A British friend joins the NFSC’s rescue team at the Ukraine frontline
-
-<img src="https://media.gettr.com/group43/origin/2022/05/06/22/9fb6d45a-9b36-ad33-2e73-07ea8cd58d18/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
