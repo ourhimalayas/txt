@@ -11,7 +11,13 @@
 
 ---
 
+#### [德国软件巨头SAP公司保留其俄罗斯客户，尽管它声称关闭了俄罗斯的云服务](/content/gnews/2482167.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [每日快报：埃隆-马斯克购买推特的投资者中包括中共国的相关公司](/content/gnews/2482114.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [从丹麦到葡萄牙，欧洲加大力度退出俄罗斯天然气](/content/gnews/2482112.md)
  `喜马拉雅-华盛顿DC农场`
 
 #### [中共病毒持续流行 美国反亚裔情绪增长](/content/gnews/2482102.md)
@@ -65,17 +71,8 @@
 #### [俄乌战争赋予参与乌克兰营救援Medyka营地战友重大人生意义](/content/gnews/2481994.md)
  `雅典娜GNotes`
 
-#### [抵制推特“言论自由”的幕后推手走上前台](/content/gnews/2481987.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [5月6号是天大的日子，世界已经进入巨变](/content/gnews/2481985.md)
- `雅典娜GNotes`
-
 #### [油价飙升安省加油站盗窃案也在增加](/content/gnews/2481967.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [北京出台六项措施假防疫真奴役](/content/gnews/2481965.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [加拿大外交即将重返乌克兰](/content/gnews/2481953.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -91,6 +88,9 @@
 
 #### [谈古论今 &#124; 氧化石墨烯在你身体里要干什么？](/content/gnews/2481864.md)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [郭先生灭共的心路历程&#8212;419断播门篇（三）](/content/gnews/2481780.md)
+ `纽约香草山MOS02`
 
 #### [新一轮冠状病毒变种袭击是否来临](/content/gnews/2481546.md)
  `秘密翻譯組G-Translators`
