@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/7/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18p1jm173f.md)
+[@miles 5/7/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p18owuwd8a6.md)
 
-2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
+2022.05.06 文贵大直播（精华版）
 
-<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/05/07/08/0f62d1fb-aa48-1740-3ee8-cfdfe75d8c5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 5/6/2022 Miles Guo: Our livestream is like the olive leaf and the dove in the biblical story "Noah’s Ark", sending a message of survival hope to everyone. I hope that everyone can build a Noah's Ark in their hearts and help each ot...
 
 <img src="https://media.gettr.com/group30/getter/2022/05/07/06/bbb2526b-b0ac-b22d-24ed-810d196a42ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18p1jm173f.md)
+
+2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
+
+<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/streaming/p18n2yc9c8c
 2022年5月6日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group30/origin/2022/05/06/17/324d18e2-f529-3516-dd69-c242d2b563df/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/6/2022 4:23 PM UTC  - :tv:直播](/content/gettr/p18k9u88723.md)
-
-NFSC and ROLF Ukraine Humanitarian Rescue Mission
-
-<img src="https://media.gettr.com/group50/origin/2022/05/06/16/ea51a16e-971f-1058-e710-6db73bbf8e89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
