@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/7/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p18n7g760d4.md)
+
+2022.05.06  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
+
+<img src="https://media.gettr.com/group4/origin/2022/05/07/00/5f9d56f2-ec61-e731-236c-9910de04747b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p18nbam3fbc.md)
 
 5/6/2022 Miles Guo: The recent plunge in both the stock market and the government bonds is unprecedented. Many people committed suicides in the past 12 months because they purchased Bitcoin, ETH, and/or NFT. 90% of the trade volume...
@@ -36,11 +44,11 @@
 
 ---
 
-[@miles 5/7/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p18n7g760d4.md)
+[@miles 5/7/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p18nbxg0232.md)
 
-2022.05.06  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
+2022.05.06  晚 新中国联邦 | 新闻访谈    封城 北京-郑州 上海解封难 人道灾难蔓延；俄方准备“胜利日”庆典 俄军急于拿下亚速钢铁厂向普京献礼
 
-<img src="https://media.gettr.com/group4/origin/2022/05/07/00/5f9d56f2-ec61-e731-236c-9910de04747b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/05/07/01/9a2f280e-fb78-ecf9-dd2d-32541134c76d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ We are the citizens of the New Federal State of China. Our mission is to take do
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group30/origin/2022/05/06/04/2ac7e7b8-c262-435b-7386-635011641488/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18ilwk842a.md)
-
-2022-5-5《鸡血王喜币大作战》 第一百八十六集 嘉宾：无双柳薇薇、Tex
-
-<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
