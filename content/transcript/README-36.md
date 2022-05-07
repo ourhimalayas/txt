@@ -3,6 +3,8 @@
 
 ## 頁面 36/42 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！](/content/transcript/2018/04/20180418-6417716069003334186.md)
+
 [文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/transcript/2018/04/20180418-26077859752910433.md)
 
 [文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/transcript/2018/04/20180418-8927936442107582299.md)
@@ -50,8 +52,6 @@
 [文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/content/transcript/2018/04/20180418-5411508062276363731.md)
 
 [文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/content/transcript/2018/04/20180418-2511616355314092455.md)
-
-[文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/content/transcript/2018/04/20180418-3356176592243296603.md)
 
 
 ## 頁面 36/42 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)

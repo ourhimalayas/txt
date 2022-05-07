@@ -3,6 +3,8 @@
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190621-2858079650750078361.md)
+
 [文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/transcript/2019/06/20190620-2817897737957212509.md)
 
 [文字稿：香港時間2019年6月17日上午直播](/content/transcript/2019/06/20190618-7972608617443196420.md)
@@ -50,8 +52,6 @@
 [文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/content/transcript/2019/05/20190514-4477543672120238865.md)
 
 [文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/content/transcript/2019/05/20190512-8072600133061975327.md)
-
-[文字版：2019年5月10日文贵50岁生日感言](/content/transcript/2019/05/20190511-4805446820921789375.md)
 
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
