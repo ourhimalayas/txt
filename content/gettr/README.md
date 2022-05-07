@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/7/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p18qyqn511a.md)
+[@miles 5/7/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p18r7fe32cc.md)
 
-2022.05.07  新中国联邦 | 喜健康   特别纪念 人间天使 永远的邓丽君
+Guido Koppes is an excellent professional photographer, providing news images to many European Medias. When he saw our vests, he started taking pictures. He condemned the unscrupulous Western Medias, big companies and politicians k...
 
-<img src="https://media.gettr.com/group14/origin/2022/05/07/20/dd71803f-b614-573a-776a-d9b666f6e0bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/05/07/21/601baa6f-f0c0-74c8-c46a-3d0b08a9eb41/out.jpg" width="506" height="284">
 
 ---
 
