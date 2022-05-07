@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/7/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p18r7b2c373.md)
+
+2022.05.07 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group40/origin/2022/05/07/23/b5291c6d-6ba4-ab32-b75f-8d2c875e47fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18raxff318.md)
 
 5/7/2022 Miles Guo: There are definitely more than 50 million Chinese people who want to emigrate abroad. The situation in Beijing will only get worse. Those who rescued fellow fighters should have no other wants and desires, and t...
@@ -161,14 +169,6 @@ MILES GUO 直播 2022-05-07
 5月7号：很多战友希望七哥能直播几分钟，请兄弟姐妹等一下．让我拉完身，我就直播上一，20分钟！
 
 <img src="https://media.gettr.com/group40/getter/2022/05/07/14/9490db6d-07fe-445c-0ddc-2ef774148a7d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 1:49 PM UTC  - :tv:直播](/content/gettr/p18pdp602b7.md)
-
- 5月7号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗．清零政策灾难的真相了吗？一切都已经开始！
-
-<img src="https://media.gettr.com/group23/getter/2022/05/07/13/96cca3d2-a656-7cff-dcfb-447eb6f76cff/out.jpg" width="506" height="284">
 
 ---
 
