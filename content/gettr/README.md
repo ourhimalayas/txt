@@ -14,11 +14,13 @@ Guido Koppes先生同意Nicol...
 
 ---
 
-[@miles 5/7/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p18r7fe32cc.md)
+[@miles 5/7/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p18r2df4702.md)
 
-Guido Koppes is an excellent professional photographer, providing news images to many European Medias. When he saw our vests, he started taking pictures. He condemned the unscrupulous Western Medias, big companies and politicians k...
+“纤夫的灾难” 飞飞秀救援快报 2022-05-07
 
-<img src="https://media.gettr.com/group15/origin/2022/05/07/21/601baa6f-f0c0-74c8-c46a-3d0b08a9eb41/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p18quia72bc
+
+<img src="https://media.gettr.com/group11/origin/2022/05/07/22/ba923023-d292-d66d-8fbb-80632fb1e20e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -29,6 +31,14 @@ Guido Koppes thanked the New Federal States of China （NFSC）for bringing hope
  Guido Koppes 他感谢新中国联邦给世界带来了希望，他强烈希望新中国联邦有自己的媒体，掌握话语权。
 
 <img src="https://media.gettr.com/group44/origin/2022/05/07/21/92ba0c07-eaf7-0d62-bf1b-e792521df3e7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p18r7fe32cc.md)
+
+Guido Koppes is an excellent professional photographer, providing news images to many European Medias. When he saw our vests, he started taking pictures. He condemned the unscrupulous Western Medias, big companies and politicians k...
+
+<img src="https://media.gettr.com/group15/origin/2022/05/07/21/601baa6f-f0c0-74c8-c46a-3d0b08a9eb41/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +195,6 @@ It is very sad to see some animals are living better than hundreds of millions o
 2022.05.06 文贵大直播（精华版）
 
 <img src="https://media.gettr.com/group21/origin/2022/05/07/08/0f62d1fb-aa48-1740-3ee8-cfdfe75d8c5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 6:49 AM UTC  - :tv:直播](/content/gettr/p18ox6316c2.md)
-
-5/6/2022 Miles Guo: Our livestream is like the olive leaf and the dove in the biblical story "Noah’s Ark", sending a message of survival hope to everyone. I hope that everyone can build a Noah's Ark in their hearts and help each ot...
-
-<img src="https://media.gettr.com/group30/getter/2022/05/07/06/bbb2526b-b0ac-b22d-24ed-810d196a42ca/out.jpg" width="506" height="284">
 
 ---
 
