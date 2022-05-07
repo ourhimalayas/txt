@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/7/2022 1:49 PM UTC  - :tv:直播](/content/gettr/p18pdp602b7.md)
+
+ 5月7号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗．清零政策灾难的真相了吗？一切都已经开始！
+
+<img src="https://media.gettr.com/group23/getter/2022/05/07/13/96cca3d2-a656-7cff-dcfb-447eb6f76cff/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/7/2022 1:12 PM UTC  - :tv:直播](/content/gettr/p18poytc32b.md)
+
+5月7号，尊敬的战友们好．新的一波科技大潮，将彻底改变人类的生存和生活模式．而共产党的．假．骗：黑．偷．会彻底被消灭。【波士顿动力 Mobile Eccentric Droid 。  中共一天天还在捅嗓子眼，看看人家都静悄悄干了什么。】
+
+<img src="https://media.gettr.com/group19/getter/2022/05/07/13/d1eeab1b-59fd-341a-24ce-3f994194570b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p18pxtj6f53.md)
 
 2022.05.07  早 新中国联邦 | 新闻   新中国人正在向世界证明其与正义站在一方；郭先生解读诺亚方舟的真正含义
@@ -79,14 +95,6 @@ It is very sad to see some animals are living better than hundreds of millions o
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group21/origin/2022/05/07/06/780ccebe-bc7b-f9a1-e10c-77061d0546c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 1:12 PM UTC  - :tv:直播](/content/gettr/p18poytc32b.md)
-
-5月7号，尊敬的战友们好．新的一波科技大潮，将彻底改变人类的生存和生活模式．而共产党的．假．骗：黑．偷．会彻底被消灭。【波士顿动力 Mobile Eccentric Droid 。  中共一天天还在捅嗓子眼，看看人家都静悄悄干了什么。】
-
-<img src="https://media.gettr.com/group19/getter/2022/05/07/13/d1eeab1b-59fd-341a-24ce-3f994194570b/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ It is very sad to see some animals are living better than hundreds of millions o
 5/6/2022 Miles Guo: The CCP made the same mistake as Empress Dowager Cixi by foolishly launching a war against the entire humankind. The Russia-Ukraine war made Wang Huning and "Xi the Sun" further believe in George Modelski's theo...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/06/23/5f63a482-646f-6333-df76-027bf8589897/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p18mzcvfe8a.md)
-
-5/6/2022 Miles Guo: What does the Russia-Ukraine war tell us? Food and water are the most important life necessities, followed by medicines. Elderly people are the most vulnerable population during the war, and the CCP is taking an...
-
-<img src="https://media.gettr.com/group21/getter/2022/05/06/23/6c013c9a-f75c-4e6a-444a-dc0c60930297/out.jpg" width="506" height="284">
 
 ---
 
