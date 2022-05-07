@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/7/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p18p1jm173f.md)
+[@miles 5/7/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p18qyqn511a.md)
 
-2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
+2022.05.07  新中国联邦 | 喜健康   特别纪念 人间天使 永远的邓丽君
 
-<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/07/20/dd71803f-b614-573a-776a-d9b666f6e0bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
