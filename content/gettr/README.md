@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/6/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p18na21eac6.md)
+
+2022.05.06  NFSC fringe  Episode 185
+
+中文同传：https://gettr.com/streaming/p18ndixd0c4
+
+<img src="https://media.gettr.com/group46/origin/2022/05/06/23/0246da4a-ae87-afff-3ec0-1828009a6bc4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/6/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p18n91xdde7.md)
 
 5/6/2022 Miles Guo: The CCP made the same mistake as Empress Dowager Cixi by foolishly launching a war against the entire humankind. The Russia-Ukraine war made Wang Huning and "Xi the Sun" further believe in George Modelski's theo...
@@ -18,13 +28,11 @@
 
 ---
 
-[@miles 5/6/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p18na21eac6.md)
+[@miles 5/7/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p18nbam3fbc.md)
 
-2022.05.06  NFSC fringe  Episode 185
+5/6/2022 Miles Guo: The recent plunge in both the stock market and the government bonds is unprecedented. Many people committed suicides in the past 12 months because they purchased Bitcoin, ETH, and/or NFT. 90% of the trade volume...
 
-中文同传：https://gettr.com/streaming/p18ndixd0c4
-
-<img src="https://media.gettr.com/group46/origin/2022/05/06/23/0246da4a-ae87-afff-3ec0-1828009a6bc4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/05/07/00/dd43ff58-9625-2c58-9d8e-4d31faf844f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 61 - Date: Ma...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/06/02/db955f2d-c814-6bf9-5c75-36468c0b7f36/979f0a03d516c16a77c9e908a66d60a1.jpg" width="506" height="284">
-
----
-
-[@miles 5/6/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p18iqbv6569.md)
-
-2022.05.05 新中国联邦 | 喜财经   国内取款状况；取款应对措施
-
-<img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
