@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/7/2022 3:17 PM UTC  - :tv:直播](/content/gettr/p18qcrreb31.md)
+
+5/6/2022: Noah's Ark is in our hearts as well as in the place where we were born, so we must save our country! I firmly believe we can destroy the CCP, China can be restored to a truly civilized country which is suitable for human ...
+
+<img src="https://media.gettr.com/group26/getter/2022/05/07/15/f3da2907-5682-edae-986e-a848d622a977/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p18pmpq2844.md)
 
 新中国联邦｜真人真事 第52期   香草山农场  Jessica G     
@@ -12,11 +20,11 @@ For English: https://gettr.com/streaming/p18pudu601d
 
 ---
 
-[@miles 5/7/2022 3:17 PM UTC  - :tv:直播](/content/gettr/p18qcrreb31.md)
+[@miles 5/7/2022 5:51 PM UTC  - :tv:直播](/content/gettr/p18q1zu258a.md)
 
-5/6/2022: Noah's Ark is in our hearts as well as in the place where we were born, so we must save our country! I firmly believe we can destroy the CCP, China can be restored to a truly civilized country which is suitable for human ...
+2022.05.07 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group26/getter/2022/05/07/15/f3da2907-5682-edae-986e-a848d622a977/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/07/17/1c3afe39-d259-79ac-f5d4-b0940ad71200/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ It is very sad to see some animals are living better than hundreds of millions o
 中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group43/origin/2022/05/07/05/292d864f-8154-e880-905a-1c995ca51da6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p18neqr1194.md)
-
-2022-5-6《鸡血王喜币大作战》 第一百八十七集 嘉宾：青藤、文空、风雨之中
-
-<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
