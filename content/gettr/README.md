@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 1:15 AM UTC  - :tv:直播](/content/gettr/p18rofu5ee9.md)
+
+2022.05.07  晚 新中国联邦 | 新闻访谈  中共大外宣反映墙内经济即将崩塌
+
+<img src="https://media.gettr.com/group41/origin/2022/05/04/01/61a5cdf2-b6dc-28f9-7f9f-56f624b78123/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p18s0nqb648.md)
 
 5/6/2022 Miles Guo: These people in the photo have witnessed my relationship with the people, my relationship with money, and my relationship with international professionals. The Chinese people who are under the CCP's tyranny have...
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 5/8/2022 1:15 AM UTC  - :tv:直播](/content/gettr/p18rofu5ee9.md)
+[@miles 5/8/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p18rzwrb428.md)
 
-2022.05.07  晚 新中国联邦 | 新闻访谈  中共大外宣反映墙内经济即将崩塌
+2022.05.07  新中国联邦 | 喜财经    通胀高启，加息真能解决问题吗？
 
-<img src="https://media.gettr.com/group41/origin/2022/05/04/01/61a5cdf2-b6dc-28f9-7f9f-56f624b78123/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/05/08/01/f74a3578-35f8-790d-8179-0e7093ecaee6/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English: https://gettr.com/streaming/p18pudu601d
 5/6/2022 Miles Guo: For those who are capable and can survive abroad, I suggest that you leave Communist China. Even if you stay in the small neighboring countries, you will be better off than in Communist China. Everyone should ma...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/07/14/299c59e0-31b7-a8d1-b2ce-a74d40223207/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18q1zie71c.md)
-
-2022年5月6日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group26/origin/2022/05/06/17/62116cfd-468c-534c-b920-2e37c09b937c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
