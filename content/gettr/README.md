@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18tv9q0ef6.md)
+
+【Ukraine Rescue】05/06/2022  New York lady Victoria wants to come and help brighten people's day a little bit by putting on an inflatable Pokeman costume and handing out candy and coloring books.  She ran into people from NFSC in Ne...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/08/14/05c5a30d-bc45-e29c-a440-89a06d007674/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p18uj0689f2.md)
 
 2022年5月8日 文贵大直播：母亲节谈中国母亲；疫苗灾难何去何从
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/8/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18tv9q0ef6.md)
+[@miles 5/8/2022 4:25 PM UTC  - :tv:直播](/content/gettr/p18v3zpf1a5.md)
 
-【Ukraine Rescue】05/06/2022  New York lady Victoria wants to come and help brighten people's day a little bit by putting on an inflatable Pokeman costume and handing out candy and coloring books.  She ran into people from NFSC in Ne...
+ 5月8号：尊敬的战友们好……七嫂在给七哥做铁锅炖大魚……
 
-<img src="https://media.gettr.com/group47/getter/2022/05/08/14/05c5a30d-bc45-e29c-a440-89a06d007674/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/05/08/16/3f64f717-7eab-0a16-65ff-6c70401141f5/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 5/7/2022 Miles Guo:  Having imposed sanctions on Russia, the West will repeat the same measure on anything CCP-related, which means all the overseas assets of oligarchs, enterprises, individuals and organizations connected to the C...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/07/23/3e91eb49-cc8d-f83c-544f-6d3e9d30417d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p18r52ja212.md)
-
-2022.05.07  PM NFSC news   Lithuanian-Polish Gas Pipeline GIPL Officially Opened
-
-<img src="https://media.gettr.com/group19/origin/2022/05/07/22/86328764-3f49-06fa-bd5f-df57dfec6628/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
