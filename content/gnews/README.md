@@ -2,6 +2,18 @@
 ---
 
 
+#### [2022年5月8日，全球中共病毒疫情情况汇总](/content/gnews/2489708.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [CDC调查儿童不明肝炎](/content/gnews/2489699.md)
+ `银河歌舞厅`
+
+#### [欧美将在两大领域出手 中共败局无法逆转](/content/gnews/2489679.md)
+ `NFSC News`
+
+#### [西方也有核武器](/content/gnews/2489668.md)
+ `英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
 #### [股债双跌 货币市场空前动荡 新数字货币时代必将到来](/content/gnews/2489661.md)
  `NFSC News`
 
@@ -50,9 +62,6 @@
 #### [秘翻在线：洪水猛于虎，中共国老百姓遇天灾能够依靠谁？](/content/gnews/2489421.md)
  `秘密翻譯組G-Translators`
 
-#### [中共强制接种疫苗：用“知情自愿”“开证明”“应接尽接”愚弄百姓](/content/gnews/2489395.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [美台关系｜美国务院修改美台关系说明 删去了台湾是中国的一部分](/content/gnews/2489393.md)
  `關注組`
 
@@ -65,9 +74,6 @@
 #### [调查显示90%的银行都在研究数字货币](/content/gnews/2489368.md)
  `NFSC News`
 
-#### [安理会首次声明支持和平解决俄乌战争](/content/gnews/2489366.md)
- `NFSC News`
-
 #### [乌克兰军队击中另外一艘俄军黑海主力战舰](/content/gnews/2489365.md)
  `NFSC News`
 
@@ -76,9 +82,6 @@
 
 #### [全球灾难之际，新中国联邦应该做好的三件事](/content/gnews/2489353.md)
  `NFSC News`
-
-#### [中纪委督导组问责地方卫健委录音（三）](/content/gnews/2489349.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [大直播传递生存希望的信息](/content/gnews/2489344.md)
  `NFSC News`
@@ -102,9 +105,6 @@
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共国疫情及封锁现状](/content/gnews/2489012.md)
- `NFSC News`
-
-#### [新一轮欧盟制裁瞄准俄能源和更多银行](/content/gnews/2489011.md)
  `NFSC News`
 
 #### [封城阴影之下如何离开上海（图片）](/content/gnews/2489002.md)
