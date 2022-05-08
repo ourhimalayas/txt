@@ -2,6 +2,24 @@
 ---
 
 
+#### [秦刚接受福布斯采访，花言巧语欺骗美国](/content/gnews/2490417.md)
+ `波士顿五月花农场`
+
+#### [5/6/2022 文贵直播：中期选举前中美关系可能会暂时缓解，但这改变不了中美之间你死我活的关系](/content/gnews/2490409.md)
+ `秘密翻译组-北美组`
+
+#### [世卫组织收集俄罗斯在乌克兰犯下战争罪的证据](/content/gnews/2490396.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [视频&#124;中共严审出国公证 闭关锁国再临](/content/gnews/2490361.md)
+ `MOSVIDEO`
+
+#### [“股汇双杀”是中共擀面杖经济的结果](/content/gnews/2490360.md)
+ `澳喜农场`
+
+#### [视频&#124;新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2490334.md)
+ `MOSVIDEO`
+
 #### [有声&#124;西方對俄制裁下 中俄央行將談推廣國家支付系統](/content/gnews/2490314.md)
  `MOSREC`
 
@@ -17,6 +35,9 @@
 #### [视频&#124;近百名乌克兰平民撤离亚速钢铁厂](/content/gnews/2490231.md)
  `MOSVIDEO`
 
+#### [中国母亲的过去、现在、未来](/content/gnews/2490223.md)
+ `MilesGuoLivePPT`
+
 #### [日本宣布参加法国在南太平洋演练 针对中国？](/content/gnews/2490210.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -27,12 +48,6 @@
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [视频&#124;新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2490100.md)
- `MOSVIDEO`
-
-#### [视频&#124;今日俄乌战局最新消息汇总](/content/gnews/2490064.md)
- `MOSVIDEO`
-
-#### [视频&#124;俄美元偿债，避免违约](/content/gnews/2490016.md)
  `MOSVIDEO`
 
 #### [中共五台山、舟山同一日天生异象](/content/gnews/2490010.md)
@@ -52,6 +67,12 @@
 
 #### [拜登签署新的1.5亿军事援助乌克兰](/content/gnews/2489958.md)
  `秘密翻譯組G-Translators`
+
+#### [俄罗斯异见人士被迫流亡海外](/content/gnews/2489937.md)
+ `澳喜特战旅Gnews`
+
+#### [德国向乌克兰提供重武器：“我们需要利用好每一把枪”](/content/gnews/2489919.md)
+ `澳喜特战旅Gnews`
 
 #### [朝鲜从潜艇上试射导弹：韩国](/content/gnews/2489794.md)
  `西班牙巴塞罗那喜悦农场`
@@ -74,9 +95,6 @@
 #### [樱花时政┃泽连斯基的和谈条件：俄军撤回侵略前阵地](/content/gnews/2489627.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [英国政府宣布废止新冠病毒疫苗通行证](/content/gnews/2489622.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [乌克兰救援最新数据](/content/gnews/2489610.md)
  `NFSC News`
 
@@ -88,9 +106,6 @@
 
 #### [美台关系｜美国务院修改美台关系说明 删去了台湾是中国的一部分](/content/gnews/2489393.md)
  `關注組`
-
-#### [乌克兰军队击中另外一艘俄军黑海主力战舰](/content/gnews/2489365.md)
- `NFSC News`
 
 #### [全球灾难之际，新中国联邦应该做好的三件事](/content/gnews/2489353.md)
  `NFSC News`
@@ -107,9 +122,6 @@
 #### [韩国银行宣布推出基于区块链的商业识别系统](/content/gnews/2489258.md)
  `墨尔本雅典娜农场`
 
-#### [樱花时政┃唯一候选人李家超当选香港特别行政区第六任行政长官](/content/gnews/2489222.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [封城阴影之下如何离开上海（图片）](/content/gnews/2489002.md)
  `喜马拉雅农场新西兰站`
 
@@ -117,9 +129,6 @@
  `日本东京方舟农场`
 
 #### [俄军队官员和联邦安全局 &#8220;期待推翻俄罗斯领导人“——普京 &#8220;为政变做准备&#8221;](/content/gnews/2488904.md)
- `topnews`
-
-#### [乌克兰武装力量收复了乌克兰南部的几个城镇](/content/gnews/2488874.md)
  `topnews`
 
 #### [企业对冲的飙升拖累人民币贬值](/content/gnews/2488850.md)
@@ -131,14 +140,8 @@
 #### [今日盖特大V推荐 — 华盛顿自由灯塔（The Washington Free Beacon)](/content/gnews/2488813.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [美国防工业因乌克兰的武器交付而紧张](/content/gnews/2488809.md)
- `topnews`
-
 #### [俄乌战争｜台湾宣布对白俄罗斯进行经济制裁 高科技货品出口管制](/content/gnews/2488790.md)
  `關注組`
-
-#### [今日盖特大V推荐 — 戴维·博西 (David Bossie)](/content/gnews/2488767.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [香港｜中共钦点唯一候选人李家超无悬念当选新一届行政长官](/content/gnews/2488737.md)
  `關注組`
@@ -154,9 +157,6 @@
 
 #### [想在家里做出餐厅水准的三明治吗？ 现在开始吧](/content/gnews/2487746.md)
  `日本东京方舟农场`
-
-#### [参议员比尔·哈格蒂： 中共与墨西哥贩毒集团合作，用芬太尼充斥美国](/content/gnews/2487429.md)
- `美国政要直译推`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
