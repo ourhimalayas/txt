@@ -2,6 +2,12 @@
 ---
 
 
+#### [泽连斯基通话英国首相，请求远距离武器支援](/content/gnews/2491691.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [七国集团领导人承诺进一步经济孤立俄罗斯](/content/gnews/2491644.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
 #### [20220508郭文贵大直播 ：G-EDU不弄好队伍和教育模式绝对不开始。争取半年内解决，线下线上同时开始](/content/gnews/2491643.md)
  `Tokyo Sakura Video Group`
 
@@ -10,6 +16,9 @@
 
 #### [20220508郭文贵大直播 ：科学家即将公布最新的药方,打了疫苗4针以内，99.9%的治愈率](/content/gnews/2491604.md)
  `Tokyo Sakura Video Group`
+
+#### [加拿大三分之二小企业主因疫情身心俱疲](/content/gnews/2491574.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [20220508郭文贵大直播 ：我们要创造一个教育个性化的环境，而不是教育标准化](/content/gnews/2491573.md)
  `Tokyo Sakura Video Group`
@@ -36,9 +45,6 @@
  `Tokyo Sakura Video Group`
 
 #### [20220508郭文贵大直播 ：长臂管辖 只要使用过美元交易的资产都有权力监管和查封](/content/gnews/2491495.md)
- `Tokyo Sakura Video Group`
-
-#### [20220508郭文贵大直播 ：郭先生纯朴的父母培育了他正直的人格](/content/gnews/2491450.md)
  `Tokyo Sakura Video Group`
 
 #### [七国集团线上峰会预定 泽伦斯基总统出席，强调协调合作](/content/gnews/2491433.md)
@@ -110,14 +116,8 @@
 #### [埃隆-马斯克计划在接管公司后解雇1000名Twitter员工](/content/gnews/2490270.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [日本宣布参加法国在南太平洋演练 针对中国？](/content/gnews/2490210.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [疫苗灾难爆发 灭共拯救人类](/content/gnews/2490172.md)
  `MilesGuoLivePPT`
-
-#### [美中央情报局：习近平密切关注俄乌战争走向 但不会改变攻打台湾计划](/content/gnews/2489986.md)
- `墨尔本雅典娜农场`
 
 #### [欧美将在两大领域出手 中共败局无法逆转](/content/gnews/2489679.md)
  `NFSC News`
