@@ -2,32 +2,32 @@
 ---
 
 
-#### [中共“五一”新房成交量腰斩](/content/gnews/2489825.md)
+#### [德国向乌克兰提供重武器：“我们需要利用好每一把枪”](/content/gnews/2489919.md)
  `澳喜特战旅Gnews`
 
-#### [2022年5月8日战时快讯](/content/gnews/2489799.md)
- `墨尔本雅典娜农场`
+#### [专家警告：俄军在乌克兰战场仍具有威胁](/content/gnews/2489862.md)
+ `澳喜特战旅Gnews`
+
+#### [警惕！中共用抹黑维吾尔人的手法在海外挑起反华情绪](/content/gnews/2489858.md)
+ `澳喜农场`
+
+#### [中共“五一”新房成交量腰斩](/content/gnews/2489825.md)
+ `澳喜特战旅Gnews`
 
 #### [朝鲜从潜艇上试射导弹：韩国](/content/gnews/2489794.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [习近平常委会宣布坚持清零政策不动摇](/content/gnews/2489760.md)
- `澳喜特战旅Gnews`
-
-#### [樱花时政┃日本首相将出席亚洲安全会议，对抗俄罗斯和中共](/content/gnews/2489715.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [2022年5月8日，全球中共病毒疫情情况汇总](/content/gnews/2489708.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [“一切皆无的一个月，我感到很麻木”](/content/gnews/2489701.md)
- `英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 #### [CDC调查儿童不明肝炎](/content/gnews/2489699.md)
  `银河歌舞厅`
 
 #### [欧美将在两大领域出手 中共败局无法逆转](/content/gnews/2489679.md)
  `NFSC News`
+
+#### [樱花时政┃CIA：北京紧盯乌战 汲取教训调整对台战略](/content/gnews/2489672.md)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [股债双跌 货币市场空前动荡 新数字货币时代必将到来](/content/gnews/2489661.md)
  `NFSC News`
