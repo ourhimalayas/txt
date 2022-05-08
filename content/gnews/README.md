@@ -2,41 +2,50 @@
 ---
 
 
-#### [20220508郭文贵大直播 ：教育标准化绝对是灾难，中共国已经走入教育标准化的死胡同](/content/gnews/2491463.md)
+#### [20220508郭文贵大直播 ：G-EDU不弄好队伍和教育模式绝对不开始。争取半年内解决，线下线上同时开始](/content/gnews/2491643.md)
+ `Tokyo Sakura Video Group`
+
+#### [美方否认为击沉俄旗舰提供“特定目标信息”](/content/gnews/2491642.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [20220508郭文贵大直播 ：科学家即将公布最新的药方,打了疫苗4针以内，99.9%的治愈率](/content/gnews/2491604.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220508郭文贵大直播 ：我们要创造一个教育个性化的环境，而不是教育标准化](/content/gnews/2491573.md)
+ `Tokyo Sakura Video Group`
+
+#### [斯洛伐克总理誓言保持对乌克兰的军事援助](/content/gnews/2491564.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [尽管通胀飙升，美国 4 月仍增加 428,000 个工作岗位](/content/gnews/2491543.md)
+ `澳喜特战旅Gnews`
+
+#### [20220508郭文贵大直播 ：敏感和免疫力没关系和食物电子等有关](/content/gnews/2491541.md)
+ `Tokyo Sakura Video Group`
+
+#### [白宫新闻发言人换届 第一位黑人女性 萨基说：“以你的风格”](/content/gnews/2491524.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [20220508郭文贵大直播 ：郭先生谈感恩 感恩和孝敬不是交易](/content/gnews/2491517.md)
+ `Tokyo Sakura Video Group`
+
+#### [上海居民将家里钥匙交于居委会的后果](/content/gnews/2491513.md)
+ `澳喜特战旅Gnews`
+
+#### [20220508郭文贵大直播 ：GEDU希望父母对孩子的教育科学化 以及18岁后子女能回归家庭](/content/gnews/2491505.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220508郭文贵大直播 ：长臂管辖 只要使用过美元交易的资产都有权力监管和查封](/content/gnews/2491495.md)
  `Tokyo Sakura Video Group`
 
 #### [20220508郭文贵大直播 ：郭先生纯朴的父母培育了他正直的人格](/content/gnews/2491450.md)
  `Tokyo Sakura Video Group`
 
-#### [疫情期间加拿大政府通过手机追踪加拿大人行踪](/content/gnews/2491445.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [20220508郭文贵大直播 ：教无求、孝无欲！GEDU也应遵循这个准则，一定要打破当前世界教育的局限](/content/gnews/2491434.md)
- `Tokyo Sakura Video Group`
-
 #### [七国集团线上峰会预定 泽伦斯基总统出席，强调协调合作](/content/gnews/2491433.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [20220508郭文贵大直播 ：胡锦涛母亲只要求他学老子孟子，不学孔子](/content/gnews/2491429.md)
- `Tokyo Sakura Video Group`
-
-#### [20220508郭文贵大直播 ： 共产党对母亲的孝敬与他们邪恶的一面是成反比的](/content/gnews/2491421.md)
- `Tokyo Sakura Video Group`
-
-#### [20220508郭文贵大直播 ：一个国家和民族的伟大是由一代代人优良品德的传承](/content/gnews/2491381.md)
- `Tokyo Sakura Video Group`
-
-#### [20220508郭文贵大直播 ：中西方母亲节的不同中国的母亲节就是孟母断机教子](/content/gnews/2491354.md)
- `Tokyo Sakura Video Group`
-
-#### [20220508郭文贵大直播 ：共产党选干部只看对父母的态度](/content/gnews/2491328.md)
- `Tokyo Sakura Video Group`
-
-#### [20220508郭文贵大直播 ：人们容易被互联网的信息误导](/content/gnews/2491318.md)
- `Tokyo Sakura Video Group`
-
-#### [05/08/22 香港快讯 【一人选特首】今届投票率97.74% 五次需投票选举中排第四](/content/gnews/2491303.md)
- `英喜-粵語組`
+#### [中共国日益增多胎停育—人口动态清零](/content/gnews/2491420.md)
+ `mayflowertranslate`
 
 #### [文贵大直播要点（2022年5月8日）](/content/gnews/2491269.md)
  `波士顿五月花农场`
@@ -109,15 +118,6 @@
 
 #### [美中央情报局：习近平密切关注俄乌战争走向 但不会改变攻打台湾计划](/content/gnews/2489986.md)
  `墨尔本雅典娜农场`
-
-#### [拜登政府预测秋冬季中共病毒疫情浪潮 或有1亿感染](/content/gnews/2489985.md)
- `秘密翻譯組G-Translators`
-
-#### [马克龙宣誓就职历史性的第二任期时承诺 “新方法”](/content/gnews/2489960.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [拜登签署新的1.5亿军事援助乌克兰](/content/gnews/2489958.md)
- `秘密翻譯組G-Translators`
 
 #### [欧美将在两大领域出手 中共败局无法逆转](/content/gnews/2489679.md)
  `NFSC News`
