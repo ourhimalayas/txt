@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p18ren0722b.md)
+
+2022.05.07  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
+
+<img src="https://media.gettr.com/group47/origin/2022/05/08/00/0f854dc3-20e7-e411-4a43-52e3ba47f003/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p18r7b2c373.md)
 
 2022.05.07 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/8/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p18ren0722b.md)
+[@miles 5/8/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p18s0nqb648.md)
 
-2022.05.07  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
+5/6/2022 Miles Guo: These people in the photo have witnessed my relationship with the people, my relationship with money, and my relationship with international professionals. The Chinese people who are under the CCP's tyranny have...
 
-<img src="https://media.gettr.com/group47/origin/2022/05/08/00/0f854dc3-20e7-e411-4a43-52e3ba47f003/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/05/08/00/9da4fd59-bff5-6988-c0d9-feb5f64ceb92/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ For English: https://gettr.com/streaming/p18pudu601d
 5/6/2022 Miles Guo: For those who are capable and can survive abroad, I suggest that you leave Communist China. Even if you stay in the small neighboring countries, you will be better off than in Communist China. Everyone should ma...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/07/14/299c59e0-31b7-a8d1-b2ce-a74d40223207/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p18q0hh4179.md)
-
-MILES GUO 直播 2022-05-07
-
-<img src="https://media.gettr.com/group43/liveorigin/2022/05/07/14/f1fb9559-03ed-cda3-39f5-a1b1856151fc/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
