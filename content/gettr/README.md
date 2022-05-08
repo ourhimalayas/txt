@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p18t1bid82e.md)
+
+5/6/2022 Miles Guo: Honesty, courage, kindness and selflessness are the four criteria I used to find good people to work with me to take down the CCP; giving up the endeavor to fight against the CCP would bring me power and fortune...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/08/07/fd944b2c-ca46-faee-efeb-225f77d385b8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 7:06 AM UTC  - :tv:直播](/content/gettr/p18t43i808c.md)
 
 5/6/2022 Miles Guo: The Cultural Revolution 2.0 began from the moment when Xi Jinping and Wang Qishan took power; the power-loving Wang Qishan is reduced to attending funerals, etc. as his job, and his life is worse than death; Xi'...
@@ -98,11 +106,11 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 
 ---
 
-[@miles 5/8/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p18t1bid82e.md)
+[@miles 5/8/2022 7:54 AM UTC  - :tv:直播](/content/gettr/p18tlb4b79b.md)
 
-5/6/2022 Miles Guo: Honesty, courage, kindness and selflessness are the four criteria I used to find good people to work with me to take down the CCP; giving up the endeavor to fight against the CCP would bring me power and fortune...
+2022.05.08 新中国联邦 | 喜健康   （精华版）
 
-<img src="https://media.gettr.com/group39/getter/2022/05/08/07/fd944b2c-ca46-faee-efeb-225f77d385b8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/08/07/7da2a070-2c8c-fad4-e99a-8a1d469f86da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -127,14 +135,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 5/6/2022 Miles Guo: The US and Europe will take actions in two areas: 1) sanction the CCP’s overseas businesses and seize all the overseas assets of the CCP, their families and agents. 2) at least seven legislations are underway in...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/07/22/ad2ab113-e349-e555-c358-17f6e65ea993/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p18rqujb036.md)
-
-5月7号：这样的事情发生的太晚了，如果从第一天这个样子……就不会有那么多人，吃屎吃到死，也不会有那么多人自杀。【大白己成为了过街老鼠】
-
-<img src="https://media.gettr.com/group17/getter/2022/05/07/22/50784e52-96d0-2748-a0a4-2bd8291bf8cd/out.jpg" width="506" height="284">
 
 ---
 
