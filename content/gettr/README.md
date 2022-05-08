@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p18s0nqb648.md)
+
+5/6/2022 Miles Guo: These people in the photo have witnessed my relationship with the people, my relationship with money, and my relationship with international professionals. The Chinese people who are under the CCP's tyranny have...
+
+<img src="https://media.gettr.com/group41/getter/2022/05/08/00/9da4fd59-bff5-6988-c0d9-feb5f64ceb92/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p18ren0722b.md)
 
 2022.05.07  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/8/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p18s0nqb648.md)
+[@miles 5/8/2022 1:15 AM UTC  - :tv:直播](/content/gettr/p18rofu5ee9.md)
 
-5/6/2022 Miles Guo: These people in the photo have witnessed my relationship with the people, my relationship with money, and my relationship with international professionals. The Chinese people who are under the CCP's tyranny have...
+2022.05.07  晚 新中国联邦 | 新闻访谈  中共大外宣反映墙内经济即将崩塌
 
-<img src="https://media.gettr.com/group41/getter/2022/05/08/00/9da4fd59-bff5-6988-c0d9-feb5f64ceb92/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/05/04/01/61a5cdf2-b6dc-28f9-7f9f-56f624b78123/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English: https://gettr.com/streaming/p18pudu601d
 5/6/2022 Miles Guo: For those who are capable and can survive abroad, I suggest that you leave Communist China. Even if you stay in the small neighboring countries, you will be better off than in Communist China. Everyone should ma...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/07/14/299c59e0-31b7-a8d1-b2ce-a74d40223207/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18pki5140c.md)
-
-MILES GUO 直播 2022-05-07
-
-<img src="https://media.gettr.com/group21/liveorigin/2022/05/07/14/1e6a355c-3952-2b0e-3d8a-ada77f3fe154/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
