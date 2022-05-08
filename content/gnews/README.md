@@ -2,6 +2,9 @@
 ---
 
 
+#### [中共“五一”新房成交量腰斩](/content/gnews/2489825.md)
+ `澳喜特战旅Gnews`
+
 #### [2022年5月8日战时快讯](/content/gnews/2489799.md)
  `墨尔本雅典娜农场`
 
@@ -25,9 +28,6 @@
 
 #### [欧美将在两大领域出手 中共败局无法逆转](/content/gnews/2489679.md)
  `NFSC News`
-
-#### [西方也有核武器](/content/gnews/2489668.md)
- `英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 #### [股债双跌 货币市场空前动荡 新数字货币时代必将到来](/content/gnews/2489661.md)
  `NFSC News`
