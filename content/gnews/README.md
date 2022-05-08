@@ -2,14 +2,35 @@
 ---
 
 
+#### [樱花时政┃北京市朝阳区：暂停非民生保障型服务业](/content/gnews/2492602.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃各州起诉拜登政府与大型科技公司勾结审查言论自由](/content/gnews/2492598.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中共无人机群在森林中自主穿行寻找人类](/content/gnews/2492597.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [大直播后记：七哥结合自身经历谈信用](/content/gnews/2492589.md)
+ `雅典娜GNotes`
+
+#### [中共就审计协议谈判妥协](/content/gnews/2492572.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [美国国立卫生研究院调查患者服用辉瑞公司COVID抗病毒药Paxlovid后复发的原因](/content/gnews/2492567.md)
  `喜马拉雅-华盛顿DC农场`
 
 #### [日本首相岸田安排参加香格里拉对话安全峰会](/content/gnews/2492551.md)
  `喜马拉雅-华盛顿DC农场`
 
+#### [文贵先生直播大纲2022/05/08](/content/gnews/2492545.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [【粤语配音】2022年5月8日：新中国联邦是未来的希望](/content/gnews/2492539.md)
  `MOS香港部`
+
+#### [美降中国关税为完善在东南亚的供应链](/content/gnews/2492508.md)
+ `NFSC News`
 
 #### [道琼指数暴跌的背后逻辑以及与喜币为何跌不破30的联系](/content/gnews/2492504.md)
  `喜马拉雅-华盛顿DC农场`
@@ -77,23 +98,14 @@
 #### [墙内封城预示中共备战美国](/content/gnews/2491207.md)
  `NFSC News`
 
-#### [爆料革命“好人”的标准](/content/gnews/2491114.md)
- `NFSC News`
-
 #### [5/8/2022国内经济财经周报：人民币再度大幅下挫；德州仪器裁撤中国区团队](/content/gnews/2490966.md)
  `秘密翻译组金融团队`
-
-#### [河南省方舱集中营长城](/content/gnews/2490876.md)
- `Tokyo Sakura Video Group`
 
 #### [视频&#124;杭州亚运会、成都大运会延期](/content/gnews/2490851.md)
  `MOSVIDEO`
 
 #### [视频&#124;日媒揭露中共封控措施 警告中共政府的话不能信](/content/gnews/2490844.md)
  `MOSVIDEO`
-
-#### [离开上海写保证书，视频中男子称下辈子都不会再来上海](/content/gnews/2490800.md)
- `Tokyo Sakura Video Group`
 
 #### [文编&#124;新中国联邦是黑暗世界里的一盏明灯](/content/gnews/2490747.md)
  `KarmaLabs`
@@ -113,17 +125,8 @@
 #### [世卫组织收集俄罗斯在乌克兰犯下战争罪的证据](/content/gnews/2490396.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [文编&#124;新中国联邦唯真不破](/content/gnews/2490386.md)
- `KarmaLabs`
-
 #### [“股汇双杀”是中共擀面杖经济的结果](/content/gnews/2490360.md)
  `澳喜农场`
-
-#### [文编&#124;没有CCP才有正义和平的幸福生活](/content/gnews/2490348.md)
- `KarmaLabs`
-
-#### [文编&#124;世界上最漂亮的飞机——空客319](/content/gnews/2490327.md)
- `KarmaLabs`
 
 #### [2022.5.8大直播 郭先生表示佩洛西一定会在6月底前访问台湾](/content/gnews/2490315.md)
  `秘密翻译组-原创组`
@@ -153,9 +156,6 @@
  `日本东京方舟农场`
 
 #### [乌克兰战争：俄罗斯对其“第二阶段”的计划是什么- 为什么包括摩尔多瓦？](/content/gnews/2487973.md)
- `日本东京方舟农场`
-
-#### [想在家里做出餐厅水准的三明治吗？ 现在开始吧](/content/gnews/2487746.md)
  `日本东京方舟农场`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
