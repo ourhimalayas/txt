@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 5/8/2022 10:03 PM UTC  - :tv:直播](/content/gettr/p18vhmx79a5.md)
+
+“纤夫的灾难” 飞飞秀救援快报 2022-05-08
+
+For English：gettr.com/streaming/p18w5sk77d8
+
+<img src="https://media.gettr.com/group27/origin/2022/05/08/22/6a38f4b4-3f19-9332-1469-f0db0da7ce91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/8/2022 9:58 PM UTC  - :tv:直播](/content/gettr/p18w5kc6d8e.md)
+
+5/8/2022 Miles Guo: I bet that Nancy Pelosi will visit Taiwan before the end of this June. If not, he will pay you in a ratio of 1:1000. Nancy Pelosi's visit to Taiwan means that the United States will not only grant Taiwan the gen...
+
+<img src="https://media.gettr.com/group5/getter/2022/05/08/21/5c1235f5-faf0-5d18-9d44-f3c5c5b99d90/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p18vedje792.md)
 
 2022.05.08  新中国联邦 | 喜健康   英国数据显示COVID-19疫苗接种者全因死亡率高于未接种者
@@ -64,11 +82,11 @@
 
 ---
 
-[@miles 5/8/2022 9:58 PM UTC  - :tv:直播](/content/gettr/p18w5kc6d8e.md)
+[@miles 5/8/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18v7j340c1.md)
 
-5/8/2022 Miles Guo: I bet that Nancy Pelosi will visit Taiwan before the end of this June. If not, he will pay you in a ratio of 1:1000. Nancy Pelosi's visit to Taiwan means that the United States will not only grant Taiwan the gen...
+5/8/2022 Miles Guo: Scheherazade, the recently confiscated yacht of Putin's, was originally built for me. Because I took on the mission of taking down the CCP and no longer needed the yacht, it was later purchased by Putin. Two yac...
 
-<img src="https://media.gettr.com/group5/getter/2022/05/08/21/5c1235f5-faf0-5d18-9d44-f3c5c5b99d90/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/05/08/22/d5842e22-f0c9-703c-12ff-fa202be9ef09/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +183,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 2022.05.08 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group17/origin/2022/05/08/04/d803659e-0e75-2784-e894-130600370e99/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18rye00e7d.md)
-
-2022-5-7《鸡血王喜币大作战》 第一百八十八集 嘉宾：卡丽熙、Eric
-
-<img src="https://media.gettr.com/group28/origin/2022/05/06/03/3d5b5591-57d4-fe8b-b0ca-2db739ae1868/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p18rzwrb428.md)
-
-2022.05.07  新中国联邦 | 喜财经    通胀高启，加息真能解决问题吗？
-
-<img src="https://media.gettr.com/group49/origin/2022/05/08/01/f74a3578-35f8-790d-8179-0e7093ecaee6/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
