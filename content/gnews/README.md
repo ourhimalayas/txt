@@ -2,6 +2,9 @@
 ---
 
 
+#### [战友们给堵在路上的人们分发水果和水](/content/gnews/2489077.md)
+ `波士顿五月花农场`
+
 #### [雅典娜时报-第286期](/content/gnews/2489073.md)
  `墨尔本雅典娜农场`
 
@@ -13,6 +16,12 @@
 
 #### [受困妇孺和年长平民已全部撤离亚速钢铁厂](/content/gnews/2489030.md)
  `日本东京方舟农场`
+
+#### [中共国疫情及封锁现状](/content/gnews/2489012.md)
+ `NFSC News`
+
+#### [新一轮欧盟制裁瞄准俄能源和更多银行](/content/gnews/2489011.md)
+ `NFSC News`
 
 #### [俄乌战场最新消息精选](/content/gnews/2489010.md)
  `NFSC News`
@@ -55,9 +64,6 @@
 
 #### [分析师称，封城和供应链中断将加速苹果离开中国，印度可能会是受益者](/content/gnews/2488919.md)
  `日本东京方舟农场`
-
-#### [上海小区内发大米，老人被居委工作人员推飞倒地不起](/content/gnews/2488903.md)
- `Tokyo Sakura Video Group`
 
 #### [企业对冲的飙升拖累人民币贬值](/content/gnews/2488850.md)
  `日本东京方舟农场`
@@ -147,12 +153,6 @@
  `NFSC News`
 
 #### [俄乌战局最新消息汇总 05/06](/content/gnews/2487258.md)
- `NFSC News`
-
-#### [截至5.7 俄乌战事汇总](/content/gnews/2486761.md)
- `秘密翻譯組G-Translators`
-
-#### [蓬佩奥再谈中美贸易关系](/content/gnews/2486718.md)
  `NFSC News`
 
 #### [欧洲委员会希望成员国打击数字资产洗钱活动](/content/gnews/2486654.md)
