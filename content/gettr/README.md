@@ -2,6 +2,46 @@
 ---
 
 
+[@miles 5/8/2022 10:37 AM UTC  - :tv:直播](/content/gettr/p18u4n8ff10.md)
+
+5/6/2022 Miles Guo: The US has groomed the CCP to be its archenemy over the past 30 years. The CCP's economic development does not take into account the well-being of future generations, while it seeks to challenge the US. The real...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/08/10/4883b86c-ac7e-e33b-4ae4-35d6465d39cf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/8/2022 8:05 AM UTC ](/content/gettr/p18sy8adcc2.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月6日第63天当日救援统计：
+
+Medyka救援站接待：约319人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约17180人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 63 - Date: Ma...
+
+<img src="https://media.gettr.com/group37/getter/2022/05/08/08/55f4dac9-42d8-d235-eeda-c2c89ca24c74/744dc641b1c6c61cf1823e3d46fab365.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 7:54 AM UTC  - :tv:直播](/content/gettr/p18tlb4b79b.md)
 
 2022.05.08 新中国联邦 | 喜健康   （精华版）
@@ -114,35 +154,11 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 
 ---
 
-[@miles 5/8/2022 8:05 AM UTC ](/content/gettr/p18sy8adcc2.md)
+[@miles 5/8/2022 10:41 AM UTC  - :tv:直播](/content/gettr/p18tozd68aa.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+5/6/2022 Miles Guo: State Secretary Blinken canceled his speech on the US policy towards Communist China due to the collusion between the CCP and the US. On one hand, Yang Jiechi and Wang Yi dared to threaten the US officials in pr...
 
-
-
-2022年5月6日第63天当日救援统计：
-
-Medyka救援站接待：约319人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约17180人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 63 - Date: Ma...
-
-<img src="https://media.gettr.com/group37/getter/2022/05/08/08/55f4dac9-42d8-d235-eeda-c2c89ca24c74/744dc641b1c6c61cf1823e3d46fab365.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/05/08/10/38e18397-c1be-88dd-76b9-221f231ac952/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +183,6 @@ Day 63 - Date: Ma...
 5/6/2022 Miles Guo: The US and Europe will take actions in two areas: 1) sanction the CCP’s overseas businesses and seize all the overseas assets of the CCP, their families and agents. 2) at least seven legislations are underway in...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/07/22/ad2ab113-e349-e555-c358-17f6e65ea993/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:23 PM UTC ](/content/gettr/p18r8tu8c7e.md)
-
-The photo of Mr. He Lingle and I riding in a limo to meet the people from the Morgan Group shows us the importance of seeing through life and death and sticking to our faith. The gods created by the CCP are all lies, while I remain...
-
-<img src="https://media.gettr.com/group35/origin/2022/05/07/22/23a03fac-6dc4-819b-77b9-078e534cb549/819497511366766e3d12cb1618a1a6ba.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:28 PM UTC ](/content/gettr/p18rd8b5c31.md)
-
-On May 6th Miles Guo pointed out in the live broadcast that the New Federal State of China (NFSC) and the Whistleblow Movement need and gather good people. The standard of good people is honest, brave, kind, and selfless. We should...
-
-<img src="https://media.gettr.com/group29/origin/2022/05/07/22/f3bf9584-5f3c-ee58-a654-880ac3b19cb9/83fd6720821a3b64372c7f4257cf8770.png" width="506" height="284">
 
 ---
 
