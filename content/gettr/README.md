@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 7:06 AM UTC  - :tv:直播](/content/gettr/p18t43i808c.md)
+
+5/6/2022 Miles Guo: The Cultural Revolution 2.0 began from the moment when Xi Jinping and Wang Qishan took power; the power-loving Wang Qishan is reduced to attending funerals, etc. as his job, and his life is worse than death; Xi'...
+
+<img src="https://media.gettr.com/group6/getter/2022/05/08/07/de9ba696-6be9-4124-8697-75d22ae07925/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 6:45 AM UTC  - :tv:直播](/content/gettr/p18t0bb0d2a.md)
 
 2022.05.08 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -90,11 +98,11 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 
 ---
 
-[@miles 5/8/2022 7:06 AM UTC  - :tv:直播](/content/gettr/p18t43i808c.md)
+[@miles 5/8/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p18t1bid82e.md)
 
-5/6/2022 Miles Guo: The Cultural Revolution 2.0 began from the moment when Xi Jinping and Wang Qishan took power; the power-loving Wang Qishan is reduced to attending funerals, etc. as his job, and his life is worse than death; Xi'...
+5/6/2022 Miles Guo: Honesty, courage, kindness and selflessness are the four criteria I used to find good people to work with me to take down the CCP; giving up the endeavor to fight against the CCP would bring me power and fortune...
 
-<img src="https://media.gettr.com/group6/getter/2022/05/08/07/de9ba696-6be9-4124-8697-75d22ae07925/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/05/08/07/fd944b2c-ca46-faee-efeb-225f77d385b8/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,16 +159,6 @@ The photo of Mr. He Lingle and I riding in a limo to meet the people from the Mo
 On May 6th Miles Guo pointed out in the live broadcast that the New Federal State of China (NFSC) and the Whistleblow Movement need and gather good people. The standard of good people is honest, brave, kind, and selfless. We should...
 
 <img src="https://media.gettr.com/group29/origin/2022/05/07/22/f3bf9584-5f3c-ee58-a654-880ac3b19cb9/83fd6720821a3b64372c7f4257cf8770.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 9:28 PM UTC  - :tv:直播](/content/gettr/p18r1t6dc41.md)
-
-Guido Koppes thanked the New Federal States of China （NFSC）for bringing hope to the world, and he strongly hoped that NFSC would have its own media to have the right to speak.
-
- Guido Koppes 他感谢新中国联邦给世界带来了希望，他强烈希望新中国联邦有自己的媒体，掌握话语权。
-
-<img src="https://media.gettr.com/group44/origin/2022/05/07/21/92ba0c07-eaf7-0d62-bf1b-e792521df3e7/out.jpg" width="506" height="284">
 
 ---
 
