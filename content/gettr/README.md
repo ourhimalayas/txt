@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 4:25 PM UTC  - :tv:直播](/content/gettr/p18v3zpf1a5.md)
+
+ 5月8号：尊敬的战友们好……七嫂在给七哥做铁锅炖大魚……
+
+<img src="https://media.gettr.com/group29/getter/2022/05/08/16/3f64f717-7eab-0a16-65ff-6c70401141f5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18tv9q0ef6.md)
 
 【Ukraine Rescue】05/06/2022  New York lady Victoria wants to come and help brighten people's day a little bit by putting on an inflatable Pokeman costume and handing out candy and coloring books.  She ran into people from NFSC in Ne...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/8/2022 4:25 PM UTC  - :tv:直播](/content/gettr/p18v3zpf1a5.md)
+[@miles 5/8/2022 5:51 PM UTC  - :tv:直播](/content/gettr/p18uj1944c1.md)
 
- 5月8号：尊敬的战友们好……七嫂在给七哥做铁锅炖大魚……
+2022年5月8日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group29/getter/2022/05/08/16/3f64f717-7eab-0a16-65ff-6c70401141f5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/05/08/17/446722e8-b279-39e1-1a49-4030708a878a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 2022.05.07 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group40/origin/2022/05/07/23/b5291c6d-6ba4-ab32-b75f-8d2c875e47fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p18rvk52a33.md)
-
-5/7/2022 Miles Guo:  Having imposed sanctions on Russia, the West will repeat the same measure on anything CCP-related, which means all the overseas assets of oligarchs, enterprises, individuals and organizations connected to the C...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/07/23/3e91eb49-cc8d-f83c-544f-6d3e9d30417d/out.jpg" width="506" height="284">
 
 ---
 
