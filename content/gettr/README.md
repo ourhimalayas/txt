@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/7/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p18r7b2c373.md)
+
+2022.05.07 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group40/origin/2022/05/07/23/b5291c6d-6ba4-ab32-b75f-8d2c875e47fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/7/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p18rvk52a33.md)
 
 5/7/2022 Miles Guo:  Having imposed sanctions on Russia, the West will repeat the same measure on anything CCP-related, which means all the overseas assets of oligarchs, enterprises, individuals and organizations connected to the C...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/7/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p18r7b2c373.md)
+[@miles 5/8/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p18ren0722b.md)
 
-2022.05.07 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+2022.05.07  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
 
-<img src="https://media.gettr.com/group40/origin/2022/05/07/23/b5291c6d-6ba4-ab32-b75f-8d2c875e47fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/05/08/00/0f854dc3-20e7-e411-4a43-52e3ba47f003/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ MILES GUO 直播 2022-05-07
 2022年5月6日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group26/origin/2022/05/06/17/62116cfd-468c-534c-b920-2e37c09b937c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p18poj5c216.md)
-
-
-
-5月7号：很多战友希望七哥能直播几分钟，请兄弟姐妹等一下．让我拉完身，我就直播上一，20分钟！
-
-<img src="https://media.gettr.com/group40/getter/2022/05/07/14/9490db6d-07fe-445c-0ddc-2ef774148a7d/out.jpg" width="506" height="284">
 
 ---
 
