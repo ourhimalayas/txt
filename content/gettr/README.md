@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 5:29 AM UTC  - :tv:直播](/content/gettr/p18tbep2ae0.md)
+
+Victoria is a volunteer from New York. She dresses as Pikachu and brings some joy to refugees from Ukraine. People in Medyka love her, especially kids. She heard about our Whistleblower Movement and the New Federal State of China w...
+
+<img src="https://media.gettr.com/group43/origin/2022/05/08/05/152e44a4-1d6f-7165-0162-68f8a9c8cc44/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p18t2lzf83d.md)
 
 2022.05.08 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -66,11 +74,11 @@
 
 ---
 
-[@miles 5/8/2022 5:29 AM UTC  - :tv:直播](/content/gettr/p18tbep2ae0.md)
+[@miles 5/8/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p18syx4cea3.md)
 
-Victoria is a volunteer from New York. She dresses as Pikachu and brings some joy to refugees from Ukraine. People in Medyka love her, especially kids. She heard about our Whistleblower Movement and the New Federal State of China w...
+5/6/2022 Miles Guo: A temporary reconciliation might be reached between the US and Communist China before the midterm elections, but this will not change the life-and-death relationship between the CCP and the US. In the face of wa...
 
-<img src="https://media.gettr.com/group43/origin/2022/05/08/05/152e44a4-1d6f-7165-0162-68f8a9c8cc44/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/05/08/06/aca70d4a-6a03-30da-a9c5-12d74e2bfb53/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Guido Koppes thanked the New Federal States of China （NFSC）for bringing hope
 Guido Koppes is an excellent professional photographer, providing news images to many European Medias. When he saw our vests, he started taking pictures. He condemned the unscrupulous Western Medias, big companies and politicians k...
 
 <img src="https://media.gettr.com/group15/origin/2022/05/07/21/601baa6f-f0c0-74c8-c46a-3d0b08a9eb41/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 5:51 PM UTC  - :tv:直播](/content/gettr/p18q1zu258a.md)
-
-2022.05.07 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group29/origin/2022/05/07/17/1c3afe39-d259-79ac-f5d4-b0940ad71200/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
