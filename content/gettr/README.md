@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/8/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p18uj0689f2.md)
+
+2022年5月8日 文贵大直播：母亲节谈中国母亲；疫苗灾难何去何从
+
+<img src="https://media.gettr.com/group42/origin/2022/05/08/11/47724e8b-23cf-4d16-1c4c-2e9ed27aea4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/8/2022 10:41 AM UTC  - :tv:直播](/content/gettr/p18tozd68aa.md)
+
+5/6/2022 Miles Guo: State Secretary Blinken canceled his speech on the US policy towards Communist China due to the collusion between the CCP and the US. On one hand, Yang Jiechi and Wang Yi dared to threaten the US officials in pr...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/08/10/38e18397-c1be-88dd-76b9-221f231ac952/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 8:05 AM UTC ](/content/gettr/p18sy8adcc2.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -154,14 +170,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 
 ---
 
-[@miles 5/8/2022 10:41 AM UTC  - :tv:直播](/content/gettr/p18tozd68aa.md)
-
-5/6/2022 Miles Guo: State Secretary Blinken canceled his speech on the US policy towards Communist China due to the collusion between the CCP and the US. On one hand, Yang Jiechi and Wang Yi dared to threaten the US officials in pr...
-
-<img src="https://media.gettr.com/group50/getter/2022/05/08/10/38e18397-c1be-88dd-76b9-221f231ac952/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/7/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18raxff318.md)
 
 5/7/2022 Miles Guo: There are definitely more than 50 million Chinese people who want to emigrate abroad. The situation in Beijing will only get worse. Those who rescued fellow fighters should have no other wants and desires, and t...
@@ -175,14 +183,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 2022.05.07  PM NFSC news   Lithuanian-Polish Gas Pipeline GIPL Officially Opened
 
 <img src="https://media.gettr.com/group19/origin/2022/05/07/22/86328764-3f49-06fa-bd5f-df57dfec6628/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p18rb27842d.md)
-
-5/6/2022 Miles Guo: The US and Europe will take actions in two areas: 1) sanction the CCP’s overseas businesses and seize all the overseas assets of the CCP, their families and agents. 2) at least seven legislations are underway in...
-
-<img src="https://media.gettr.com/group43/getter/2022/05/07/22/ad2ab113-e349-e555-c358-17f6e65ea993/out.jpg" width="506" height="284">
 
 ---
 
