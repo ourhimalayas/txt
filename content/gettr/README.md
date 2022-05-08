@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p18syx4cea3.md)
+
+5/6/2022 Miles Guo: A temporary reconciliation might be reached between the US and Communist China before the midterm elections, but this will not change the life-and-death relationship between the CCP and the US. In the face of wa...
+
+<img src="https://media.gettr.com/group44/getter/2022/05/08/06/aca70d4a-6a03-30da-a9c5-12d74e2bfb53/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 5:29 AM UTC  - :tv:直播](/content/gettr/p18tbep2ae0.md)
 
 Victoria is a volunteer from New York. She dresses as Pikachu and brings some joy to refugees from Ukraine. People in Medyka love her, especially kids. She heard about our Whistleblower Movement and the New Federal State of China w...
@@ -74,11 +82,11 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 
 ---
 
-[@miles 5/8/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p18syx4cea3.md)
+[@miles 5/8/2022 6:45 AM UTC  - :tv:直播](/content/gettr/p18t0bb0d2a.md)
 
-5/6/2022 Miles Guo: A temporary reconciliation might be reached between the US and Communist China before the midterm elections, but this will not change the life-and-death relationship between the CCP and the US. In the face of wa...
+2022.05.08 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group44/getter/2022/05/08/06/aca70d4a-6a03-30da-a9c5-12d74e2bfb53/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/05/08/06/27419f59-1950-59f0-402c-5f3e2891ac42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Guido Koppes thanked the New Federal States of China （NFSC）for bringing hope
  Guido Koppes 他感谢新中国联邦给世界带来了希望，他强烈希望新中国联邦有自己的媒体，掌握话语权。
 
 <img src="https://media.gettr.com/group44/origin/2022/05/07/21/92ba0c07-eaf7-0d62-bf1b-e792521df3e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p18r7fe32cc.md)
-
-Guido Koppes is an excellent professional photographer, providing news images to many European Medias. When he saw our vests, he started taking pictures. He condemned the unscrupulous Western Medias, big companies and politicians k...
-
-<img src="https://media.gettr.com/group15/origin/2022/05/07/21/601baa6f-f0c0-74c8-c46a-3d0b08a9eb41/out.jpg" width="506" height="284">
 
 ---
 
