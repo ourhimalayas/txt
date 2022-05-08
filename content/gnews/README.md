@@ -2,8 +2,20 @@
 ---
 
 
+#### [20220508郭文贵大直播 ：中西方母亲节的不同中国的母亲节就是孟母断机教子](/content/gnews/2491354.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220508郭文贵大直播 ：共产党选干部只看对父母的态度](/content/gnews/2491328.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220508郭文贵大直播 ：人们容易被互联网的信息误导](/content/gnews/2491318.md)
+ `Tokyo Sakura Video Group`
+
 #### [20220508郭文贵大直播 ：这次封城更加注定中共最终必将会被中共所灭](/content/gnews/2491308.md)
  `Tokyo Sakura Video Group`
+
+#### [05/08/22 香港快讯 【一人选特首】今届投票率97.74% 五次需投票选举中排第四](/content/gnews/2491303.md)
+ `英喜-粵語組`
 
 #### [20220508郭文贵大直播 ： 没有独立思维判断,内心空虚的易被信息误导](/content/gnews/2491291.md)
  `Tokyo Sakura Video Group`
@@ -26,20 +38,11 @@
 #### [20220508郭文贵大直播 ：习近平权力的巩固前所未有，想干啥干啥](/content/gnews/2491088.md)
  `Tokyo Sakura Video Group`
 
-#### [有声&#124;郭先生灭共的心路历程—419断播门篇（三）](/content/gnews/2491043.md)
- `MOSREC`
-
 #### [新中国联邦前线战友受邀参与联合国难民署义工培训](/content/gnews/2491042.md)
  `NFSC News`
 
-#### [【G叻睇真D】据世卫组织估计,中共病毒爆发导致的相关死亡近1500万例](/content/gnews/2490999.md)
- `G-时新闻`
-
 #### [5/8/2022国内经济财经周报：人民币再度大幅下挫；德州仪器裁撤中国区团队](/content/gnews/2490966.md)
  `秘密翻译组金融团队`
-
-#### [有声&#124;新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月4日晚](/content/gnews/2490955.md)
- `MOSREC`
 
 #### [有声&#124;胜利日的游行成为普京的挽歌](/content/gnews/2490938.md)
  `MOSREC`
@@ -64,9 +67,6 @@
 
 #### [离开上海写保证书，视频中男子称下辈子都不会再来上海](/content/gnews/2490800.md)
  `Tokyo Sakura Video Group`
-
-#### [有声&#124;澳大利亚检测到3种奥米克戎新变种](/content/gnews/2490795.md)
- `MOSREC`
 
 #### [2022-05-01 文贵先生直播概要](/content/gnews/2490745.md)
  `喜马拉雅德国纽伦堡正义农场`
