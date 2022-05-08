@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p18vedje792.md)
+
+2022.05.08  新中国联邦 | 喜健康   英国数据显示COVID-19疫苗接种者全因死亡率高于未接种者
+
+<img src="https://media.gettr.com/group18/origin/2022/05/08/20/4f7deb83-9c47-dd51-7da3-9f5bca73636e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 6:36 PM UTC  - :tv:直播](/content/gettr/p18u72o6287.md)
 
 2022-5-8 「亲爱的母亲👩🏻，温暖的家🏡」，#小小尼莫音乐会 🎼第十期，母亲节特别节目💐，爱妈妈，懂妈妈，祝愿妈妈们节日快乐💝
@@ -56,11 +64,11 @@
 
 ---
 
-[@miles 5/8/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p18vedje792.md)
+[@miles 5/8/2022 9:58 PM UTC  - :tv:直播](/content/gettr/p18w5kc6d8e.md)
 
-2022.05.08  新中国联邦 | 喜健康   英国数据显示COVID-19疫苗接种者全因死亡率高于未接种者
+5/8/2022 Miles Guo: I bet that Nancy Pelosi will visit Taiwan before the end of this June. If not, he will pay you in a ratio of 1:1000. Nancy Pelosi's visit to Taiwan means that the United States will not only grant Taiwan the gen...
 
-<img src="https://media.gettr.com/group18/origin/2022/05/08/20/4f7deb83-9c47-dd51-7da3-9f5bca73636e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/05/08/21/5c1235f5-faf0-5d18-9d44-f3c5c5b99d90/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 2022.05.07  新中国联邦 | 喜财经    通胀高启，加息真能解决问题吗？
 
 <img src="https://media.gettr.com/group49/origin/2022/05/08/01/f74a3578-35f8-790d-8179-0e7093ecaee6/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/8/2022 1:15 AM UTC  - :tv:直播](/content/gettr/p18rofu5ee9.md)
-
-2022.05.07  晚 新中国联邦 | 新闻访谈  中共大外宣反映墙内经济即将崩塌
-
-<img src="https://media.gettr.com/group41/origin/2022/05/04/01/61a5cdf2-b6dc-28f9-7f9f-56f624b78123/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
