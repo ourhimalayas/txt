@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p18uj0689f2.md)
+
+2022年5月8日 文贵大直播：母亲节谈中国母亲；疫苗灾难何去何从
+
+<img src="https://media.gettr.com/group42/origin/2022/05/08/11/47724e8b-23cf-4d16-1c4c-2e9ed27aea4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 10:37 AM UTC  - :tv:直播](/content/gettr/p18u4n8ff10.md)
 
 5/6/2022 Miles Guo: The US has groomed the CCP to be its archenemy over the past 30 years. The CCP's economic development does not take into account the well-being of future generations, while it seeks to challenge the US. The real...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/8/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p18uj0689f2.md)
+[@miles 5/8/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18tv9q0ef6.md)
 
-2022年5月8日 文贵大直播：母亲节谈中国母亲；疫苗灾难何去何从
+【Ukraine Rescue】05/06/2022  New York lady Victoria wants to come and help brighten people's day a little bit by putting on an inflatable Pokeman costume and handing out candy and coloring books.  She ran into people from NFSC in Ne...
 
-<img src="https://media.gettr.com/group42/origin/2022/05/08/11/47724e8b-23cf-4d16-1c4c-2e9ed27aea4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/05/08/14/05c5a30d-bc45-e29c-a440-89a06d007674/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 5/7/2022 Miles Guo:  Having imposed sanctions on Russia, the West will repeat the same measure on anything CCP-related, which means all the overseas assets of oligarchs, enterprises, individuals and organizations connected to the C...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/07/23/3e91eb49-cc8d-f83c-544f-6d3e9d30417d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p18raxff318.md)
-
-5/7/2022 Miles Guo: There are definitely more than 50 million Chinese people who want to emigrate abroad. The situation in Beijing will only get worse. Those who rescued fellow fighters should have no other wants and desires, and t...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/07/22/9430e2c7-f06c-df26-a850-0c3a5d5a4989/out.jpg" width="506" height="284">
 
 ---
 
