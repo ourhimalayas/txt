@@ -86,6 +86,9 @@
 #### [离开上海写保证书，视频中男子称下辈子都不会再来上海](/content/gnews/2490800.md)
  `Tokyo Sakura Video Group`
 
+#### [文编&#124;新中国联邦是黑暗世界里的一盏明灯](/content/gnews/2490747.md)
+ `KarmaLabs`
+
 #### [突发！美德州仪器中国区大撤离 产品线全部迁往印度！](/content/gnews/2490580.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -95,11 +98,23 @@
 #### [北京疫情变局：中共北京当局下令六万名“党卫军”奔赴一线抗疫](/content/gnews/2490405.md)
  `战云长天时评`
 
+#### [文编&#124;西方停止中共参与国际外汇交易，中国将出现粮食危机](/content/gnews/2490401.md)
+ `KarmaLabs`
+
 #### [世卫组织收集俄罗斯在乌克兰犯下战争罪的证据](/content/gnews/2490396.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [文编&#124;新中国联邦唯真不破](/content/gnews/2490386.md)
+ `KarmaLabs`
+
 #### [“股汇双杀”是中共擀面杖经济的结果](/content/gnews/2490360.md)
  `澳喜农场`
+
+#### [文编&#124;没有CCP才有正义和平的幸福生活](/content/gnews/2490348.md)
+ `KarmaLabs`
+
+#### [文编&#124;世界上最漂亮的飞机——空客319](/content/gnews/2490327.md)
+ `KarmaLabs`
 
 #### [2022.5.8大直播 郭先生表示佩洛西一定会在6月底前访问台湾](/content/gnews/2490315.md)
  `秘密翻译组-原创组`
@@ -114,21 +129,6 @@
  `KarmaLabs`
 
 #### [文编&#124;俄罗斯必将被解体 在俄战友应尽快离开](/content/gnews/2490230.md)
- `KarmaLabs`
-
-#### [文编&#124;孟建柱王岐山曾家江家将对习重要党羽进行四杀令](/content/gnews/2490217.md)
- `KarmaLabs`
-
-#### [文编&#124;二十大以前国内政治大战全面开始，将有无数官员在政治斗争中被打倒](/content/gnews/2490183.md)
- `KarmaLabs`
-
-#### [文编&#124;如果感染了病毒就伤了战友与七哥的心](/content/gnews/2490096.md)
- `KarmaLabs`
-
-#### [文编&#124;西方切断中共国的SWIFT，禁止中共参与国际外汇交易](/content/gnews/2490061.md)
- `KarmaLabs`
-
-#### [文编&#124;共产党拿着奴役14亿中国人民跟华尔街做交换](/content/gnews/2490033.md)
  `KarmaLabs`
 
 #### [美台关系｜美国务院修改美台关系说明 删去了台湾是中国的一部分](/content/gnews/2489393.md)
