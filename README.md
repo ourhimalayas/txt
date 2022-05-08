@@ -11,8 +11,23 @@
 
 ---
 
+#### [2022年5月8日战时快讯](/content/gnews/2489799.md)
+ `墨尔本雅典娜农场`
+
+#### [朝鲜从潜艇上试射导弹：韩国](/content/gnews/2489794.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [习近平常委会宣布坚持清零政策不动摇](/content/gnews/2489760.md)
+ `澳喜特战旅Gnews`
+
+#### [樱花时政┃日本首相将出席亚洲安全会议，对抗俄罗斯和中共](/content/gnews/2489715.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [2022年5月8日，全球中共病毒疫情情况汇总](/content/gnews/2489708.md)
  `西班牙巴塞罗那喜悦农场`
+
+#### [“一切皆无的一个月，我感到很麻木”](/content/gnews/2489701.md)
+ `英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 #### [CDC调查儿童不明肝炎](/content/gnews/2489699.md)
  `银河歌舞厅`
@@ -29,14 +44,8 @@
 #### [视频&#124;历史上的5月7日](/content/gnews/2489660.md)
  `MOSVIDEO`
 
-#### [樱花时政┃美情报高官称普京输不起侵乌战争](/content/gnews/2489659.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [视频&#124;日英两国首相就《相互准入协议》达成共识](/content/gnews/2489654.md)
  `MOSVIDEO`
-
-#### [《历史的今天》2022.05.08](/content/gnews/2489652.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [郭先生深度揭示习近平的莫德尔周期空想](/content/gnews/2489645.md)
  `NFSC News`
@@ -65,9 +74,6 @@
 #### [近1500 万人死于新冠大流行病](/content/gnews/2489546.md)
  `英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-#### [中日财经爆┃原材料短缺导致价格快速上涨](/content/gnews/2489443.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [秘翻在线：洪水猛于虎，中共国老百姓遇天灾能够依靠谁？](/content/gnews/2489421.md)
  `秘密翻譯組G-Translators`
 
@@ -86,9 +92,6 @@
 #### [乌克兰军队击中另外一艘俄军黑海主力战舰](/content/gnews/2489365.md)
  `NFSC News`
 
-#### [法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2489364.md)
- `NFSC News`
-
 #### [全球灾难之际，新中国联邦应该做好的三件事](/content/gnews/2489353.md)
  `NFSC News`
 
@@ -96,9 +99,6 @@
  `NFSC News`
 
 #### [中日财经爆┃全球经济增长放缓 第一季度迎来复苏转折点](/content/gnews/2489340.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃日本议员访台期间中共军机疯狂扰台](/content/gnews/2489284.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共国高校毕业生面临最难就业季](/content/gnews/2489272.md)
