@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 5/8/2022 6:16 PM UTC ](/content/gettr/p18uzpo8846.md)
+
+5月8号：伟大的智慧的战友，把行动行动行动．发挥到了极致，爱你们，亲爱的兄弟姐妹们。https://gnews.org/zh-hans/2140485/
+
+---
+
 [@miles 5/8/2022 5:51 PM UTC  - :tv:直播](/content/gettr/p18uj1944c1.md)
 
 2022年5月8日 俄乌战争战况播报
@@ -42,9 +48,11 @@
 
 ---
 
-[@miles 5/8/2022 6:16 PM UTC ](/content/gettr/p18uzpo8846.md)
+[@miles 5/8/2022 6:36 PM UTC  - :tv:直播](/content/gettr/p18u72o6287.md)
 
-5月8号：伟大的智慧的战友，把行动行动行动．发挥到了极致，爱你们，亲爱的兄弟姐妹们。https://gnews.org/zh-hans/2140485/
+2022-5-8 「亲爱的母亲👩🏻，温暖的家🏡」，#小小尼莫音乐会 🎼第十期，母亲节特别节目💐，爱妈妈，懂妈妈，祝愿妈妈们节日快乐💝
+
+<img src="https://media.gettr.com/group9/origin/2022/05/08/18/cff8eab8-b30b-9294-54d4-595d27187468/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 5/6/2022 Miles Guo: These people in the photo have witnessed my relationship with the people, my relationship with money, and my relationship with international professionals. The Chinese people who are under the CCP's tyranny have...
 
 <img src="https://media.gettr.com/group41/getter/2022/05/08/00/9da4fd59-bff5-6988-c0d9-feb5f64ceb92/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p18ren0722b.md)
-
-2022.05.07  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
-
-<img src="https://media.gettr.com/group47/origin/2022/05/08/00/0f854dc3-20e7-e411-4a43-52e3ba47f003/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
