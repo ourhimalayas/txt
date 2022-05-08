@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p18rzwrb428.md)
+
+2022.05.07  新中国联邦 | 喜财经    通胀高启，加息真能解决问题吗？
+
+<img src="https://media.gettr.com/group49/origin/2022/05/08/01/f74a3578-35f8-790d-8179-0e7093ecaee6/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 1:15 AM UTC  - :tv:直播](/content/gettr/p18rofu5ee9.md)
 
 2022.05.07  晚 新中国联邦 | 新闻访谈  中共大外宣反映墙内经济即将崩塌
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 5/8/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p18rzwrb428.md)
+[@miles 5/8/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18rye00e7d.md)
 
-2022.05.07  新中国联邦 | 喜财经    通胀高启，加息真能解决问题吗？
+2022-5-7《鸡血王喜币大作战》 第一百八十八集 嘉宾：卡丽熙、Eric
 
-<img src="https://media.gettr.com/group49/origin/2022/05/08/01/f74a3578-35f8-790d-8179-0e7093ecaee6/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/05/06/03/3d5b5591-57d4-fe8b-b0ca-2db739ae1868/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,16 +157,6 @@ Guido Koppes is an excellent professional photographer, providing news images to
 5/6/2022: Noah's Ark is in our hearts as well as in the place where we were born, so we must save our country! I firmly believe we can destroy the CCP, China can be restored to a truly civilized country which is suitable for human ...
 
 <img src="https://media.gettr.com/group26/getter/2022/05/07/15/f3da2907-5682-edae-986e-a848d622a977/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p18pmpq2844.md)
-
-新中国联邦｜真人真事 第52期   香草山农场  Jessica G     
-
-For English: https://gettr.com/streaming/p18pudu601d
-
-<img src="https://media.gettr.com/group29/origin/2022/05/07/14/8165d6c3-2ec8-47fa-cee3-053c1be5b3a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
