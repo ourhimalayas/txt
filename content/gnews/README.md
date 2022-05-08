@@ -2,6 +2,30 @@
 ---
 
 
+#### [20220508郭文贵大直播 ：教育标准化绝对是灾难，中共国已经走入教育标准化的死胡同](/content/gnews/2491463.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220508郭文贵大直播 ：郭先生纯朴的父母培育了他正直的人格](/content/gnews/2491450.md)
+ `Tokyo Sakura Video Group`
+
+#### [疫情期间加拿大政府通过手机追踪加拿大人行踪](/content/gnews/2491445.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [20220508郭文贵大直播 ：教无求、孝无欲！GEDU也应遵循这个准则，一定要打破当前世界教育的局限](/content/gnews/2491434.md)
+ `Tokyo Sakura Video Group`
+
+#### [七国集团线上峰会预定 泽伦斯基总统出席，强调协调合作](/content/gnews/2491433.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [20220508郭文贵大直播 ：胡锦涛母亲只要求他学老子孟子，不学孔子](/content/gnews/2491429.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220508郭文贵大直播 ： 共产党对母亲的孝敬与他们邪恶的一面是成反比的](/content/gnews/2491421.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220508郭文贵大直播 ：一个国家和民族的伟大是由一代代人优良品德的传承](/content/gnews/2491381.md)
+ `Tokyo Sakura Video Group`
+
 #### [20220508郭文贵大直播 ：中西方母亲节的不同中国的母亲节就是孟母断机教子](/content/gnews/2491354.md)
  `Tokyo Sakura Video Group`
 
@@ -11,17 +35,11 @@
 #### [20220508郭文贵大直播 ：人们容易被互联网的信息误导](/content/gnews/2491318.md)
  `Tokyo Sakura Video Group`
 
-#### [20220508郭文贵大直播 ：这次封城更加注定中共最终必将会被中共所灭](/content/gnews/2491308.md)
- `Tokyo Sakura Video Group`
-
 #### [05/08/22 香港快讯 【一人选特首】今届投票率97.74% 五次需投票选举中排第四](/content/gnews/2491303.md)
  `英喜-粵語組`
 
-#### [20220508郭文贵大直播 ： 没有独立思维判断,内心空虚的易被信息误导](/content/gnews/2491291.md)
- `Tokyo Sakura Video Group`
-
-#### [俄罗斯独裁者将表演精心彩排的胜利纪念日阅兵 享受万人欢呼](/content/gnews/2491246.md)
- `温哥华扬帆农场`
+#### [文贵大直播要点（2022年5月8日）](/content/gnews/2491269.md)
+ `波士顿五月花农场`
 
 #### [美中情局长称俄乌战争让习近平仍然决心武力攻台](/content/gnews/2491245.md)
  `温哥华圆成农场🇨🇦`
@@ -35,20 +53,11 @@
 #### [爆料革命“好人”的标准](/content/gnews/2491114.md)
  `NFSC News`
 
-#### [20220508郭文贵大直播 ：习近平权力的巩固前所未有，想干啥干啥](/content/gnews/2491088.md)
- `Tokyo Sakura Video Group`
-
 #### [新中国联邦前线战友受邀参与联合国难民署义工培训](/content/gnews/2491042.md)
  `NFSC News`
 
 #### [5/8/2022国内经济财经周报：人民币再度大幅下挫；德州仪器裁撤中国区团队](/content/gnews/2490966.md)
  `秘密翻译组金融团队`
-
-#### [有声&#124;胜利日的游行成为普京的挽歌](/content/gnews/2490938.md)
- `MOSREC`
-
-#### [有声&#124;美对中共降关税，以期渡过通胀](/content/gnews/2490897.md)
- `MOSREC`
 
 #### [河南省方舱集中营长城](/content/gnews/2490876.md)
  `Tokyo Sakura Video Group`
@@ -59,17 +68,11 @@
 #### [视频&#124;日媒揭露中共封控措施 警告中共政府的话不能信](/content/gnews/2490844.md)
  `MOSVIDEO`
 
-#### [有声&#124;存血栓风险 美国限制使用强生疫苗](/content/gnews/2490843.md)
- `MOSREC`
-
 #### [美国及世界疫情简报（05-08-2022）](/content/gnews/2490836.md)
  `波士顿五月花农场`
 
 #### [离开上海写保证书，视频中男子称下辈子都不会再来上海](/content/gnews/2490800.md)
  `Tokyo Sakura Video Group`
-
-#### [2022-05-01 文贵先生直播概要](/content/gnews/2490745.md)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [伊维菌素是世界上最安全和最基本的药物之一](/content/gnews/2490686.md)
  `加拿大温哥华扬帆农场视频组`
@@ -115,9 +118,6 @@
 
 #### [拜登签署新的1.5亿军事援助乌克兰](/content/gnews/2489958.md)
  `秘密翻譯組G-Translators`
-
-#### [俄罗斯异见人士被迫流亡海外](/content/gnews/2489937.md)
- `澳喜特战旅Gnews`
 
 #### [欧美将在两大领域出手 中共败局无法逆转](/content/gnews/2489679.md)
  `NFSC News`
