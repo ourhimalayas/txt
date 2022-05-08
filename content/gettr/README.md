@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 6:45 AM UTC  - :tv:直播](/content/gettr/p18t0bb0d2a.md)
+
+2022.05.08 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group31/origin/2022/05/08/06/27419f59-1950-59f0-402c-5f3e2891ac42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p18syx4cea3.md)
 
 5/6/2022 Miles Guo: A temporary reconciliation might be reached between the US and Communist China before the midterm elections, but this will not change the life-and-death relationship between the CCP and the US. In the face of wa...
@@ -82,11 +90,11 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 
 ---
 
-[@miles 5/8/2022 6:45 AM UTC  - :tv:直播](/content/gettr/p18t0bb0d2a.md)
+[@miles 5/8/2022 7:06 AM UTC  - :tv:直播](/content/gettr/p18t43i808c.md)
 
-2022.05.08 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+5/6/2022 Miles Guo: The Cultural Revolution 2.0 began from the moment when Xi Jinping and Wang Qishan took power; the power-loving Wang Qishan is reduced to attending funerals, etc. as his job, and his life is worse than death; Xi'...
 
-<img src="https://media.gettr.com/group31/origin/2022/05/08/06/27419f59-1950-59f0-402c-5f3e2891ac42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/05/08/07/de9ba696-6be9-4124-8697-75d22ae07925/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,18 +151,6 @@ The photo of Mr. He Lingle and I riding in a limo to meet the people from the Mo
 On May 6th Miles Guo pointed out in the live broadcast that the New Federal State of China (NFSC) and the Whistleblow Movement need and gather good people. The standard of good people is honest, brave, kind, and selfless. We should...
 
 <img src="https://media.gettr.com/group29/origin/2022/05/07/22/f3bf9584-5f3c-ee58-a654-880ac3b19cb9/83fd6720821a3b64372c7f4257cf8770.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p18r9t6cdce.md)
-
-Mr. Guido Koppes agreed with Nicole that western mainstream media control the narrative. He suggested that the New Federal State of China should have its own media channels to communicate these interviews. 
-
-
-
-Guido Koppes先生同意Nicol...
-
-<img src="https://media.gettr.com/group32/origin/2022/05/07/21/76151bb7-a53d-c37d-9c5a-82768e1d4f1f/out.jpg" width="506" height="284">
 
 ---
 
