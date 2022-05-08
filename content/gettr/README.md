@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 7:54 AM UTC  - :tv:直播](/content/gettr/p18tlb4b79b.md)
+
+2022.05.08 新中国联邦 | 喜健康   （精华版）
+
+<img src="https://media.gettr.com/group29/origin/2022/05/08/07/7da2a070-2c8c-fad4-e99a-8a1d469f86da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p18t1bid82e.md)
 
 5/6/2022 Miles Guo: Honesty, courage, kindness and selflessness are the four criteria I used to find good people to work with me to take down the CCP; giving up the endeavor to fight against the CCP would bring me power and fortune...
@@ -106,11 +114,35 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 
 ---
 
-[@miles 5/8/2022 7:54 AM UTC  - :tv:直播](/content/gettr/p18tlb4b79b.md)
+[@miles 5/8/2022 8:05 AM UTC ](/content/gettr/p18sy8adcc2.md)
 
-2022.05.08 新中国联邦 | 喜健康   （精华版）
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group29/origin/2022/05/08/07/7da2a070-2c8c-fad4-e99a-8a1d469f86da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月6日第63天当日救援统计：
+
+Medyka救援站接待：约319人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约17180人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 63 - Date: Ma...
+
+<img src="https://media.gettr.com/group37/getter/2022/05/08/08/55f4dac9-42d8-d235-eeda-c2c89ca24c74/744dc641b1c6c61cf1823e3d46fab365.jpg" width="506" height="284">
 
 ---
 
@@ -135,14 +167,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 5/6/2022 Miles Guo: The US and Europe will take actions in two areas: 1) sanction the CCP’s overseas businesses and seize all the overseas assets of the CCP, their families and agents. 2) at least seven legislations are underway in...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/07/22/ad2ab113-e349-e555-c358-17f6e65ea993/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 10:21 PM UTC  - 4圖](/content/gettr/p18rd066fa4.md)
-
- 5月7号：尊敬的战友们好．这些事情只有新中国联邦和我们爆料革命……早在几年前就已经警告了全世界……可悲呀，又有多少人拥有真正的生存的智慧．和明是非．辩善恶的能力呢？
-
-<img src="https://media.gettr.com/group44/getter/2022/05/07/22/7f79afcc-c693-34b9-28af-40b24d60757e/b7a0ff36ba4065919abd561c96e282e3.jpg" width="506" height="284">
 
 ---
 
