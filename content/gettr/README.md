@@ -12,6 +12,22 @@ For English：gettr.com/streaming/p18w5sk77d8
 
 ---
 
+[@miles 5/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p18vn6v94ad.md)
+
+2022.05.08  PM NFSC news   Miles Guo Reveals in-depth Xi’s Fantasy on Modelski's Theory
+
+<img src="https://media.gettr.com/group16/origin/2022/05/08/22/ccbe7bca-2cd1-9664-fa04-840de6d281e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/8/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18v7j340c1.md)
+
+5/8/2022 Miles Guo: Scheherazade, the recently confiscated yacht of Putin's, was originally built for me. Because I took on the mission of taking down the CCP and no longer needed the yacht, it was later purchased by Putin. Two yac...
+
+<img src="https://media.gettr.com/group14/getter/2022/05/08/22/d5842e22-f0c9-703c-12ff-fa202be9ef09/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 9:58 PM UTC  - :tv:直播](/content/gettr/p18w5kc6d8e.md)
 
 5/8/2022 Miles Guo: I bet that Nancy Pelosi will visit Taiwan before the end of this June. If not, he will pay you in a ratio of 1:1000. Nancy Pelosi's visit to Taiwan means that the United States will not only grant Taiwan the gen...
@@ -79,14 +95,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 5/6/2022 Miles Guo: The US has groomed the CCP to be its archenemy over the past 30 years. The CCP's economic development does not take into account the well-being of future generations, while it seeks to challenge the US. The real...
 
 <img src="https://media.gettr.com/group47/getter/2022/05/08/10/4883b86c-ac7e-e33b-4ae4-35d6465d39cf/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18v7j340c1.md)
-
-5/8/2022 Miles Guo: Scheherazade, the recently confiscated yacht of Putin's, was originally built for me. Because I took on the mission of taking down the CCP and no longer needed the yacht, it was later purchased by Putin. Two yac...
-
-<img src="https://media.gettr.com/group14/getter/2022/05/08/22/d5842e22-f0c9-703c-12ff-fa202be9ef09/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 63 - Date: Ma...
 Victoria is a volunteer from New York. She dresses as Pikachu and brings some joy to refugees from Ukraine. People in Medyka love her, especially kids. She heard about our Whistleblower Movement and the New Federal State of China w...
 
 <img src="https://media.gettr.com/group43/origin/2022/05/08/05/152e44a4-1d6f-7165-0162-68f8a9c8cc44/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p18t2lzf83d.md)
-
-2022.05.08 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group17/origin/2022/05/08/04/d803659e-0e75-2784-e894-130600370e99/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
