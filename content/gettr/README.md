@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 5:51 PM UTC  - :tv:直播](/content/gettr/p18uj1944c1.md)
+
+2022年5月8日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group8/origin/2022/05/08/17/446722e8-b279-39e1-1a49-4030708a878a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 4:25 PM UTC  - :tv:直播](/content/gettr/p18v3zpf1a5.md)
 
  5月8号：尊敬的战友们好……七嫂在给七哥做铁锅炖大魚……
@@ -34,11 +42,9 @@
 
 ---
 
-[@miles 5/8/2022 5:51 PM UTC  - :tv:直播](/content/gettr/p18uj1944c1.md)
+[@miles 5/8/2022 6:16 PM UTC ](/content/gettr/p18uzpo8846.md)
 
-2022年5月8日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group8/origin/2022/05/08/17/446722e8-b279-39e1-1a49-4030708a878a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+5月8号：伟大的智慧的战友，把行动行动行动．发挥到了极致，爱你们，亲爱的兄弟姐妹们。https://gnews.org/zh-hans/2140485/
 
 ---
 
@@ -175,14 +181,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 2022.05.07  晚 新中国联邦 | 新闻   美国大学生：新中国联邦的存在吓坏了中共；郭先生谈家庭对个人品质形成的巨大影响
 
 <img src="https://media.gettr.com/group47/origin/2022/05/08/00/0f854dc3-20e7-e411-4a43-52e3ba47f003/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p18r7b2c373.md)
-
-2022.05.07 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-
-<img src="https://media.gettr.com/group40/origin/2022/05/07/23/b5291c6d-6ba4-ab32-b75f-8d2c875e47fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
