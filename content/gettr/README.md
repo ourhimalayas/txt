@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p18t2lzf83d.md)
+
+2022.05.08 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group17/origin/2022/05/08/04/d803659e-0e75-2784-e894-130600370e99/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18rye00e7d.md)
 
 2022-5-7《鸡血王喜币大作战》 第一百八十八集 嘉宾：卡丽熙、Eric
@@ -58,11 +66,11 @@
 
 ---
 
-[@miles 5/8/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p18t2lzf83d.md)
+[@miles 5/8/2022 5:29 AM UTC  - :tv:直播](/content/gettr/p18tbep2ae0.md)
 
-2022.05.08 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+Victoria is a volunteer from New York. She dresses as Pikachu and brings some joy to refugees from Ukraine. People in Medyka love her, especially kids. She heard about our Whistleblower Movement and the New Federal State of China w...
 
-<img src="https://media.gettr.com/group17/origin/2022/05/08/04/d803659e-0e75-2784-e894-130600370e99/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/08/05/152e44a4-1d6f-7165-0162-68f8a9c8cc44/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Guido Koppes is an excellent professional photographer, providing news images to
 2022.05.07 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group29/origin/2022/05/07/17/1c3afe39-d259-79ac-f5d4-b0940ad71200/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/7/2022 3:17 PM UTC  - :tv:直播](/content/gettr/p18qcrreb31.md)
-
-5/6/2022: Noah's Ark is in our hearts as well as in the place where we were born, so we must save our country! I firmly believe we can destroy the CCP, China can be restored to a truly civilized country which is suitable for human ...
-
-<img src="https://media.gettr.com/group26/getter/2022/05/07/15/f3da2907-5682-edae-986e-a848d622a977/out.jpg" width="506" height="284">
 
 ---
 
