@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 6:36 PM UTC  - :tv:直播](/content/gettr/p18u72o6287.md)
+
+2022-5-8 「亲爱的母亲👩🏻，温暖的家🏡」，#小小尼莫音乐会 🎼第十期，母亲节特别节目💐，爱妈妈，懂妈妈，祝愿妈妈们节日快乐💝
+
+<img src="https://media.gettr.com/group9/origin/2022/05/08/18/cff8eab8-b30b-9294-54d4-595d27187468/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 6:16 PM UTC ](/content/gettr/p18uzpo8846.md)
 
 5月8号：伟大的智慧的战友，把行动行动行动．发挥到了极致，爱你们，亲爱的兄弟姐妹们。https://gnews.org/zh-hans/2140485/
@@ -48,11 +56,11 @@
 
 ---
 
-[@miles 5/8/2022 6:36 PM UTC  - :tv:直播](/content/gettr/p18u72o6287.md)
+[@miles 5/8/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p18vedje792.md)
 
-2022-5-8 「亲爱的母亲👩🏻，温暖的家🏡」，#小小尼莫音乐会 🎼第十期，母亲节特别节目💐，爱妈妈，懂妈妈，祝愿妈妈们节日快乐💝
+2022.05.08  新中国联邦 | 喜健康   英国数据显示COVID-19疫苗接种者全因死亡率高于未接种者
 
-<img src="https://media.gettr.com/group9/origin/2022/05/08/18/cff8eab8-b30b-9294-54d4-595d27187468/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/05/08/20/4f7deb83-9c47-dd51-7da3-9f5bca73636e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Victoria is a volunteer from New York. She dresses as Pikachu and brings some jo
 2022.05.07  晚 新中国联邦 | 新闻访谈  中共大外宣反映墙内经济即将崩塌
 
 <img src="https://media.gettr.com/group41/origin/2022/05/04/01/61a5cdf2-b6dc-28f9-7f9f-56f624b78123/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/8/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p18s0nqb648.md)
-
-5/6/2022 Miles Guo: These people in the photo have witnessed my relationship with the people, my relationship with money, and my relationship with international professionals. The Chinese people who are under the CCP's tyranny have...
-
-<img src="https://media.gettr.com/group41/getter/2022/05/08/00/9da4fd59-bff5-6988-c0d9-feb5f64ceb92/out.jpg" width="506" height="284">
 
 ---
 
