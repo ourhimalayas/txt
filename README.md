@@ -11,6 +11,30 @@
 
 ---
 
+#### [美国疾控中心正在调查109例不明原因儿童肝炎病例](/content/gnews/2489006.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [杀人的疫苗](/content/gnews/2488994.md)
+ `Tokyo Sakura Video Group`
+
+#### [台湾：若中共武力侵台 希望国际社会制裁中共](/content/gnews/2488987.md)
+ `日本东京方舟农场`
+
+#### [俄罗斯 弗拉季卡夫卡兹&#8230;维卡利纳市场发生大规模火灾和爆炸](/content/gnews/2488973.md)
+ `Tokyo Sakura Video Group`
+
+#### [塔利班颁布新法令，要求阿富汗女性在公共场所身穿布卡罩袍！](/content/gnews/2488957.md)
+ `Tokyo Sakura Video Group`
+
+#### [截止5月5日乌克兰救援数据信息](/content/gnews/2488953.md)
+ `TokyoSakuraDesignGroup`
+
+#### [又一艘俄罗斯护卫舰在黑海燃烧](/content/gnews/2488939.md)
+ `墨尔本雅典娜农场`
+
+#### [乌克兰军方在哈尔科夫地区将一股邋遢窘迫的俄军俘虏！](/content/gnews/2488937.md)
+ `Tokyo Sakura Video Group`
+
 #### [美国向乌克兰提供情报帮其杀死俄罗斯高级将领](/content/gnews/2488933.md)
  `topnews`
 
@@ -19,6 +43,9 @@
 
 #### [上海部分地区解封后的购物人群，排队购物](/content/gnews/2488921.md)
  `Tokyo Sakura Video Group`
+
+#### [分析师称，封城和供应链中断将加速苹果离开中国，印度可能会是受益者](/content/gnews/2488919.md)
+ `日本东京方舟农场`
 
 #### [俄军队官员和联邦安全局 &#8220;期待推翻俄罗斯领导人“——普京 &#8220;为政变做准备&#8221;](/content/gnews/2488904.md)
  `topnews`
@@ -32,17 +59,11 @@
 #### [乌克兰武装力量收复了乌克兰南部的几个城镇](/content/gnews/2488874.md)
  `topnews`
 
-#### [美试行全球互联网新秩序来应对中共的数字专制主义](/content/gnews/2488854.md)
- `topnews`
-
 #### [企业对冲的飙升拖累人民币贬值](/content/gnews/2488850.md)
  `日本东京方舟农场`
 
 #### [加州开始接受并监管加密货币](/content/gnews/2488843.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [令人不安的中共军事战略](/content/gnews/2488836.md)
- `topnews`
 
 #### [今日盖特大V推荐 — 华盛顿自由灯塔（The Washington Free Beacon)](/content/gnews/2488813.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -80,17 +101,8 @@
 #### [中日财经爆┃东欧新天然气管道开通 减少依赖俄罗斯](/content/gnews/2488440.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [有声&#124;从卡尔的《轴心时代》看轴心法](/content/gnews/2488431.md)
- `MOSREC`
-
 #### [珠穆朗玛峰在停止生长之前能达到多高？](/content/gnews/2488411.md)
  `日本东京方舟农场`
-
-#### [有声&#124;郭文贵先生谈沼泽地](/content/gnews/2488403.md)
- `MOSREC`
-
-#### [有声&#124;荒唐歌](/content/gnews/2488385.md)
- `MOSREC`
 
 #### [从“信息技术应用创新”分析中共的假骗偷](/content/gnews/2488361.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -110,20 +122,11 @@
 #### [2022年5月7日浙江舟山出现四百年一遇天空异象:血空](/content/gnews/2488271.md)
  `喜马拉雅日本银河系农场`
 
-#### [意大利冻结与普京有关的“谢赫拉扎德”号超级游艇](/content/gnews/2488230.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [因新冠疫苗受伤的飞行员疾呼：我可能再也飞不了（续2/2）](/content/gnews/2488176.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [根据物理学家和哲学家的说法，时间可能不存在——但这没关系](/content/gnews/2488135.md)
- `日本东京方舟农场`
-
 #### [英国将向乌克兰提供 13 亿英镑的进一步军事支持](/content/gnews/2488086.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月7日晚](/content/gnews/2488073.md)
- `纽约香草山MOS01`
 
 #### [一项研究结果表明中共病毒通过空气传播的可能性与通过物品表面传播的相比要高出 1,000 倍](/content/gnews/2488072.md)
  `喜马拉雅-华盛顿DC农场`
@@ -135,9 +138,6 @@
  `西班牙巴塞罗那喜悦农场`
 
 #### [22岁英国青年接种中共病毒疫苗后疾病缠身](/content/gnews/2487859.md)
- `蓝莲花农场`
-
-#### [为避免被逐出美国股市 中共就审计协议谈判妥协](/content/gnews/2487858.md)
  `蓝莲花农场`
 
 #### [想在家里做出餐厅水准的三明治吗？ 现在开始吧](/content/gnews/2487746.md)
