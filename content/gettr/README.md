@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18rye00e7d.md)
+
+2022-5-7《鸡血王喜币大作战》 第一百八十八集 嘉宾：卡丽熙、Eric
+
+<img src="https://media.gettr.com/group28/origin/2022/05/06/03/3d5b5591-57d4-fe8b-b0ca-2db739ae1868/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p18rzwrb428.md)
 
 2022.05.07  新中国联邦 | 喜财经    通胀高启，加息真能解决问题吗？
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 5/8/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p18rye00e7d.md)
+[@miles 5/8/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p18t2lzf83d.md)
 
-2022-5-7《鸡血王喜币大作战》 第一百八十八集 嘉宾：卡丽熙、Eric
+2022.05.08 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group28/origin/2022/05/06/03/3d5b5591-57d4-fe8b-b0ca-2db739ae1868/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/05/08/04/d803659e-0e75-2784-e894-130600370e99/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Guido Koppes is an excellent professional photographer, providing news images to
 5/6/2022: Noah's Ark is in our hearts as well as in the place where we were born, so we must save our country! I firmly believe we can destroy the CCP, China can be restored to a truly civilized country which is suitable for human ...
 
 <img src="https://media.gettr.com/group26/getter/2022/05/07/15/f3da2907-5682-edae-986e-a848d622a977/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/7/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p18polc1b6c.md)
-
-5/6/2022 Miles Guo: For those who are capable and can survive abroad, I suggest that you leave Communist China. Even if you stay in the small neighboring countries, you will be better off than in Communist China. Everyone should ma...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/07/14/299c59e0-31b7-a8d1-b2ce-a74d40223207/out.jpg" width="506" height="284">
 
 ---
 
