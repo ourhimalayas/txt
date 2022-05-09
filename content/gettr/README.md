@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p18x8m7c93f.md)
+
+2022.05.09 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group13/origin/2022/05/09/06/ea8645f5-b151-397a-47b3-095cac0d0418/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 6:26 AM UTC  - :tv:直播](/content/gettr/p18xf3rab06.md)
 
 5/8/2022 Miles Guo: Not mentioning Xi Jinping in the headlines of People's Daily is not a sign that Xi lost his power. The Chinese people are willing to believe such a rumor because they always indulge in the wishful thinking that ...
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 5/9/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p18x8m7c93f.md)
+[@miles 5/9/2022 8:08 AM UTC  - :tv:直播](/content/gettr/p18x8jh5b56.md)
 
-2022.05.09 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+2022.05.08 文贵大直播（精华版）
 
-<img src="https://media.gettr.com/group13/origin/2022/05/09/06/ea8645f5-b151-397a-47b3-095cac0d0418/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/05/09/08/8a0f8ff6-6da3-5021-1575-e84a398886ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 2022年5月8日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group8/origin/2022/05/08/17/446722e8-b279-39e1-1a49-4030708a878a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/8/2022 4:25 PM UTC  - :tv:直播](/content/gettr/p18v3zpf1a5.md)
-
- 5月8号：尊敬的战友们好……七嫂在给七哥做铁锅炖大魚……
-
-<img src="https://media.gettr.com/group29/getter/2022/05/08/16/3f64f717-7eab-0a16-65ff-6c70401141f5/out.jpg" width="506" height="284">
 
 ---
 
