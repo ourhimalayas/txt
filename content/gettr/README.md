@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 5:40 AM UTC  - :tv:直播](/content/gettr/p18xx8a96ba.md)
+
+5/8/2022 Miles Guo: Initiating the Whistleblowers' Movement and persisting until today, the influence of my parents on me is the foundation of everything. My parents maintained their living principles and ethics in their humble lif...
+
+<img src="https://media.gettr.com/group8/getter/2022/05/09/05/cb72eef7-d210-ef2b-8cc5-7fd894dcea66/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18x8ol1d72.md)
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 5/9/2022 5:40 AM UTC  - :tv:直播](/content/gettr/p18xx8a96ba.md)
+[@miles 5/9/2022 6:26 AM UTC  - :tv:直播](/content/gettr/p18xf3rab06.md)
 
-5/8/2022 Miles Guo: Initiating the Whistleblowers' Movement and persisting until today, the influence of my parents on me is the foundation of everything. My parents maintained their living principles and ethics in their humble lif...
+5/8/2022 Miles Guo: Not mentioning Xi Jinping in the headlines of People's Daily is not a sign that Xi lost his power. The Chinese people are willing to believe such a rumor because they always indulge in the wishful thinking that ...
 
-<img src="https://media.gettr.com/group8/getter/2022/05/09/05/cb72eef7-d210-ef2b-8cc5-7fd894dcea66/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/05/09/06/9ed4ad7d-ea37-5d47-d599-4e2d49a66409/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 【Ukraine Rescue】05/06/2022  New York lady Victoria wants to come and help brighten people's day a little bit by putting on an inflatable Pokeman costume and handing out candy and coloring books.  She ran into people from NFSC in Ne...
 
 <img src="https://media.gettr.com/group47/getter/2022/05/08/14/05c5a30d-bc45-e29c-a440-89a06d007674/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p18uj0689f2.md)
-
-2022年5月8日 文贵大直播：母亲节谈中国母亲；疫苗灾难何去何从
-
-<img src="https://media.gettr.com/group42/origin/2022/05/08/11/47724e8b-23cf-4d16-1c4c-2e9ed27aea4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
