@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/9/2022 2:45 AM UTC  - :tv:直播](/content/gettr/p18w4xpa78f.md)
+
+5/8/2022 Miles Guo: Most of the CCP cadres still maintain the bottom line of humanity - filial piety. This is why 99% of the CCP members are good people. I think it is those in the CCP that will end up destroying the CCP. Because t...
+
+<img src="https://media.gettr.com/group40/getter/2022/05/09/02/4527a989-12fd-1b3c-9e31-c46f3097165b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p18uj228131.md)
+
+2022.05.08  农场联盟工作汇报
+
+<img src="https://media.gettr.com/group25/origin/2022/05/09/01/8fa00383-5f30-c434-064d-2e5cf28348e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p18wfjjb5e7.md)
 
 2022.05.08  晚 新中国联邦 | 新闻访谈   马斯克收购推特的不确定性
@@ -49,14 +65,6 @@
 For English：gettr.com/streaming/p18w5sk77d8
 
 <img src="https://media.gettr.com/group27/origin/2022/05/08/22/6a38f4b4-3f19-9332-1469-f0db0da7ce91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p18uj228131.md)
-
-2022.05.08  农场联盟工作汇报
-
-<img src="https://media.gettr.com/group25/origin/2022/05/09/01/8fa00383-5f30-c434-064d-2e5cf28348e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 63 - Date: Ma...
 
 <img src="https://media.gettr.com/group37/getter/2022/05/08/08/55f4dac9-42d8-d235-eeda-c2c89ca24c74/744dc641b1c6c61cf1823e3d46fab365.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 7:54 AM UTC  - :tv:直播](/content/gettr/p18tlb4b79b.md)
-
-2022.05.08 新中国联邦 | 喜健康   （精华版）
-
-<img src="https://media.gettr.com/group29/origin/2022/05/08/07/7da2a070-2c8c-fad4-e99a-8a1d469f86da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
