@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 2:45 AM UTC  - :tv:直播](/content/gettr/p18w4xpa78f.md)
+
+5/8/2022 Miles Guo: Most of the CCP cadres still maintain the bottom line of humanity - filial piety. This is why 99% of the CCP members are good people. I think it is those in the CCP that will end up destroying the CCP. Because t...
+
+<img src="https://media.gettr.com/group40/getter/2022/05/09/02/4527a989-12fd-1b3c-9e31-c46f3097165b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 1:47 AM UTC  - :tv:直播](/content/gettr/p18w7du3621.md)
 
 5/8/2022 Miles Guo: Almost all the CCP senior cadres are extremely filial to their parents, with Xi Jinping being the No. 1 filial son in the world. However, the CCP does not allow the rest of the Chinese people to have filial resp...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/9/2022 2:45 AM UTC  - :tv:直播](/content/gettr/p18w4xpa78f.md)
+[@williamwong 5/9/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p18wuvx2ad1.md)
 
-5/8/2022 Miles Guo: Most of the CCP cadres still maintain the bottom line of humanity - filial piety. This is why 99% of the CCP members are good people. I think it is those in the CCP that will end up destroying the CCP. Because t...
+2022-5-8《鸡血王喜币大作战》 第一百八十九集 嘉宾：齐天二圣、七里香
 
-<img src="https://media.gettr.com/group40/getter/2022/05/09/02/4527a989-12fd-1b3c-9e31-c46f3097165b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/05/06/03/3d5b5591-57d4-fe8b-b0ca-2db739ae1868/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,38 +159,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 5/6/2022 Miles Guo: State Secretary Blinken canceled his speech on the US policy towards Communist China due to the collusion between the CCP and the US. On one hand, Yang Jiechi and Wang Yi dared to threaten the US officials in pr...
 
 <img src="https://media.gettr.com/group50/getter/2022/05/08/10/38e18397-c1be-88dd-76b9-221f231ac952/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 8:05 AM UTC ](/content/gettr/p18sy8adcc2.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月6日第63天当日救援统计：
-
-Medyka救援站接待：约319人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约17180人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 63 - Date: Ma...
-
-<img src="https://media.gettr.com/group37/getter/2022/05/08/08/55f4dac9-42d8-d235-eeda-c2c89ca24c74/744dc641b1c6c61cf1823e3d46fab365.jpg" width="506" height="284">
 
 ---
 
