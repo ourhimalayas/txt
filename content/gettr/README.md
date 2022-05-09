@@ -10,11 +10,13 @@
 
 ---
 
-[@miles 5/9/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p190mha3380.md)
+[@miles 5/9/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p190qnpccde.md)
 
-5/9/2022 Miles Guo: From Russia’s May 9 Victory Day parade to the gloom of world economy, all forebode the demise of the CCP; Russia will definitely be disintegrated; on this June 4th, the 2nd anniversary of the New Federal State o...
+2022.05.09  NFSC fringe  Episode 186
 
-<img src="https://media.gettr.com/group15/getter/2022/05/09/23/e0402c5e-9509-f682-0f05-6b3013966f54/out.jpg" width="506" height="284">
+中文同传：https://gettr.com/streaming/p190w58efc7
+
+<img src="https://media.gettr.com/group45/origin/2022/05/09/23/cdb2e789-17d2-8c22-ef3d-6e18d4411020/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +25,14 @@
 5/8/2022 Miles Guo: Once the US imposes sanctions on the CCP, any assets that were traded in the US dollars may be seized. The New Federal State of China can help protect the Chinese people's wealth because we are not involved in a...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/09/23/f4b152c7-1a32-87e6-646d-64be43153dc8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p190mha3380.md)
+
+5/9/2022 Miles Guo: From Russia’s May 9 Victory Day parade to the gloom of world economy, all forebode the demise of the CCP; Russia will definitely be disintegrated; on this June 4th, the 2nd anniversary of the New Federal State o...
+
+<img src="https://media.gettr.com/group15/getter/2022/05/09/23/e0402c5e-9509-f682-0f05-6b3013966f54/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 2022.05.09  新中国联邦 | 军情室  莫斯科胜利日阅兵，盘点乌军反舰战绩，波兰参战意义重大，G7暂停俄石油进口，十月革命背后的真相
 
 <img src="https://media.gettr.com/group5/origin/2022/05/09/10/40432493-2524-37d3-6763-3fbbeadbc86d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 9:56 AM UTC  - :tv:直播](/content/gettr/p18xqrqd3b2.md)
-
- 5月9号：衷心地DC农场．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
-
-<img src="https://media.gettr.com/group41/getter/2022/05/09/09/b8164de4-8b68-4139-c515-5d8c7efd8011/out.jpg" width="506" height="284">
 
 ---
 
