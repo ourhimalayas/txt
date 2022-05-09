@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p18w2ia87f2.md)
+
+5/8/2022 Miles Guo: The relation between Poland and Ukraine is the same as the one between Taiwan and Hong Kong under the threat of the Chinese Communist Party, Poland has no choice but to get involved in fighting against Russia to...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/09/00/118b45d1-8a41-79a3-d971-16ae3733d74b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p18vn6v94ad.md)
 
 2022.05.08  PM NFSC news   Miles Guo Reveals in-depth Xi’s Fantasy on Modelski's Theory
@@ -20,11 +28,11 @@ For English：gettr.com/streaming/p18w5sk77d8
 
 ---
 
-[@miles 5/9/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p18w2ia87f2.md)
+[@miles 5/9/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p18wbu7421d.md)
 
-5/8/2022 Miles Guo: The relation between Poland and Ukraine is the same as the one between Taiwan and Hong Kong under the threat of the Chinese Communist Party, Poland has no choice but to get involved in fighting against Russia to...
+2022.05.08  晚 新中国联邦 | 新闻   中共制造的灾难将长久而深远；中共海外资产将被全部制裁 唯有喜币最安全
 
-<img src="https://media.gettr.com/group50/getter/2022/05/09/00/118b45d1-8a41-79a3-d971-16ae3733d74b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/05/09/00/f604149d-2d6b-045f-eac5-de599ae2caff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 63 - Date: Ma...
 2022.05.08 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group31/origin/2022/05/08/06/27419f59-1950-59f0-402c-5f3e2891ac42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p18syx4cea3.md)
-
-5/6/2022 Miles Guo: A temporary reconciliation might be reached between the US and Communist China before the midterm elections, but this will not change the life-and-death relationship between the CCP and the US. In the face of wa...
-
-<img src="https://media.gettr.com/group44/getter/2022/05/08/06/aca70d4a-6a03-30da-a9c5-12d74e2bfb53/out.jpg" width="506" height="284">
 
 ---
 
