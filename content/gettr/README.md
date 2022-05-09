@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 5/9/2022 5:53 PM UTC  - :tv:直播](/content/gettr/p18zv2f78dc.md)
+
+5/8/2022 Miles Guo: The defector scientist has developed a new treatment regimen to detoxify the COVID vaccines, and the cure rate is 99%! Due to lack of tolerance data on children and those with pre-existing medical conditions, th...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/09/17/70fd0f0e-17cb-6542-b681-7047b036f628/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 5:11 PM UTC  - :tv:直播](/content/gettr/p18z6vv5552.md)
+
+5月9日，衷心地，感谢圆成农场．制作的让七哥流哈喇子．流眼泪的视频！
+
+
+
+【预祝我亲爱的敬爱的七哥生日快乐🎁🎂
+
+这是圆成农场战友为七哥准备了生日祝福，虽然是遥祝，但是诚意满满的，都是对我七哥的真爱，期望有一天灭共后。亲手给七哥做一碗长寿面奉上，让七哥幸福安康，平和，淡定从容的不再操心疲惫的美好生活🙏❤️
+
+https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
+
+<img src="https://media.gettr.com/group43/getter/2022/05/09/17/e8656deb-86d7-de38-8baf-d2a24d56b184/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p18zbj5a17b.md)
 
 5/8/2022 Miles Guo: When the CCP selects cadres, it looks first at how they treat their parents, followed by the abilities and whether they bribe or not. How did Hu Jintao rise to power? What kind of relationship does he have with ...
@@ -104,19 +128,11 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 5:11 PM UTC  - :tv:直播](/content/gettr/p18z6vv5552.md)
+[@miles 5/9/2022 5:53 PM UTC  - :tv:直播](/content/gettr/p18y47wb05c.md)
 
-5月9日，衷心地，感谢圆成农场．制作的让七哥流哈喇子．流眼泪的视频！
+2022.05.09 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-
-
-【预祝我亲爱的敬爱的七哥生日快乐🎁🎂
-
-这是圆成农场战友为七哥准备了生日祝福，虽然是遥祝，但是诚意满满的，都是对我七哥的真爱，期望有一天灭共后。亲手给七哥做一碗长寿面奉上，让七哥幸福安康，平和，淡定从容的不再操心疲惫的美好生活🙏❤️
-
-https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
-
-<img src="https://media.gettr.com/group43/getter/2022/05/09/17/e8656deb-86d7-de38-8baf-d2a24d56b184/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/05/09/17/3c128167-b622-f16c-f03b-ea3161f81522/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -181,22 +197,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 2022-5-8《鸡血王喜币大作战》 第一百八十九集 嘉宾：齐天二圣、七里香
 
 <img src="https://media.gettr.com/group34/origin/2022/04/15/03/149cc50f-0284-f894-d6e2-5124afd45a65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 2:45 AM UTC  - :tv:直播](/content/gettr/p18w4xpa78f.md)
-
-5/8/2022 Miles Guo: Most of the CCP cadres still maintain the bottom line of humanity - filial piety. This is why 99% of the CCP members are good people. I think it is those in the CCP that will end up destroying the CCP. Because t...
-
-<img src="https://media.gettr.com/group40/getter/2022/05/09/02/4527a989-12fd-1b3c-9e31-c46f3097165b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p18uj228131.md)
-
-2022.05.08  农场联盟工作汇报
-
-<img src="https://media.gettr.com/group25/origin/2022/05/09/01/8fa00383-5f30-c434-064d-2e5cf28348e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
