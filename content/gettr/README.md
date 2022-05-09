@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 6:26 AM UTC  - :tv:直播](/content/gettr/p18xf3rab06.md)
+
+5/8/2022 Miles Guo: Not mentioning Xi Jinping in the headlines of People's Daily is not a sign that Xi lost his power. The Chinese people are willing to believe such a rumor because they always indulge in the wishful thinking that ...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/09/06/9ed4ad7d-ea37-5d47-d599-4e2d49a66409/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 5:40 AM UTC  - :tv:直播](/content/gettr/p18xx8a96ba.md)
 
 5/8/2022 Miles Guo: Initiating the Whistleblowers' Movement and persisting until today, the influence of my parents on me is the foundation of everything. My parents maintained their living principles and ethics in their humble lif...
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 5/9/2022 6:26 AM UTC  - :tv:直播](/content/gettr/p18xf3rab06.md)
+[@miles 5/9/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p18x8m7c93f.md)
 
-5/8/2022 Miles Guo: Not mentioning Xi Jinping in the headlines of People's Daily is not a sign that Xi lost his power. The Chinese people are willing to believe such a rumor because they always indulge in the wishful thinking that ...
+2022.05.09 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group35/getter/2022/05/09/06/9ed4ad7d-ea37-5d47-d599-4e2d49a66409/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/05/09/06/ea8645f5-b151-397a-47b3-095cac0d0418/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English：gettr.com/streaming/p18w5sk77d8
  5月8号：尊敬的战友们好……七嫂在给七哥做铁锅炖大魚……
 
 <img src="https://media.gettr.com/group29/getter/2022/05/08/16/3f64f717-7eab-0a16-65ff-6c70401141f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18tv9q0ef6.md)
-
-【Ukraine Rescue】05/06/2022  New York lady Victoria wants to come and help brighten people's day a little bit by putting on an inflatable Pokeman costume and handing out candy and coloring books.  She ran into people from NFSC in Ne...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/08/14/05c5a30d-bc45-e29c-a440-89a06d007674/out.jpg" width="506" height="284">
 
 ---
 
