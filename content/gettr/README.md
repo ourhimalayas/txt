@@ -34,11 +34,27 @@ Day 64 - Date: Ma...
 
 ---
 
+[@miles 5/9/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p18yspa6594.md)
+
+2022.05.09  新中国联邦 | 军情室  莫斯科胜利日阅兵，盘点乌军反舰战绩，波兰参战意义重大，G7暂停俄石油进口，十月革命背后的真相
+
+<img src="https://media.gettr.com/group5/origin/2022/05/09/10/40432493-2524-37d3-6763-3fbbeadbc86d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 9:53 AM UTC  - :tv:直播](/content/gettr/p18x99h82b0.md)
 
  5月9号：衷心地，感谢秘密翻译组．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
 
 <img src="https://media.gettr.com/group35/getter/2022/05/09/09/3999208b-770c-92db-ef8c-ba8b5c77c62e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 9:56 AM UTC  - :tv:直播](/content/gettr/p18xqrqd3b2.md)
+
+ 5月9号：衷心地DC农场．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
+
+<img src="https://media.gettr.com/group41/getter/2022/05/09/09/b8164de4-8b68-4139-c515-5d8c7efd8011/out.jpg" width="506" height="284">
 
 ---
 
@@ -106,14 +122,6 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 9:56 AM UTC  - :tv:直播](/content/gettr/p18xqrqd3b2.md)
-
- 5月9号：衷心地DC农场．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
-
-<img src="https://media.gettr.com/group41/getter/2022/05/09/09/b8164de4-8b68-4139-c515-5d8c7efd8011/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/9/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p18uj228131.md)
 
 2022.05.08  农场联盟工作汇报
@@ -177,14 +185,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 5/8/2022 Miles Guo: I bet that Nancy Pelosi will visit Taiwan before the end of this June. If not, he will pay you in a ratio of 1:1000. Nancy Pelosi's visit to Taiwan means that the United States will not only grant Taiwan the gen...
 
 <img src="https://media.gettr.com/group5/getter/2022/05/08/21/5c1235f5-faf0-5d18-9d44-f3c5c5b99d90/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p18vedje792.md)
-
-2022.05.08  新中国联邦 | 喜健康   英国数据显示COVID-19疫苗接种者全因死亡率高于未接种者
-
-<img src="https://media.gettr.com/group18/origin/2022/05/08/20/4f7deb83-9c47-dd51-7da3-9f5bca73636e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
