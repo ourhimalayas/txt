@@ -2,6 +2,18 @@
 ---
 
 
+#### [＂抖音脑＂：中共控制的社交应用程序毒害孩子](/content/gnews/2495817.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [美中情局局长：中共正重新评估俄乌战争对中共攻台计划的影响](/content/gnews/2495815.md)
+ `日本东京方舟农场`
+
+#### [G7将逐步淘汰俄罗斯石油并加大制裁](/content/gnews/2495795.md)
+ `Shuizhuyu`
+
+#### [北京中共病毒病例激增，全员检测继续进行](/content/gnews/2495793.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
 #### [樱花时政｜日政府决定阶段性禁止俄石油输入](/content/gnews/2495769.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -32,9 +44,6 @@
 #### [普京称西方对俄罗斯的主张充耳不闻](/content/gnews/2495582.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [乌克兰学校遭炸弹袭击60多人死亡](/content/gnews/2495568.md)
- `秘密翻譯組G-Translators`
-
 #### [瑞典不封城，但新冠疫情远好于封城国家](/content/gnews/2495561.md)
  `xiaobaige`
 
@@ -43,9 +52,6 @@
 
 #### [串珠677:台湾军方竟然通过澳洲购买了中共无人机](/content/gnews/2495526.md)
  `郭爆料串珠`
-
-#### [官房长官松野博一抗议中共国船只进入日本领海](/content/gnews/2495524.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [【速报】普京总统为入侵乌克兰辩护，但未 &#8220;宣战&#8221;](/content/gnews/2495523.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -83,12 +89,6 @@
 #### [援乌国际义工寄语新中国联邦“中国共产党不应继续执政”](/content/gnews/2495058.md)
  `战云长天时评`
 
-#### [中国母亲的过去、现在、未来（二）](/content/gnews/2495019.md)
- `雅典娜GNotes`
-
-#### [中国母亲的过去、现在、未来（一）](/content/gnews/2495011.md)
- `雅典娜GNotes`
-
 #### [极端天气｜中国南方面临入汛最强降雨 多地或有山洪灾害 广东将迎破纪录大雨](/content/gnews/2494999.md)
  `關注組`
 
@@ -104,6 +104,9 @@
 #### [备受瞩目的亚速钢铁厂内平民已全部撤离](/content/gnews/2494582.md)
  `NFSC News`
 
+#### [7·24系列——改变世界的波士顿动力公司](/content/gnews/2494512.md)
+ `墨尔本雅典娜农场`
+
 #### [中日财经爆&#124;日本央行对宽松政策不动摇](/content/gnews/2494510.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -118,9 +121,6 @@
 
 #### [疑似普京7亿美元豪华游艇在意大利遭扣押](/content/gnews/2494018.md)
  `NFSC News`
-
-#### [普京将在俄罗斯二战胜利阅兵式上向西方发出“世界末日”警告](/content/gnews/2494012.md)
- `GTV News Talk`
 
 #### [2022年5月8日大直播速记精萃](/content/gnews/2494004.md)
  `雅典娜GNotes`
