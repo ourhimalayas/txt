@@ -2,50 +2,56 @@
 ---
 
 
-#### [【说事儿】5/6/2022 文贵直播：诺亚方舟既在我们心里，也在我们出生的地方，所以我们必须拯救自己的国家](/content/gnews/2495377.md)
+#### [【说事儿】灾难已至，美国因血栓风险限制使用强生公司疫苗](/content/gnews/2495499.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】疫苗灾难 金融大萧条来临时 必须思考的2个问题](/content/gnews/2495364.md)
+#### [【说事儿】马斯克竞购推特资助者中，中共利益集团赫然在列](/content/gnews/2495489.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】河南防控升级 郑州夸海口三天内“封死病毒”](/content/gnews/2495481.md)
+ `TokyoSakuraDesignGroup`
+
+#### [中日财经爆┃比特币价格跌至年初以来最低点](/content/gnews/2495480.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [人亡政息是中共唯一的归宿](/content/gnews/2495479.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃学术会议作假！超300篇中共国学者论文一次性被撤](/content/gnews/2495478.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【说事儿】樱花时政┃中共坚持“动态清零”重挫欧洲在华企业信心](/content/gnews/2495464.md)
+ `TokyoSakuraDesignGroup`
+
+#### [乌克兰日常生活所需天然气供应充足](/content/gnews/2495457.md)
+ `日本东京方舟农场`
+
+#### [大直播后记：七哥分享与胡锦涛和刘永清的故事](/content/gnews/2495426.md)
+ `雅典娜GNotes`
+
+#### [WHO：中共病毒实际死亡人数约1490万 为报告的3倍](/content/gnews/2495410.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【说事儿】5/6/2022 文贵直播：诺亚方舟既在我们心里，也在我们出生的地方，所以我们必须拯救自己的国家](/content/gnews/2495377.md)
  `TokyoSakuraDesignGroup`
 
 #### [大直播后记：波兰肯定会参战，泽连斯基一个人撬动了世界](/content/gnews/2495362.md)
  `雅典娜GNotes`
 
-#### [中日财经爆┃日本制铁惊爆大丑闻！子公司产品质检长期造假](/content/gnews/2495361.md)
+#### [日本疫苗导致心肌炎病例或被大量漏诊](/content/gnews/2495357.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [【说事儿】每个人的心中都可以有一艘诺亚方舟 没有了共产党的中国就是所有中国人的诺亚方舟](/content/gnews/2495356.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】上海名企爆工人集体抗议事件](/content/gnews/2495342.md)
- `TokyoSakuraDesignGroup`
 
 #### [台海危机｜传美国敦促台湾改购不对称作战武器 以有效抵抗解放军](/content/gnews/2495334.md)
  `關注組`
 
-#### [【说事儿】西方国家将对中共采取“极限制裁”](/content/gnews/2495322.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】起底中共政治情报大外宣——多维](/content/gnews/2495312.md)
- `TokyoSakuraDesignGroup`
-
 #### [独裁者儿子与人权律师角逐菲律宾2022 年总统大选](/content/gnews/2495293.md)
  `波士顿五月花农场金融部`
-
-#### [【全文字幕】2022年1月21日 文贵大直播：全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](/content/gnews/2495289.md)
- `文贵视频字幕全集`
-
-#### [【樱话】比尔·盖茨将组建社交媒体团队来推广疫苗、打压异议](/content/gnews/2495184.md)
- `TokyoSakuraDesignGroup`
 
 #### [混合Covid 疫苗会导致死亡吗？（1/2）](/content/gnews/2495176.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [国际｜英国第三轮经济制裁 将提高对俄罗斯铂金和钯金的关税](/content/gnews/2495146.md)
  `關注組`
-
-#### [自然免疫的胜利](/content/gnews/2495140.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [俄罗斯在乌克兰的困境并没有打消中共侵略台湾的野心](/content/gnews/2495125.md)
  `秘密翻譯組G-Translators`
@@ -88,9 +94,6 @@
 
 #### [战火中的母亲节 美国第一夫人突访乌克兰](/content/gnews/2494777.md)
  `日本东京方舟农场`
-
-#### [谣言四起 总统普京得知情妇再次怀孕后感到 “不安&#8221;](/content/gnews/2494720.md)
- `波士顿五月花农场金融部`
 
 #### [喜马拉雅币一周分析与总结（5月2日-5月8日）](/content/gnews/2494638.md)
  `NFSC News`
@@ -150,9 +153,6 @@
  `SpicyWorld`
 
 #### [香港抖音集团三位董事公布：梁汝波领衔，没有张一鸣](/content/gnews/2493225.md)
- `加拿大温哥华英里农场`
-
-#### [血亏千亿！对冲基金爆出&#8221;最大亏损&#8221;](/content/gnews/2493223.md)
  `加拿大温哥华英里农场`
 
 #### [樱花时政┃各州起诉拜登政府与大型科技公司勾结审查言论自由](/content/gnews/2492598.md)
