@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p18wbu7421d.md)
+
+2022.05.08  晚 新中国联邦 | 新闻   中共制造的灾难将长久而深远；中共海外资产将被全部制裁 唯有喜币最安全
+
+<img src="https://media.gettr.com/group35/origin/2022/05/09/00/f604149d-2d6b-045f-eac5-de599ae2caff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p18w2ia87f2.md)
 
 5/8/2022 Miles Guo: The relation between Poland and Ukraine is the same as the one between Taiwan and Hong Kong under the threat of the Chinese Communist Party, Poland has no choice but to get involved in fighting against Russia to...
@@ -28,11 +36,11 @@ For English：gettr.com/streaming/p18w5sk77d8
 
 ---
 
-[@miles 5/9/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p18wbu7421d.md)
+[@miles 5/9/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p18wfjjb5e7.md)
 
-2022.05.08  晚 新中国联邦 | 新闻   中共制造的灾难将长久而深远；中共海外资产将被全部制裁 唯有喜币最安全
+2022.05.08  晚 新中国联邦 | 新闻访谈   马斯克收购推特的不确定性
 
-<img src="https://media.gettr.com/group35/origin/2022/05/09/00/f604149d-2d6b-045f-eac5-de599ae2caff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/05/09/01/2d08f2d9-03d5-eb0f-8fef-8f0cd6042808/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 63 - Date: Ma...
 5/6/2022 Miles Guo: The Cultural Revolution 2.0 began from the moment when Xi Jinping and Wang Qishan took power; the power-loving Wang Qishan is reduced to attending funerals, etc. as his job, and his life is worse than death; Xi'...
 
 <img src="https://media.gettr.com/group6/getter/2022/05/08/07/de9ba696-6be9-4124-8697-75d22ae07925/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 6:45 AM UTC  - :tv:直播](/content/gettr/p18t0bb0d2a.md)
-
-2022.05.08 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group31/origin/2022/05/08/06/27419f59-1950-59f0-402c-5f3e2891ac42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
