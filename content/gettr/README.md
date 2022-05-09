@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p18yspa6594.md)
+
+2022.05.09  新中国联邦 | 军情室  莫斯科胜利日阅兵，盘点乌军反舰战绩，波兰参战意义重大，G7暂停俄石油进口，十月革命背后的真相
+
+<img src="https://media.gettr.com/group5/origin/2022/05/09/10/40432493-2524-37d3-6763-3fbbeadbc86d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 9:46 AM UTC ](/content/gettr/p18xgwo2a52.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -34,11 +42,11 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p18yspa6594.md)
+[@miles 5/9/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p18yomo3f4b.md)
 
-2022.05.09  新中国联邦 | 军情室  莫斯科胜利日阅兵，盘点乌军反舰战绩，波兰参战意义重大，G7暂停俄石油进口，十月革命背后的真相
+2022.05.09 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
 
-<img src="https://media.gettr.com/group5/origin/2022/05/09/10/40432493-2524-37d3-6763-3fbbeadbc86d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/05/09/12/cd946e93-2b46-afae-6433-a99d0c9975c8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 5/8/2022 Miles Guo: Scheherazade, the recently confiscated yacht of Putin's, was originally built for me. Because I took on the mission of taking down the CCP and no longer needed the yacht, it was later purchased by Putin. Two yac...
 
 <img src="https://media.gettr.com/group14/getter/2022/05/08/22/d5842e22-f0c9-703c-12ff-fa202be9ef09/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 9:58 PM UTC  - :tv:直播](/content/gettr/p18w5kc6d8e.md)
-
-5/8/2022 Miles Guo: I bet that Nancy Pelosi will visit Taiwan before the end of this June. If not, he will pay you in a ratio of 1:1000. Nancy Pelosi's visit to Taiwan means that the United States will not only grant Taiwan the gen...
-
-<img src="https://media.gettr.com/group5/getter/2022/05/08/21/5c1235f5-faf0-5d18-9d44-f3c5c5b99d90/out.jpg" width="506" height="284">
 
 ---
 
