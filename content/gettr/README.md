@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 3:19 AM UTC  - :tv:直播](/content/gettr/p18uj24aba4.md)
+
+2022-5-8《鸡血王喜币大作战》 第一百八十九集 嘉宾：齐天二圣、七里香
+
+<img src="https://media.gettr.com/group34/origin/2022/04/15/03/149cc50f-0284-f894-d6e2-5124afd45a65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 2:45 AM UTC  - :tv:直播](/content/gettr/p18w4xpa78f.md)
 
 5/8/2022 Miles Guo: Most of the CCP cadres still maintain the bottom line of humanity - filial piety. This is why 99% of the CCP members are good people. I think it is those in the CCP that will end up destroying the CCP. Because t...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/9/2022 3:19 AM UTC  - :tv:直播](/content/gettr/p18uj24aba4.md)
+[@miles 5/9/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18x8ol1d72.md)
 
-2022-5-8《鸡血王喜币大作战》 第一百八十九集 嘉宾：齐天二圣、七里香
+新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group34/origin/2022/04/15/03/149cc50f-0284-f894-d6e2-5124afd45a65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/05/09/04/9a98990b-3d36-fe5f-9c35-73ade7bbb6b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 2022年5月8日 文贵大直播：母亲节谈中国母亲；疫苗灾难何去何从
 
 <img src="https://media.gettr.com/group42/origin/2022/05/08/11/47724e8b-23cf-4d16-1c4c-2e9ed27aea4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 10:37 AM UTC  - :tv:直播](/content/gettr/p18u4n8ff10.md)
-
-5/6/2022 Miles Guo: The US has groomed the CCP to be its archenemy over the past 30 years. The CCP's economic development does not take into account the well-being of future generations, while it seeks to challenge the US. The real...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/08/10/4883b86c-ac7e-e33b-4ae4-35d6465d39cf/out.jpg" width="506" height="284">
 
 ---
 
