@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 5/9/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p190mha3380.md)
+
+5/9/2022 Miles Guo: From Russia’s May 9 Victory Day parade to the gloom of world economy, all forebode the demise of the CCP; Russia will definitely be disintegrated; on this June 4th, the 2nd anniversary of the New Federal State o...
+
+<img src="https://media.gettr.com/group15/getter/2022/05/09/23/e0402c5e-9509-f682-0f05-6b3013966f54/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1905ge2cc0.md)
+
+2022.05.09  PM NFSC news   FThe Disaster Created by The CCP Will Be Long and Far-reaching
+
+<img src="https://media.gettr.com/group30/origin/2022/05/09/23/29b5ea55-428b-d427-6b5e-17b159e39723/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p190f8t4ca7.md)
+
+“死亡谷” 飞飞秀救援快报 2022-05-09
+
+For English：gettr.com/streaming/p190quk249e
+
+<img src="https://media.gettr.com/group33/origin/2022/05/09/22/12276f96-5bfc-5397-68f3-d2ac1391beff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1909rz20f8.md)
 
 Nicole interviews a volunteer named David who was born in Ukraine and grew up in America. Nicole introduces to him the anniversary of the New Federal State of China, June 4th, Chinese people’s Independence Day. David says: “it’s am...
@@ -26,13 +52,11 @@ Nicole interviews a volunteer named David who was born in Ukraine and grew up in
 
 ---
 
-[@miles 5/9/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p190f8t4ca7.md)
+[@miles 5/9/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p190yz5e23b.md)
 
-“死亡谷” 飞飞秀救援快报 2022-05-09
+5/9/2022 Miles Guo: You'll see dramatical change of the world economy in the coming days; in front of the (COVID) vaccine disaster and the economic collapse, you should try to stay alive and healthy and do not fight or compete with...
 
-For English：gettr.com/streaming/p190quk249e
-
-<img src="https://media.gettr.com/group33/origin/2022/05/09/22/12276f96-5bfc-5397-68f3-d2ac1391beff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/05/09/23/55a86536-31b1-31de-56ed-d31b77f4043c/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,30 +199,6 @@ Day 64 - Date: Ma...
  5月9号：衷心地DC农场．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
 
 <img src="https://media.gettr.com/group41/getter/2022/05/09/09/b8164de4-8b68-4139-c515-5d8c7efd8011/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 8:08 AM UTC  - :tv:直播](/content/gettr/p18x8jh5b56.md)
-
-2022.05.08 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group50/origin/2022/05/09/08/8a0f8ff6-6da3-5021-1575-e84a398886ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p18x8m7c93f.md)
-
-2022.05.09 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group13/origin/2022/05/09/06/ea8645f5-b151-397a-47b3-095cac0d0418/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 6:26 AM UTC  - :tv:直播](/content/gettr/p18xf3rab06.md)
-
-5/8/2022 Miles Guo: Not mentioning Xi Jinping in the headlines of People's Daily is not a sign that Xi lost his power. The Chinese people are willing to believe such a rumor because they always indulge in the wishful thinking that ...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/09/06/9ed4ad7d-ea37-5d47-d599-4e2d49a66409/out.jpg" width="506" height="284">
 
 ---
 
