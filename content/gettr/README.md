@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p18zbj5a17b.md)
+
+5/8/2022 Miles Guo: When the CCP selects cadres, it looks first at how they treat their parents, followed by the abilities and whether they bribe or not. How did Hu Jintao rise to power? What kind of relationship does he have with ...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/09/14/8389a3ff-7a83-3dd2-fc39-63896ba27562/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p18yytu0824.md)
 
 2022.05.09 文贵乱聊直播
@@ -96,11 +104,19 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p18zbj5a17b.md)
+[@miles 5/9/2022 5:11 PM UTC  - :tv:直播](/content/gettr/p18z6vv5552.md)
 
-5/8/2022 Miles Guo: When the CCP selects cadres, it looks first at how they treat their parents, followed by the abilities and whether they bribe or not. How did Hu Jintao rise to power? What kind of relationship does he have with ...
+5月9日，衷心地，感谢圆成农场．制作的让七哥流哈喇子．流眼泪的视频！
 
-<img src="https://media.gettr.com/group42/getter/2022/05/09/14/8389a3ff-7a83-3dd2-fc39-63896ba27562/out.jpg" width="506" height="284">
+
+
+【预祝我亲爱的敬爱的七哥生日快乐🎁🎂
+
+这是圆成农场战友为七哥准备了生日祝福，虽然是遥祝，但是诚意满满的，都是对我七哥的真爱，期望有一天灭共后。亲手给七哥做一碗长寿面奉上，让七哥幸福安康，平和，淡定从容的不再操心疲惫的美好生活🙏❤️
+
+https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
+
+<img src="https://media.gettr.com/group43/getter/2022/05/09/17/e8656deb-86d7-de38-8baf-d2a24d56b184/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +189,6 @@ Day 64 - Date: Ma...
 5/8/2022 Miles Guo: Most of the CCP cadres still maintain the bottom line of humanity - filial piety. This is why 99% of the CCP members are good people. I think it is those in the CCP that will end up destroying the CCP. Because t...
 
 <img src="https://media.gettr.com/group40/getter/2022/05/09/02/4527a989-12fd-1b3c-9e31-c46f3097165b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 1:47 AM UTC  - :tv:直播](/content/gettr/p18w7du3621.md)
-
-5/8/2022 Miles Guo: Almost all the CCP senior cadres are extremely filial to their parents, with Xi Jinping being the No. 1 filial son in the world. However, the CCP does not allow the rest of the Chinese people to have filial resp...
-
-<img src="https://media.gettr.com/group46/getter/2022/05/09/01/886af7b9-0747-9d4a-d0ab-36a8df7fe925/out.jpg" width="506" height="284">
 
 ---
 
