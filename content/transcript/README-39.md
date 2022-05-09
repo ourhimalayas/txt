@@ -3,6 +3,8 @@
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[翻译：班农在第十二届族群青年领袖研习营演讲](/content/transcript/2018/04/20180418-291103909959910855.md)
+
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/content/transcript/2018/04/20180418-7738901583406026314.md)
 
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/transcript/2018/04/20180418-184430822548389263.md)
@@ -50,8 +52,6 @@
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/transcript/2018/04/20180418-4391930695523447506.md)
 
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/transcript/2018/04/20180418-4149088156971792367.md)
-
-[翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/content/transcript/2018/04/20180418-3200590908291834579.md)
 
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

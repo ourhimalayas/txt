@@ -3,6 +3,8 @@
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[（二）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-144661617364703849.md)
+
 [(三）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-239017834240302827.md)
 
 [（一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-7734893512727563056.md)
@@ -50,8 +52,6 @@
 [2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/transcript/2018/04/20180418-1436420880757298143.md)
 
 [2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”](/content/transcript/2018/04/20180418-3702263840213416314.md)
-
-[2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵](/content/transcript/2018/04/20180418-6242782845301179834.md)
 
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)

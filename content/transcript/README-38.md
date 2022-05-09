@@ -3,6 +3,8 @@
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[翻译：美籍华人记者声称中国绑架了他的妻子](/content/transcript/2018/04/20180418-3894960312910613407.md)
+
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/transcript/2018/04/20180418-5726696199328694940.md)
 
 [2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/content/transcript/2018/04/20180418-619291156807124954.md)
@@ -50,8 +52,6 @@
 [文字版：文贵1118 Instagram 直播](/content/transcript/2018/04/20180418-6170218360988993353.md)
 
 [颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/transcript/2018/04/20180418-7352823982455357971.md)
-
-[翻译：班农在第十二届族群青年领袖研习营演讲](/content/transcript/2018/04/20180418-291103909959910855.md)
 
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

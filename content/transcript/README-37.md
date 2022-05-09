@@ -3,6 +3,8 @@
 
 ## 頁面 37/42 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/content/transcript/2018/04/20180418-2511616355314092455.md)
+
 [文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/content/transcript/2018/04/20180418-3356176592243296603.md)
 
 [文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/content/transcript/2018/04/20180418-9206841940282105316.md)
@@ -50,8 +52,6 @@
 [郭先生01/30/18郭媒体的3段讲话](/content/transcript/2018/04/20180418-6787859769038780160.md)
 
 [2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/content/transcript/2018/04/20180418-6010297384739671403.md)
-
-[翻译：美籍华人记者声称中国绑架了他的妻子](/content/transcript/2018/04/20180418-3894960312910613407.md)
 
 
 ## 頁面 37/42 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/content/transcript/2020/04/20200404-1051683434562586641.md)
+
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/content/transcript/2020/04/20200403-1478603494714953028.md)
 
 [文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/content/transcript/2020/04/20200402-257449982049081995.md)
@@ -50,8 +52,6 @@
 [文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/content/transcript/2020/02/20200223-7052827819661082462.md)
 
 [文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/content/transcript/2020/02/20200223-478006354833064962.md)
-
-[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/content/transcript/2020/02/20200221-2173657397153903143.md)
 
 
 ## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

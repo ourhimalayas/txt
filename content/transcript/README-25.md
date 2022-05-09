@@ -3,6 +3,8 @@
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年8月26日報平安](/content/transcript/2019/08/20190827-4686079139048004973.md)
+
 [文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/content/transcript/2019/08/20190827-7154322243260745813.md)
 
 [文字版：2019年8月23日文贵报平安（10分钟）](/content/transcript/2019/08/20190824-5714793768655054415.md)
@@ -50,8 +52,6 @@
 [文字版：7月29日 共产党已经进入倒计时](/content/transcript/2019/07/20190730-277183401038624152.md)
 
 [文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/content/transcript/2019/07/20190730-643602008810576333.md)
-
-[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/content/transcript/2019/07/20190728-6395183003803536442.md)
 
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/content/transcript/2020/02/20200221-2173657397153903143.md)
+
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/content/transcript/2020/02/20200221-5201737352028779423.md)
 
 [文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/content/transcript/2020/02/20200220-6957915304895832685.md)
@@ -50,8 +52,6 @@
 [文字版：2020年1月24日庚子年“文贵看春晚”直播](/content/transcript/2020/01/20200127-1065691289737851203.md)
 
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/content/transcript/2020/01/20200124-5709534972923488807.md)
-
-[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/content/transcript/2020/01/20200124-8451089471226145185.md)
 
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

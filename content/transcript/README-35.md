@@ -3,6 +3,8 @@
 
 ## 頁面 35/42 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/transcript/2018/05/20180531-5466761042269971935.md)
+
 [文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/transcript/2018/05/20180529-639277482984082138.md)
 
 [写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/transcript/2018/05/20180529-6991075700483755264.md)
@@ -50,8 +52,6 @@
 [文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/content/transcript/2018/04/20180418-500002948561788779.md)
 
 [文字版4月10日文贵谈见宝胜与到底该不该反习！](/content/transcript/2018/04/20180418-4672743794612401842.md)
-
-[文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/content/transcript/2018/04/20180418-3613340055974821573.md)
 
 
 ## 頁面 35/42 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
