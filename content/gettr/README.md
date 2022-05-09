@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1909rz20f8.md)
+
+Nicole interviews a volunteer named David who was born in Ukraine and grew up in America. Nicole introduces to him the anniversary of the New Federal State of China, June 4th, Chinese people’s Independence Day. David says: “it’s am...
+
+<img src="https://media.gettr.com/group33/origin/2022/05/09/21/cd5cbf4c-e09b-fbf3-26d5-c3f483974048/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p190gr19346.md)
 
 2022.05.09  新中国联邦 | 喜健康   老药新用：探索溴已新（BROMHEXINE）治疗冠状病毒感染
@@ -18,11 +26,13 @@
 
 ---
 
-[@miles 5/9/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1909rz20f8.md)
+[@miles 5/9/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p190f8t4ca7.md)
 
-Nicole interviews a volunteer named David who was born in Ukraine and grew up in America. Nicole introduces to him the anniversary of the New Federal State of China, June 4th, Chinese people’s Independence Day. David says: “it’s am...
+“死亡谷” 飞飞秀救援快报 2022-05-09
 
-<img src="https://media.gettr.com/group33/origin/2022/05/09/21/cd5cbf4c-e09b-fbf3-26d5-c3f483974048/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p190quk249e
+
+<img src="https://media.gettr.com/group33/origin/2022/05/09/22/12276f96-5bfc-5397-68f3-d2ac1391beff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ Day 64 - Date: Ma...
 5/8/2022 Miles Guo: Not mentioning Xi Jinping in the headlines of People's Daily is not a sign that Xi lost his power. The Chinese people are willing to believe such a rumor because they always indulge in the wishful thinking that ...
 
 <img src="https://media.gettr.com/group35/getter/2022/05/09/06/9ed4ad7d-ea37-5d47-d599-4e2d49a66409/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 5:40 AM UTC  - :tv:直播](/content/gettr/p18xx8a96ba.md)
-
-5/8/2022 Miles Guo: Initiating the Whistleblowers' Movement and persisting until today, the influence of my parents on me is the foundation of everything. My parents maintained their living principles and ethics in their humble lif...
-
-<img src="https://media.gettr.com/group8/getter/2022/05/09/05/cb72eef7-d210-ef2b-8cc5-7fd894dcea66/out.jpg" width="506" height="284">
 
 ---
 
