@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p18yomo3f4b.md)
+
+2022.05.09 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
+
+<img src="https://media.gettr.com/group5/origin/2022/05/09/12/cd946e93-2b46-afae-6433-a99d0c9975c8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p18yspa6594.md)
 
 2022.05.09  新中国联邦 | 军情室  莫斯科胜利日阅兵，盘点乌军反舰战绩，波兰参战意义重大，G7暂停俄石油进口，十月革命背后的真相
@@ -42,11 +50,11 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p18yomo3f4b.md)
+[@miles 5/9/2022 12:39 PM UTC  - :tv:直播](/content/gettr/p18y8o4ff64.md)
 
-2022.05.09 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
+2022.05.09  早 新中国联邦 | 新闻   乌克兰救援行动得到多伦多机场和航司的支持；荷兰摄影记者感谢新中国联邦为世界带来希望
 
-<img src="https://media.gettr.com/group5/origin/2022/05/09/12/cd946e93-2b46-afae-6433-a99d0c9975c8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/05/09/12/10ac89de-d404-ec9a-3b36-dee47dd9ed5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ Day 64 - Date: Ma...
 2022.05.08  PM NFSC news   Miles Guo Reveals in-depth Xi’s Fantasy on Modelski's Theory
 
 <img src="https://media.gettr.com/group16/origin/2022/05/08/22/ccbe7bca-2cd1-9664-fa04-840de6d281e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/8/2022 10:03 PM UTC  - :tv:直播](/content/gettr/p18vhmx79a5.md)
-
-“纤夫的灾难” 飞飞秀救援快报 2022-05-08
-
-For English：gettr.com/streaming/p18w5sk77d8
-
-<img src="https://media.gettr.com/group27/origin/2022/05/08/22/6a38f4b4-3f19-9332-1469-f0db0da7ce91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
