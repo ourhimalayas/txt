@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 12:39 PM UTC  - :tv:直播](/content/gettr/p18y8o4ff64.md)
+
+2022.05.09  早 新中国联邦 | 新闻   乌克兰救援行动得到多伦多机场和航司的支持；荷兰摄影记者感谢新中国联邦为世界带来希望
+
+<img src="https://media.gettr.com/group21/origin/2022/05/09/12/10ac89de-d404-ec9a-3b36-dee47dd9ed5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p18yomo3f4b.md)
 
 2022.05.09 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
@@ -50,11 +58,11 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 12:39 PM UTC  - :tv:直播](/content/gettr/p18y8o4ff64.md)
+[@miles 5/9/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p18yex4c754.md)
 
-2022.05.09  早 新中国联邦 | 新闻   乌克兰救援行动得到多伦多机场和航司的支持；荷兰摄影记者感谢新中国联邦为世界带来希望
+2022.05.09  早 新中国联邦 | 新闻访谈     上海下军令状 浦东“粉身碎骨论”引大量批评；一带一路两条线受重挫 中共陷恐惧
 
-<img src="https://media.gettr.com/group21/origin/2022/05/09/12/10ac89de-d404-ec9a-3b36-dee47dd9ed5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/05/09/13/180f8051-937d-ce42-1865-8a74cca200f1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 64 - Date: Ma...
 2022.05.08  PM NFSC news   Miles Guo Reveals in-depth Xi’s Fantasy on Modelski's Theory
 
 <img src="https://media.gettr.com/group16/origin/2022/05/08/22/ccbe7bca-2cd1-9664-fa04-840de6d281e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/8/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p18v7j340c1.md)
-
-5/8/2022 Miles Guo: Scheherazade, the recently confiscated yacht of Putin's, was originally built for me. Because I took on the mission of taking down the CCP and no longer needed the yacht, it was later purchased by Putin. Two yac...
-
-<img src="https://media.gettr.com/group14/getter/2022/05/08/22/d5842e22-f0c9-703c-12ff-fa202be9ef09/out.jpg" width="506" height="284">
 
 ---
 
