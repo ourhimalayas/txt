@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/9/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p18ytlsfea3.md)
+
+5月9号：衷心地，感谢台湾农场……制作的精美的祝福七哥生日的视频，爱你们。
+
+
+
+
+
+【七哥 台灣農場 祝您 生日快樂🎂 身體健康 🌹🌹🌹巴黎愛您 ❤️❤️❤️】
+
+<img src="https://media.gettr.com/group32/getter/2022/05/09/13/186c180e-d36f-7a8e-158f-d1be751142f5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p18yex4c754.md)
 
 2022.05.09  早 新中国联邦 | 新闻访谈     上海下军令状 浦东“粉身碎骨论”引大量批评；一带一路两条线受重挫 中共陷恐惧
@@ -66,17 +80,11 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p18ytlsfea3.md)
+[@miles 5/9/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p18y7m1c1bf.md)
 
-5月9号：衷心地，感谢台湾农场……制作的精美的祝福七哥生日的视频，爱你们。
+【Ukraine Rescue】05/08/2022  Ivan, a young Russian volunteer, brought Little Sarah a small gift. It is a pin from Russia that says “Lustration”, which is Russian for purification. He said that Poland had overthrown the Communist Par...
 
-
-
-
-
-【七哥 台灣農場 祝您 生日快樂🎂 身體健康 🌹🌹🌹巴黎愛您 ❤️❤️❤️】
-
-<img src="https://media.gettr.com/group32/getter/2022/05/09/13/186c180e-d36f-7a8e-158f-d1be751142f5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/05/09/13/b77f0183-a788-0823-e1ac-325e05b7ef63/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Day 64 - Date: Ma...
 2022.05.08  晚 新中国联邦 | 新闻   中共制造的灾难将长久而深远；中共海外资产将被全部制裁 唯有喜币最安全
 
 <img src="https://media.gettr.com/group35/origin/2022/05/09/00/f604149d-2d6b-045f-eac5-de599ae2caff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p18w2ia87f2.md)
-
-5/8/2022 Miles Guo: The relation between Poland and Ukraine is the same as the one between Taiwan and Hong Kong under the threat of the Chinese Communist Party, Poland has no choice but to get involved in fighting against Russia to...
-
-<img src="https://media.gettr.com/group50/getter/2022/05/09/00/118b45d1-8a41-79a3-d971-16ae3733d74b/out.jpg" width="506" height="284">
 
 ---
 
