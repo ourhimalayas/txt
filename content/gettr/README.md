@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p18y7m1c1bf.md)
+
+【Ukraine Rescue】05/08/2022  Ivan, a young Russian volunteer, brought Little Sarah a small gift. It is a pin from Russia that says “Lustration”, which is Russian for purification. He said that Poland had overthrown the Communist Par...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/09/13/b77f0183-a788-0823-e1ac-325e05b7ef63/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p18ytlsfea3.md)
 
 5月9号：衷心地，感谢台湾农场……制作的精美的祝福七哥生日的视频，爱你们。
@@ -80,11 +88,11 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p18y7m1c1bf.md)
+[@miles 5/9/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p18yytu0824.md)
 
-【Ukraine Rescue】05/08/2022  Ivan, a young Russian volunteer, brought Little Sarah a small gift. It is a pin from Russia that says “Lustration”, which is Russian for purification. He said that Poland had overthrown the Communist Par...
+2022.05.09 文贵乱聊直播
 
-<img src="https://media.gettr.com/group39/getter/2022/05/09/13/b77f0183-a788-0823-e1ac-325e05b7ef63/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/05/09/14/dd31b092-04e8-33fb-70bf-98de00a16727/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Day 64 - Date: Ma...
 2022.05.08  晚 新中国联邦 | 新闻访谈   马斯克收购推特的不确定性
 
 <img src="https://media.gettr.com/group13/origin/2022/05/09/01/2d08f2d9-03d5-eb0f-8fef-8f0cd6042808/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/9/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p18wbu7421d.md)
-
-2022.05.08  晚 新中国联邦 | 新闻   中共制造的灾难将长久而深远；中共海外资产将被全部制裁 唯有喜币最安全
-
-<img src="https://media.gettr.com/group35/origin/2022/05/09/00/f604149d-2d6b-045f-eac5-de599ae2caff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
