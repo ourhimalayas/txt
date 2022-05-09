@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p18vn6v94ad.md)
+
+2022.05.08  PM NFSC news   Miles Guo Reveals in-depth Xi’s Fantasy on Modelski's Theory
+
+<img src="https://media.gettr.com/group16/origin/2022/05/08/22/ccbe7bca-2cd1-9664-fa04-840de6d281e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/8/2022 10:03 PM UTC  - :tv:直播](/content/gettr/p18vhmx79a5.md)
 
 “纤夫的灾难” 飞飞秀救援快报 2022-05-08
@@ -12,11 +20,11 @@ For English：gettr.com/streaming/p18w5sk77d8
 
 ---
 
-[@miles 5/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p18vn6v94ad.md)
+[@miles 5/9/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p18w2ia87f2.md)
 
-2022.05.08  PM NFSC news   Miles Guo Reveals in-depth Xi’s Fantasy on Modelski's Theory
+5/8/2022 Miles Guo: The relation between Poland and Ukraine is the same as the one between Taiwan and Hong Kong under the threat of the Chinese Communist Party, Poland has no choice but to get involved in fighting against Russia to...
 
-<img src="https://media.gettr.com/group16/origin/2022/05/08/22/ccbe7bca-2cd1-9664-fa04-840de6d281e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/05/09/00/118b45d1-8a41-79a3-d971-16ae3733d74b/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 63 - Date: Ma...
 5/6/2022 Miles Guo: A temporary reconciliation might be reached between the US and Communist China before the midterm elections, but this will not change the life-and-death relationship between the CCP and the US. In the face of wa...
 
 <img src="https://media.gettr.com/group44/getter/2022/05/08/06/aca70d4a-6a03-30da-a9c5-12d74e2bfb53/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 5:29 AM UTC  - :tv:直播](/content/gettr/p18tbep2ae0.md)
-
-Victoria is a volunteer from New York. She dresses as Pikachu and brings some joy to refugees from Ukraine. People in Medyka love her, especially kids. She heard about our Whistleblower Movement and the New Federal State of China w...
-
-<img src="https://media.gettr.com/group43/origin/2022/05/08/05/152e44a4-1d6f-7165-0162-68f8a9c8cc44/out.jpg" width="506" height="284">
 
 ---
 
