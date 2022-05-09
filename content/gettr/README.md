@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p190gr19346.md)
+
+2022.05.09  新中国联邦 | 喜健康   老药新用：探索溴已新（BROMHEXINE）治疗冠状病毒感染
+
+<img src="https://media.gettr.com/group17/origin/2022/04/15/20/1520c6d8-e7bb-276b-00df-0ec0c5bdbe4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 5:53 PM UTC  - :tv:直播](/content/gettr/p18y47wb05c.md)
+
+2022.05.09 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group42/origin/2022/05/09/17/3c128167-b622-f16c-f03b-ea3161f81522/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 5:11 PM UTC  - :tv:直播](/content/gettr/p18z6vv5552.md)
 
 5月9日，衷心地，感谢圆成农场．制作的让七哥流哈喇子．流眼泪的视频！
@@ -128,14 +144,6 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 5:53 PM UTC  - :tv:直播](/content/gettr/p18y47wb05c.md)
-
-2022.05.09 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group42/origin/2022/05/09/17/3c128167-b622-f16c-f03b-ea3161f81522/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 5/9/2022 9:53 AM UTC  - :tv:直播](/content/gettr/p18x99h82b0.md)
 
  5月9号：衷心地，感谢秘密翻译组．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
@@ -189,14 +197,6 @@ Day 64 - Date: Ma...
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group6/origin/2022/05/09/04/9a98990b-3d36-fe5f-9c35-73ade7bbb6b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 3:19 AM UTC  - :tv:直播](/content/gettr/p18uj24aba4.md)
-
-2022-5-8《鸡血王喜币大作战》 第一百八十九集 嘉宾：齐天二圣、七里香
-
-<img src="https://media.gettr.com/group34/origin/2022/04/15/03/149cc50f-0284-f894-d6e2-5124afd45a65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
