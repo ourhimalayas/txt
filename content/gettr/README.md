@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18x8ol1d72.md)
+
+新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group6/origin/2022/05/09/04/9a98990b-3d36-fe5f-9c35-73ade7bbb6b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 3:19 AM UTC  - :tv:直播](/content/gettr/p18uj24aba4.md)
 
 2022-5-8《鸡血王喜币大作战》 第一百八十九集 嘉宾：齐天二圣、七里香
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/9/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18x8ol1d72.md)
+[@miles 5/9/2022 5:40 AM UTC  - :tv:直播](/content/gettr/p18xx8a96ba.md)
 
-新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+5/8/2022 Miles Guo: Initiating the Whistleblowers' Movement and persisting until today, the influence of my parents on me is the foundation of everything. My parents maintained their living principles and ethics in their humble lif...
 
-<img src="https://media.gettr.com/group6/origin/2022/05/09/04/9a98990b-3d36-fe5f-9c35-73ade7bbb6b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/05/09/05/cb72eef7-d210-ef2b-8cc5-7fd894dcea66/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 2022年5月8日 文贵大直播：母亲节谈中国母亲；疫苗灾难何去何从
 
 <img src="https://media.gettr.com/group42/origin/2022/05/08/11/47724e8b-23cf-4d16-1c4c-2e9ed27aea4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 10:41 AM UTC  - :tv:直播](/content/gettr/p18tozd68aa.md)
-
-5/6/2022 Miles Guo: State Secretary Blinken canceled his speech on the US policy towards Communist China due to the collusion between the CCP and the US. On one hand, Yang Jiechi and Wang Yi dared to threaten the US officials in pr...
-
-<img src="https://media.gettr.com/group50/getter/2022/05/08/10/38e18397-c1be-88dd-76b9-221f231ac952/out.jpg" width="506" height="284">
 
 ---
 
