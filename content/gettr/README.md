@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p190gr19346.md)
+
+2022.05.09  新中国联邦 | 喜健康   老药新用：探索溴已新（BROMHEXINE）治疗冠状病毒感染
+
+<img src="https://media.gettr.com/group17/origin/2022/04/15/20/1520c6d8-e7bb-276b-00df-0ec0c5bdbe4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 5:53 PM UTC  - :tv:直播](/content/gettr/p18zv2f78dc.md)
 
 5/8/2022 Miles Guo: The defector scientist has developed a new treatment regimen to detoxify the COVID vaccines, and the cure rate is 99%! Due to lack of tolerance data on children and those with pre-existing medical conditions, th...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p190gr19346.md)
+[@miles 5/9/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1909rz20f8.md)
 
-2022.05.09  新中国联邦 | 喜健康   老药新用：探索溴已新（BROMHEXINE）治疗冠状病毒感染
+Nicole interviews a volunteer named David who was born in Ukraine and grew up in America. Nicole introduces to him the anniversary of the New Federal State of China, June 4th, Chinese people’s Independence Day. David says: “it’s am...
 
-<img src="https://media.gettr.com/group17/origin/2022/04/15/20/1520c6d8-e7bb-276b-00df-0ec0c5bdbe4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/05/09/21/cd5cbf4c-e09b-fbf3-26d5-c3f483974048/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ Day 64 - Date: Ma...
 5/8/2022 Miles Guo: Initiating the Whistleblowers' Movement and persisting until today, the influence of my parents on me is the foundation of everything. My parents maintained their living principles and ethics in their humble lif...
 
 <img src="https://media.gettr.com/group8/getter/2022/05/09/05/cb72eef7-d210-ef2b-8cc5-7fd894dcea66/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p18x8ol1d72.md)
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group6/origin/2022/05/09/04/9a98990b-3d36-fe5f-9c35-73ade7bbb6b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
