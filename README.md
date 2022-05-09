@@ -11,26 +11,38 @@
 
 ---
 
+#### [乌克兰学校遭炸弹袭击60多人死亡](/content/gnews/2495568.md)
+ `秘密翻譯組G-Translators`
+
+#### [场所码](/content/gnews/2495553.md)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [质疑中共上海当局防疫措施违宪 宪法学教授被删文禁言](/content/gnews/2495548.md)
+ `秘密翻譯組G-Translators`
+
+#### [马斯克疑受威胁发推：如果我在神秘的情况下死去，很高兴认识你](/content/gnews/2495528.md)
+ `墨尔本雅典娜农场`
+
+#### [串珠677:台湾军方竟然通过澳洲购买了中共无人机](/content/gnews/2495526.md)
+ `郭爆料串珠`
+
+#### [官房长官松野博一抗议中共国船只进入日本领海](/content/gnews/2495524.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【速报】普京总统为入侵乌克兰辩护，但未 &#8220;宣战&#8221;](/content/gnews/2495523.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆┃因疫情封控传闻 台湾广达上海工厂发生大规模骚乱](/content/gnews/2495522.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [【说事儿】灾难已至，美国因血栓风险限制使用强生公司疫苗](/content/gnews/2495499.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】马斯克竞购推特资助者中，中共利益集团赫然在列](/content/gnews/2495489.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】河南防控升级 郑州夸海口三天内“封死病毒”](/content/gnews/2495481.md)
- `TokyoSakuraDesignGroup`
+#### [郭文贵直播摘要和音频 2022.05.08](/content/gnews/2495488.md)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [中日财经爆┃比特币价格跌至年初以来最低点](/content/gnews/2495480.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [人亡政息是中共唯一的归宿](/content/gnews/2495479.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃学术会议作假！超300篇中共国学者论文一次性被撤](/content/gnews/2495478.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【说事儿】樱花时政┃中共坚持“动态清零”重挫欧洲在华企业信心](/content/gnews/2495464.md)
- `TokyoSakuraDesignGroup`
 
 #### [乌克兰日常生活所需天然气供应充足](/content/gnews/2495457.md)
  `日本东京方舟农场`
@@ -40,12 +52,6 @@
 
 #### [WHO：中共病毒实际死亡人数约1490万 为报告的3倍](/content/gnews/2495410.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [【说事儿】5/6/2022 文贵直播：诺亚方舟既在我们心里，也在我们出生的地方，所以我们必须拯救自己的国家](/content/gnews/2495377.md)
- `TokyoSakuraDesignGroup`
-
-#### [大直播后记：波兰肯定会参战，泽连斯基一个人撬动了世界](/content/gnews/2495362.md)
- `雅典娜GNotes`
 
 #### [日本疫苗导致心肌炎病例或被大量漏诊](/content/gnews/2495357.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -89,9 +95,6 @@
 #### [台湾｜台湾确定受邀参加12日的全球疫情峰会](/content/gnews/2494886.md)
  `關注組`
 
-#### [2022/05/08 英喜时事速递](/content/gnews/2494878.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [GEDU教育一定要准备好两件事：1.队伍建设；2.线上线下模式](/content/gnews/2494845.md)
  `雅典娜GNotes`
 
@@ -100,9 +103,6 @@
 
 #### [国际｜G7承诺加强制裁俄罗斯 逐步摆脱对俄能源依赖](/content/gnews/2494785.md)
  `關注組`
-
-#### [战火中的母亲节 美国第一夫人突访乌克兰](/content/gnews/2494777.md)
- `日本东京方舟农场`
 
 #### [喜马拉雅币一周分析与总结（5月2日-5月8日）](/content/gnews/2494638.md)
  `NFSC News`
