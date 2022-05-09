@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p19144u8a63.md)
+
+5/8/2022 Miles Guo: There are two things must be accomplished before the official launch of our GEDU program: building effective teams and finalizing educational model. In addition, all software and hardware essentials for online a...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/09/23/59919e3c-402c-a787-38a1-88f86c4c350c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p190mha3380.md)
 
 5/9/2022 Miles Guo: From Russia’s May 9 Victory Day parade to the gloom of world economy, all forebode the demise of the CCP; Russia will definitely be disintegrated; on this June 4th, the 2nd anniversary of the New Federal State o...
@@ -10,11 +18,27 @@
 
 ---
 
+[@miles 5/9/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p190yzadb15.md)
+
+5/8/2022 Miles Guo: Once the US imposes sanctions on the CCP, any assets that were traded in the US dollars may be seized. The New Federal State of China can help protect the Chinese people's wealth because we are not involved in a...
+
+<img src="https://media.gettr.com/group22/getter/2022/05/09/23/f4b152c7-1a32-87e6-646d-64be43153dc8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1905ge2cc0.md)
 
 2022.05.09  PM NFSC news   FThe Disaster Created by The CCP Will Be Long and Far-reaching
 
 <img src="https://media.gettr.com/group30/origin/2022/05/09/23/29b5ea55-428b-d427-6b5e-17b159e39723/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p190yz5e23b.md)
+
+5/9/2022 Miles Guo: You'll see dramatical change of the world economy in the coming days; in front of the (COVID) vaccine disaster and the economic collapse, you should try to stay alive and healthy and do not fight or compete with...
+
+<img src="https://media.gettr.com/group10/getter/2022/05/09/23/55a86536-31b1-31de-56ed-d31b77f4043c/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,14 +73,6 @@ Nicole interviews a volunteer named David who was born in Ukraine and grew up in
 5/8/2022 Miles Guo: The defector scientist has developed a new treatment regimen to detoxify the COVID vaccines, and the cure rate is 99%! Due to lack of tolerance data on children and those with pre-existing medical conditions, th...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/09/17/70fd0f0e-17cb-6542-b681-7047b036f628/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p190yz5e23b.md)
-
-5/9/2022 Miles Guo: You'll see dramatical change of the world economy in the coming days; in front of the (COVID) vaccine disaster and the economic collapse, you should try to stay alive and healthy and do not fight or compete with...
-
-<img src="https://media.gettr.com/group10/getter/2022/05/09/23/55a86536-31b1-31de-56ed-d31b77f4043c/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,46 +167,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 2022.05.09  新中国联邦 | 军情室  莫斯科胜利日阅兵，盘点乌军反舰战绩，波兰参战意义重大，G7暂停俄石油进口，十月革命背后的真相
 
 <img src="https://media.gettr.com/group5/origin/2022/05/09/10/40432493-2524-37d3-6763-3fbbeadbc86d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 9:46 AM UTC ](/content/gettr/p18xgwo2a52.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月7日第64天当日救援统计：
-
-Medyka救援站接待：约258人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约17438人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 64 - Date: Ma...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/09/09/c6e86204-abdd-93fc-e61c-299fda48dfb2/248fd1d5c5d5f63c54dd16f1df42bc66.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 9:53 AM UTC  - :tv:直播](/content/gettr/p18x99h82b0.md)
-
- 5月9号：衷心地，感谢秘密翻译组．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
-
-<img src="https://media.gettr.com/group35/getter/2022/05/09/09/3999208b-770c-92db-ef8c-ba8b5c77c62e/out.jpg" width="506" height="284">
 
 ---
 
