@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/9/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p18yex4c754.md)
+
+2022.05.09  早 新中国联邦 | 新闻访谈     上海下军令状 浦东“粉身碎骨论”引大量批评；一带一路两条线受重挫 中共陷恐惧
+
+<img src="https://media.gettr.com/group45/origin/2022/05/09/13/180f8051-937d-ce42-1865-8a74cca200f1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 12:39 PM UTC  - :tv:直播](/content/gettr/p18y8o4ff64.md)
 
 2022.05.09  早 新中国联邦 | 新闻   乌克兰救援行动得到多伦多机场和航司的支持；荷兰摄影记者感谢新中国联邦为世界带来希望
@@ -58,11 +66,17 @@ Day 64 - Date: Ma...
 
 ---
 
-[@miles 5/9/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p18yex4c754.md)
+[@miles 5/9/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p18ytlsfea3.md)
 
-2022.05.09  早 新中国联邦 | 新闻访谈     上海下军令状 浦东“粉身碎骨论”引大量批评；一带一路两条线受重挫 中共陷恐惧
+5月9号：衷心地，感谢台湾农场……制作的精美的祝福七哥生日的视频，爱你们。
 
-<img src="https://media.gettr.com/group45/origin/2022/05/09/13/180f8051-937d-ce42-1865-8a74cca200f1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+
+
+【七哥 台灣農場 祝您 生日快樂🎂 身體健康 🌹🌹🌹巴黎愛您 ❤️❤️❤️】
+
+<img src="https://media.gettr.com/group32/getter/2022/05/09/13/186c180e-d36f-7a8e-158f-d1be751142f5/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +189,6 @@ Day 64 - Date: Ma...
 5/8/2022 Miles Guo: The relation between Poland and Ukraine is the same as the one between Taiwan and Hong Kong under the threat of the Chinese Communist Party, Poland has no choice but to get involved in fighting against Russia to...
 
 <img src="https://media.gettr.com/group50/getter/2022/05/09/00/118b45d1-8a41-79a3-d971-16ae3733d74b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p18vn6v94ad.md)
-
-2022.05.08  PM NFSC news   Miles Guo Reveals in-depth Xi’s Fantasy on Modelski's Theory
-
-<img src="https://media.gettr.com/group16/origin/2022/05/08/22/ccbe7bca-2cd1-9664-fa04-840de6d281e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
