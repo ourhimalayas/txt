@@ -2,6 +2,54 @@
 ---
 
 
+[@miles 5/9/2022 9:46 AM UTC ](/content/gettr/p18xgwo2a52.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月7日第64天当日救援统计：
+
+Medyka救援站接待：约258人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约17438人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 64 - Date: Ma...
+
+<img src="https://media.gettr.com/group24/getter/2022/05/09/09/c6e86204-abdd-93fc-e61c-299fda48dfb2/248fd1d5c5d5f63c54dd16f1df42bc66.jpg" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 9:53 AM UTC  - :tv:直播](/content/gettr/p18x99h82b0.md)
+
+ 5月9号：衷心地，感谢秘密翻译组．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
+
+<img src="https://media.gettr.com/group35/getter/2022/05/09/09/3999208b-770c-92db-ef8c-ba8b5c77c62e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/9/2022 8:08 AM UTC  - :tv:直播](/content/gettr/p18x8jh5b56.md)
+
+2022.05.08 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group50/origin/2022/05/09/08/8a0f8ff6-6da3-5021-1575-e84a398886ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p18x8m7c93f.md)
 
 2022.05.09 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -58,11 +106,11 @@
 
 ---
 
-[@miles 5/9/2022 8:08 AM UTC  - :tv:直播](/content/gettr/p18x8jh5b56.md)
+[@miles 5/9/2022 9:56 AM UTC  - :tv:直播](/content/gettr/p18xqrqd3b2.md)
 
-2022.05.08 文贵大直播（精华版）
+ 5月9号：衷心地DC农场．为七哥制作的精美的祝贺生日的视频．一切都已经开始！
 
-<img src="https://media.gettr.com/group50/origin/2022/05/09/08/8a0f8ff6-6da3-5021-1575-e84a398886ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/05/09/09/b8164de4-8b68-4139-c515-5d8c7efd8011/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,28 +185,6 @@ For English：gettr.com/streaming/p18w5sk77d8
 2022.05.08  新中国联邦 | 喜健康   英国数据显示COVID-19疫苗接种者全因死亡率高于未接种者
 
 <img src="https://media.gettr.com/group18/origin/2022/05/08/20/4f7deb83-9c47-dd51-7da3-9f5bca73636e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 6:36 PM UTC  - :tv:直播](/content/gettr/p18u72o6287.md)
-
-2022-5-8 「亲爱的母亲👩🏻，温暖的家🏡」，#小小尼莫音乐会 🎼第十期，母亲节特别节目💐，爱妈妈，懂妈妈，祝愿妈妈们节日快乐💝
-
-<img src="https://media.gettr.com/group9/origin/2022/05/08/18/cff8eab8-b30b-9294-54d4-595d27187468/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/8/2022 6:16 PM UTC ](/content/gettr/p18uzpo8846.md)
-
-5月8号：伟大的智慧的战友，把行动行动行动．发挥到了极致，爱你们，亲爱的兄弟姐妹们。https://gnews.org/zh-hans/2140485/
-
----
-
-[@miles 5/8/2022 5:51 PM UTC  - :tv:直播](/content/gettr/p18uj1944c1.md)
-
-2022年5月8日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group8/origin/2022/05/08/17/446722e8-b279-39e1-1a49-4030708a878a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
