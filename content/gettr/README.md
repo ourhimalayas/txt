@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/9/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p190qnpccde.md)
+
+2022.05.09  NFSC fringe  Episode 186
+
+中文同传：https://gettr.com/streaming/p190w58efc7
+
+<img src="https://media.gettr.com/group45/origin/2022/05/09/23/cdb2e789-17d2-8c22-ef3d-6e18d4411020/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p19144u8a63.md)
 
 5/8/2022 Miles Guo: There are two things must be accomplished before the official launch of our GEDU program: building effective teams and finalizing educational model. In addition, all software and hardware essentials for online a...
@@ -10,13 +20,13 @@
 
 ---
 
-[@miles 5/9/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p190qnpccde.md)
+[@miles 5/9/2022 11:54 PM UTC  - :tv:直播](/content/gettr/p190y4v6ce6.md)
 
-2022.05.09  NFSC fringe  Episode 186
+Volunteers from the New Federal State of China help an Ukrainian mother who came to the Polish border as a refuge.
 
-中文同传：https://gettr.com/streaming/p190w58efc7
+新中国联邦义工为一位来到波兰边境的乌克兰难民母亲提供帮助。
 
-<img src="https://media.gettr.com/group45/origin/2022/05/09/23/cdb2e789-17d2-8c22-ef3d-6e18d4411020/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/05/09/23/a99b9bca-e43e-74e2-34d7-55258fcf3951/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 2022.05.09 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
 
 <img src="https://media.gettr.com/group5/origin/2022/05/09/12/cd946e93-2b46-afae-6433-a99d0c9975c8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/9/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p18yspa6594.md)
-
-2022.05.09  新中国联邦 | 军情室  莫斯科胜利日阅兵，盘点乌军反舰战绩，波兰参战意义重大，G7暂停俄石油进口，十月革命背后的真相
-
-<img src="https://media.gettr.com/group5/origin/2022/05/09/10/40432493-2524-37d3-6763-3fbbeadbc86d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
