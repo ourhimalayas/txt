@@ -2,16 +2,31 @@
 ---
 
 
+#### [中日财经爆┃中共制造业是装满鲜艳颜料的玻璃瓶](/content/gnews/2504943.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃日韩确认改善双边关系](/content/gnews/2504935.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃马克龙与习近平通电话：谈及疫情清零对在华法国人的影响](/content/gnews/2504933.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [因捐款被解雇安省政府的前雇员起诉省长](/content/gnews/2504900.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [联邦政府秘密监控加拿大人](/content/gnews/2504871.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [中共“千人计划”资助的化学家被判14年监禁](/content/gnews/2504848.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [【G时新闻】“共和”意味着什么](/content/gnews/2504833.md)
+ `G-时新闻`
 
 #### [拜登强硬回怼普京胜利日讲话](/content/gnews/2504824.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [美国国务院网站 -美台关系重大更新](/content/gnews/2504782.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [加拿大特鲁多突访乌克兰表支持](/content/gnews/2504765.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [精粮战友向法国记者介绍新中国联邦的救援行动](/content/gnews/2504757.md)
@@ -23,9 +38,6 @@
 #### [佛州州长设立11月7日为共产主义受害者纪念日](/content/gnews/2504741.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [美中情局长：习近平欲控制台湾不会改变](/content/gnews/2504735.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [弗兰克·加夫尼谈中共在日内瓦的影响](/content/gnews/2504733.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -34,9 +46,6 @@
 
 #### [【G时新闻】中共国南方将遭遇大暴雨侵袭，恐现洪灾](/content/gnews/2504717.md)
  `G-时新闻`
-
-#### [疫苗推广揭示了超越民族国家的全球资金流动](/content/gnews/2504713.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [治愈率99.9%的疫苗反应新药方进入最后测试阶段，新中国联邦无愧此国](/content/gnews/2504687.md)
  `亚伦YALUN`
@@ -64,9 +73,6 @@
 
 #### [加密货币资产一个月内减少了8000亿美元市值](/content/gnews/2504399.md)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [【G时新闻】接种COVID疫苗后出现严重并发症的人数比以前的记录高40倍](/content/gnews/2504323.md)
- `G-时新闻`
 
 #### [世界饥饿人口在俄乌战争前已激增25%](/content/gnews/2504309.md)
  `秘密翻譯組G-Translators`
@@ -97,9 +103,6 @@
 
 #### [中共千人计划专家游晓蓉因经济间谍活动和欺诈获重刑](/content/gnews/2503623.md)
  `温哥华扬帆农场`
-
-#### [樱花时政┃中共国又爆学术人渣，女学生告教授诱奸无门](/content/gnews/2503533.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [5/10/2022国际财经快讯：德国为突然终止俄罗斯天然气准备危机计划；特斯拉周二停止上海工厂大部分生产](/content/gnews/2503497.md)
  `秘密翻译组金融团队`
@@ -145,9 +148,6 @@
 
 #### [国际｜亲访匈牙利无果 欧盟禁运俄罗斯石油仍未达成协议](/content/gnews/2500410.md)
  `關注組`
-
-#### [樱花时政┃G7官方声明剑指幕后策划者和帮凶](/content/gnews/2498787.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [文编&#124;七哥、唐平团队创作《铁锁梦》歌曲的经历](/content/gnews/2497227.md)
  `KarmaLabs`
