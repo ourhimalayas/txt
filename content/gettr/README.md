@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/10/2022 1:04 PM UTC ](/content/gettr/p194cr22860.md)
+
+由于很多战友恭喜生日快乐无法回复，七哥20分钟后内马上直播🙏🙏🙏
+
+<img src="https://media.gettr.com/group11/origin/2022/05/10/13/b9701bdf-c5dc-0bb5-4597-6420862ae1f5/db08bb5efa85a82b8ecc7361934c2149.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/10/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p194fsmcb0b.md)
+
+2022.05.10 早 新中国联邦 | 新闻 美国志愿者称新中国联邦为正义而战；郭先生父母对其影响是爆料革命胜利的根基
+
+<img src="https://media.gettr.com/group27/origin/2022/05/10/12/f760b9ae-0b4e-5b6e-2f77-788534de28a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p193kpzee91.md)
 
 2022.05.10  AM NFSC news   A Dutch Photojournalist Thanks NFSC For Bringing Hope to The World
@@ -130,11 +146,11 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p194fsmcb0b.md)
+[@miles 5/10/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p194fkh192b.md)
 
-2022.05.10 早 新中国联邦 | 新闻 美国志愿者称新中国联邦为正义而战；郭先生父母对其影响是爆料革命胜利的根基
+2022年5月10日 七哥生日与战友们在线聊天
 
-<img src="https://media.gettr.com/group27/origin/2022/05/10/12/f760b9ae-0b4e-5b6e-2f77-788534de28a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/05/10/13/06f6e81d-b863-8144-bea7-e9be99967489/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,22 +193,6 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 For English：gettr.com/streaming/p190quk249e
 
 <img src="https://media.gettr.com/group33/origin/2022/05/09/22/12276f96-5bfc-5397-68f3-d2ac1391beff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1909rz20f8.md)
-
-Nicole interviews a volunteer named David who was born in Ukraine and grew up in America. Nicole introduces to him the anniversary of the New Federal State of China, June 4th, Chinese people’s Independence Day. David says: “it’s am...
-
-<img src="https://media.gettr.com/group33/origin/2022/05/09/21/cd5cbf4c-e09b-fbf3-26d5-c3f483974048/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p190gr19346.md)
-
-2022.05.09  新中国联邦 | 喜健康   老药新用：探索溴已新（BROMHEXINE）治疗冠状病毒感染
-
-<img src="https://media.gettr.com/group17/origin/2022/04/15/20/1520c6d8-e7bb-276b-00df-0ec0c5bdbe4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
