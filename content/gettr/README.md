@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p194ftu5f37.md)
+
+2022.05.10 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group22/origin/2022/05/10/17/6fed9fbd-2eca-e96a-7a25-d2b7673d0e9f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 5:16 PM UTC  - :tv:直播](/content/gettr/p195fv6e699.md)
 
  5月10日：七哥在生日当天．到这里为所有的战友．及家人的祈福平安！
@@ -26,11 +34,11 @@ We are the NEW CHINESE who are taking down EVIL Chinese Communist...
 
 ---
 
-[@miles 5/10/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p194ftu5f37.md)
+[@miles 5/10/2022 7:03 PM UTC  - :tv:直播](/content/gettr/p194fu8ebe3.md)
 
-2022.05.10 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022-5-10《避风港》（45）“杀婴疫苗”
 
-<img src="https://media.gettr.com/group22/origin/2022/05/10/17/6fed9fbd-2eca-e96a-7a25-d2b7673d0e9f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/05/10/18/a98d2da7-6f72-c023-9577-a2859b091423/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -229,14 +237,6 @@ Day 65 - Date: Ma...
 2022.05.09  晚 新中国联邦 | 新闻访谈    普京5月9日“胜利日”阅兵预示了"习普"的悲惨结局
 
 <img src="https://media.gettr.com/group24/origin/2022/05/10/01/ff4bb991-9f32-c13c-7396-0a4b194383ff/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/10/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p191flub4ae.md)
-
-2022.05.09  晚 新中国联邦 | 新闻   灭共一定会是共产党自己人；解析美元对中共制裁的范围及意义
-
-<img src="https://media.gettr.com/group14/origin/2022/05/10/00/26f8fb2e-c513-5c5c-daa5-54111fa67d20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
