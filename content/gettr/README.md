@@ -10,6 +10,24 @@
 
 ---
 
+[@miles 5/10/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p196due6726.md)
+
+5/4/2022 Sky News Arabia interviewed fellow fighter Max at the rescue camp in Medyka, Poland, reporting in a positive way the humanitarian rescue operations of the New Federal State of China to help Ukrainian refugees who fled the ...
+
+<img src="https://media.gettr.com/group33/getter/2022/05/10/22/6d811e1d-15e4-2504-98f2-c6b37969102f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/10/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p196bwjd9ad.md)
+
+“秀肌肉 得靠乌拉” 飞飞秀救援快报 2022-05-10
+
+For English：gettr.com/streaming/p196du8d990
+
+<img src="https://media.gettr.com/group24/origin/2022/05/10/22/f302569b-9370-54bc-2835-5407403125b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1964v68063.md)
 
 2022.05.10  新中国联邦 | 喜健康   核酸检测荒唐结果，人口死亡数据藏猫腻，新西兰及全球有识之士揭开疫苗灾难序幕
@@ -55,16 +73,6 @@ About the New Federal State of China #NFSC 👇
 We are the NEW CHINESE who are taking down EVIL Chinese Communist...
 
 <img src="https://media.gettr.com/group48/origin/2022/05/03/13/aec4df07-fc8a-8a9f-5edb-4b4f8eab2b8d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p196bwjd9ad.md)
-
-“秀肌肉 得靠乌拉” 飞飞秀救援快报 2022-05-10
-
-For English：gettr.com/streaming/p196du8d990
-
-<img src="https://media.gettr.com/group24/origin/2022/05/10/22/f302569b-9370-54bc-2835-5407403125b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -227,18 +235,6 @@ Day 65 - Date: Ma...
 2022-5-10  中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group34/origin/2022/05/10/04/2018f83e-c98b-f8f1-31f6-a52d91e32be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 4:19 AM UTC  - :tv:直播](/content/gettr/p191qzucd16.md)
-
-5月10号：衷心地，感谢雅典娜农场为七哥制作的精美的祝贺生日的视频。
-
-
-
-雅典娜农场的兄弟姊妹恭祝七哥生日快乐💓💓💓💓💓💓💓我们爱七哥💞💞💞💞💞💞💞
-
-<img src="https://media.gettr.com/group31/origin/2022/05/10/04/441ebc2a-cf33-bdae-cf14-9d9920a7a813/out.jpg" width="506" height="284">
 
 ---
 
