@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p191vi6214b.md)
+
+2022.05.09  新中国联邦 | 喜财经   气候、化肥与粮食安全；世界百年大变局
+
+<img src="https://media.gettr.com/group24/origin/2022/05/10/02/04d6930d-4f06-4001-cb5d-f7d7716b8f38/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p191ah84ea6.md)
 
 2022.05.09  晚 新中国联邦 | 新闻访谈    普京5月9日“胜利日”阅兵预示了"习普"的悲惨结局
@@ -46,11 +54,11 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p191vi6214b.md)
+[@miles 5/10/2022 3:12 AM UTC  - :tv:直播](/content/gettr/p1925ue78ee.md)
 
-2022.05.09  新中国联邦 | 喜财经   气候、化肥与粮食安全；世界百年大变局
+2022-5-9《鸡血王喜币大作战》 第一百九十集 嘉宾：青藤、Nick
 
-<img src="https://media.gettr.com/group24/origin/2022/05/10/02/04d6930d-4f06-4001-cb5d-f7d7716b8f38/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,20 +173,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 【Ukraine Rescue】05/08/2022  Ivan, a young Russian volunteer, brought Little Sarah a small gift. It is a pin from Russia that says “Lustration”, which is Russian for purification. He said that Poland had overthrown the Communist Par...
 
 <img src="https://media.gettr.com/group39/getter/2022/05/09/13/b77f0183-a788-0823-e1ac-325e05b7ef63/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p18ytlsfea3.md)
-
-5月9号：衷心地，感谢台湾农场……制作的精美的祝福七哥生日的视频，爱你们。
-
-
-
-
-
-【七哥 台灣農場 祝您 生日快樂🎂 身體健康 🌹🌹🌹巴黎愛您 ❤️❤️❤️】
-
-<img src="https://media.gettr.com/group32/getter/2022/05/09/13/186c180e-d36f-7a8e-158f-d1be751142f5/out.jpg" width="506" height="284">
 
 ---
 
