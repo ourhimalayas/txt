@@ -18,6 +18,14 @@ We are the NEW CHINESE who are taking down EVIL Chinese Communist...
 
 ---
 
+[@miles 5/10/2022 5:16 PM UTC  - :tv:直播](/content/gettr/p195fv6e699.md)
+
+ 5月10日：七哥在生日当天．到这里为所有的战友．及家人的祈福平安！
+
+<img src="https://media.gettr.com/group33/getter/2022/05/10/17/d97102a0-f960-cf57-27f1-8f17986c66e0/out.jpg" width="506" height="284">
+
+---
+
 [@himalayadcfarm 5/2/2022 1:26 PM UTC  - :tv:直播](/content/gettr/p180gh8a2c9.md)
 
 🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】
@@ -82,14 +90,6 @@ A Christian from Norway is worried about the religious freedom of Christians liv
 
 ---
 
-[@miles 5/10/2022 1:04 PM UTC ](/content/gettr/p194cr22860.md)
-
-由于很多战友恭喜生日快乐无法回复，七哥20分钟后内马上直播🙏🙏🙏
-
-<img src="https://media.gettr.com/group11/origin/2022/05/10/13/b9701bdf-c5dc-0bb5-4597-6420862ae1f5/db08bb5efa85a82b8ecc7361934c2149.jpeg" width="506" height="284">
-
----
-
 [@himalayadcfarm 4/20/2022 6:32 PM UTC  - :tv:直播](/content/gettr/p168yif301f.md)
 
 🆘🇺🇦🆘来自乌克兰救援前线报道
@@ -105,6 +105,14 @@ A Christian from Norway is worried about the religious freedom of Christians liv
 Two Russi...
 
 <img src="https://media.gettr.com/group13/origin/2022/04/20/18/1d782df1-dba3-0584-0f6a-f1bedc7ceb75/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/10/2022 1:04 PM UTC ](/content/gettr/p194cr22860.md)
+
+由于很多战友恭喜生日快乐无法回复，七哥20分钟后内马上直播🙏🙏🙏
+
+<img src="https://media.gettr.com/group11/origin/2022/05/10/13/b9701bdf-c5dc-0bb5-4597-6420862ae1f5/db08bb5efa85a82b8ecc7361934c2149.jpeg" width="506" height="284">
 
 ---
 
@@ -231,16 +239,6 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 新中国联邦义工为一位来到波兰边境的乌克兰难民母亲提供帮助。
 
 <img src="https://media.gettr.com/group23/origin/2022/05/09/23/a99b9bca-e43e-74e2-34d7-55258fcf3951/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p190qnpccde.md)
-
-2022.05.09  NFSC fringe  Episode 186
-
-中文同传：https://gettr.com/streaming/p190w58efc7
-
-<img src="https://media.gettr.com/group45/origin/2022/05/09/23/cdb2e789-17d2-8c22-ef3d-6e18d4411020/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
