@@ -2,6 +2,9 @@
 ---
 
 
+#### [有声&#124;英国继续加大对乌克兰的援助力度](/content/gnews/2503169.md)
+ `MOSREC`
+
 #### [美国CDC调查儿童不明肝炎](/content/gnews/2503126.md)
  `NFSC News`
 
@@ -91,9 +94,6 @@
 
 #### [马斯克受到死亡威胁,发布“不自杀声明”](/content/gnews/2502577.md)
  `mayflowertranslate`
-
-#### [祝亲爱的七哥52岁生日快乐](/content/gnews/2502529.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [联邦政府秘密监控加拿大人隐私信息](/content/gnews/2502468.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
