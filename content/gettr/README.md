@@ -2,11 +2,117 @@
 ---
 
 
+[@himalayadcfarm 5/3/2022 1:20 PM UTC  - :tv:直播](/content/gettr/p185hch326b.md)
+
+🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】
+
+来自丹麦的Klaus告诉了我们他的救援工作，除了把小孩子从乌克兰救出战场，更有送到丹麦、安排安置的一条龙服务。他本人也收养了两个难民小孩，那句「是他们也收养了我」令人起敬。
+
+
+
+About the New Federal State of China #NFSC 👇
+
+We are the NEW CHINESE who are taking down EVIL Chinese Communist...
+
+<img src="https://media.gettr.com/group48/origin/2022/05/03/13/aec4df07-fc8a-8a9f-5edb-4b4f8eab2b8d/out.jpg" width="506" height="284">
+
+---
+
+[@himalayadcfarm 5/2/2022 1:26 PM UTC  - :tv:直播](/content/gettr/p180gh8a2c9.md)
+
+🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】
+
+小鸡（小兔）先生Ben临別特意接受採訪——Part B
+
+Ben在采访最后很激动，他说：“毋庸置疑，我们是终身朋友。你们有一个美国朋友！”
+
+
+
+另附采访花絮： Ben离开Medyka营地前，送别了和他结下深厚友谊的乌克兰家庭和两个可爱的孩子。
+
+
+
+About the New Federal State of China #NFSC 👇
+
+We are the NEW CHINESE who ar...
+
+<img src="https://media.gettr.com/group16/origin/2022/05/02/13/021a6779-5e60-0ccf-980a-9d8d8950f508/out.jpg" width="506" height="284">
+
+---
+
+[@himalayadcfarm 5/4/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p18av7o2c71.md)
+
+🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】
+
+
+
+葡萄牙的义工Cristina和美国加州的Robin叙说了她们的救援工作，她们主要提供医疗相关的服务。除了语言不通是最大的障碍，更有心理调节的困难，想到没多远的边境另一边就有战火，Robin 特别难过。采访最后，Robin说她知道新中国联邦在灭共，她也想了解更多灭共的事。
+
+
+
+ About the New Federal State of China #NFSC 👇
+
+We are the N...
+
+<img src="https://media.gettr.com/group31/origin/2022/05/04/11/6c58fc37-5168-bf34-a9ba-0124c8c6f4ef/out.jpg" width="506" height="284">
+
+---
+
+[@himalayadcfarm 5/4/2022 10:20 PM UTC  - :tv:直播](/content/gettr/p18cct1d2c8.md)
+
+❤️#新中国联邦 #乌克兰救援 Nicole报道:
+
+ 这是一名29岁的英国人志愿去乌克兰参加国际兵团，当他得知他的最好的朋友（一名乌克兰士兵）阵亡了，另一个朋友被俄军捕获，他决定去乌克兰前线作战，他表达了对普京、习近平独裁政权的愤怒，他支持新中国联邦灭掉邪恶的中国共产党!💪
+
+这位叫威尔的年轻人说:"在最黑暗的时刻,每个人心中总会有一丝光明,光明总不灭","必须要继续战斗,追寻光明势不可挡!"👏👏👏
+
+Nicole的这段采访非常精彩,这位平和的英国...
+
+<img src="https://media.gettr.com/group14/origin/2022/05/04/22/51c27ab4-77d0-5f8f-8912-c255706988b1/out.jpg" width="506" height="284">
+
+---
+
+[@himalayadcfarm 4/29/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p17ja1p1c54.md)
+
+🆘🇺🇦🆘【Report from NFSC's #UkraineRescue by #Nicole】
+
+A Christian from Norway is worried about the religious freedom of Christians living in China. He loves Chinese history and culture.  Chinese people should have a good governme...
+
+<img src="https://media.gettr.com/group50/origin/2022/04/29/03/d991bf48-d4ce-ed49-8577-3631ca9fd77e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 1:04 PM UTC ](/content/gettr/p194cr22860.md)
 
 由于很多战友恭喜生日快乐无法回复，七哥20分钟后内马上直播🙏🙏🙏
 
 <img src="https://media.gettr.com/group11/origin/2022/05/10/13/b9701bdf-c5dc-0bb5-4597-6420862ae1f5/db08bb5efa85a82b8ecc7361934c2149.jpeg" width="506" height="284">
+
+---
+
+[@himalayadcfarm 4/20/2022 6:32 PM UTC  - :tv:直播](/content/gettr/p168yif301f.md)
+
+🆘🇺🇦🆘来自乌克兰救援前线报道
+
+---💙六月的鲜花和文科Leo采访俄罗斯义工💙
+
+两位俄罗斯人道救援义工来自名叫"Russian against war" 组织。通过交流，此组织跟我们的新中国联邦人有共同的理念和目标：消灭普京和中国共产党。
+
+--------全球灭共不再是口号，而是趋势和行动！
+
+💙 June Flowers and Wenke Leo interviews Russian volunteers 💙 
+
+Two Russi...
+
+<img src="https://media.gettr.com/group13/origin/2022/04/20/18/1d782df1-dba3-0584-0f6a-f1bedc7ceb75/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/10/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p194fkh192b.md)
+
+2022年5月10日 七哥生日与战友们在线聊天
+
+<img src="https://media.gettr.com/group47/origin/2022/05/10/13/06f6e81d-b863-8144-bea7-e9be99967489/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -135,64 +241,6 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 中文同传：https://gettr.com/streaming/p190w58efc7
 
 <img src="https://media.gettr.com/group45/origin/2022/05/09/23/cdb2e789-17d2-8c22-ef3d-6e18d4411020/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p19144u8a63.md)
-
-5/8/2022 Miles Guo: There are two things must be accomplished before the official launch of our GEDU program: building effective teams and finalizing educational model. In addition, all software and hardware essentials for online a...
-
-<img src="https://media.gettr.com/group50/getter/2022/05/09/23/59919e3c-402c-a787-38a1-88f86c4c350c/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p194fkh192b.md)
-
-2022年5月10日 七哥生日与战友们在线聊天
-
-<img src="https://media.gettr.com/group47/origin/2022/05/10/13/06f6e81d-b863-8144-bea7-e9be99967489/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p190yzadb15.md)
-
-5/8/2022 Miles Guo: Once the US imposes sanctions on the CCP, any assets that were traded in the US dollars may be seized. The New Federal State of China can help protect the Chinese people's wealth because we are not involved in a...
-
-<img src="https://media.gettr.com/group22/getter/2022/05/09/23/f4b152c7-1a32-87e6-646d-64be43153dc8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p190mha3380.md)
-
-5/9/2022 Miles Guo: From Russia’s May 9 Victory Day parade to the gloom of world economy, all forebode the demise of the CCP; Russia will definitely be disintegrated; on this June 4th, the 2nd anniversary of the New Federal State o...
-
-<img src="https://media.gettr.com/group15/getter/2022/05/09/23/e0402c5e-9509-f682-0f05-6b3013966f54/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1905ge2cc0.md)
-
-2022.05.09  PM NFSC news   FThe Disaster Created by The CCP Will Be Long and Far-reaching
-
-<img src="https://media.gettr.com/group30/origin/2022/05/09/23/29b5ea55-428b-d427-6b5e-17b159e39723/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/9/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p190yz5e23b.md)
-
-5/9/2022 Miles Guo: You'll see dramatical change of the world economy in the coming days; in front of the (COVID) vaccine disaster and the economic collapse, you should try to stay alive and healthy and do not fight or compete with...
-
-<img src="https://media.gettr.com/group10/getter/2022/05/09/23/55a86536-31b1-31de-56ed-d31b77f4043c/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p190f8t4ca7.md)
-
-“死亡谷” 飞飞秀救援快报 2022-05-09
-
-For English：gettr.com/streaming/p190quk249e
-
-<img src="https://media.gettr.com/group33/origin/2022/05/09/22/12276f96-5bfc-5397-68f3-d2ac1391beff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
