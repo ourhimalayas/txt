@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/9/2022 11:54 PM UTC  - :tv:直播](/content/gettr/p190y4v6ce6.md)
+
+Volunteers from the New Federal State of China help an Ukrainian mother who came to the Polish border as a refuge.
+
+新中国联邦义工为一位来到波兰边境的乌克兰难民母亲提供帮助。
+
+<img src="https://media.gettr.com/group23/origin/2022/05/09/23/a99b9bca-e43e-74e2-34d7-55258fcf3951/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/9/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p190qnpccde.md)
 
 2022.05.09  NFSC fringe  Episode 186
@@ -20,13 +30,11 @@
 
 ---
 
-[@miles 5/9/2022 11:54 PM UTC  - :tv:直播](/content/gettr/p190y4v6ce6.md)
+[@miles 5/10/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p191flub4ae.md)
 
-Volunteers from the New Federal State of China help an Ukrainian mother who came to the Polish border as a refuge.
+2022.05.09  晚 新中国联邦 | 新闻   灭共一定会是共产党自己人；解析美元对中共制裁的范围及意义
 
-新中国联邦义工为一位来到波兰边境的乌克兰难民母亲提供帮助。
-
-<img src="https://media.gettr.com/group23/origin/2022/05/09/23/a99b9bca-e43e-74e2-34d7-55258fcf3951/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/10/00/26f8fb2e-c513-5c5c-daa5-54111fa67d20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 2022.05.09  早 新中国联邦 | 新闻   乌克兰救援行动得到多伦多机场和航司的支持；荷兰摄影记者感谢新中国联邦为世界带来希望
 
 <img src="https://media.gettr.com/group21/origin/2022/05/09/12/10ac89de-d404-ec9a-3b36-dee47dd9ed5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p18yomo3f4b.md)
-
-2022.05.09 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
-
-<img src="https://media.gettr.com/group5/origin/2022/05/09/12/cd946e93-2b46-afae-6433-a99d0c9975c8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
