@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/10/2022 4:19 AM UTC  - :tv:直播](/content/gettr/p191qzucd16.md)
+
+5月10号：衷心地，感谢雅典娜农场为七哥制作的精美的祝贺生日的视频。
+
+
+
+雅典娜农场的兄弟姊妹恭祝七哥生日快乐💓💓💓💓💓💓💓我们爱七哥💞💞💞💞💞💞💞
+
+<img src="https://media.gettr.com/group31/origin/2022/05/10/04/441ebc2a-cf33-bdae-cf14-9d9920a7a813/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 3:12 AM UTC  - :tv:直播](/content/gettr/p1925ue78ee.md)
 
 2022-5-9《鸡血王喜币大作战》 第一百九十集 嘉宾：青藤、Nick
@@ -62,15 +74,11 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 4:19 AM UTC  - :tv:直播](/content/gettr/p191qzucd16.md)
+[@miles 5/10/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p193169779b.md)
 
-5月10号：衷心地，感谢雅典娜农场为七哥制作的精美的祝贺生日的视频。
+2022-5-10  中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-
-
-雅典娜农场的兄弟姊妹恭祝七哥生日快乐💓💓💓💓💓💓💓我们爱七哥💞💞💞💞💞💞💞
-
-<img src="https://media.gettr.com/group31/origin/2022/05/10/04/441ebc2a-cf33-bdae-cf14-9d9920a7a813/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/05/10/04/2018f83e-c98b-f8f1-31f6-a52d91e32be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 5/8/2022 Miles Guo: When the CCP selects cadres, it looks first at how they treat their parents, followed by the abilities and whether they bribe or not. How did Hu Jintao rise to power? What kind of relationship does he have with ...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/09/14/8389a3ff-7a83-3dd2-fc39-63896ba27562/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p18yytu0824.md)
-
-2022.05.09 文贵乱聊直播
-
-<img src="https://media.gettr.com/group34/origin/2022/05/09/14/dd31b092-04e8-33fb-70bf-98de00a16727/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
