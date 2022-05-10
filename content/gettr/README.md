@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 7:03 PM UTC  - :tv:直播](/content/gettr/p194fu8ebe3.md)
+
+2022-5-10《避风港》（45）“杀婴疫苗”
+
+<img src="https://media.gettr.com/group15/origin/2022/05/10/18/a98d2da7-6f72-c023-9577-a2859b091423/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p194ftu5f37.md)
 
 2022.05.10 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -34,11 +42,11 @@ We are the NEW CHINESE who are taking down EVIL Chinese Communist...
 
 ---
 
-[@miles 5/10/2022 7:03 PM UTC  - :tv:直播](/content/gettr/p194fu8ebe3.md)
+[@miles 5/10/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1964v68063.md)
 
-2022-5-10《避风港》（45）“杀婴疫苗”
+2022.05.10  新中国联邦 | 喜健康   核酸检测荒唐结果，人口死亡数据藏猫腻，新西兰及全球有识之士揭开疫苗灾难序幕
 
-<img src="https://media.gettr.com/group15/origin/2022/05/10/18/a98d2da7-6f72-c023-9577-a2859b091423/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/10/20/a3cb50d1-3c36-0ed6-505a-dae70e36a68b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -229,14 +237,6 @@ Day 65 - Date: Ma...
 2022.05.09  新中国联邦 | 喜财经   气候、化肥与粮食安全；世界百年大变局
 
 <img src="https://media.gettr.com/group24/origin/2022/05/10/02/04d6930d-4f06-4001-cb5d-f7d7716b8f38/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p191ah84ea6.md)
-
-2022.05.09  晚 新中国联邦 | 新闻访谈    普京5月9日“胜利日”阅兵预示了"习普"的悲惨结局
-
-<img src="https://media.gettr.com/group24/origin/2022/05/10/01/ff4bb991-9f32-c13c-7396-0a4b194383ff/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
