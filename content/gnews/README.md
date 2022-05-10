@@ -2,6 +2,12 @@
 ---
 
 
+#### [中共“千人计划”资助的化学家被判14年监禁](/content/gnews/2504848.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [拜登强硬回怼普京胜利日讲话](/content/gnews/2504824.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [美国国务院网站 -美台关系重大更新](/content/gnews/2504782.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -31,12 +37,6 @@
 
 #### [疫苗推广揭示了超越民族国家的全球资金流动](/content/gnews/2504713.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [中共国和俄罗斯被禁止参加国际海军会议](/content/gnews/2504709.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【G时新闻】中共钦点候选人傀儡李家超当选新一任香港特首](/content/gnews/2504695.md)
- `G-时新闻`
 
 #### [治愈率99.9%的疫苗反应新药方进入最后测试阶段，新中国联邦无愧此国](/content/gnews/2504687.md)
  `亚伦YALUN`
