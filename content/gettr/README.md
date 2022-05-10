@@ -62,15 +62,15 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 3:37 AM UTC  - :tv:直播](/content/gettr/p191b7bed52.md)
+[@miles 5/10/2022 4:19 AM UTC  - :tv:直播](/content/gettr/p191qzucd16.md)
 
 5月10号：衷心地，感谢雅典娜农场为七哥制作的精美的祝贺生日的视频。
 
 
 
-雅典娜农场的兄弟姊妹恭祝七哥生日快乐，福寿与天齐💓💓💓💓💓💓我们爱七哥💞💞💞💞💞💞💞
+雅典娜农场的兄弟姊妹恭祝七哥生日快乐💓💓💓💓💓💓💓我们爱七哥💞💞💞💞💞💞💞
 
-<img src="https://media.gettr.com/group4/origin/2022/05/10/03/93f42134-667a-f524-b0d3-91a7436880c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/05/10/04/441ebc2a-cf33-bdae-cf14-9d9920a7a813/out.jpg" width="506" height="284">
 
 ---
 
