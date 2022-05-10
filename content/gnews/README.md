@@ -2,6 +2,27 @@
 ---
 
 
+#### [分析人士称中共最害怕与世界脱钩](/content/gnews/2504064.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [20220510郭文贵先生生日与战友乱聊直播 ：疫苗灾难后人类会发生巨变](/content/gnews/2504057.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220510郭文贵先生生日与战友乱聊直播 ：勇敢是对自己坚持的真理 付诸于行动](/content/gnews/2504039.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220510郭文贵先生生日与战友乱聊直播 ：未来世界得知疫苗真相后，人类所有医疗关系会彻底破产](/content/gnews/2504037.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220510郭文贵先生生日与战友乱聊直播 ：新中国联邦人是志同道合，相亲相爱的一家人](/content/gnews/2504017.md)
+ `Tokyo Sakura Video Group`
+
+#### [有声&#124;郭先生解读诺亚方舟的真正含义](/content/gnews/2504015.md)
+ `MOSREC`
+
+#### [05/10/22 香港快讯 恒指半日跌穿2万点 科指跌近5%](/content/gnews/2504002.md)
+ `英喜-粵語組`
+
 #### [20220510郭文贵先生生日与战友乱聊直播 ：凡是寄希望于儿女对自己绝对服从和忠孝的，不是父母是债主](/content/gnews/2503988.md)
  `Tokyo Sakura Video Group`
 
@@ -14,35 +35,26 @@
 #### [拜登签署对乌克兰的民主防御租借法案 民主党推进400亿美元援助](/content/gnews/2503928.md)
  `秘密翻譯組G-Translators`
 
+#### [阿斯利康CEO承认不是每个人都可以打新冠疫苗](/content/gnews/2503909.md)
+ `Little c`
+
 #### [比特币爆跌至10 个月低点 与科技的相关性创下历史新高](/content/gnews/2503907.md)
  `秘密翻譯組G-Translators`
-
-#### [20220510郭文贵先生生日与战友乱聊直播 ：CCP剪掉护照就是要亿万国人变为锁链女](/content/gnews/2503884.md)
- `Tokyo Sakura Video Group`
 
 #### [卫星图像显示中共开发了新级别的核动力潜艇](/content/gnews/2503880.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [俄乌战争让波兰陷入困境](/content/gnews/2503873.md)
- `澳喜特战旅Gnews`
-
 #### [郭先生对他的生日的看法](/content/gnews/2503866.md)
  `thedawn`
-
-#### [乌克兰空军归来](/content/gnews/2503860.md)
- `军情启示录`
 
 #### [乌克兰战争：俄罗斯化工厂遭到“破坏性袭击”](/content/gnews/2503853.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [20220510郭文贵先生生日与战友乱聊直播 ：战友不理解七哥为母亲戒酒](/content/gnews/2503844.md)
- `Tokyo Sakura Video Group`
-
 #### [加州儿童健康保护组织在反对公立学校强制疫苗方面取得重大胜利](/content/gnews/2503801.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [如爆料革命情报披露，美国政府欲废除对中共国商品的关税](/content/gnews/2503761.md)
- `秘密翻譯組G-Translators`
+#### [有声&#124;中共18架战机再犯台湾领空 规模为今年以来第二大入侵](/content/gnews/2503770.md)
+ `MOSREC`
 
 #### [美国及世界疫情简报（05-10-2022）](/content/gnews/2503747.md)
  `波士顿五月花农场`
@@ -55,9 +67,6 @@
 
 #### [特鲁多在基辅表示强力支持乌克兰](/content/gnews/2503677.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [有声&#124;99%党员是好人 以共灭共一定会实现](/content/gnews/2503661.md)
- `MOSREC`
 
 #### [跟流氓讲法律有效? 上海两法律界人士公开质疑防疫违法官方紧张急令“不得转发”](/content/gnews/2503656.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -77,12 +86,6 @@
 #### [5/10/2022国际财经快讯：德国为突然终止俄罗斯天然气准备危机计划；特斯拉周二停止上海工厂大部分生产](/content/gnews/2503497.md)
  `秘密翻译组金融团队`
 
-#### [樱花时政｜乌女军医在钢铁厂撤离时被俄军抓捕失踪](/content/gnews/2503436.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [视频&#124;美国驻乌克兰代理大使重返基辅](/content/gnews/2503398.md)
- `MOSVIDEO`
-
 #### [2022年5月10日七哥直播速记](/content/gnews/2503339.md)
  `Mr. Miles Guo's News Briefing`
 
@@ -95,17 +98,11 @@
 #### [比特币跌破3万美元创2021年7月以来最低](/content/gnews/2502848.md)
  `【🌹玫瑰新闻】`
 
-#### [有声&#124; 新西兰已记录超过一百万例中共病毒病例](/content/gnews/2502847.md)
- `【🌹玫瑰新闻】`
-
 #### [64年历史轮回：新中国联邦拟在波兰建馆的机缘与意义](/content/gnews/2502812.md)
  `秘密翻译组-原创组`
 
 #### [欧盟强烈谴责俄罗斯对Viasat KA-SAT卫星网络攻击](/content/gnews/2502808.md)
  `温哥华扬帆农场`
-
-#### [2022/05/10 英喜时事速递](/content/gnews/2502461.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [消费券无助刺香港本土经济](/content/gnews/2502317.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -130,6 +127,9 @@
 
 #### [科技股暴跌使华尔街跌幅更大](/content/gnews/2501280.md)
  `西班牙巴塞罗那喜悦农场`
+
+#### [新闻述评：习近平鼓动共青团成为不怕鬼、不信邪的马克思主义斗士](/content/gnews/2501246.md)
+ `战云长天时评`
 
 #### [随着股市暴跌比特币跌至10个月最低点](/content/gnews/2501182.md)
  `西班牙巴塞罗那喜悦农场`
