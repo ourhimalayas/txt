@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p191ah84ea6.md)
+
+2022.05.09  晚 新中国联邦 | 新闻访谈    普京5月9日“胜利日”阅兵预示了"习普"的悲惨结局
+
+<img src="https://media.gettr.com/group24/origin/2022/05/10/01/ff4bb991-9f32-c13c-7396-0a4b194383ff/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p191flub4ae.md)
 
 2022.05.09  晚 新中国联邦 | 新闻   灭共一定会是共产党自己人；解析美元对中共制裁的范围及意义
@@ -38,11 +46,11 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p191ah84ea6.md)
+[@miles 5/10/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p191vi6214b.md)
 
-2022.05.09  晚 新中国联邦 | 新闻访谈    普京5月9日“胜利日”阅兵预示了"习普"的悲惨结局
+2022.05.09  新中国联邦 | 喜财经   气候、化肥与粮食安全；世界百年大变局
 
-<img src="https://media.gettr.com/group24/origin/2022/05/10/01/ff4bb991-9f32-c13c-7396-0a4b194383ff/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/05/10/02/04d6930d-4f06-4001-cb5d-f7d7716b8f38/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 【七哥 台灣農場 祝您 生日快樂🎂 身體健康 🌹🌹🌹巴黎愛您 ❤️❤️❤️】
 
 <img src="https://media.gettr.com/group32/getter/2022/05/09/13/186c180e-d36f-7a8e-158f-d1be751142f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p18yex4c754.md)
-
-2022.05.09  早 新中国联邦 | 新闻访谈     上海下军令状 浦东“粉身碎骨论”引大量批评；一带一路两条线受重挫 中共陷恐惧
-
-<img src="https://media.gettr.com/group45/origin/2022/05/09/13/180f8051-937d-ce42-1865-8a74cca200f1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
