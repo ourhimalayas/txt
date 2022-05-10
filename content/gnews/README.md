@@ -2,6 +2,15 @@
 ---
 
 
+#### [治愈率99.9%的疫苗反应新药方进入最后测试阶段，新中国联邦无愧此国](/content/gnews/2504687.md)
+ `亚伦YALUN`
+
+#### [CDC最新数据：儿童接种COVID-19疫苗导致106例死亡和48033例不良反应](/content/gnews/2504621.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [DC每日热点0510](/content/gnews/2504619.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [普京在乌克兰失去第38位上校，炮兵团长以军礼下葬](/content/gnews/2504602.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -74,17 +83,11 @@
 #### [郭先生对他的生日的看法](/content/gnews/2503866.md)
  `thedawn`
 
-#### [加州儿童健康保护组织在反对公立学校强制疫苗方面取得重大胜利](/content/gnews/2503801.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月10日早](/content/gnews/2503746.md)
  `纽约香草山MOS01`
 
 #### [跟流氓讲法律有效? 上海两法律界人士公开质疑防疫违法官方紧张急令“不得转发”](/content/gnews/2503656.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [前国务院国家安全委员会委员认为中共正在从俄乌战争中吸取诸多教训](/content/gnews/2503655.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [视频&#124;习近平一定会攻打台湾 灭共不能靠幻想](/content/gnews/2503579.md)
  `MOSVIDEO`
@@ -153,9 +156,6 @@
  `KarmaLabs`
 
 #### [文编&#124;醒来吧，同胞们，中共每时每刻，在强奸我们十四 五岁的少女](/content/gnews/2497082.md)
- `KarmaLabs`
-
-#### [文编&#124;新中国联邦永远不会放弃拯救被中共蹂躏的女性](/content/gnews/2497054.md)
  `KarmaLabs`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
