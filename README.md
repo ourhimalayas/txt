@@ -11,7 +11,16 @@
 
 ---
 
+#### [2022年5月10日七哥生日乱聊直播及音频—银河系农场](/content/gnews/2505060.md)
+ `喜马拉雅日本银河系农场`
+
+#### [普京的危险帝国梦（三）](/content/gnews/2505034.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [郭氏情报站- 2022.05.08 文贵大直播概要](/content/gnews/2504983.md)
+ `MOS Designer香草山设计部`
+
+#### [郭氏情报站- 2022.05.09 文贵先生盖特乱聊摘要](/content/gnews/2504982.md)
  `MOS Designer香草山设计部`
 
 #### [战友日常之-做个好人](/content/gnews/2504981.md)
@@ -30,9 +39,6 @@
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [联邦政府秘密监控加拿大人](/content/gnews/2504871.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [中共“千人计划”资助的化学家被判14年监禁](/content/gnews/2504848.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [【G时新闻】“共和”意味着什么](/content/gnews/2504833.md)
@@ -88,9 +94,6 @@
 
 #### [新加坡的加密币实验“是一场灾难”](/content/gnews/2504269.md)
  `秘密翻譯組G-Translators`
-
-#### [“独裁者的儿子”当选菲律宾总统](/content/gnews/2504229.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [新西兰财经G乐部2022年5月10日:财经新闻整理](/content/gnews/2504218.md)
  `Finance-GCLUB【新西兰财经G乐部】`
@@ -162,9 +165,6 @@
  `KarmaLabs`
 
 #### [文编&#124;创作《铁锁梦》是天意](/content/gnews/2497198.md)
- `KarmaLabs`
-
-#### [文编&#124;拥有HPAY是发生人道灾难时抓住诺亚方舟缆绳的机会](/content/gnews/2497159.md)
  `KarmaLabs`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
