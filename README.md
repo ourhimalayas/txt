@@ -11,14 +11,41 @@
 
 ---
 
+#### [【说事儿】日本宣布参加法国在南太平洋演练 针对中国？](/content/gnews/2500707.md)
+ `TokyoSakuraDesignGroup`
+
+#### [拜登正式签署乌克兰版租借法案](/content/gnews/2500706.md)
+ `日本东京方舟农场`
+
+#### [樱花FM┃“安心出行”APP实时监控港人行踪](/content/gnews/2500703.md)
+ `樱花FM`
+
+#### [【说事儿】俄罗斯胜利日可能是石油的一个关键时刻](/content/gnews/2500673.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃楼市泡沫将爆 山顶豪宅成交量屈指可数](/content/gnews/2500672.md)
+ `樱花FM`
+
+#### [【说事儿】美中情局长称俄乌战争让习近平仍然决心武力攻台](/content/gnews/2500660.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花时政｜韩国总统尹锡悦宣誓就职 未提日韩关系](/content/gnews/2500656.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆&#124;特斯拉停止了上海工厂的大部分生产](/content/gnews/2500651.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃中共要求从9月开始中小学生学煮饭](/content/gnews/2500623.md)
+ `樱花FM`
+
 #### [文•贵天成：文贵先生谈孟建柱（七十二）](/content/gnews/2500619.md)
  `墨尔本雅典娜农场`
 
-#### [【说事儿】斯洛伐克总理誓言保持对乌克兰的军事援助](/content/gnews/2500618.md)
- `TokyoSakuraDesignGroup`
-
 #### [【说事儿】辉瑞公司的文件显示FDA知道自然免疫的作用](/content/gnews/2500613.md)
  `TokyoSakuraDesignGroup`
+
+#### [联盟工作汇报文字版2022.5.8](/content/gnews/2500612.md)
+ `NFSC News`
 
 #### [国际｜芬兰总理首次访日 有望在一周内申请加入北约](/content/gnews/2500611.md)
  `關注組`
@@ -29,17 +56,8 @@
 #### [樱花FM┃美国准备制裁中共视频监控技术公司海康威视](/content/gnews/2500591.md)
  `樱花FM`
 
-#### [【说事儿】香港｜中共钦点唯一候选人李家超无悬念当选新一届行政长官](/content/gnews/2500590.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】拥有喜币和G系列的人是最幸福的](/content/gnews/2500585.md)
- `TokyoSakuraDesignGroup`
-
 #### [樱花FM┃经济雪崩，中共再次启动大基建续命](/content/gnews/2500572.md)
  `樱花FM`
-
-#### [DC大中华时事：美国务院网站更改涉台重要表述，一中政策转向](/content/gnews/2500570.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [美前国安高官致函国会：“松绑”高科技移民限制](/content/gnews/2500565.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -47,29 +65,17 @@
 #### [【祝七哥 生日快乐】——生日快乐！身体健康！万事如意！](/content/gnews/2500551.md)
  `SpicyWorld`
 
-#### [樱花FM┃88家中概股企业被美加入预摘牌名单](/content/gnews/2500546.md)
- `樱花FM`
-
 #### [习想要一统江山的野心体现在他在社科院院长人选的任用上](/content/gnews/2500544.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [7.24系列——中共华尔街顶级代言人约翰·桑顿](/content/gnews/2500537.md)
- `墨尔本雅典娜农场`
-
 #### [【说事儿】拜登政府预测秋冬季中共病毒疫情浪潮 或有1亿感染](/content/gnews/2500514.md)
  `TokyoSakuraDesignGroup`
-
-#### [樱花FM┃美国研究曝：奥密克戎一样会造成重症](/content/gnews/2500513.md)
- `樱花FM`
 
 #### [【说事儿】中共强制接种疫苗：用“知情自愿”“开证明”“应接尽接”愚弄百姓](/content/gnews/2500490.md)
  `TokyoSakuraDesignGroup`
 
 #### [上海封城｜中共野蛮防疫及亲俄立场吓退贝莱德继续“看涨”中国市场](/content/gnews/2500484.md)
  `關注組`
-
-#### [视频&#124;日媒关注前香港黑警李家超成为下任特首](/content/gnews/2500482.md)
- `MOSVIDEO`
 
 #### [莫里森称澳洲知道中共国在太平洋地区的计划](/content/gnews/2500436.md)
  `墨尔本雅典娜农场`
@@ -131,9 +137,6 @@
 #### [中日财经爆┃受中国封城效应和美国利率升高影响　纽约道指下跌653美元创下新低](/content/gnews/2499702.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中日财经爆┃比特币跌破3万美元大关 创去年7月来新低](/content/gnews/2499697.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [樱花时政┃态度转变 德国表态：帮助乌克兰是历史责任](/content/gnews/2499684.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -163,9 +166,6 @@
 
 #### [国际｜英国第三轮经济制裁 将提高对俄罗斯铂金和钯金的关税](/content/gnews/2495146.md)
  `關注組`
-
-#### [99%党员是好人 以共灭共一定会实现](/content/gnews/2494483.md)
- `NFSC News`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
