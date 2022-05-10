@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 7:13 AM UTC  - :tv:直播](/content/gettr/p193aaj8848.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group20/origin/2022/05/10/06/84410b6f-c285-b955-b81e-918b572e8e09/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p193169779b.md)
 
 2022-5-10  中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -82,11 +90,35 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 7:13 AM UTC  - :tv:直播](/content/gettr/p193aaj8848.md)
+[@miles 5/10/2022 10:17 AM UTC ](/content/gettr/p1935upc079.md)
 
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group20/origin/2022/05/10/06/84410b6f-c285-b955-b81e-918b572e8e09/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月8日第65天当日救援统计：
+
+Medyka救援站接待：约183人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约17621人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 65 - Date: Ma...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/10/10/cc1cf52f-1184-06e4-3497-479ebdeb4cb5/0725595e7284cae97410958ffa5f622b.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +193,6 @@ Nicole interviews a volunteer named David who was born in Ukraine and grew up in
 2022.05.09 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group42/origin/2022/05/09/17/3c128167-b622-f16c-f03b-ea3161f81522/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/9/2022 5:11 PM UTC  - :tv:直播](/content/gettr/p18z6vv5552.md)
-
-5月9日，衷心地，感谢圆成农场．制作的让七哥流哈喇子．流眼泪的视频！
-
-
-
-【预祝我亲爱的敬爱的七哥生日快乐🎁🎂
-
-这是圆成农场战友为七哥准备了生日祝福，虽然是遥祝，但是诚意满满的，都是对我七哥的真爱，期望有一天灭共后。亲手给七哥做一碗长寿面奉上，让七哥幸福安康，平和，淡定从容的不再操心疲惫的美好生活🙏❤️
-
-https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
-
-<img src="https://media.gettr.com/group43/getter/2022/05/09/17/e8656deb-86d7-de38-8baf-d2a24d56b184/out.jpg" width="506" height="284">
 
 ---
 
