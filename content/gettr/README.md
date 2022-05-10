@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/10/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1970pt8364.md)
+
+【Ukraine Rescue】05/09/2022 Fellow fighter king is interviewed by JTO NEWS from France. He says that the NFSC is the Chinese people taking down the CCP. He says the rescue mission of the NFSC focuses on practical actions and the Ukr...
+
+<img src="https://media.gettr.com/group18/getter/2022/05/10/23/8aba318a-dea8-8310-6e2d-cbec027fcf89/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/10/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p197cncdb77.md)
+
+2022.05.10  PM NFSC news   NFSC Excitingly Announce CCP Virus Vaccine Antidote on Mother’s Day
+
+<img src="https://media.gettr.com/group12/origin/2022/05/10/22/8df53678-7fec-e768-3bf7-831034aec9cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p196due6726.md)
 
 5/4/2022 Sky News Arabia interviewed fellow fighter Max at the rescue camp in Medyka, Poland, reporting in a positive way the humanitarian rescue operations of the New Federal State of China to help Ukrainian refugees who fled the ...
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 5/10/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p197cncdb77.md)
+[@miles 5/10/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p197ei5cf6e.md)
 
-2022.05.10  PM NFSC news   NFSC Excitingly Announce CCP Virus Vaccine Antidote on Mother’s Day
+【Ukraine Rescue】05/10/2022 Ukrainian national football team passes the Medyka camp on their way to France for training and comes to the tent of the NFSC and ROLF to rest and drink coffee. They thank the NFSC for its humanitarian as...
 
-<img src="https://media.gettr.com/group12/origin/2022/05/10/22/8df53678-7fec-e768-3bf7-831034aec9cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/05/10/23/8fc55df2-82d6-03dd-9789-0760f1b17445/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,46 +211,6 @@ Two Russi...
 2022.05.10  AM NFSC news   A Dutch Photojournalist Thanks NFSC For Bringing Hope to The World
 
 <img src="https://media.gettr.com/group24/origin/2022/05/10/11/c905993c-cf46-6bb7-d6de-d0ce5b2f2ef1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/10/2022 10:17 AM UTC ](/content/gettr/p1935upc079.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月8日第65天当日救援统计：
-
-Medyka救援站接待：约183人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约17621人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 65 - Date: Ma...
-
-<img src="https://media.gettr.com/group12/getter/2022/05/10/10/cc1cf52f-1184-06e4-3497-479ebdeb4cb5/0725595e7284cae97410958ffa5f622b.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 7:13 AM UTC  - :tv:直播](/content/gettr/p193aaj8848.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group20/origin/2022/05/10/06/84410b6f-c285-b955-b81e-918b572e8e09/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
