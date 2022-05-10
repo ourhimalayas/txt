@@ -2,23 +2,47 @@
 ---
 
 
+#### [现在CCP说抓你就抓你！白色恐怖](/content/gnews/2499865.md)
+ `Tokyo Sakura Video Group`
+
+#### [樱花FM┃疫苗中的氧化石墨烯到底有没有毒？](/content/gnews/2499864.md)
+ `樱花FM`
+
+#### [预计澳洲商品百货价格将在今年上涨12%](/content/gnews/2499839.md)
+ `澳喜农场`
+
+#### [美国对27名俄天然气工业银行高管和电视台实施制裁](/content/gnews/2499832.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [中共国，密接被隔离回来家里被洗劫一空](/content/gnews/2499828.md)
+ `Tokyo Sakura Video Group`
+
+#### [气候变化导致中共国海平面上升创纪录](/content/gnews/2499802.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中共国主席习近平表示，中共将反对任何质疑中共国零新冠政策的企图](/content/gnews/2499801.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [孝而不顺](/content/gnews/2499796.md)
+ `银河勇气之星`
+
+#### [中日财经爆&#124;中共国4月份出口创两年来新低](/content/gnews/2499784.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [俄罗斯驻波兰大使脸上被泼红漆](/content/gnews/2499771.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中日财经爆&#124;美元创20年来新高 人民币创18个月新低](/content/gnews/2499767.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [中日财经爆&#124;中共极端防疫政策致使多数美资企业减少在华投资](/content/gnews/2499754.md)
  `東京櫻花団-Tokyo Sakura Group`
 
+#### [从范冰冰事情上看中共何为“生殖器治国”](/content/gnews/2499748.md)
+ `澳喜农场`
+
 #### [弗拉基米尔·克里琴科谈俄乌战争：我们一直在等待武器自卫](/content/gnews/2499747.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [中日财经爆&#124;美国宣布对乌克兰进口钢铁免税一年](/content/gnews/2499744.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃G7外长发表联合声明 严重关切香港特首选举](/content/gnews/2499736.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃乌克兰官员：普京的讲话表明他不会使用核武器](/content/gnews/2499728.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃胜利日阅兵前 俄罗斯电视上出现反战标语](/content/gnews/2499721.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆┃受中国封城效应和美国利率升高影响　纽约道指下跌653美元创下新低](/content/gnews/2499702.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -62,9 +86,6 @@
 #### [数十国要求联合国人权理事会召开特别会议 以追究俄罪行](/content/gnews/2499504.md)
  `日本东京方舟农场`
 
-#### [普京在俄罗斯胜利日阅兵式上发表讲话，称其为“被迫”入侵乌克兰](/content/gnews/2499484.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [视频&#124;黑灯瞎火去种地](/content/gnews/2499473.md)
  `爆料视频`
 
@@ -77,26 +98,20 @@
 #### [“尼莫”母亲节精彩瞬间-1 我对妈妈知多少转盘游戏](/content/gnews/2499469.md)
  `喜马拉雅纽约磐石农场`
 
-#### [美国否认坚持一个中国原则](/content/gnews/2499462.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [泽连斯基在胜利日传达信息：二战我们赢了，我们现在也会赢](/content/gnews/2499446.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [乌克兰战争：普京胜利日演讲几乎没有任何线索](/content/gnews/2499439.md)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [【全文字幕】2022年5月1日 文贵大直播：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌](/content/gnews/2499398.md)
  `文贵视频字幕全集`
 
-#### [【G时新闻】英国地方议会选举：保守党在三个地区均遭“重创”!](/content/gnews/2499396.md)
- `G-时新闻`
-
 #### [文贵最近已深切感受到全世界对爆料革命的全面关注](/content/gnews/2499384.md)
  `喜马拉雅-华盛顿DC农场`
 
+#### [深层次原因导致中共国经济放缓](/content/gnews/2499367.md)
+ `纽约香草山MOS02`
+
 #### [在多维关闭，佩洛西即将访台之际，文贵说出了心中最担忧的事情](/content/gnews/2499333.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月9日晚](/content/gnews/2499306.md)
- `纽约香草山MOS01`
 
 #### [中共国美国商会调查：防疫措施扼杀在华美企信心](/content/gnews/2499277.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -104,23 +119,14 @@
 #### [美国会计划为乌克兰增加近400亿美元资金援助](/content/gnews/2499255.md)
  `蓝莲花农场`
 
-#### [北京二外学院师生抗议强制封锁校园遭到警方威胁](/content/gnews/2499251.md)
- `日本东京方舟农场`
-
 #### [FDA：美国人应该像对待流感一样对待COVID-19](/content/gnews/2499232.md)
  `温哥华圆成农场🇨🇦`
 
 #### [拜登担心普京没有摆脱乌克兰战争的出路](/content/gnews/2499218.md)
  `thedawn`
 
-#### [封城日记](/content/gnews/2499203.md)
- `墨尔本雅典娜农场`
-
 #### [个人关于疫苗、核酸的公开问题](/content/gnews/2499192.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [阿尔伯塔和BC省卫生官员面临法律诉讼](/content/gnews/2499172.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [焦点：李嘉诚为什么配合中共演戏？](/content/gnews/2499100.md)
  `蓝莲花农场`
@@ -130,12 +136,6 @@
 
 #### [高雄国军总医院挂钟报时竟播《东方红》](/content/gnews/2498189.md)
  `G-NEWS TAIWAN`
-
-#### [英国宣布对俄罗斯价值17亿英镑的贸易实施新的制裁](/content/gnews/2497543.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [下沉干部：北京重启武汉模式,开启新版“上山下乡”运动](/content/gnews/2496934.md)
- `战云长天时评`
 
 #### [台海危机｜传美国敦促台湾改购不对称作战武器 以有效抵抗解放军](/content/gnews/2495334.md)
  `關注組`
