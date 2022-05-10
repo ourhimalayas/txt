@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p193169779b.md)
+
+2022-5-10  中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group34/origin/2022/05/10/04/2018f83e-c98b-f8f1-31f6-a52d91e32be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 4:19 AM UTC  - :tv:直播](/content/gettr/p191qzucd16.md)
 
 5月10号：衷心地，感谢雅典娜农场为七哥制作的精美的祝贺生日的视频。
@@ -74,11 +82,11 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p193169779b.md)
+[@miles 5/10/2022 7:13 AM UTC  - :tv:直播](/content/gettr/p193aaj8848.md)
 
-2022-5-10  中国联邦法治基金乌克兰人道救援行动--最新战况播报
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group34/origin/2022/05/10/04/2018f83e-c98b-f8f1-31f6-a52d91e32be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/05/10/06/84410b6f-c285-b955-b81e-918b572e8e09/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Nicole interviews a volunteer named David who was born in Ukraine and grew up in
 https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/09/17/e8656deb-86d7-de38-8baf-d2a24d56b184/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p18zbj5a17b.md)
-
-5/8/2022 Miles Guo: When the CCP selects cadres, it looks first at how they treat their parents, followed by the abilities and whether they bribe or not. How did Hu Jintao rise to power? What kind of relationship does he have with ...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/09/14/8389a3ff-7a83-3dd2-fc39-63896ba27562/out.jpg" width="506" height="284">
 
 ---
 
