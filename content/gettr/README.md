@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p196due6726.md)
+
+5/4/2022 Sky News Arabia interviewed fellow fighter Max at the rescue camp in Medyka, Poland, reporting in a positive way the humanitarian rescue operations of the New Federal State of China to help Ukrainian refugees who fled the ...
+
+<img src="https://media.gettr.com/group33/getter/2022/05/10/22/6d811e1d-15e4-2504-98f2-c6b37969102f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p19715ee943.md)
 
 5/10/2022 Miles Guo: Quit drinking for my mother is one of the greatest achievements in my life; all my acquaintances can hardly believe that I quit drinking and they know how challenging it is. A kleptocrat in the Zhongnan Pit use...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/10/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p196due6726.md)
+[@miles 5/10/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p197cncdb77.md)
 
-5/4/2022 Sky News Arabia interviewed fellow fighter Max at the rescue camp in Medyka, Poland, reporting in a positive way the humanitarian rescue operations of the New Federal State of China to help Ukrainian refugees who fled the ...
+2022.05.10  PM NFSC news   NFSC Excitingly Announce CCP Virus Vaccine Antidote on Mother’s Day
 
-<img src="https://media.gettr.com/group33/getter/2022/05/10/22/6d811e1d-15e4-2504-98f2-c6b37969102f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/05/10/22/8df53678-7fec-e768-3bf7-831034aec9cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -227,14 +235,6 @@ Day 65 - Date: Ma...
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group20/origin/2022/05/10/06/84410b6f-c285-b955-b81e-918b572e8e09/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p193169779b.md)
-
-2022-5-10  中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group34/origin/2022/05/10/04/2018f83e-c98b-f8f1-31f6-a52d91e32be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
