@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p193kpzee91.md)
+
+2022.05.10  AM NFSC news   A Dutch Photojournalist Thanks NFSC For Bringing Hope to The World
+
+<img src="https://media.gettr.com/group24/origin/2022/05/10/11/c905993c-cf46-6bb7-d6de-d0ce5b2f2ef1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 10:17 AM UTC ](/content/gettr/p1935upc079.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -122,11 +130,11 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p193kpzee91.md)
+[@miles 5/10/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p194fsmcb0b.md)
 
-2022.05.10  AM NFSC news   A Dutch Photojournalist Thanks NFSC For Bringing Hope to The World
+2022.05.10 早 新中国联邦 | 新闻 美国志愿者称新中国联邦为正义而战；郭先生父母对其影响是爆料革命胜利的根基
 
-<img src="https://media.gettr.com/group24/origin/2022/05/10/11/c905993c-cf46-6bb7-d6de-d0ce5b2f2ef1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/05/10/12/f760b9ae-0b4e-5b6e-2f77-788534de28a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Nicole interviews a volunteer named David who was born in Ukraine and grew up in
 2022.05.09  新中国联邦 | 喜健康   老药新用：探索溴已新（BROMHEXINE）治疗冠状病毒感染
 
 <img src="https://media.gettr.com/group17/origin/2022/04/15/20/1520c6d8-e7bb-276b-00df-0ec0c5bdbe4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 5:53 PM UTC  - :tv:直播](/content/gettr/p18y47wb05c.md)
-
-2022.05.09 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group42/origin/2022/05/09/17/3c128167-b622-f16c-f03b-ea3161f81522/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
