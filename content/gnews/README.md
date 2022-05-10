@@ -2,6 +2,12 @@
 ---
 
 
+#### [郭氏情报站- 2022.05.08 文贵大直播概要](/content/gnews/2504983.md)
+ `MOS Designer香草山设计部`
+
+#### [战友日常之-做个好人](/content/gnews/2504981.md)
+ `MOS Designer香草山设计部`
+
 #### [中日财经爆┃中共制造业是装满鲜艳颜料的玻璃瓶](/content/gnews/2504943.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -22,12 +28,6 @@
 
 #### [【G时新闻】“共和”意味着什么](/content/gnews/2504833.md)
  `G-时新闻`
-
-#### [拜登强硬回怼普京胜利日讲话](/content/gnews/2504824.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [美国国务院网站 -美台关系重大更新](/content/gnews/2504782.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [精粮战友向法国记者介绍新中国联邦的救援行动](/content/gnews/2504757.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
