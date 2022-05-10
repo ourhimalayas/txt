@@ -11,6 +11,15 @@
 
 ---
 
+#### [中日财经爆┃中国出口增速暴跌 经济下行超乎想象](/content/gnews/2505219.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [特斯拉上海工厂大部分停产，4月销量下滑](/content/gnews/2505197.md)
+ `墨尔本雅典娜农场`
+
+#### [视频&#124;5月9日 文贵Gettr乱聊直播 浓缩版](/content/gnews/2505196.md)
+ `爆料视频`
+
 #### [谈古论今 ┃ 福德与功德](/content/gnews/2505173.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -25,9 +34,6 @@
 
 #### [普京的危险帝国梦（三）](/content/gnews/2505034.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [郭氏情报站- 2022.05.08 文贵大直播概要](/content/gnews/2504983.md)
- `MOS Designer香草山设计部`
 
 #### [郭氏情报站- 2022.05.09 文贵先生盖特乱聊摘要](/content/gnews/2504982.md)
  `MOS Designer香草山设计部`
@@ -51,9 +57,6 @@
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [佛州州长设立11月7日为共产主义受害者纪念日](/content/gnews/2504741.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [弗兰克·加夫尼谈中共在日内瓦的影响](/content/gnews/2504733.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [五月花简报（2022/05/10）](/content/gnews/2504727.md)
@@ -115,9 +118,6 @@
 
 #### [前国务院国家安全委员会委员认为中共正在从俄乌战争中吸取诸多教训](/content/gnews/2503655.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [中共千人计划专家游晓蓉因经济间谍活动和欺诈获重刑](/content/gnews/2503623.md)
- `温哥华扬帆农场`
 
 #### [5/10/2022国际财经快讯：德国为突然终止俄罗斯天然气准备危机计划；特斯拉周二停止上海工厂大部分生产](/content/gnews/2503497.md)
  `秘密翻译组金融团队`
