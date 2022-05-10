@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/10/2022 3:12 AM UTC  - :tv:直播](/content/gettr/p1925ue78ee.md)
+
+2022-5-9《鸡血王喜币大作战》 第一百九十集 嘉宾：青藤、Nick
+
+<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p191vi6214b.md)
 
 2022.05.09  新中国联邦 | 喜财经   气候、化肥与粮食安全；世界百年大变局
@@ -54,11 +62,15 @@ Volunteers from the New Federal State of China help an Ukrainian mother who came
 
 ---
 
-[@miles 5/10/2022 3:12 AM UTC  - :tv:直播](/content/gettr/p1925ue78ee.md)
+[@miles 5/10/2022 3:37 AM UTC  - :tv:直播](/content/gettr/p191b7bed52.md)
 
-2022-5-9《鸡血王喜币大作战》 第一百九十集 嘉宾：青藤、Nick
+5月10号：衷心地，感谢雅典娜农场为七哥制作的精美的祝贺生日的视频。
 
-<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+雅典娜农场的兄弟姊妹恭祝七哥生日快乐，福寿与天齐💓💓💓💓💓💓我们爱七哥💞💞💞💞💞💞💞
+
+<img src="https://media.gettr.com/group4/origin/2022/05/10/03/93f42134-667a-f524-b0d3-91a7436880c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ https://mega.nz/file/GotliCiC#YgK_91pfCcK4mvUQz-jUlo9GjX7LogH0G90AAVJqiF...
 2022.05.09 文贵乱聊直播
 
 <img src="https://media.gettr.com/group34/origin/2022/05/09/14/dd31b092-04e8-33fb-70bf-98de00a16727/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/9/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p18y7m1c1bf.md)
-
-【Ukraine Rescue】05/08/2022  Ivan, a young Russian volunteer, brought Little Sarah a small gift. It is a pin from Russia that says “Lustration”, which is Russian for purification. He said that Poland had overthrown the Communist Par...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/09/13/b77f0183-a788-0823-e1ac-325e05b7ef63/out.jpg" width="506" height="284">
 
 ---
 
