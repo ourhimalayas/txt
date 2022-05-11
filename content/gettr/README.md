@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/11/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p197kbf765c.md)
+
+5/10/2022: Miles Guo: the trust between patients and physicians will be severely damaged in the future; the digital era with blockchain technology will overthrow the corrupt medical system across the world, the hospitals, insurance...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/11/01/ee28842d-d11f-7d22-e9ec-dad9a0dc4508/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/11/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p197eue04ce.md)
+
+5/10/2022 Miles Guo: Why does the failure of President Trump's re-election also benefit our cause of taking down the CCP to some extent? As I have said, Putin held the Victory Day Parade on May 9, and nothing happened. However, the...
+
+<img src="https://media.gettr.com/group49/getter/2022/05/11/01/2e363a0b-06d7-9711-f23e-0d87b83611ab/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p196v99f75f.md)
 
 2022.05.10  晚 新中国联邦 | 新闻访谈    更强的病毒变体( 疫苗災害）席卷加国美国 加元跌惨
@@ -23,14 +39,6 @@
 2022.05.10  晚 新中国联邦 | 新闻   美国总统拜登签署租借法案加快向乌克兰提供军备；拜登担心找不到出路的普京接下来会怎么做
 
 <img src="https://media.gettr.com/group9/origin/2022/05/11/00/037a23d2-2f53-0dd7-b3f1-e4b2020fe36b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p197eue04ce.md)
-
-5/10/2022 Miles Guo: Why does the failure of President Trump's re-election also benefit our cause of taking down the CCP to some extent? As I have said, Putin held the Victory Day Parade on May 9, and nothing happened. However, the...
-
-<img src="https://media.gettr.com/group49/getter/2022/05/11/01/2e363a0b-06d7-9711-f23e-0d87b83611ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -131,24 +139,6 @@ For English：gettr.com/streaming/p196du8d990
 2022.05.10 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group22/origin/2022/05/10/17/6fed9fbd-2eca-e96a-7a25-d2b7673d0e9f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@himalayadcfarm 5/4/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p18av7o2c71.md)
-
-🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】
-
-
-
-葡萄牙的义工Cristina和美国加州的Robin叙说了她们的救援工作，她们主要提供医疗相关的服务。除了语言不通是最大的障碍，更有心理调节的困难，想到没多远的边境另一边就有战火，Robin 特别难过。采访最后，Robin说她知道新中国联邦在灭共，她也想了解更多灭共的事。
-
-
-
- About the New Federal State of China #NFSC 👇
-
-We are the N...
-
-<img src="https://media.gettr.com/group31/origin/2022/05/04/11/6c58fc37-5168-bf34-a9ba-0124c8c6f4ef/out.jpg" width="506" height="284">
 
 ---
 
