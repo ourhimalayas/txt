@@ -2,6 +2,9 @@
 ---
 
 
+#### [5月11日勿忘香港（图片1-5）](/content/gnews/2511252.md)
+ `波士顿五月花农场`
+
 #### [2022/05/11 文贵大直播重点大纲](/content/gnews/2511216.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -28,9 +31,6 @@
 
 #### [MV版《铁锁梦》上线第23天位列德国iTunesMV榜首](/content/gnews/2511037.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [郭文贵先生谈为母戒酒](/content/gnews/2511019.md)
- `焦點20分`
 
 #### [斯里兰卡冲突加剧，首相辞职逃离官邸（上）](/content/gnews/2511018.md)
  `西班牙巴塞罗那喜悦农场`
