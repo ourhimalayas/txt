@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 12:05 PM UTC  - :tv:直播](/content/gettr/p19a84pe4db.md)
+
+2022年5月11日 文贵大直播：普京红场阅兵匆忙中断；香港金融市场今非昔比；变化中的国内金融政策；灭共事业进入新的阶段
+
+<img src="https://media.gettr.com/group18/origin/2022/05/11/11/4a9ee610-b352-e1b3-5a50-9bc2f5244a0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p19aqyt8c78.md)
 
  5月11号：尊敬的战友们好．G FASHION 在国际时尚舞台，创造了前所未有的东方时尚的神话，马上开始今天的大直播了……
@@ -64,11 +72,35 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 12:05 PM UTC  - :tv:直播](/content/gettr/p19a84pe4db.md)
+[@miles 5/11/2022 1:19 PM UTC ](/content/gettr/p19alwo69aa.md)
 
-2022年5月11日 文贵大直播：普京红场阅兵匆忙中断；香港金融市场今非昔比；变化中的国内金融政策；灭共事业进入新的阶段
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group18/origin/2022/05/11/11/4a9ee610-b352-e1b3-5a50-9bc2f5244a0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月9日第66天当日救援统计：
+
+Medyka救援站接待：约181人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约17802人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 66 - Date: Ma...
+
+<img src="https://media.gettr.com/group40/getter/2022/05/11/13/cc2f9ab4-71e1-0aac-7d89-cbdc9dc8071d/3f9b73cd1743cac11e975b8beec5b65b.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +189,6 @@ Nicole introduces to him that the reaso...
 2022.05.10  NFSC fringe  Episode 187
 
 <img src="https://media.gettr.com/group12/origin/2022/05/10/23/0b5e12fb-e431-8031-25df-c60a83867a25/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 11:44 PM UTC ](/content/gettr/p196q1a7fa4.md)
-
-Mr. Miles Guo brings the best gift to mothers around the world on Mother's Day.
-
-Breaking news! The scientist who is also a General of the New Federal State of China (NFSC) is about to announce the latest antidote against the COVID...
-
-<img src="https://media.gettr.com/group8/origin/2022/05/10/23/3aaf6d1f-4c04-cbd0-eb53-366f259e437c/874aa20c8ccdc2323f818bb0bb09280f.png" width="506" height="284">
 
 ---
 
