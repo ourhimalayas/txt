@@ -11,13 +11,28 @@
 
 ---
 
-#### [【樱话】世界饥饿人口在俄乌战争前已激增25%](/content/gnews/2507205.md)
+#### [【樱话】“独裁者的儿子”当选菲律宾总统](/content/gnews/2507257.md)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】马斯克将推翻川普的推特封禁](/content/gnews/2507190.md)
+#### [樱花FM┃防的是谁?又为谁而斗? 中共官方黑语言习近平要“斗争”](/content/gnews/2507247.md)
+ `樱花FM`
+
+#### [樱花时政&#124;为迎接拜登总统首次访问 东京开始加强警戒](/content/gnews/2507232.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃俄罗斯太平洋舰队在日本海演习 发射反潜导弹](/content/gnews/2507230.md)
+ `樱花FM`
+
+#### [【樱话】加密货币资产一个月内减少了8000亿美元市值](/content/gnews/2507226.md)
  `TokyoSakuraDesignGroup`
 
-#### [樱花时政&#124;美国和日本官员就人权问题交换意见](/content/gnews/2507189.md)
+#### [埃隆马斯克表示他将解除推特对唐纳德特朗普的禁令](/content/gnews/2507222.md)
+ `日本东京方舟农场`
+
+#### [樱花FM┃七国集团峰会：泽连斯基荣誉与会](/content/gnews/2507208.md)
+ `樱花FM`
+
+#### [樱花时政&#124;日本 &#8220;鹤丸&#8221;号在尖阁列岛被中共海警局无理追踪30多小时](/content/gnews/2507207.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [台积电明年将产品价格提高6％](/content/gnews/2507175.md)
@@ -31,9 +46,6 @@
 
 #### [美国众议院批准向乌克兰提供近400亿美元的援助](/content/gnews/2507150.md)
  `墨尔本雅典娜农场`
-
-#### [【樱话】乌克兰战争：俄罗斯化工厂遭到“破坏性袭击”](/content/gnews/2507127.md)
- `TokyoSakuraDesignGroup`
 
 #### [俄多家电视台阅兵当天屏幕被黑 出现反战宣言](/content/gnews/2507120.md)
  `日本东京方舟农场`
@@ -53,20 +65,8 @@
 #### [视频&#124;新中国联邦向世界伸出橄榄枝](/content/gnews/2507034.md)
  `MOSVIDEO`
 
-#### [视频&#124;郭先生父母对其影响是爆料革命胜利的根基](/content/gnews/2507022.md)
- `MOSVIDEO`
-
-#### [视频&#124;美国志愿者称新中国联邦为正义而战](/content/gnews/2507004.md)
- `MOSVIDEO`
-
-#### [樱花时政&#124;习近平与马克龙通话意在牵制欧美联手制裁中俄](/content/gnews/2506999.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [【樱话】美国：FDA因为血栓风险限制强生中共病毒疫苗的使用](/content/gnews/2506996.md)
  `TokyoSakuraDesignGroup`
-
-#### [视频&#124;新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2506973.md)
- `MOSVIDEO`
 
 #### [随七哥一起为75亿同类祈福](/content/gnews/2506867.md)
  `雅典娜GNotes`
