@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p19ct2h7ff2.md)
+
+5/11/2022 Miles Guo: Bravery and courage have different meanings: courage is one’s personal attitude, while bravery is the outcome of one’s actions, and it is  the persistence and insistence and assiduity of embracing the common st...
+
+<img src="https://media.gettr.com/group38/getter/2022/05/11/23/fb8ace19-331c-9f2b-d152-f1452822f7b1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p19ct8t9451.md)
 
 5/10/2022 Miles Guo: One-person-one-vote is a bygone system! The NFSC will be using a voting system of the digital era using blockchain, which is different from an AI system
@@ -14,11 +22,11 @@
 
 ---
 
-[@miles 5/11/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p19ct2h7ff2.md)
+[@miles 5/11/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p19cy3f1e51.md)
 
-5/11/2022 Miles Guo: Bravery and courage have different meanings: courage is one’s personal attitude, while bravery is the outcome of one’s actions, and it is  the persistence and insistence and assiduity of embracing the common st...
+5/11/2022 Miles Guo: Putin appeared extremely panicked during the Victory Day Parade. A person who attended the parade told me that the armored vehicles loaded with live ammunition were found to have arrived at the scene. After tha...
 
-<img src="https://media.gettr.com/group38/getter/2022/05/11/23/fb8ace19-331c-9f2b-d152-f1452822f7b1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/05/11/23/a2fd328c-d596-62ff-b666-ba730facdaf5/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Nicole introduces to him that the reaso...
 5/10/2022 Miles Guo: Putin received two pieces of intelligence during the Victory Day Parade at the Red Square: 1) there would be a protest by 700,000 to 1.2 million people, which may be turned into a riot, and 2) multiple attempts...
 
 <img src="https://media.gettr.com/group28/getter/2022/05/11/04/9dcb8f74-0090-cd2b-c1b6-37bcffc47fb1/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1984t57f73.md)
-
-2022-5-10《鸡血王喜币大作战》 第一百九十一集 嘉宾：无双柳薇薇、文空
-
-<img src="https://media.gettr.com/group6/origin/2022/04/05/02/0ebbc740-9c41-1d07-722d-4cceb60a1bbf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
