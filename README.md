@@ -11,8 +11,26 @@
 
 ---
 
+#### [贾斯汀-特鲁多使用《紧急状态法》是不正当的，是一个巨大的过激行为](/content/gnews/2510453.md)
+ `加拿大温哥华扬帆农场视频组`
+
+#### [美国国防情报局高层：最多10名俄军将领在乌克兰阵亡](/content/gnews/2510433.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [2022年5月11日文贵大直播摘要及音频—银河系农场](/content/gnews/2510429.md)
+ `喜马拉雅日本银河系农场`
+
+#### [英国保证：如果受到攻击 英国将保卫瑞典](/content/gnews/2510407.md)
+ `温哥华扬帆农场`
+
+#### [【 蓝枫法律 】 第五十三期 加拿大医疗法案与医疗事故纠纷/赔偿 &#8211; 全文听写](/content/gnews/2510389.md)
+ `加拿大温哥华扬帆农场蓝枫法律`
+
 #### [阿尔伯塔省上诉法院称联邦环境影响法违宪](/content/gnews/2510369.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [乌克兰情报当局：被俄罗斯军队偷走的谷物已经在地中海上](/content/gnews/2510364.md)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [20220511郭文贵大直播 ：贵族精神加勇敢和勇气就是人类正义的力量](/content/gnews/2510362.md)
  `Tokyo Sakura Video Group`
@@ -44,20 +62,11 @@
 #### [被困上海居民因重新收紧防控措施而感到沮丧](/content/gnews/2510249.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [5月9日乌克兰救援数据信息](/content/gnews/2510223.md)
- `TokyoSakuraDesignGroup`
-
 #### [2022/05/10 文贵先生直播精要](/content/gnews/2510222.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [世卫组织总干事称中国的零冠肺炎政策不可持续](/content/gnews/2510215.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [【樱话】樱花时政┃G7官方声明剑指幕后策划者和帮凶](/content/gnews/2510179.md)
- `TokyoSakuraDesignGroup`
-
-#### [樱花时政┃日芬首脑会晤 芬兰表示加盟北约为了国民安全](/content/gnews/2510138.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [WHO：中国清零政策不可维持，影响人权](/content/gnews/2510132.md)
  `西班牙巴塞罗那喜悦农场`
@@ -67,9 +76,6 @@
 
 #### [法国外交部告诉中共：新中国联邦人在乌克兰的救援，改变着中国人几千年不光彩的形象](/content/gnews/2509919.md)
  `thedawn`
-
-#### [文贵大直播 5/11 解体前的吱吱声 阻止不了习共的疯狂](/content/gnews/2509805.md)
- `秘密翻译组-原创组`
 
 #### [有声｜中共国大学打响“脱钩”第一枪？](/content/gnews/2509755.md)
  `秘密翻译组-即时新闻播报组`
@@ -89,17 +95,11 @@
 #### [林外相将与韩国新总统会谈 递交岸田首相的亲笔信（1/3）](/content/gnews/2509647.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [天津快板：七公戏维尼](/content/gnews/2509492.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [G-EDU将结合中西教育的优点](/content/gnews/2509461.md)
  `NFSC News`
 
 #### [樱花时政&#124;港府发展检疫经济 增加检疫酒店房间](/content/gnews/2509399.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [mRNA疫苗会增加其他原因导致死亡的风险](/content/gnews/2509395.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [樱花时政┃世界都将恢复正常，唯有中共防控封城压力测试](/content/gnews/2509388.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -115,9 +115,6 @@
 
 #### [有声｜中共国一半省份承认人口减少 或铺垫疫苗灾难？](/content/gnews/2509192.md)
  `秘密翻译组-即时新闻播报组`
-
-#### [林外相将与韩国新总统会谈 递交岸田首相的亲笔信](/content/gnews/2509158.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [秘翻在线：反对普京政权的俄罗斯女摇滚歌手被软禁后逃出国外](/content/gnews/2509133.md)
  `秘密翻譯組G-Translators`
@@ -166,6 +163,9 @@
 
 #### [樱花时政&#124;美国和俄罗斯：最大的军火贸易伙伴的可视化](/content/gnews/2507561.md)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [2022年05月11日文贵大直播速记](/content/gnews/2507067.md)
+ `Mr. Miles Guo's News Briefing`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
