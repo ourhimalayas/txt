@@ -2,35 +2,50 @@
 ---
 
 
-#### [【樱话】“独裁者的儿子”当选菲律宾总统](/content/gnews/2507257.md)
- `TokyoSakuraDesignGroup`
+#### [秘翻在线：世卫总干事关于清零政策的声明遭中共社交网站封杀](/content/gnews/2507421.md)
+ `秘密翻譯組G-Translators`
 
-#### [樱花FM┃防的是谁?又为谁而斗? 中共官方黑语言习近平要“斗争”](/content/gnews/2507247.md)
- `樱花FM`
-
-#### [樱花时政&#124;为迎接拜登总统首次访问 东京开始加强警戒](/content/gnews/2507232.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花FM┃俄罗斯太平洋舰队在日本海演习 发射反潜导弹](/content/gnews/2507230.md)
- `樱花FM`
-
-#### [【樱话】加密货币资产一个月内减少了8000亿美元市值](/content/gnews/2507226.md)
- `TokyoSakuraDesignGroup`
-
-#### [埃隆马斯克表示他将解除推特对唐纳德特朗普的禁令](/content/gnews/2507222.md)
+#### [上海两条地铁主线无预警全线停运](/content/gnews/2507420.md)
  `日本东京方舟农场`
 
-#### [樱花FM┃七国集团峰会：泽连斯基荣誉与会](/content/gnews/2507208.md)
+#### [世卫谭德塞：中共清零政策不可持续](/content/gnews/2507399.md)
+ `日本东京方舟农场`
+
+#### [中共借口疫情防控阻止农民耕种](/content/gnews/2507384.md)
+ `加拿大温哥华英里农场`
+
+#### [樱花FM┃中共封城切断供应链（上）](/content/gnews/2507383.md)
  `樱花FM`
 
-#### [樱花时政&#124;日本 &#8220;鹤丸&#8221;号在尖阁列岛被中共海警局无理追踪30多小时](/content/gnews/2507207.md)
- `東京櫻花団-Tokyo Sakura Group`
+#### [樱花FM┃大赦国际报告证明俄军侵乌犯下战争罪行](/content/gnews/2507362.md)
+ `樱花FM`
+
+#### [参与“千人计划”的化学师因窃取商业秘密等罪行被判监禁](/content/gnews/2507355.md)
+ `日本东京方舟农场`
+
+#### [英国和欧盟称俄罗斯在乌克兰对卫星互联网调制解调器进行网络攻击](/content/gnews/2507352.md)
+ `墨尔本雅典娜农场`
+
+#### [乌克兰在俄罗斯胜利日保持强势](/content/gnews/2507344.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [樱花FM┃中共要求政府机构将电脑更换为本国产品](/content/gnews/2507341.md)
+ `樱花FM`
+
+#### [【樱话】美国把注意力转向亚洲瞄准邪恶轴心中共国](/content/gnews/2507323.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃氧化石墨烯在你身体里要干什么？](/content/gnews/2507317.md)
+ `樱花FM`
+
+#### [【樱话】京沪清零：如同坐牢 解封无期](/content/gnews/2507307.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃联合国粮食署：近2500万吨粮食滞留乌克兰，战争推高粮价！](/content/gnews/2507292.md)
+ `樱花FM`
 
 #### [台积电明年将产品价格提高6％](/content/gnews/2507175.md)
  `墨尔本雅典娜农场`
-
-#### [樱花FM┃英、日达成历史性防卫协议 强调民主国家团结对抗专制政权](/content/gnews/2507161.md)
- `樱花FM`
 
 #### [【樱话】新中国联邦将力图实现教育个性化](/content/gnews/2507151.md)
  `TokyoSakuraDesignGroup`
@@ -50,12 +65,6 @@
 #### [COVID-19疫苗副作用集萃（2022.5.11C）新冠疫苗第三针，第六天，又痒，又疼，又肿](/content/gnews/2507050.md)
  `墨尔本雅典娜农场`
 
-#### [视频&#124;美国CDC调查儿童不明肝炎](/content/gnews/2507041.md)
- `MOSVIDEO`
-
-#### [视频&#124;新中国联邦向世界伸出橄榄枝](/content/gnews/2507034.md)
- `MOSVIDEO`
-
 #### [【樱话】美国：FDA因为血栓风险限制强生中共病毒疫苗的使用](/content/gnews/2506996.md)
  `TokyoSakuraDesignGroup`
 
@@ -68,20 +77,8 @@
 #### [“二政府”的审计黑幕](/content/gnews/2506856.md)
  `墨尔本雅典娜农场`
 
-#### [樱花时政┃中共辽宁舰军演后 美导弹巡洋舰穿越台湾海峡](/content/gnews/2506830.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [前苏联利用“美国之音”误导“卡廷森林屠杀”真相](/content/gnews/2506821.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [天空新闻台阿拉伯语频道采访新中国联邦的乌克兰救援行动](/content/gnews/2506808.md)
- `墨尔本雅典娜农场`
-
-#### [比尔盖茨确诊感染中共病毒](/content/gnews/2506781.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [非营利监督机构向福奇柯林斯等人秘密支付了 3.5 亿美元（2/2）](/content/gnews/2506769.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [北京朝阳区全部居家办公再次验证文贵爆料](/content/gnews/2506665.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -90,6 +87,9 @@
  `喜马拉雅-华盛顿DC农场`
 
 #### [数字化时代将彻底改变全世界腐败的医药系统](/content/gnews/2506393.md)
+ `墨尔本雅典娜农场`
+
+#### [拯救人类命运的信使](/content/gnews/2506303.md)
  `墨尔本雅典娜农场`
 
 #### [3月份消费者债务飙升520亿美元](/content/gnews/2506218.md)
