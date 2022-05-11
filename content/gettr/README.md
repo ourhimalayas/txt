@@ -14,11 +14,27 @@
 
 ---
 
+[@miles 5/11/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p19ct2h7ff2.md)
+
+5/11/2022 Miles Guo: Bravery and courage have different meanings: courage is one’s personal attitude, while bravery is the outcome of one’s actions, and it is  the persistence and insistence and assiduity of embracing the common st...
+
+<img src="https://media.gettr.com/group38/getter/2022/05/11/23/fb8ace19-331c-9f2b-d152-f1452822f7b1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p19db3d0091.md)
 
 5/11/2022 Miles Guo: Macron has been taking a tough stance towards Xi Jinping after he got re-elected! The rescue operation of our fellow fighters at the Ukraine front line has shown the world a new image of Chinese people; citizen...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/11/23/d0ca360b-042c-5980-0ef1-b0ec7a489695/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/11/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p19d7bq7fb7.md)
+
+5/11/2022 Miles Guo: This year Elon Musk will be facing four disasters: (1) the disaster of Tesla stock and its factory in Shanghai; (2) the disaster of Twitter acquisition; (3) the disaster in rocket launching; (4) Elon Musk is st...
+
+<img src="https://media.gettr.com/group20/getter/2022/05/11/23/8325ba72-00f8-4610-a41a-cec61bf503b5/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,14 +172,6 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p19d7bq7fb7.md)
-
-5/11/2022 Miles Guo: This year Elon Musk will be facing four disasters: (1) the disaster of Tesla stock and its factory in Shanghai; (2) the disaster of Twitter acquisition; (3) the disaster in rocket launching; (4) Elon Musk is st...
-
-<img src="https://media.gettr.com/group20/getter/2022/05/11/23/8325ba72-00f8-4610-a41a-cec61bf503b5/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/11/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p198fb7ce15.md)
 
 2022-5-11  中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -185,14 +193,6 @@ Nicole introduces to him that the reaso...
 2022-5-10《鸡血王喜币大作战》 第一百九十一集 嘉宾：无双柳薇薇、文空
 
 <img src="https://media.gettr.com/group6/origin/2022/04/05/02/0ebbc740-9c41-1d07-722d-4cceb60a1bbf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p196sw2a651.md)
-
-2022.05.10  新中国联邦 | 喜财经    国内疫情封城情况，以及乌克兰今年小麦生产减少35%世界粮食危机加剧
-
-<img src="https://media.gettr.com/group28/origin/2022/05/11/02/f4eb3b78-be65-1b68-b9ae-f6a443a6b041/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
