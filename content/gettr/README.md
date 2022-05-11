@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p197kbf765c.md)
+
+5/10/2022: Miles Guo: the trust between patients and physicians will be severely damaged in the future; the digital era with blockchain technology will overthrow the corrupt medical system across the world, the hospitals, insurance...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/11/01/ee28842d-d11f-7d22-e9ec-dad9a0dc4508/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 1:19 AM UTC  - :tv:直播](/content/gettr/p197ie534c9.md)
 
 5/10/2022 Miles Guo: True men should see through life and death and handle the relation between life and family well. The Victory Day Parade exposed Putin's true face as a political clown and opportunist. The era of blockchain will...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/11/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p197kbf765c.md)
+[@miles 5/11/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p196sw2a651.md)
 
-5/10/2022: Miles Guo: the trust between patients and physicians will be severely damaged in the future; the digital era with blockchain technology will overthrow the corrupt medical system across the world, the hospitals, insurance...
+2022.05.10  新中国联邦 | 喜财经    国内疫情封城情况，以及乌克兰今年小麦生产减少35%世界粮食危机加剧
 
-<img src="https://media.gettr.com/group47/getter/2022/05/11/01/ee28842d-d11f-7d22-e9ec-dad9a0dc4508/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/05/11/02/f4eb3b78-be65-1b68-b9ae-f6a443a6b041/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -139,20 +147,6 @@ For English：gettr.com/streaming/p196du8d990
 2022.05.10 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group22/origin/2022/05/10/17/6fed9fbd-2eca-e96a-7a25-d2b7673d0e9f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@himalayadcfarm 5/4/2022 10:20 PM UTC  - :tv:直播](/content/gettr/p18cct1d2c8.md)
-
-❤️#新中国联邦 #乌克兰救援 Nicole报道:
-
- 这是一名29岁的英国人志愿去乌克兰参加国际兵团，当他得知他的最好的朋友（一名乌克兰士兵）阵亡了，另一个朋友被俄军捕获，他决定去乌克兰前线作战，他表达了对普京、习近平独裁政权的愤怒，他支持新中国联邦灭掉邪恶的中国共产党!💪
-
-这位叫威尔的年轻人说:"在最黑暗的时刻,每个人心中总会有一丝光明,光明总不灭","必须要继续战斗,追寻光明势不可挡!"👏👏👏
-
-Nicole的这段采访非常精彩,这位平和的英国...
-
-<img src="https://media.gettr.com/group14/origin/2022/05/04/22/51c27ab4-77d0-5f8f-8912-c255706988b1/out.jpg" width="506" height="284">
 
 ---
 
