@@ -2,6 +2,21 @@
 ---
 
 
+#### [中共通过蓝金黄美国科学家以掩盖中共病毒起源](/content/gnews/2511847.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [乌克兰Medyka救援进入关键时期](/content/gnews/2511836.md)
+ `雅典娜GNotes`
+
+#### [20220511郭文贵大直播 ：喜币将是战后的俄罗斯最重要的数字货币](/content/gnews/2511833.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220511郭文贵大直播 ：新中国联邦人做好自己的同时向世界展示中国人的新面貌](/content/gnews/2511812.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220511郭文贵大直播 ：勇敢的人一定是真诚善良的人](/content/gnews/2511804.md)
+ `Tokyo Sakura Video Group`
+
 #### [【全文字幕】2022年1月9日 文贵大直播：青海地震几大山脉蓝莲花；西安疫苗变化重庆大爆炸；中共二十大人事安排党分；哈薩克斯坦局势进展分析](/content/gnews/2511724.md)
  `文贵视频字幕全集`
 
@@ -53,20 +68,8 @@
 #### [俄罗斯大使在波兰被抗议者泼洒红色液体](/content/gnews/2511444.md)
  `NewS Gman`
 
-#### [为了扩大对乌克兰的军事援助，美国在二战期间使用的“租借法”得到了恢复。](/content/gnews/2511436.md)
- `NewS Gman`
-
-#### [5月11日文贵大直播要点（图片1-7）](/content/gnews/2511399.md)
- `波士顿五月花农场`
-
-#### [卢甘斯克州东部的一所学校遭到俄军轰炸，当地约有90人被疏散](/content/gnews/2511396.md)
- `NewS Gman`
-
 #### [五月花简报（2022/05/11）](/content/gnews/2511391.md)
  `mayflowertranslate`
-
-#### [有些战友的“我”太大太多](/content/gnews/2511251.md)
- `墨尔本雅典娜农场`
 
 #### [香港国安警察逮捕红衣主教曾则健](/content/gnews/2511139.md)
  `秘密翻譯組G-Translators`
@@ -100,9 +103,6 @@
 
 #### [中共政府将下调英文课程占比](/content/gnews/2510894.md)
  `NFSC News`
-
-#### [谭德塞称中国的清零政策不可持续](/content/gnews/2510843.md)
- `温哥华圆成农场🇨🇦`
 
 #### [俄乌战争打破人类的三个极限思考](/content/gnews/2510759.md)
  `银河歌舞厅`
