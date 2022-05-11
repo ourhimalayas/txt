@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/10/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p194fsmcb0b.md)
+
+2022.05.10 早 新中国联邦 | 新闻 美国志愿者称新中国联邦为正义而战；郭先生父母对其影响是爆料革命胜利的根基
+
+<img src="https://media.gettr.com/group27/origin/2022/05/10/12/f760b9ae-0b4e-5b6e-2f77-788534de28a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/10/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p197944660e.md)
+
+2022.05.10  NFSC fringe  Episode 187
+
+<img src="https://media.gettr.com/group12/origin/2022/05/10/23/0b5e12fb-e431-8031-25df-c60a83867a25/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/10/2022 11:44 PM UTC ](/content/gettr/p196q1a7fa4.md)
 
 Mr. Miles Guo brings the best gift to mothers around the world on Mother's Day.
@@ -17,14 +33,6 @@ Breaking news! The scientist who is also a General of the New Federal State of C
 【Ukraine Rescue】05/09/2022 Fellow fighter king is interviewed by JTO NEWS from France. He says that the NFSC is the Chinese people taking down the CCP. He says the rescue mission of the NFSC focuses on practical actions and the Ukr...
 
 <img src="https://media.gettr.com/group18/getter/2022/05/10/23/8aba318a-dea8-8310-6e2d-cbec027fcf89/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p197944660e.md)
-
-2022.05.10  NFSC fringe  Episode 187
-
-<img src="https://media.gettr.com/group12/origin/2022/05/10/23/0b5e12fb-e431-8031-25df-c60a83867a25/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -91,14 +99,6 @@ For English：gettr.com/streaming/p196du8d990
 2022.05.10 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group22/origin/2022/05/10/17/6fed9fbd-2eca-e96a-7a25-d2b7673d0e9f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/10/2022 5:16 PM UTC  - :tv:直播](/content/gettr/p195fv6e699.md)
-
- 5月10日：七哥在生日当天．到这里为所有的战友．及家人的祈福平安！
-
-<img src="https://media.gettr.com/group33/getter/2022/05/10/17/d97102a0-f960-cf57-27f1-8f17986c66e0/out.jpg" width="506" height="284">
 
 ---
 
