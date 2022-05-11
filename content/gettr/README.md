@@ -2,6 +2,34 @@
 ---
 
 
+[@miles 5/11/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p19ct8t9451.md)
+
+5/10/2022 Miles Guo: One-person-one-vote is a bygone system! The NFSC will be using a voting system of the digital era using blockchain, which is different from an AI system
+
+
+
+5/10/2022 文贵直播：一人一票的民主选举制度太老旧了，新中国联邦推的是数据时代区块链选举制度，和AI...
+
+<img src="https://media.gettr.com/group5/getter/2022/05/11/23/88e8b238-81ab-d477-2344-cc4a45520637/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p19db3d0091.md)
+
+5/11/2022 Miles Guo: Macron has been taking a tough stance towards Xi Jinping after he got re-elected! The rescue operation of our fellow fighters at the Ukraine front line has shown the world a new image of Chinese people; citizen...
+
+<img src="https://media.gettr.com/group48/getter/2022/05/11/23/d0ca360b-042c-5980-0ef1-b0ec7a489695/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/11/2022 10:55 PM UTC  - :tv:直播](/content/gettr/p19cyup992f.md)
+
+5/10/2022 Miles Guo: Post the COVID vaccine disasters, humanity will enter a new era in terms of financial systems and information technologies: an era of digital currencies and metaverse. The traditional means used by the governme...
+
+<img src="https://media.gettr.com/group32/getter/2022/05/11/22/dad84aa9-ee87-b274-7823-7524a7479658/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p19cmxu5e7b.md)
 
 七哥与战友们连线直播
@@ -128,11 +156,11 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 10:55 PM UTC  - :tv:直播](/content/gettr/p19cyup992f.md)
+[@miles 5/11/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p19d7bq7fb7.md)
 
-5/10/2022 Miles Guo: Post the COVID vaccine disasters, humanity will enter a new era in terms of financial systems and information technologies: an era of digital currencies and metaverse. The traditional means used by the governme...
+5/11/2022 Miles Guo: This year Elon Musk will be facing four disasters: (1) the disaster of Tesla stock and its factory in Shanghai; (2) the disaster of Twitter acquisition; (3) the disaster in rocket launching; (4) Elon Musk is st...
 
-<img src="https://media.gettr.com/group32/getter/2022/05/11/22/dad84aa9-ee87-b274-7823-7524a7479658/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/getter/2022/05/11/23/8325ba72-00f8-4610-a41a-cec61bf503b5/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,30 +193,6 @@ Nicole introduces to him that the reaso...
 2022.05.10  新中国联邦 | 喜财经    国内疫情封城情况，以及乌克兰今年小麦生产减少35%世界粮食危机加剧
 
 <img src="https://media.gettr.com/group28/origin/2022/05/11/02/f4eb3b78-be65-1b68-b9ae-f6a443a6b041/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/11/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p197kbf765c.md)
-
-5/10/2022: Miles Guo: the trust between patients and physicians will be severely damaged in the future; the digital era with blockchain technology will overthrow the corrupt medical system across the world, the hospitals, insurance...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/11/01/ee28842d-d11f-7d22-e9ec-dad9a0dc4508/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 1:19 AM UTC  - :tv:直播](/content/gettr/p197ie534c9.md)
-
-5/10/2022 Miles Guo: True men should see through life and death and handle the relation between life and family well. The Victory Day Parade exposed Putin's true face as a political clown and opportunist. The era of blockchain will...
-
-<img src="https://media.gettr.com/group36/getter/2022/05/11/01/3b47a902-f36d-ad5f-bb4e-1c729e6deb33/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p197eue04ce.md)
-
-5/10/2022 Miles Guo: Why does the failure of President Trump's re-election also benefit our cause of taking down the CCP to some extent? As I have said, Putin held the Victory Day Parade on May 9, and nothing happened. However, the...
-
-<img src="https://media.gettr.com/group49/getter/2022/05/11/01/2e363a0b-06d7-9711-f23e-0d87b83611ab/out.jpg" width="506" height="284">
 
 ---
 
