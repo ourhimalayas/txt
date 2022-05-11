@@ -2,13 +2,61 @@
 ---
 
 
+#### [【樱话】世界饥饿人口在俄乌战争前已激增25%](/content/gnews/2507205.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】马斯克将推翻川普的推特封禁](/content/gnews/2507190.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花时政&#124;美国和日本官员就人权问题交换意见](/content/gnews/2507189.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [台积电明年将产品价格提高6％](/content/gnews/2507175.md)
+ `墨尔本雅典娜农场`
+
+#### [樱花FM┃英、日达成历史性防卫协议 强调民主国家团结对抗专制政权](/content/gnews/2507161.md)
+ `樱花FM`
+
+#### [【樱话】新中国联邦将力图实现教育个性化](/content/gnews/2507151.md)
+ `TokyoSakuraDesignGroup`
+
+#### [美国众议院批准向乌克兰提供近400亿美元的援助](/content/gnews/2507150.md)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】乌克兰战争：俄罗斯化工厂遭到“破坏性袭击”](/content/gnews/2507127.md)
+ `TokyoSakuraDesignGroup`
+
+#### [俄多家电视台阅兵当天屏幕被黑 出现反战宣言](/content/gnews/2507120.md)
+ `日本东京方舟农场`
+
+#### [民生集萃—疫情导致实体经济低迷(2022.5.11A) 疫情期间突然被裁员](/content/gnews/2507116.md)
+ `墨尔本雅典娜农场`
+
+#### [美国可以基于历史上所有美元交易制裁中共资产](/content/gnews/2507066.md)
+ `墨尔本雅典娜农场`
+
 #### [COVID-19疫苗副作用集萃（2022.5.11C）新冠疫苗第三针，第六天，又痒，又疼，又肿](/content/gnews/2507050.md)
  `墨尔本雅典娜农场`
 
 #### [视频&#124;美国CDC调查儿童不明肝炎](/content/gnews/2507041.md)
  `MOSVIDEO`
 
-#### [视频&#124;美国SEC公布第七批预定除牌名单 陆金所、滴滴等11个中概股上榜](/content/gnews/2506869.md)
+#### [视频&#124;新中国联邦向世界伸出橄榄枝](/content/gnews/2507034.md)
+ `MOSVIDEO`
+
+#### [视频&#124;郭先生父母对其影响是爆料革命胜利的根基](/content/gnews/2507022.md)
+ `MOSVIDEO`
+
+#### [视频&#124;美国志愿者称新中国联邦为正义而战](/content/gnews/2507004.md)
+ `MOSVIDEO`
+
+#### [樱花时政&#124;习近平与马克龙通话意在牵制欧美联手制裁中俄](/content/gnews/2506999.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【樱话】美国：FDA因为血栓风险限制强生中共病毒疫苗的使用](/content/gnews/2506996.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2506973.md)
  `MOSVIDEO`
 
 #### [随七哥一起为75亿同类祈福](/content/gnews/2506867.md)
@@ -35,20 +83,8 @@
 #### [非营利监督机构向福奇柯林斯等人秘密支付了 3.5 亿美元（2/2）](/content/gnews/2506769.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [世卫总干事谭德赛罕见表态不认同中共的清零政策](/content/gnews/2506736.md)
- `秘密翻譯組G-Translators`
-
-#### [非盈利组织守卫者曝光3亿5千万支付福奇及NIH等](/content/gnews/2506703.md)
- `秘密翻譯組G-Translators`
-
-#### [非营利监督机构向福奇等人秘密支付了3.5亿美元（1/2）](/content/gnews/2506670.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [北京朝阳区全部居家办公再次验证文贵爆料](/content/gnews/2506665.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【樱话】从中共国短缺药品看墙内的疫苗灾难](/content/gnews/2506602.md)
- `TokyoSakuraDesignGroup`
 
 #### [新中国联邦疫苗解药研究进程](/content/gnews/2506461.md)
  `喜马拉雅-华盛顿DC农场`
@@ -60,9 +96,6 @@
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [CCP借助疫情把种地的又叒叕抓了](/content/gnews/2506216.md)
- `Tokyo Sakura Video Group`
-
-#### [活鱼不能进小区，傻叉ccp的规定那就摔死](/content/gnews/2506173.md)
  `Tokyo Sakura Video Group`
 
 #### [西方制裁显效，四位俄罗斯州长在克里姆林宫的大清洗过程中辞职](/content/gnews/2506156.md)
@@ -101,17 +134,11 @@
 #### [5月9日的俄乌战局最新消息汇总](/content/gnews/2505697.md)
  `NFSC News`
 
-#### [中共高校的马克思主义学院](/content/gnews/2505696.md)
- `NFSC News`
-
 #### [樱花时政┃日韩确认改善双边关系](/content/gnews/2504935.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [治愈率99.9%的疫苗反应新药方进入最后测试阶段，新中国联邦无愧此国](/content/gnews/2504687.md)
  `亚伦YALUN`
-
-#### [加密货币资产一个月内减少了8000亿美元市值](/content/gnews/2504399.md)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [樱花时政┃法、墨提议再开安理会会议讨论乌人道局势](/content/gnews/2501774.md)
  `東京櫻花団-Tokyo Sakura Group`
