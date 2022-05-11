@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p19ay167195.md)
+
+2022年5月11日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group16/origin/2022/05/11/17/6f214e23-b4ce-60de-8ca4-bd73fcfbdead/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 1:19 PM UTC ](/content/gettr/p19alwo69aa.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -104,11 +112,11 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p19ay167195.md)
+[@miles 5/11/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19cmc5109c.md)
 
-2022年5月11日 俄乌战争战况播报
+2022.05.11  新中国联邦 | 喜健康    从普京的病态探讨中共的吸血长生邪术 —— 血清置换与干细胞治疗漫谈
 
-<img src="https://media.gettr.com/group16/origin/2022/05/11/17/6f214e23-b4ce-60de-8ca4-bd73fcfbdead/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/05/11/20/3e44e469-fd7c-67fd-1123-b6744d44172f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Nicole introduces to him that the reaso...
 2022.05.10  晚 新中国联邦 | 新闻访谈    更强的病毒变体( 疫苗災害）席卷加国美国 加元跌惨
 
 <img src="https://media.gettr.com/group49/origin/2022/05/11/00/e713637a-7c02-01f2-5bcd-8dffe5af3ca3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/11/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1976i2a45c.md)
-
-2022.05.10  晚 新中国联邦 | 新闻   美国总统拜登签署租借法案加快向乌克兰提供军备；拜登担心找不到出路的普京接下来会怎么做
-
-<img src="https://media.gettr.com/group9/origin/2022/05/11/00/037a23d2-2f53-0dd7-b3f1-e4b2020fe36b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
