@@ -12,6 +12,24 @@ Nicole introduces to him that the reaso...
 
 ---
 
+[@miles 5/11/2022 5:08 AM UTC ](/content/gettr/p198sfeb6a1.md)
+
+Putin feared beheading and left the military parade early
+
+On May 10, Mr. Guo Wengui blew the whistle on Gettr that the military parade on Red Square in Russia made the Chinese Communist Party astounded. There were 700,000 to 1.2 m...
+
+<img src="https://media.gettr.com/group21/origin/2022/05/11/05/d124be1a-249c-dbdd-1cfd-0fe8b0470be3/ffed722679290830f24914df5fd027fd.jpg" width="506" height="284">
+
+---
+
+[@miles 5/11/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p198fb7ce15.md)
+
+2022-5-11  中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group42/origin/2022/05/11/04/220aa6d9-1d50-471e-fcac-c9017a24926e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 4:44 AM UTC  - :tv:直播](/content/gettr/p198xo59039.md)
 
 5/10/2022 Miles Guo: Putin received two pieces of intelligence during the Victory Day Parade at the Red Square: 1) there would be a protest by 700,000 to 1.2 million people, which may be turned into a riot, and 2) multiple attempts...
@@ -49,14 +67,6 @@ Nicole introduces to him that the reaso...
 5/10/2022 Miles Guo: True men should see through life and death and handle the relation between life and family well. The Victory Day Parade exposed Putin's true face as a political clown and opportunist. The era of blockchain will...
 
 <img src="https://media.gettr.com/group36/getter/2022/05/11/01/3b47a902-f36d-ad5f-bb4e-1c729e6deb33/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p198fb7ce15.md)
-
-2022-5-11  中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group42/origin/2022/05/11/04/220aa6d9-1d50-471e-fcac-c9017a24926e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ Breaking news! The scientist who is also a General of the New Federal State of C
 For English：gettr.com/streaming/p196du8d990
 
 <img src="https://media.gettr.com/group24/origin/2022/05/10/22/f302569b-9370-54bc-2835-5407403125b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1964v68063.md)
-
-2022.05.10  新中国联邦 | 喜健康   核酸检测荒唐结果，人口死亡数据藏猫腻，新西兰及全球有识之士揭开疫苗灾难序幕
-
-<img src="https://media.gettr.com/group14/origin/2022/05/10/20/a3cb50d1-3c36-0ed6-505a-dae70e36a68b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
