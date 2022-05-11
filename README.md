@@ -11,53 +11,62 @@
 
 ---
 
-#### [生孩子是自己的需要，不能对孩子有任何要求，但要给孩子最好的可以独立生存的教育](/content/gnews/2505871.md)
+#### [勇敢是一个人对自己信仰、追求或真理的标准并继续坚持和付诸于行动的结果](/content/gnews/2505986.md)
  `雅典娜GNotes`
+
+#### [美股都成啥样了，香港上海还有股市吗？世界经济崩塌5月1号到3号](/content/gnews/2505982.md)
+ `雅典娜GNotes`
+
+#### [疫苗灾难之后人类一切都会改变](/content/gnews/2505977.md)
+ `雅典娜GNotes`
+
+#### [保持自己的基本形象是对他人尊重；孩子的生日会彻底改变父母的生活](/content/gnews/2505967.md)
+ `雅典娜GNotes`
+
+#### [【樱话】独家：德国为突然停止俄罗斯天然气准备危机计划](/content/gnews/2505966.md)
+ `TokyoSakuraDesignGroup`
+
+#### [新中国联邦科学家针对疫苗遭难研发的药小范围测试效果奇佳](/content/gnews/2505960.md)
+ `雅典娜GNotes`
+
+#### [【樱话】樱花时政┃涉中共“千人计划” 化学师被判14年监禁](/content/gnews/2505956.md)
+ `TokyoSakuraDesignGroup`
+
+#### [大数据和区块链技术将彻底颠覆黑社会性质的医疗体系](/content/gnews/2505955.md)
+ `雅典娜GNotes`
+
+#### [所谓老百姓就是国家大事的利用者被欺骗者](/content/gnews/2505943.md)
+ `雅典娜GNotes`
+
+#### [美国官员致函国会，放松外国高科技人才移民限制](/content/gnews/2505936.md)
+ `GTV News Talk`
+
+#### [俄乌战争有助于彻底灭掉共产党](/content/gnews/2505924.md)
+ `雅典娜GNotes`
+
+#### [【樱话】樱花时政┃美国升级美台关系 删除“不支持台湾独立”](/content/gnews/2505920.md)
+ `TokyoSakuraDesignGroup`
+
+#### [与七哥探讨教育之真谛、真意和其本质（四）](/content/gnews/2505919.md)
+ `墨尔本雅典娜农场`
+
+#### [美国务院官网更新美台关系现况　“美国不支持台独”等字句消失](/content/gnews/2505901.md)
+ `NFSC News`
+
+#### [【文貴大直播 期期有话说】](/content/gnews/2505879.md)
+ `SpicyWorld`
 
 #### [风湿病学家：3,000名接种者中有40%报告了疫苗伤害](/content/gnews/2505863.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [凡是谋钱谋权为子嗣的都是一生白活](/content/gnews/2505856.md)
- `雅典娜GNotes`
-
-#### [澳海军司令：澳大利亚在印太地区的存在是有保证的](/content/gnews/2505855.md)
- `墨尔本雅典娜农场`
-
-#### [人不要太贪婪，不要吃过界的东西](/content/gnews/2505850.md)
- `雅典娜GNotes`
-
-#### [5/10/2022: 文贵直播：未来医患之间信用会破产，区块链技术的数字化时代将彻底改变世界腐败的医药系统，医院、保险公司、药厂、监管机构再也不可能合伙欺骗病人](/content/gnews/2505849.md)
- `秘密翻译组-北美组`
-
 #### [七国集团对香港特首选举过程表达严重关切](/content/gnews/2505847.md)
  `NFSC News`
 
-#### [给予不如自己获取；完美的形象以自己舒服为标准](/content/gnews/2505810.md)
- `雅典娜GNotes`
+#### [普习两魔头结盟及其给世界带来的灾难（十三）](/content/gnews/2505836.md)
+ `纽约香草山MOS03`
 
-#### [新中国联邦灭共后第一要做的就是去郭化](/content/gnews/2505800.md)
- `雅典娜GNotes`
-
-#### [【樱话】习近平向任何质疑中国零Covid政策的人发出警告](/content/gnews/2505794.md)
- `TokyoSakuraDesignGroup`
-
-#### [5/10/2022 文贵直播：为什么川普总统连任失败在某种程度上也对我们灭共是好事？](/content/gnews/2505790.md)
- `秘密翻译组-北美组`
-
-#### [自杀是最最坏的](/content/gnews/2505783.md)
- `雅典娜GNotes`
-
-#### [杰森·米勒：盖特直播观看破亿](/content/gnews/2505782.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [希望每个人都有个健康的家庭](/content/gnews/2505771.md)
- `雅典娜GNotes`
-
-#### [从小到大最恐惧的就是父母的吵架](/content/gnews/2505726.md)
- `雅典娜GNotes`
-
-#### [普京纪念日演说企图篡改历史，以正当化其战争罪和暴行](/content/gnews/2505724.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [美国印太协调官强调维持台海现状至关重要](/content/gnews/2505812.md)
+ `NFSC News`
 
 #### [日媒关注前香港黑警李家超成为下任特首](/content/gnews/2505704.md)
  `NFSC News`
@@ -70,12 +79,6 @@
 
 #### [疫苗灾难爆发，灭共拯救人类](/content/gnews/2505669.md)
  `墨尔本雅典娜农场`
-
-#### [墙内教授联名谴责中共清零政策非法遭封杀](/content/gnews/2505657.md)
- `NFSC News`
-
-#### [移动偏心机器人适用于未来的生活场景中](/content/gnews/2505643.md)
- `NFSC News`
 
 #### [COVID-19是有史以来最大的阿施从众实验](/content/gnews/2505634.md)
  `西班牙巴塞罗那喜悦农场`
@@ -94,9 +97,6 @@
 
 #### [非营利政府监督机构揭露 美国NIH存在重大系统性腐败](/content/gnews/2505533.md)
  `蓝莲花农场`
-
-#### [美巡洋舰穿越台湾海峡](/content/gnews/2505513.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [俄乌战争势头转变 乌军在哈尔科夫附近成功击退俄军](/content/gnews/2505469.md)
  `蓝莲花农场`
