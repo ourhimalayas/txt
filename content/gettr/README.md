@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p19cmxu5e7b.md)
+
+七哥与战友们连线直播
+
+<img src="https://media.gettr.com/group31/origin/2022/05/11/22/77038342-3f14-d659-fa42-c1e31de59d8c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19cmc5109c.md)
 
 2022.05.11  新中国联邦 | 喜健康    从普京的病态探讨中共的吸血长生邪术 —— 血清置换与干细胞治疗漫谈
@@ -120,11 +128,11 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p19cmxu5e7b.md)
+[@miles 5/11/2022 10:55 PM UTC  - :tv:直播](/content/gettr/p19cyup992f.md)
 
-七哥与战友们连线直播
+5/10/2022 Miles Guo: Post the COVID vaccine disasters, humanity will enter a new era in terms of financial systems and information technologies: an era of digital currencies and metaverse. The traditional means used by the governme...
 
-<img src="https://media.gettr.com/group31/origin/2022/05/11/22/77038342-3f14-d659-fa42-c1e31de59d8c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/05/11/22/dad84aa9-ee87-b274-7823-7524a7479658/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Nicole introduces to him that the reaso...
 5/10/2022 Miles Guo: Why does the failure of President Trump's re-election also benefit our cause of taking down the CCP to some extent? As I have said, Putin held the Victory Day Parade on May 9, and nothing happened. However, the...
 
 <img src="https://media.gettr.com/group49/getter/2022/05/11/01/2e363a0b-06d7-9711-f23e-0d87b83611ab/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p196v99f75f.md)
-
-2022.05.10  晚 新中国联邦 | 新闻访谈    更强的病毒变体( 疫苗災害）席卷加国美国 加元跌惨
-
-<img src="https://media.gettr.com/group49/origin/2022/05/11/00/e713637a-7c02-01f2-5bcd-8dffe5af3ca3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
