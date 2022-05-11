@@ -2,6 +2,33 @@
 ---
 
 
+#### [2022/05/11 英喜时事速递](/content/gnews/2508667.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [樱花FM┃美国众议院议员要求CGI提供计划收购川普酒店的详细信息](/content/gnews/2508651.md)
+ `樱花FM`
+
+#### [【G时新闻】涉中共“千人计划” 化学师被判14年监禁](/content/gnews/2508643.md)
+ `G-时新闻`
+
+#### [【G时新闻】美国修改美台关系简报大量删除与中共国相关的措辞](/content/gnews/2508619.md)
+ `G-时新闻`
+
+#### [樱花FM┃美国国会就520亿美元芯片生产补贴法案展开谈判](/content/gnews/2508603.md)
+ `樱花FM`
+
+#### [樱花FM┃极端疫情防控政策致使延误就医，中共上海才女童薇菁不幸离世](/content/gnews/2508602.md)
+ `樱花FM`
+
+#### [樱花FM┃CDS委员会关闭俄罗斯 4 月付款案](/content/gnews/2508601.md)
+ `樱花FM`
+
+#### [樱花FM┃美国国防部否认 协助乌克兰击沉“莫斯科”号](/content/gnews/2508600.md)
+ `樱花FM`
+
+#### [樱花FM┃中共封城切断供应链（下）](/content/gnews/2508599.md)
+ `樱花FM`
+
 #### [捷克共和国代替俄罗斯当选为联合国人权理事会成员](/content/gnews/2508587.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -26,26 +53,11 @@
 #### [半岛电视台记者在以色列突袭约旦河西岸时丧生](/content/gnews/2508518.md)
  `波士顿五月花农场金融部`
 
-#### [前苏联逃离到纽约的犹太志愿者：“永不放弃希望”](/content/gnews/2508505.md)
- `波士顿五月花农场`
-
 #### [阿尔伯塔省发现大流行期间青年死亡人数“大幅增加”](/content/gnews/2508497.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [意大利和美国讨论能源和粮食安全](/content/gnews/2508495.md)
  `Shuizhuyu`
-
-#### [乌克兰人道救援行动](/content/gnews/2508465.md)
- `银河勇气之星`
-
-#### [中国人民大学正式退出国际大学排名](/content/gnews/2508464.md)
- `澳喜特战旅Gnews`
-
-#### [拉夫罗夫说俄罗斯不想在欧洲开战](/content/gnews/2508439.md)
- `Shuizhuyu`
-
-#### [诗歌《学习汉语的时候到了》](/content/gnews/2508437.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [一与生产冠状病毒疫苗签早期合同的公司隐藏品控证据](/content/gnews/2508406.md)
  `西班牙巴塞罗那喜悦农场`
@@ -80,17 +92,8 @@
 #### [2022/05/09 墙内世界](/content/gnews/2508250.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [视频&#124;新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2508244.md)
- `MOSVIDEO`
-
-#### [视频&#124;2022年5月9日的俄乌战局最新消息汇总](/content/gnews/2508208.md)
- `MOSVIDEO`
-
 #### [HPay是我们的核心力量](/content/gnews/2508200.md)
  `新加坡狮城农场 Himalaya Singapore`
-
-#### [视频&#124;中共高校的马克思主义学院](/content/gnews/2508180.md)
- `MOSVIDEO`
 
 #### [佛州将11月7日定为共产主义受害者日](/content/gnews/2508109.md)
  `银河歌舞厅`
@@ -103,9 +106,6 @@
 
 #### [瑞典儿童爆发“不明原因”的肝炎](/content/gnews/2508006.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [北京中铁 农商行被阳性 下一个是谁 当局称新确诊均为管控员](/content/gnews/2507979.md)
- `战云长天时评`
 
 #### [中日财经爆&#124;加密DeFi商品Compound Treasury获标普B-评级认证 史上首例](/content/gnews/2507956.md)
  `東京櫻花団-Tokyo Sakura Group`
