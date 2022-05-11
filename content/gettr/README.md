@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p196sw2a651.md)
+
+2022.05.10  新中国联邦 | 喜财经    国内疫情封城情况，以及乌克兰今年小麦生产减少35%世界粮食危机加剧
+
+<img src="https://media.gettr.com/group28/origin/2022/05/11/02/f4eb3b78-be65-1b68-b9ae-f6a443a6b041/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p197kbf765c.md)
 
 5/10/2022: Miles Guo: the trust between patients and physicians will be severely damaged in the future; the digital era with blockchain technology will overthrow the corrupt medical system across the world, the hospitals, insurance...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/11/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p196sw2a651.md)
+[@miles 5/11/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1984t57f73.md)
 
-2022.05.10  新中国联邦 | 喜财经    国内疫情封城情况，以及乌克兰今年小麦生产减少35%世界粮食危机加剧
+2022-5-10《鸡血王喜币大作战》 第一百九十一集 嘉宾：无双柳薇薇、文空
 
-<img src="https://media.gettr.com/group28/origin/2022/05/11/02/f4eb3b78-be65-1b68-b9ae-f6a443a6b041/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/04/05/02/0ebbc740-9c41-1d07-722d-4cceb60a1bbf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,16 +155,6 @@ For English：gettr.com/streaming/p196du8d990
 2022.05.10 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group22/origin/2022/05/10/17/6fed9fbd-2eca-e96a-7a25-d2b7673d0e9f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@himalayadcfarm 4/29/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p17ja1p1c54.md)
-
-🆘🇺🇦🆘【Report from NFSC's #UkraineRescue by #Nicole】
-
-A Christian from Norway is worried about the religious freedom of Christians living in China. He loves Chinese history and culture.  Chinese people should have a good governme...
-
-<img src="https://media.gettr.com/group50/origin/2022/04/29/03/d991bf48-d4ce-ed49-8577-3631ca9fd77e/out.jpg" width="506" height="284">
 
 ---
 
