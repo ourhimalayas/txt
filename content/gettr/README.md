@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19agj85638.md)
+
+2022.05.11  新中国联邦 | 军情室 乌军收复哈尔科夫东北部领土，美军巡洋舰再次穿越台湾海峡，地中海地区的北约陆海空布防，俄军前线挖战壕乌军专注伏击
+
+<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 10:38 AM UTC  - :tv:直播](/content/gettr/p19asewb455.md)
 
 ⚠️⚠️CCPウイルス及びコロナワクチンに関する新中国連邦活動の経緯
@@ -48,11 +56,11 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19agj85638.md)
+[@miles 5/11/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p19aqyt8c78.md)
 
-2022.05.11  新中国联邦 | 军情室 乌军收复哈尔科夫东北部领土，美军巡洋舰再次穿越台湾海峡，地中海地区的北约陆海空布防，俄军前线挖战壕乌军专注伏击
+ 5月11号：尊敬的战友们好．G FASHION 在国际时尚舞台，创造了前所未有的东方时尚的神话，马上开始今天的大直播了……
 
-<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/05/11/11/9c882442-253f-fe42-0f4c-6c2391006139/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Mr. Miles Guo brings the best gift to mothers around the world on Mother's Day.
 Breaking news! The scientist who is also a General of the New Federal State of China (NFSC) is about to announce the latest antidote against the COVID...
 
 <img src="https://media.gettr.com/group8/origin/2022/05/10/23/3aaf6d1f-4c04-cbd0-eb53-366f259e437c/874aa20c8ccdc2323f818bb0bb09280f.png" width="506" height="284">
-
----
-
-[@miles 5/10/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1970pt8364.md)
-
-【Ukraine Rescue】05/09/2022 Fellow fighter king is interviewed by JTO NEWS from France. He says that the NFSC is the Chinese people taking down the CCP. He says the rescue mission of the NFSC focuses on practical actions and the Ukr...
-
-<img src="https://media.gettr.com/group18/getter/2022/05/10/23/8aba318a-dea8-8310-6e2d-cbec027fcf89/out.jpg" width="506" height="284">
 
 ---
 
