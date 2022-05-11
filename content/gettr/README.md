@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/11/2022 1:19 PM UTC ](/content/gettr/p19alwo69aa.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月9日第66天当日救援统计：
+
+Medyka救援站接待：约181人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约17802人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 66 - Date: Ma...
+
+<img src="https://media.gettr.com/group40/getter/2022/05/11/13/cc2f9ab4-71e1-0aac-7d89-cbdc9dc8071d/3f9b73cd1743cac11e975b8beec5b65b.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 12:05 PM UTC  - :tv:直播](/content/gettr/p19a84pe4db.md)
 
 2022年5月11日 文贵大直播：普京红场阅兵匆忙中断；香港金融市场今非昔比；变化中的国内金融政策；灭共事业进入新的阶段
@@ -72,35 +104,11 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 1:19 PM UTC ](/content/gettr/p19alwo69aa.md)
+[@miles 5/11/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p19ay167195.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+2022年5月11日 俄乌战争战况播报
 
-
-
-2022年5月9日第66天当日救援统计：
-
-Medyka救援站接待：约181人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约17802人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 66 - Date: Ma...
-
-<img src="https://media.gettr.com/group40/getter/2022/05/11/13/cc2f9ab4-71e1-0aac-7d89-cbdc9dc8071d/3f9b73cd1743cac11e975b8beec5b65b.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/05/11/17/6f214e23-b4ce-60de-8ca4-bd73fcfbdead/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Day 66 - Date: Ma...
 5月10号：衷心地感谢．莘七女孩．Rachel制作的精美的视频。【我们最爱的七哥 祝你生日快乐 🎂🥳！太多的不可思议， 太多感动的时刻，太多无法用语言表达的感情。感恩您的母亲和家人的付出和爱，成就和成全了今天的七哥。一直喜欢这首歌《一个全新的世界》的歌词。没有进 英雄 决赛， 所以没机会唱给您听。接这个机会用这首歌 送出我和老虎对您最诚挚的生日祝福！ 我们和您，还有所有有良知的地球人一起走入新中国联邦这个崭新的世界。 🌹💐🎂🫂🤗🥳❤️💖💗...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/11/00/445250df-d831-f01e-a668-fa7e272c7a52/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p197944660e.md)
-
-2022.05.10  NFSC fringe  Episode 187
-
-<img src="https://media.gettr.com/group12/origin/2022/05/10/23/0b5e12fb-e431-8031-25df-c60a83867a25/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
