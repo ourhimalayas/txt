@@ -3,6 +3,8 @@
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/content/transcript/2019/06/20190623-2853766971834487830.md)
+
 [文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/content/transcript/2019/06/20190623-4535731736984314689.md)
 
 [文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190621-2858079650750078361.md)
@@ -50,8 +52,6 @@
 [文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/content/transcript/2019/05/20190519-3485871189561501121.md)
 
 [翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/transcript/2019/05/20190514-851228741762433038.md)
-
-[文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/content/transcript/2019/05/20190514-4477543672120238865.md)
 
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

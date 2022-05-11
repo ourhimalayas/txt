@@ -3,6 +3,8 @@
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/content/transcript/2019/05/20190514-4477543672120238865.md)
+
 [文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/content/transcript/2019/05/20190512-8072600133061975327.md)
 
 [文字版：2019年5月10日文贵50岁生日感言](/content/transcript/2019/05/20190511-4805446820921789375.md)
@@ -50,8 +52,6 @@
 [文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/content/transcript/2019/04/20190414-1930118777431360844.md)
 
 [文字版：2019年4月13日郭文贵先生第三次直播．王岐山副主席可能要扶正！给战友们的四条建议！紧急通知⚠️战友必看！](/content/transcript/2019/04/20190414-3550758239268922002.md)
-
-[文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言](/content/transcript/2019/04/20190411-1430890358024836109.md)
 
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 23/42 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年11月2日郭文贵先生在中央公园直播](/content/transcript/2019/11/20191104-8519209542622441736.md)
+
 [文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/content/transcript/2019/11/20191104-6514911663487933356.md)
 
 [文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/transcript/2019/11/20191104-6223234375354578515.md)
@@ -50,8 +52,6 @@
 [文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/transcript/2019/10/20191009-2888489214062371964.md)
 
 [文字版：2019年10月01日晚上郭先生和班农先生连线各地战友，传播香港抗议现场，解读国际重大事件，揭露中共十一国庆真相！](/content/transcript/2019/10/20191007-4819247370019373728.md)
-
-[文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线](/content/transcript/2019/10/20191007-4743874505375198179.md)
 
 
 ## 頁面 23/42 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 9/42 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
 
+[全文字版2021年8月26日摇滚歌神郭文贵先生现场签名直播](/content/transcript/2021/08/20210826-1507643.md)
+
 [全文字版2021年8月26日郭文贵先生G-TV直播](/content/transcript/2021/08/20210826-1494569.md)
 
 [全文字版2021年8月25日郭文贵先生G-TV直播](/content/transcript/2021/08/20210825-1493884.md)
@@ -50,8 +52,6 @@
 [全文字版2021年8月11日郭文贵先生G-TV直播](/content/transcript/2021/08/20210811-1462815.md)
 
 [全文字版2021年8月9日郭文贵先生G-TV直播](/content/transcript/2021/08/20210809-1460214.md)
-
-[全文字版2021年8月7日郭文贵先生G-TV直播](/content/transcript/2021/08/20210807-1452928.md)
 
 
 ## 頁面 9/42 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)

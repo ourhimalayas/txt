@@ -3,6 +3,8 @@
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年12月27日郭文贵直播。原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！](/content/transcript/2018/12/20181228-5085719562457402069.md)
+
 [文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望](/content/transcript/2018/12/20181224-4525324540610359598.md)
 
 [翻译：两名与中国国安有关联的中国黑客被控告违法入侵和盗取全球范围的知识产权和商业机密](/content/transcript/2018/12/20181220-8361136447914723605.md)
@@ -50,8 +52,6 @@
 [文字版：2018年11月19号的王健之死的发布会．可能导致股市波动．及其他重大政治事件 要从19号改至20号](/content/transcript/2018/11/20181115-2654226496006898669.md)
 
 [文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！](/content/transcript/2018/11/20181114-7269018934518411869.md)
-
-[文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人](/content/transcript/2018/11/20181109-6875461372122339144.md)
 
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
