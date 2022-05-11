@@ -2,26 +2,38 @@
 ---
 
 
-#### [李克强警告中共国面临复杂而严峻的就业市场](/content/gnews/2507711.md)
+#### [【说事儿】京沪清零：如同坐牢 解封无期](/content/gnews/2507803.md)
+ `TokyoSakuraDesignGroup`
+
+#### [拜登签署租借法案加快向乌克兰援助武器](/content/gnews/2507792.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [【说事儿】核酸黑幕：上海某检测机构被曝大量检出结果为假阳性](/content/gnews/2507779.md)
+ `TokyoSakuraDesignGroup`
+
+#### [美国众议院以压倒性投票结果通过援助乌克兰的计划](/content/gnews/2507770.md)
+ `日本东京方舟农场`
+
+#### [马斯克表示在交易完成后他将解除川普的推特禁令](/content/gnews/2507769.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [【说事儿】“独裁者的儿子”当选菲律宾总统](/content/gnews/2507740.md)
+ `TokyoSakuraDesignGroup`
+
+#### [乌克兰在蛇岛附近用激光制导炸弹摧毁了普京的阅兵船](/content/gnews/2507739.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [新中国联邦为Sewa国际救援组织提供乌克兰的救援物资](/content/gnews/2507724.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [特斯拉上海工厂大部分停产 四月销量下滑](/content/gnews/2507717.md)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [普京胜利日游行直播被骇客，出现“你们的手上有乌克兰人民的鲜血”的标语](/content/gnews/2507704.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [【说事儿】加密货币资产一个月内减少了8000亿美元市值](/content/gnews/2507698.md)
- `TokyoSakuraDesignGroup`
-
 #### [白银价格预测——随着美元上涨 白银价格大幅下滑](/content/gnews/2507686.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [《历史的今天》2022.05.11](/content/gnews/2507685.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [【说事儿】世界饥饿人口在俄乌战争前已激增25%](/content/gnews/2507683.md)
- `TokyoSakuraDesignGroup`
-
-#### [中国欧盟商会称中共国政策给企业带来巨大的不确定性](/content/gnews/2507672.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [大直播后记：七哥鼓励父母让孩子行万里路，不一定读万卷书](/content/gnews/2507670.md)
  `雅典娜GNotes`
@@ -37,6 +49,9 @@
 
 #### [【说事儿】接种COVID疫苗后出现严重并发症的人数比以前的记录高40倍](/content/gnews/2507632.md)
  `TokyoSakuraDesignGroup`
+
+#### [中日财经爆&#124;山寨稳定币UST脱钩美元后单日狂崩13.80%！](/content/gnews/2507621.md)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆&#124; 耶伦：稳定币监管“重要且紧急” 期盼今年底快速通过](/content/gnews/2507620.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -71,12 +86,6 @@
 #### [中日财经爆&#124;美国众议院通过400亿美元法案以支持乌克兰对抗俄罗斯入侵](/content/gnews/2507501.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中日财经爆&#124;盐野义制药预计中共病毒疫苗和治疗药物将带来1100亿日元销售额](/content/gnews/2507499.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [台湾｜中共于台湾东部外海军演 美官员：台湾应吸取俄乌战争经验](/content/gnews/2507469.md)
- `關注組`
-
 #### [第二任期间北领地首席部长兼财长迈克尔•甘纳突然辞职](/content/gnews/2507462.md)
  `走进澳洲`
 
@@ -92,20 +101,11 @@
 #### [樱花FM┃大赦国际报告证明俄军侵乌犯下战争罪行](/content/gnews/2507362.md)
  `樱花FM`
 
-#### [参与“千人计划”的化学师因窃取商业秘密等罪行被判监禁](/content/gnews/2507355.md)
- `日本东京方舟农场`
-
 #### [英国和欧盟称俄罗斯在乌克兰对卫星互联网调制解调器进行网络攻击](/content/gnews/2507352.md)
  `墨尔本雅典娜农场`
 
 #### [乌克兰在俄罗斯胜利日保持强势](/content/gnews/2507344.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [樱花FM┃中共要求政府机构将电脑更换为本国产品](/content/gnews/2507341.md)
- `樱花FM`
-
-#### [美国众议院批准向乌克兰提供近400亿美元的援助](/content/gnews/2507150.md)
- `墨尔本雅典娜农场`
 
 #### [民生集萃—疫情导致实体经济低迷(2022.5.11A) 疫情期间突然被裁员](/content/gnews/2507116.md)
  `墨尔本雅典娜农场`
