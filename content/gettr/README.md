@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 5/10/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p194fsmcb0b.md)
+[@miles 5/11/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1976i2a45c.md)
 
-2022.05.10 早 新中国联邦 | 新闻 美国志愿者称新中国联邦为正义而战；郭先生父母对其影响是爆料革命胜利的根基
+2022.05.10  晚 新中国联邦 | 新闻   美国总统拜登签署租借法案加快向乌克兰提供军备；拜登担心找不到出路的普京接下来会怎么做
 
-<img src="https://media.gettr.com/group27/origin/2022/05/10/12/f760b9ae-0b4e-5b6e-2f77-788534de28a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/05/11/00/037a23d2-2f53-0dd7-b3f1-e4b2020fe36b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/11/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p197fre6330.md)
+
+5月10号：衷心地感谢．莘七女孩．Rachel制作的精美的视频。【我们最爱的七哥 祝你生日快乐 🎂🥳！太多的不可思议， 太多感动的时刻，太多无法用语言表达的感情。感恩您的母亲和家人的付出和爱，成就和成全了今天的七哥。一直喜欢这首歌《一个全新的世界》的歌词。没有进 英雄 决赛， 所以没机会唱给您听。接这个机会用这首歌 送出我和老虎对您最诚挚的生日祝福！ 我们和您，还有所有有良知的地球人一起走入新中国联邦这个崭新的世界。 🌹💐🎂🫂🤗🥳❤️💖💗...
+
+<img src="https://media.gettr.com/group25/getter/2022/05/11/00/445250df-d831-f01e-a668-fa7e272c7a52/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ A Christian from Norway is worried about the religious freedom of Christians liv
 Two Russi...
 
 <img src="https://media.gettr.com/group13/origin/2022/04/20/18/1d782df1-dba3-0584-0f6a-f1bedc7ceb75/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 1:04 PM UTC ](/content/gettr/p194cr22860.md)
-
-由于很多战友恭喜生日快乐无法回复，七哥20分钟后内马上直播🙏🙏🙏
-
-<img src="https://media.gettr.com/group11/origin/2022/05/10/13/b9701bdf-c5dc-0bb5-4597-6420862ae1f5/db08bb5efa85a82b8ecc7361934c2149.jpeg" width="506" height="284">
 
 ---
 
