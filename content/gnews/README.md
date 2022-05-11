@@ -2,11 +2,50 @@
 ---
 
 
-#### [拜登政府在支持乌克兰方面经历了重大的政策转变](/content/gnews/2509849.md)
+#### [有声｜美国务院更新网页 删“不支持台独”等字眼](/content/gnews/2509994.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [【樱话】美国最大的保险公司终止疫苗接种要求](/content/gnews/2509976.md)
+ `TokyoSakuraDesignGroup`
+
+#### [乌克兰总统表示，俄罗斯的封锁使得港口处于停顿状态](/content/gnews/2509953.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【樱话】新加坡的加密币实验“是一场灾难”](/content/gnews/2509952.md)
+ `TokyoSakuraDesignGroup`
+
+#### [德国外交部长到访乌克兰并承诺向乌克兰提供重型武器](/content/gnews/2509934.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【樱话】俄罗斯每天在乌克兰战争上的花费估计达9亿美元](/content/gnews/2509927.md)
+ `TokyoSakuraDesignGroup`
+
+#### [法国外交部告诉中共：新中国联邦人在乌克兰的救援，改变着中国人几千年不光彩的形象](/content/gnews/2509919.md)
+ `thedawn`
+
+#### [20220511郭文贵大直播 ：什么叫做勇敢与勇气](/content/gnews/2509909.md)
+ `Tokyo Sakura Video Group`
+
+#### [有声｜震惊：辉瑞无法证明其疫苗有足够的疗效或安全性](/content/gnews/2509899.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [【樱话】Coinbase 警告一些俄罗斯用户，他们的账户可能被封锁](/content/gnews/2509885.md)
+ `TokyoSakuraDesignGroup`
+
+#### [韩国新总统：如果朝鲜无核化将提供支持](/content/gnews/2509877.md)
+ `韩国正道农场`
+
+#### [有声&#124;加拿大总理特鲁多密访基辅并宣布了新的援助计划](/content/gnews/2509875.md)
+ `MOSREC`
+
+#### [基恩将军认为美国必须在台湾地区建立军力并加强武器装备](/content/gnews/2509871.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [文贵大直播 5/11 解体前的吱吱声 阻止不了习共的疯狂](/content/gnews/2509805.md)
  `秘密翻译组-原创组`
+
+#### [【樱话】加州儿童健康保护组织在反对公立学校强制疫苗方面取得重大胜利](/content/gnews/2509779.md)
+ `TokyoSakuraDesignGroup`
 
 #### [有声｜中共国大学打响“脱钩”第一枪？](/content/gnews/2509755.md)
  `秘密翻译组-即时新闻播报组`
@@ -14,44 +53,20 @@
 #### [林外相将与韩国新总统会谈 递交岸田首相的亲笔信（3/3）](/content/gnews/2509750.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [【说事儿】樱花时政┃G7官方声明剑指幕后策划者和帮凶](/content/gnews/2509748.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】国际｜芬兰总理首次访日 有望在一周内申请加入北约](/content/gnews/2509710.md)
- `TokyoSakuraDesignGroup`
-
 #### [林外相将与韩国新总统会谈 递交岸田首相的亲笔信（2/3）](/content/gnews/2509698.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [福奇电子邮件被泄露将接受调查](/content/gnews/2509678.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [【说事儿】国际｜日本驻美大使：拜登总统访日期间 将启动印太经济架构](/content/gnews/2509671.md)
- `TokyoSakuraDesignGroup`
-
 #### [郭先生示警 灾难来临 生命第一](/content/gnews/2509663.md)
  `NFSC News`
-
-#### [【说事儿】樱花时政┃立陶宛外长解读红场阅兵：移除威胁的唯一途径就是消灭俄现政权](/content/gnews/2509651.md)
- `TokyoSakuraDesignGroup`
 
 #### [林外相将与韩国新总统会谈 递交岸田首相的亲笔信（1/3）](/content/gnews/2509647.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [有声&#124;俄罗斯在国内宣传瑞典是“纳粹”](/content/gnews/2509587.md)
- `MOSREC`
-
-#### [有声&#124;帮中共窃巨额机密 美华裔化学家获刑14年](/content/gnews/2509488.md)
- `【🌹玫瑰新闻】`
-
-#### [有声&#124;宪法教授对上海强制隔离等举措发文警告 “清零”权力扩大掀合法性质疑](/content/gnews/2509487.md)
- `【🌹玫瑰新闻】`
-
-#### [有声&#124;台海军接连四天东南部导弹射击](/content/gnews/2509486.md)
- `【🌹玫瑰新闻】`
-
-#### [有声&#124;北京卫健委：个别核酸检测机构报告不准确](/content/gnews/2509485.md)
- `【🌹玫瑰新闻】`
+#### [天津快板：七公戏维尼](/content/gnews/2509492.md)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [G-EDU将结合中西教育的优点](/content/gnews/2509461.md)
  `NFSC News`
@@ -80,9 +95,6 @@
 #### [国际｜美国-东协特别峰会即将举行 将针对“国际问题”交换意见](/content/gnews/2509228.md)
  `關注組`
 
-#### [活着的木乃伊](/content/gnews/2509227.md)
- `纽约香草山MOS02`
-
 #### [普京胜利日阅兵草草收场的背后原因](/content/gnews/2509213.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -101,13 +113,7 @@
 #### [秘翻在线：反对普京政权的俄罗斯女摇滚歌手被软禁后逃出国外](/content/gnews/2509133.md)
  `秘密翻譯組G-Translators`
 
-#### [美国及世界疫情简报（05-11-2022）](/content/gnews/2509114.md)
- `波士顿五月花农场`
-
 #### [秘翻在线：国防产业大国？俄罗斯发射导弹失败](/content/gnews/2509098.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：俄罗斯从乌克兰掠夺粮食50万吨中大量被转移到叙利亚](/content/gnews/2509071.md)
  `秘密翻譯組G-Translators`
 
 #### [中共抨击了美国国务院网站关于对台湾用词的改变](/content/gnews/2509047.md)
@@ -115,9 +121,6 @@
 
 #### [大直播后记：GEDU的准备工作及疫苗解毒新药方](/content/gnews/2509031.md)
  `雅典娜GNotes`
-
-#### [2022.5.11大直播 2022年马斯克面临的四个无法逾越的灾难](/content/gnews/2508945.md)
- `秘密翻译组-原创组`
 
 #### [格芯销售额破纪录，并预测在半导体短缺的情况下会销售额会再创新高](/content/gnews/2508923.md)
  `澳喜农场`
@@ -154,9 +157,6 @@
 
 #### [樱花时政&#124;美国和俄罗斯：最大的军火贸易伙伴的可视化](/content/gnews/2507561.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [7·24系列——普京的情人及私生子女（一）](/content/gnews/2507000.md)
- `墨尔本雅典娜农场`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
