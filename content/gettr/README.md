@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/11/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1976i2a45c.md)
+[@miles 5/11/2022 1:19 AM UTC  - :tv:直播](/content/gettr/p197ie534c9.md)
 
-2022.05.10  晚 新中国联邦 | 新闻   美国总统拜登签署租借法案加快向乌克兰提供军备；拜登担心找不到出路的普京接下来会怎么做
+5/10/2022 Miles Guo: True men should see through life and death and handle the relation between life and family well. The Victory Day Parade exposed Putin's true face as a political clown and opportunist. The era of blockchain will...
 
-<img src="https://media.gettr.com/group9/origin/2022/05/11/00/037a23d2-2f53-0dd7-b3f1-e4b2020fe36b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/05/11/01/3b47a902-f36d-ad5f-bb4e-1c729e6deb33/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 2022.05.10  晚 新中国联邦 | 新闻访谈    更强的病毒变体( 疫苗災害）席卷加国美国 加元跌惨
 
 <img src="https://media.gettr.com/group49/origin/2022/05/11/00/e713637a-7c02-01f2-5bcd-8dffe5af3ca3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/11/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1976i2a45c.md)
+
+2022.05.10  晚 新中国联邦 | 新闻   美国总统拜登签署租借法案加快向乌克兰提供军备；拜登担心找不到出路的普京接下来会怎么做
+
+<img src="https://media.gettr.com/group9/origin/2022/05/11/00/037a23d2-2f53-0dd7-b3f1-e4b2020fe36b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/11/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p197eue04ce.md)
+
+5/10/2022 Miles Guo: Why does the failure of President Trump's re-election also benefit our cause of taking down the CCP to some extent? As I have said, Putin held the Victory Day Parade on May 9, and nothing happened. However, the...
+
+<img src="https://media.gettr.com/group49/getter/2022/05/11/01/2e363a0b-06d7-9711-f23e-0d87b83611ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -115,44 +131,6 @@ For English：gettr.com/streaming/p196du8d990
 2022.05.10 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group22/origin/2022/05/10/17/6fed9fbd-2eca-e96a-7a25-d2b7673d0e9f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@himalayadcfarm 5/3/2022 1:20 PM UTC  - :tv:直播](/content/gettr/p185hch326b.md)
-
-🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】
-
-来自丹麦的Klaus告诉了我们他的救援工作，除了把小孩子从乌克兰救出战场，更有送到丹麦、安排安置的一条龙服务。他本人也收养了两个难民小孩，那句「是他们也收养了我」令人起敬。
-
-
-
-About the New Federal State of China #NFSC 👇
-
-We are the NEW CHINESE who are taking down EVIL Chinese Communist...
-
-<img src="https://media.gettr.com/group48/origin/2022/05/03/13/aec4df07-fc8a-8a9f-5edb-4b4f8eab2b8d/out.jpg" width="506" height="284">
-
----
-
-[@himalayadcfarm 5/2/2022 1:26 PM UTC  - :tv:直播](/content/gettr/p180gh8a2c9.md)
-
-🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】
-
-小鸡（小兔）先生Ben临別特意接受採訪——Part B
-
-Ben在采访最后很激动，他说：“毋庸置疑，我们是终身朋友。你们有一个美国朋友！”
-
-
-
-另附采访花絮： Ben离开Medyka营地前，送别了和他结下深厚友谊的乌克兰家庭和两个可爱的孩子。
-
-
-
-About the New Federal State of China #NFSC 👇
-
-We are the NEW CHINESE who ar...
-
-<img src="https://media.gettr.com/group16/origin/2022/05/02/13/021a6779-5e60-0ccf-980a-9d8d8950f508/out.jpg" width="506" height="284">
 
 ---
 
