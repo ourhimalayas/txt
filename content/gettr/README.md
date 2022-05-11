@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/11/2022 5:08 AM UTC ](/content/gettr/p198sfeb6a1.md)
+
+Putin feared beheading and left the military parade early
+
+On May 10, Mr. Guo Wengui blew the whistle on Gettr that the military parade on Red Square in Russia made the Chinese Communist Party astounded. There were 700,000 to 1.2 m...
+
+<img src="https://media.gettr.com/group21/origin/2022/05/11/05/d124be1a-249c-dbdd-1cfd-0fe8b0470be3/ffed722679290830f24914df5fd027fd.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p198lptf424.md)
 
 A Jewish volunteer fled from the Soviet Union to New York with his family about 48 years ago. He is now volunteering with free Belarusians who are opposed to the bloody dictator of Belarus. 
@@ -12,13 +22,11 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 5:08 AM UTC ](/content/gettr/p198sfeb6a1.md)
+[@miles 5/11/2022 5:48 AM UTC  - :tv:直播](/content/gettr/p198ygj2496.md)
 
-Putin feared beheading and left the military parade early
+【Ukraine Rescue】05/10/2022 Fellow fighters of the NFSC provide relief materials to Ukraine for the Sewa international relief organization. The big tent of the NFSC and ROLF has become a transit point for international supplies to U...
 
-On May 10, Mr. Guo Wengui blew the whistle on Gettr that the military parade on Red Square in Russia made the Chinese Communist Party astounded. There were 700,000 to 1.2 m...
-
-<img src="https://media.gettr.com/group21/origin/2022/05/11/05/d124be1a-249c-dbdd-1cfd-0fe8b0470be3/ffed722679290830f24914df5fd027fd.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/05/11/05/cdbe314b-f47e-2cae-c182-ea8bb9e2f461/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ Breaking news! The scientist who is also a General of the New Federal State of C
 5/4/2022 Sky News Arabia interviewed fellow fighter Max at the rescue camp in Medyka, Poland, reporting in a positive way the humanitarian rescue operations of the New Federal State of China to help Ukrainian refugees who fled the ...
 
 <img src="https://media.gettr.com/group33/getter/2022/05/10/22/6d811e1d-15e4-2504-98f2-c6b37969102f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p19715ee943.md)
-
-5/10/2022 Miles Guo: Quit drinking for my mother is one of the greatest achievements in my life; all my acquaintances can hardly believe that I quit drinking and they know how challenging it is. A kleptocrat in the Zhongnan Pit use...
-
-<img src="https://media.gettr.com/group36/getter/2022/05/10/22/ea355718-6d5c-cb51-9872-78ec9978bf54/out.jpg" width="506" height="284">
 
 ---
 
