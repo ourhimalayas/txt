@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 5:48 AM UTC  - :tv:直播](/content/gettr/p198ygj2496.md)
+
+【Ukraine Rescue】05/10/2022 Fellow fighters of the NFSC provide relief materials to Ukraine for the Sewa international relief organization. The big tent of the NFSC and ROLF has become a transit point for international supplies to U...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/11/05/cdbe314b-f47e-2cae-c182-ea8bb9e2f461/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 5:08 AM UTC ](/content/gettr/p198sfeb6a1.md)
 
 Putin feared beheading and left the military parade early
@@ -22,11 +30,11 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 5:48 AM UTC  - :tv:直播](/content/gettr/p198ygj2496.md)
+[@miles 5/11/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p198fh87918.md)
 
-【Ukraine Rescue】05/10/2022 Fellow fighters of the NFSC provide relief materials to Ukraine for the Sewa international relief organization. The big tent of the NFSC and ROLF has become a transit point for international supplies to U...
+2022-5-11  新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group42/getter/2022/05/11/05/cdbe314b-f47e-2cae-c182-ea8bb9e2f461/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/05/11/06/0981dac0-5975-d413-b0e3-234eb4e40c5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ Breaking news! The scientist who is also a General of the New Federal State of C
 5/4/2022 Sky News Arabia interviewed fellow fighter Max at the rescue camp in Medyka, Poland, reporting in a positive way the humanitarian rescue operations of the New Federal State of China to help Ukrainian refugees who fled the ...
 
 <img src="https://media.gettr.com/group33/getter/2022/05/10/22/6d811e1d-15e4-2504-98f2-c6b37969102f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p196bwjd9ad.md)
-
-“秀肌肉 得靠乌拉” 飞飞秀救援快报 2022-05-10
-
-For English：gettr.com/streaming/p196du8d990
-
-<img src="https://media.gettr.com/group24/origin/2022/05/10/22/f302569b-9370-54bc-2835-5407403125b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
