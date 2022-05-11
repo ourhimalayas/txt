@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/11/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p196v99f75f.md)
+
+2022.05.10  晚 新中国联邦 | 新闻访谈    更强的病毒变体( 疫苗災害）席卷加国美国 加元跌惨
+
+<img src="https://media.gettr.com/group49/origin/2022/05/11/00/e713637a-7c02-01f2-5bcd-8dffe5af3ca3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p197fre6330.md)
 
 5月10号：衷心地感谢．莘七女孩．Rachel制作的精美的视频。【我们最爱的七哥 祝你生日快乐 🎂🥳！太多的不可思议， 太多感动的时刻，太多无法用语言表达的感情。感恩您的母亲和家人的付出和爱，成就和成全了今天的七哥。一直喜欢这首歌《一个全新的世界》的歌词。没有进 英雄 决赛， 所以没机会唱给您听。接这个机会用这首歌 送出我和老虎对您最诚挚的生日祝福！ 我们和您，还有所有有良知的地球人一起走入新中国联邦这个崭新的世界。 🌹💐🎂🫂🤗🥳❤️💖💗...
@@ -205,14 +213,6 @@ A Christian from Norway is worried about the religious freedom of Christians liv
 Two Russi...
 
 <img src="https://media.gettr.com/group13/origin/2022/04/20/18/1d782df1-dba3-0584-0f6a-f1bedc7ceb75/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p194fkh192b.md)
-
-2022年5月10日 七哥生日与战友们在线聊天
-
-<img src="https://media.gettr.com/group47/origin/2022/05/10/13/06f6e81d-b863-8144-bea7-e9be99967489/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
