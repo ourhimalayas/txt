@@ -2,32 +2,74 @@
 ---
 
 
+#### [李克强警告中共国面临复杂而严峻的就业市场](/content/gnews/2507711.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [普京胜利日游行直播被骇客，出现“你们的手上有乌克兰人民的鲜血”的标语](/content/gnews/2507704.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【说事儿】加密货币资产一个月内减少了8000亿美元市值](/content/gnews/2507698.md)
+ `TokyoSakuraDesignGroup`
+
+#### [白银价格预测——随着美元上涨 白银价格大幅下滑](/content/gnews/2507686.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [《历史的今天》2022.05.11](/content/gnews/2507685.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [【说事儿】世界饥饿人口在俄乌战争前已激增25%](/content/gnews/2507683.md)
+ `TokyoSakuraDesignGroup`
+
+#### [中国欧盟商会称中共国政策给企业带来巨大的不确定性](/content/gnews/2507672.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [大直播后记：七哥鼓励父母让孩子行万里路，不一定读万卷书](/content/gnews/2507670.md)
+ `雅典娜GNotes`
+
+#### [【说事儿】新中国联邦将力图实现教育个性化](/content/gnews/2507662.md)
+ `TokyoSakuraDesignGroup`
+
+#### [格芯Q1获利、营收创新高](/content/gnews/2507653.md)
+ `波士顿五月花农场金融部`
+
+#### [【说事儿】美国：FDA因为血栓风险限制强生中共病毒疫苗的使用](/content/gnews/2507642.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】接种COVID疫苗后出现严重并发症的人数比以前的记录高40倍](/content/gnews/2507632.md)
+ `TokyoSakuraDesignGroup`
+
+#### [中日财经爆&#124; 耶伦：稳定币监管“重要且紧急” 期盼今年底快速通过](/content/gnews/2507620.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [疫情｜日本政府要求禁售“研究用”快筛试剂 东京都医学会建议逐步取消户外口罩令](/content/gnews/2507616.md)
+ `關注組`
+
+#### [【说事儿】日本疫苗导致心肌炎病例或被大量漏诊](/content/gnews/2507607.md)
+ `TokyoSakuraDesignGroup`
+
+#### [七国集团外长关于香港特首选举的声明](/content/gnews/2507594.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [2022年5月10日 郭文贵先生生日与战友聊天直播 全文字版](/content/gnews/2507566.md)
+ `温哥华扬帆农场《文贵大直播》全文听写组`
+
+#### [樱花时政&#124;美国和俄罗斯：最大的军火贸易伙伴的可视化](/content/gnews/2507561.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [更多俄罗斯供应靠岸 中共国石油进口上升](/content/gnews/2507545.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [【说事儿】5月9日美国三大股市大幅下跌](/content/gnews/2507542.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】独家：德国为突然停止俄罗斯天然气准备危机计划](/content/gnews/2507538.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】樱花时政┃涉中共“千人计划” 化学师被判14年监禁](/content/gnews/2507515.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】樱花时政┃美国升级美台关系 删除“不支持台湾独立”](/content/gnews/2507510.md)
- `TokyoSakuraDesignGroup`
+#### [俄罗斯在国内宣传瑞典是“纳粹”](/content/gnews/2507534.md)
+ `GTV News Talk`
 
 #### [秘翻在线：日本专家小组将于６月汇编中共病毒中长期措施建议](/content/gnews/2507509.md)
  `秘密翻譯組G-Translators`
 
-#### [【说事儿】佛州州长签署法案：要求高中教授“共产主义暴行史”课](/content/gnews/2507502.md)
- `TokyoSakuraDesignGroup`
-
 #### [中日财经爆&#124;美国众议院通过400亿美元法案以支持乌克兰对抗俄罗斯入侵](/content/gnews/2507501.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共为干掉美元做好一切准备！](/content/gnews/2507500.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [中日财经爆&#124;盐野义制药预计中共病毒疫苗和治疗药物将带来1100亿日元销售额](/content/gnews/2507499.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -35,13 +77,10 @@
 #### [台湾｜中共于台湾东部外海军演 美官员：台湾应吸取俄乌战争经验](/content/gnews/2507469.md)
  `關注組`
 
-#### [秘翻在线：世卫总干事关于清零政策的声明遭中共社交网站封杀](/content/gnews/2507421.md)
- `秘密翻譯組G-Translators`
+#### [第二任期间北领地首席部长兼财长迈克尔•甘纳突然辞职](/content/gnews/2507462.md)
+ `走进澳洲`
 
 #### [上海两条地铁主线无预警全线停运](/content/gnews/2507420.md)
- `日本东京方舟农场`
-
-#### [世卫谭德塞：中共清零政策不可持续](/content/gnews/2507399.md)
  `日本东京方舟农场`
 
 #### [05/11每日播报｜社媒消息：罗伯特马龙博士 Jan Jekielek](/content/gnews/2507388.md)
@@ -56,26 +95,17 @@
 #### [参与“千人计划”的化学师因窃取商业秘密等罪行被判监禁](/content/gnews/2507355.md)
  `日本东京方舟农场`
 
+#### [英国和欧盟称俄罗斯在乌克兰对卫星互联网调制解调器进行网络攻击](/content/gnews/2507352.md)
+ `墨尔本雅典娜农场`
+
 #### [乌克兰在俄罗斯胜利日保持强势](/content/gnews/2507344.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [樱花FM┃中共要求政府机构将电脑更换为本国产品](/content/gnews/2507341.md)
  `樱花FM`
 
-#### [樱花FM┃氧化石墨烯在你身体里要干什么？](/content/gnews/2507317.md)
- `樱花FM`
-
-#### [台积电明年将产品价格提高6％](/content/gnews/2507175.md)
- `墨尔本雅典娜农场`
-
-#### [【樱话】新中国联邦将力图实现教育个性化](/content/gnews/2507151.md)
- `TokyoSakuraDesignGroup`
-
 #### [美国众议院批准向乌克兰提供近400亿美元的援助](/content/gnews/2507150.md)
  `墨尔本雅典娜农场`
-
-#### [俄多家电视台阅兵当天屏幕被黑 出现反战宣言](/content/gnews/2507120.md)
- `日本东京方舟农场`
 
 #### [民生集萃—疫情导致实体经济低迷(2022.5.11A) 疫情期间突然被裁员](/content/gnews/2507116.md)
  `墨尔本雅典娜农场`
@@ -83,23 +113,8 @@
 #### [美国可以基于历史上所有美元交易制裁中共资产](/content/gnews/2507066.md)
  `墨尔本雅典娜农场`
 
-#### [COVID-19疫苗副作用集萃（2022.5.11C）新冠疫苗第三针，第六天，又痒，又疼，又肿](/content/gnews/2507050.md)
- `墨尔本雅典娜农场`
-
-#### [【樱话】美国：FDA因为血栓风险限制强生中共病毒疫苗的使用](/content/gnews/2506996.md)
- `TokyoSakuraDesignGroup`
-
-#### [中国抨击美国改变国务院网站上的台湾措辞](/content/gnews/2506866.md)
- `墨尔本雅典娜农场`
-
 #### [“二政府”的审计黑幕](/content/gnews/2506856.md)
  `墨尔本雅典娜农场`
-
-#### [北京朝阳区全部居家办公再次验证文贵爆料](/content/gnews/2506665.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [新中国联邦疫苗解药研究进程](/content/gnews/2506461.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [数字化时代将彻底改变全世界腐败的医药系统](/content/gnews/2506393.md)
  `墨尔本雅典娜农场`
@@ -107,29 +122,11 @@
 #### [CCP借助疫情把种地的又叒叕抓了](/content/gnews/2506216.md)
  `Tokyo Sakura Video Group`
 
-#### [西方制裁显效，四位俄罗斯州长在克里姆林宫的大清洗过程中辞职](/content/gnews/2506156.md)
- `喜马拉雅-华盛顿DC农场`
-
 #### [樱花FM┃地产商要求湿地为私楼让步](/content/gnews/2506134.md)
  `樱花FM`
 
-#### [医疗黑社会](/content/gnews/2506109.md)
- `银河勇气之星`
-
-#### [文贵视角:&#8217;为母亲戒酒&#8217;是我人生中最辉煌的成就](/content/gnews/2506069.md)
- `秘密翻译组-原创组`
-
-#### [证据表明COVID-19在中共实验室“制造”而莫德纳为其申请了专利](/content/gnews/2506004.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [2022印太海上力量会议将中俄联盟排除在外](/content/gnews/2505998.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [美国务院官网更新美台关系现况　“美国不支持台独”等字句消失](/content/gnews/2505901.md)
  `NFSC News`
-
-#### [风湿病学家：3,000名接种者中有40%报告了疫苗伤害](/content/gnews/2505863.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [七国集团对香港特首选举过程表达严重关切](/content/gnews/2505847.md)
  `NFSC News`
@@ -156,6 +153,9 @@
  `關注組`
 
 #### [上海封城｜中共野蛮防疫及亲俄立场吓退贝莱德继续“看涨”中国市场](/content/gnews/2500484.md)
+ `關注組`
+
+#### [国际｜亲访匈牙利无果 欧盟禁运俄罗斯石油仍未达成协议](/content/gnews/2500410.md)
  `關注組`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
