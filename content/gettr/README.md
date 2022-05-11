@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/11/2022 10:38 AM UTC  - :tv:直播](/content/gettr/p19asewb455.md)
+
+⚠️⚠️CCPウイルス及びコロナワクチンに関する新中国連邦活動の経緯
+
+新中国連邦（以下、NFSC）は、中国共産党（以下、CCP）の邪悪な本質と、彼らが世界中で何百万人もの人々を殺したCCPウイルスを作り出した真相を暴き出し、常に真実の提供と人命救助に尽力してきた。またコロナ治療薬、関連薬及びコロナワクチンに関する正確な情報やデータを世界へ発信してきた。NFSCの多くの早期警告や忠告によって、数え切れない程の命が救われ、今後もその様な活動を継続してゆく所存で...
+
+<img src="https://media.gettr.com/group25/origin/2022/05/11/10/1738cb51-46c3-bdf0-293b-ea874fddef5a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p198fh87918.md)
 
 2022-5-11  新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -38,13 +48,11 @@ Nicole introduces to him that the reaso...
 
 ---
 
-[@miles 5/11/2022 10:38 AM UTC  - :tv:直播](/content/gettr/p19asewb455.md)
+[@miles 5/11/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19agj85638.md)
 
-⚠️⚠️CCPウイルス及びコロナワクチンに関する新中国連邦活動の経緯
+2022.05.11  新中国联邦 | 军情室 乌军收复哈尔科夫东北部领土，美军巡洋舰再次穿越台湾海峡，地中海地区的北约陆海空布防，俄军前线挖战壕乌军专注伏击
 
-新中国連邦（以下、NFSC）は、中国共産党（以下、CCP）の邪悪な本質と、彼らが世界中で何百万人もの人々を殺したCCPウイルスを作り出した真相を暴き出し、常に真実の提供と人命救助に尽力してきた。またコロナ治療薬、関連薬及びコロナワクチンに関する正確な情報やデータを世界へ発信してきた。NFSCの多くの早期警告や忠告によって、数え切れない程の命が救われ、今後もその様な活動を継続してゆく所存で...
-
-<img src="https://media.gettr.com/group25/origin/2022/05/11/10/1738cb51-46c3-bdf0-293b-ea874fddef5a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Breaking news! The scientist who is also a General of the New Federal State of C
 【Ukraine Rescue】05/10/2022 Ukrainian national football team passes the Medyka camp on their way to France for training and comes to the tent of the NFSC and ROLF to rest and drink coffee. They thank the NFSC for its humanitarian as...
 
 <img src="https://media.gettr.com/group41/getter/2022/05/10/23/8fc55df2-82d6-03dd-9789-0760f1b17445/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/10/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p197cncdb77.md)
-
-2022.05.10  PM NFSC news   NFSC Excitingly Announce CCP Virus Vaccine Antidote on Mother’s Day
-
-<img src="https://media.gettr.com/group12/origin/2022/05/10/22/8df53678-7fec-e768-3bf7-831034aec9cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
