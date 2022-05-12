@@ -11,6 +11,9 @@
 
 ---
 
+#### [安理会紧急会议制裁北朝鲜 美国与中俄对立](/content/gnews/2518558.md)
+ `温哥华圆成农场🇨🇦`
+
 #### [秘翻在线: 中共严控出境政策正式实施](/content/gnews/2518553.md)
  `秘密翻譯組G-Translators`
 
@@ -100,9 +103,6 @@
 
 #### [中共国多省暴雨 洪涝灾害严重](/content/gnews/2517605.md)
  `日本东京方舟农场`
-
-#### [2022/05/12 英喜时事速递](/content/gnews/2517578.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [美国疫苗灾难显现 接种者死亡率飙升](/content/gnews/2517570.md)
  `東京櫻花団-Tokyo Sakura Group`
