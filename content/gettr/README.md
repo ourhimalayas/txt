@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/12/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p19h2tq4e3c.md)
+
+2022.05.12 早  新中国联邦 | 新闻访谈    
+
+<img src="https://media.gettr.com/group32/origin/2022/05/12/12/3531e5d1-cd91-5cab-13fb-54bd42b8f642/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p19g4etfb91.md)
+
+2022.05.12 早 新中国联邦 | 新闻 乌克兰国家橄榄球队感谢新中国联邦；乌克兰救援让世界了解新中国人
+
+<img src="https://media.gettr.com/group22/origin/2022/05/12/12/8f91cc90-ad8f-d6fc-83ff-2a69d45b21f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p19gsmo339e.md)
 
 2022.05.12  AM NFSC news   Sky News interviewed fellow fighter at the rescue camp in Medyka, Poland
@@ -90,11 +106,11 @@ Day 67 - Date: M...
 
 ---
 
-[@miles 5/12/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p19g4etfb91.md)
+[@miles 5/12/2022 1:01 PM UTC  - 4圖](/content/gettr/p19grhe1835.md)
 
-2022.05.12 早 新中国联邦 | 新闻 乌克兰国家橄榄球队感谢新中国联邦；乌克兰救援让世界了解新中国人
+ 5月12号：尊敬的战友们好．这个世界上．除了七哥的直播阅读量在增加之外，没有什么东西，不是往下跌的．几年来的爆料革命．和战友们一起，在锻炼我们辩真假．识善恶的能力。我们对世界上所有的事情的认知和判断，都是基于绝对的理性和基本的常识，和我们丰富的经验．和有着对世界所有灾难根源都来自共产党的．这个最重要的根本性的认知！才有了，我们伟大的新中国联邦人．无苗有币的新民族！
 
-<img src="https://media.gettr.com/group22/origin/2022/05/12/12/8f91cc90-ad8f-d6fc-83ff-2a69d45b21f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/05/12/13/53f4c0d4-e2f6-aad0-fdc4-76f1cca973dc/680ff4f0cf01dda8165c2ede3ff0ada8.jpg" width="506" height="284">
 
 ---
 
@@ -171,22 +187,6 @@ Day 67 - Date: M...
 七哥与战友们连线直播
 
 <img src="https://media.gettr.com/group31/origin/2022/05/11/22/77038342-3f14-d659-fa42-c1e31de59d8c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19cmc5109c.md)
-
-2022.05.11  新中国联邦 | 喜健康    从普京的病态探讨中共的吸血长生邪术 —— 血清置换与干细胞治疗漫谈
-
-<img src="https://media.gettr.com/group40/origin/2022/05/11/20/3e44e469-fd7c-67fd-1123-b6744d44172f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 5:56 PM UTC  - :tv:直播](/content/gettr/p19ay167195.md)
-
-2022年5月11日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group16/origin/2022/05/11/17/6f214e23-b4ce-60de-8ca4-bd73fcfbdead/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
