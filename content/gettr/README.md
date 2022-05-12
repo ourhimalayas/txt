@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p19gsmo339e.md)
+
+2022.05.12  AM NFSC news   Sky News interviewed fellow fighter at the rescue camp in Medyka, Poland
+
+<img src="https://media.gettr.com/group6/origin/2022/05/12/11/a3d40dc9-1867-6650-5568-ac5660ff72c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 8:13 AM UTC  - :tv:直播](/content/gettr/p19fbopa069.md)
 
 2022.05.11 文贵大直播（精华版）
@@ -82,11 +90,11 @@ Day 67 - Date: M...
 
 ---
 
-[@miles 5/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p19gsmo339e.md)
+[@miles 5/12/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p19g4etfb91.md)
 
-2022.05.12  AM NFSC news   Sky News interviewed fellow fighter at the rescue camp in Medyka, Poland
+2022.05.12 早 新中国联邦 | 新闻 乌克兰国家橄榄球队感谢新中国联邦；乌克兰救援让世界了解新中国人
 
-<img src="https://media.gettr.com/group6/origin/2022/05/12/11/a3d40dc9-1867-6650-5568-ac5660ff72c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/05/12/12/8f91cc90-ad8f-d6fc-83ff-2a69d45b21f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,38 +187,6 @@ Day 67 - Date: M...
 2022年5月11日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group16/origin/2022/05/11/17/6f214e23-b4ce-60de-8ca4-bd73fcfbdead/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/11/2022 1:19 PM UTC ](/content/gettr/p19alwo69aa.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月9日第66天当日救援统计：
-
-Medyka救援站接待：约181人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约17802人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 66 - Date: Ma...
-
-<img src="https://media.gettr.com/group40/getter/2022/05/11/13/cc2f9ab4-71e1-0aac-7d89-cbdc9dc8071d/3f9b73cd1743cac11e975b8beec5b65b.jpg" width="506" height="284">
 
 ---
 
