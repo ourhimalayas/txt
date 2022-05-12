@@ -29,9 +29,6 @@
 #### [5/11/2022 文贵直播：俄罗斯人民很清楚，普京侵略乌克兰只符合极少数人的利益，绝大多数人是受害者，因此普京不敢走极端](/content/gnews/2517965.md)
  `秘密翻译组-北美组`
 
-#### [视频&#124;日政府禁售“研究用”快筛 东京医学会建议逐步取消户外口罩令](/content/gnews/2517953.md)
- `MOSVIDEO`
-
 #### [视频&#124;俄罗斯电视二战胜利纪念日被黑](/content/gnews/2517946.md)
  `MOSVIDEO`
 
@@ -87,12 +84,6 @@
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [加拿大食物油短缺食品餐饮价格暴涨](/content/gnews/2517409.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [特鲁多政府斥巨资捐助联合国等世界组织](/content/gnews/2517407.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [需求激增，供应受限，油价再创新高](/content/gnews/2517406.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [逃离暴政，香港人移民加拿大人数创新高](/content/gnews/2517405.md)
