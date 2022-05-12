@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p19jcip88dd.md)
+
+5/11/2022 Miles Guo: The Russia-Ukraine war has broken three traditional perceptions: (1) dictatorship cannot be challenged by Lao Baixing; (2) Russia and Communist China are unrivaled when they join forces; (3) nuclear blackmail i...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/12/22/3f3560d2-3580-08d8-28dc-c0c124ba2025/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19ifjn23c1.md)
 
 “戒” 飞飞秀救援快报 2022-05-12
@@ -28,11 +36,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/12/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p19jcip88dd.md)
+[@miles 5/12/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p19j7z54dee.md)
 
-5/11/2022 Miles Guo: The Russia-Ukraine war has broken three traditional perceptions: (1) dictatorship cannot be challenged by Lao Baixing; (2) Russia and Communist China are unrivaled when they join forces; (3) nuclear blackmail i...
+5/11/2022 Miles Guo: President Biden signed the Lend-Lease Act so swiftly, what does it mean? An internal report from the UK forecasts that Communist China will be facing the biggest natural disasters of the past 60 years; when Hon...
 
-<img src="https://media.gettr.com/group47/getter/2022/05/12/22/3f3560d2-3580-08d8-28dc-c0c124ba2025/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/05/12/23/ca182545-8813-5050-4ef9-f06e02a780fa/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Nnnnnnnn
 5/11/2022 Miles Guo: An Indian friend of mine predicted that the CCP's invasion of Taiwan will result in the collapse of Communist China and that severe flooding will happen in Communist China, with corpses scattered everywhere. Th...
 
 <img src="https://media.gettr.com/group19/getter/2022/05/12/07/39bacb5e-7bcd-aedb-aad5-f21f0690a8e6/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p19en6h65b5.md)
-
-2022.05.12 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group47/origin/2022/05/12/07/1c5d9832-d90f-94c6-6d9a-d64084ab9f91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
