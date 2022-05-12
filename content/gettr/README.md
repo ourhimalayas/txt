@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/12/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p19h2tq4e3c.md)
+[@miles 5/12/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p19h97w325a.md)
 
-2022.05.12 早  新中国联邦 | 新闻访谈    
+5/11/2022 Miles Guo: Himalaya Coin will definitely become the most important currency in Russia after its dissolution. I can feel at every moment that foreigners hate the Chinese far more than they hate the Russians, and the Commun...
 
-<img src="https://media.gettr.com/group32/origin/2022/05/12/12/3531e5d1-cd91-5cab-13fb-54bd42b8f642/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/05/12/14/764f44cb-a377-2570-6098-7ced2bc99730/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 叶钊颖-郝海东-飞飞 《大实话·第二十场》： “成材的土壤”   2022-05-12
 
 <img src="https://media.gettr.com/group35/origin/2022/05/12/14/d9fe7e5a-0c78-811c-2ef0-95713deac81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p19h2tq4e3c.md)
+
+2022.05.12 早  新中国联邦 | 新闻访谈    
+
+<img src="https://media.gettr.com/group32/origin/2022/05/12/12/3531e5d1-cd91-5cab-13fb-54bd42b8f642/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p19h5lhcea3.md)
+
+ 5月12号：尊敬的战友们好……共产党的经济和世界的股票市场即将崩溃，大家切勿因小失大．因投机而失去一切、务必小心！
+
+<img src="https://media.gettr.com/group44/getter/2022/05/12/14/9930b0f5-6399-6443-edf5-9432d2be089d/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,18 +170,6 @@ Day 67 - Date: M...
 
 ---
 
-[@miles 5/11/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p19ct8t9451.md)
-
-5/10/2022 Miles Guo: One-person-one-vote is a bygone system! The NFSC will be using a voting system of the digital era using blockchain, which is different from an AI system
-
-
-
-5/10/2022 文贵直播：一人一票的民主选举制度太老旧了，新中国联邦推的是数据时代区块链选举制度，和AI...
-
-<img src="https://media.gettr.com/group5/getter/2022/05/11/23/88e8b238-81ab-d477-2344-cc4a45520637/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p19db3d0091.md)
 
 5/11/2022 Miles Guo: Macron has been taking a tough stance towards Xi Jinping after he got re-elected! The rescue operation of our fellow fighters at the Ukraine front line has shown the world a new image of Chinese people; citizen...
@@ -179,14 +183,6 @@ Day 67 - Date: M...
 5/11/2022 Miles Guo: This year Elon Musk will be facing four disasters: (1) the disaster of Tesla stock and its factory in Shanghai; (2) the disaster of Twitter acquisition; (3) the disaster in rocket launching; (4) Elon Musk is st...
 
 <img src="https://media.gettr.com/group20/getter/2022/05/11/23/8325ba72-00f8-4610-a41a-cec61bf503b5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 10:55 PM UTC  - :tv:直播](/content/gettr/p19cyup992f.md)
-
-5/10/2022 Miles Guo: Post the COVID vaccine disasters, humanity will enter a new era in terms of financial systems and information technologies: an era of digital currencies and metaverse. The traditional means used by the governme...
-
-<img src="https://media.gettr.com/group32/getter/2022/05/11/22/dad84aa9-ee87-b274-7823-7524a7479658/out.jpg" width="506" height="284">
 
 ---
 
