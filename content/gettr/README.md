@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 5/12/2022 3:31 PM UTC ](/content/gettr/p19h7xue9c2.md)
+
+5月12号：脱丝袜直播开始啦……【腹肌在线直播唱歌哦】https://gettr.com/streaming/p19guik9f6b
+
+---
+
 [@miles 5/12/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p19h9ar4480.md)
 
 5/11/2022 Miles Guo: Russia is working with the CCP, Iran, North Korea, Pakistan, and Syria, preparing to build the new systems for digital currencies and transactions. Putin is unable to launch a war that can destroy the world, bu...
@@ -18,9 +24,11 @@
 
 ---
 
-[@miles 5/12/2022 3:31 PM UTC ](/content/gettr/p19h7xue9c2.md)
+[@miles 5/12/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p19hw7me642.md)
 
-5月12号：脱丝袜直播开始啦……【腹肌在线直播唱歌哦】https://gettr.com/streaming/p19guik9f6b
+5/11/2022 Miles Guo: The Russians are very clear that Putin's invasion of Ukraine only suits the interest of very few people, and the majority of them are victims of the war. Therefore Putin dares not to take the war to an extreme;...
+
+<img src="https://media.gettr.com/group38/getter/2022/05/12/16/3f2eb026-3f4b-341e-bb7f-9abacaaa8599/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Day 67 - Date: M...
 5/11/2022 Miles Guo: Putin appeared extremely panicked during the Victory Day Parade. A person who attended the parade told me that the armored vehicles loaded with live ammunition were found to have arrived at the scene. After tha...
 
 <img src="https://media.gettr.com/group14/getter/2022/05/11/23/a2fd328c-d596-62ff-b666-ba730facdaf5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p19ct2h7ff2.md)
-
-5/11/2022 Miles Guo: Bravery and courage have different meanings: courage is one’s personal attitude, while bravery is the outcome of one’s actions, and it is  the persistence and insistence and assiduity of embracing the common st...
-
-<img src="https://media.gettr.com/group38/getter/2022/05/11/23/fb8ace19-331c-9f2b-d152-f1452822f7b1/out.jpg" width="506" height="284">
 
 ---
 
