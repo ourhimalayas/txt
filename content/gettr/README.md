@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 5/12/2022 5:32 PM UTC ](/content/gettr/p19hdyx6729.md)
+
+Nnnnnnnn
+
+---
+
 [@miles 5/12/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p19hw7me642.md)
 
 5/11/2022 Miles Guo: The Russians are very clear that Putin's invasion of Ukraine only suits the interest of very few people, and the majority of them are victims of the war. Therefore Putin dares not to take the war to an extreme;...
@@ -32,9 +38,11 @@
 
 ---
 
-[@miles 5/12/2022 5:32 PM UTC ](/content/gettr/p19hdyx6729.md)
+[@miles 5/12/2022 6:18 PM UTC  - :tv:直播](/content/gettr/p19hpgz5064.md)
 
-Nnnnnnnn
+2022年5月12日  俄乌战争战况播报
+
+<img src="https://media.gettr.com/group21/origin/2022/05/12/18/977ad68b-9fe6-0d13-38cc-6e4578f2c3db/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Day 67 - Date: M...
 5/11/2022 Miles Guo: One of Putin’s family members, who knows the whereabouts of Putin’s wealth, was arrested in France, indicating that the West has basically found all the wealth that Putin has hidden overseas. This is a heavy bl...
 
 <img src="https://media.gettr.com/group49/getter/2022/05/12/01/59e4d929-75da-aec0-020a-15ac60e12f20/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p19cmyc7142.md)
-
-2022.05.11  晚 新中国联邦 | 新闻访谈    美国劳工统计数据显示4月通胀达到40年来最高点；中共核酸检测新风潮 “核酸采样员”成抢手工作
-
-<img src="https://media.gettr.com/group35/origin/2022/05/12/00/cd32f564-615c-1301-7750-8da39e6ae7dc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
