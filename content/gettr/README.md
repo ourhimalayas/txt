@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/12/2022 2:07 PM UTC  - :tv:直播](/content/gettr/p19g4hze241.md)
+
+叶钊颖-郝海东-飞飞 《大实话·第二十场》： “成材的土壤”   2022-05-12
+
+<img src="https://media.gettr.com/group35/origin/2022/05/12/14/d9fe7e5a-0c78-811c-2ef0-95713deac81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 1:01 PM UTC  - 4圖](/content/gettr/p19grhe1835.md)
+
+ 5月12号：尊敬的战友们好．这个世界上．除了七哥的直播阅读量在增加之外，没有什么东西，不是往下跌的．几年来的爆料革命．和战友们一起，在锻炼我们辩真假．识善恶的能力。我们对世界上所有的事情的认知和判断，都是基于绝对的理性和基本的常识，和我们丰富的经验．和有着对世界所有灾难根源都来自共产党的．这个最重要的根本性的认知！才有了，我们伟大的新中国联邦人．无苗有币的新民族！
+
+<img src="https://media.gettr.com/group23/getter/2022/05/12/13/53f4c0d4-e2f6-aad0-fdc4-76f1cca973dc/680ff4f0cf01dda8165c2ede3ff0ada8.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p19g4etfb91.md)
 
 2022.05.12 早 新中国联邦 | 新闻 乌克兰国家橄榄球队感谢新中国联邦；乌克兰救援让世界了解新中国人
@@ -106,14 +122,6 @@ Day 67 - Date: M...
 
 ---
 
-[@miles 5/12/2022 1:01 PM UTC  - 4圖](/content/gettr/p19grhe1835.md)
-
- 5月12号：尊敬的战友们好．这个世界上．除了七哥的直播阅读量在增加之外，没有什么东西，不是往下跌的．几年来的爆料革命．和战友们一起，在锻炼我们辩真假．识善恶的能力。我们对世界上所有的事情的认知和判断，都是基于绝对的理性和基本的常识，和我们丰富的经验．和有着对世界所有灾难根源都来自共产党的．这个最重要的根本性的认知！才有了，我们伟大的新中国联邦人．无苗有币的新民族！
-
-<img src="https://media.gettr.com/group23/getter/2022/05/12/13/53f4c0d4-e2f6-aad0-fdc4-76f1cca973dc/680ff4f0cf01dda8165c2ede3ff0ada8.jpg" width="506" height="284">
-
----
-
 [@miles 5/12/2022 1:55 AM UTC  - :tv:直播](/content/gettr/p19dnjcbd17.md)
 
 5/11/2022 Miles Guo: One of Putin’s family members, who knows the whereabouts of Putin’s wealth, was arrested in France, indicating that the West has basically found all the wealth that Putin has hidden overseas. This is a heavy bl...
@@ -179,14 +187,6 @@ Day 67 - Date: M...
 5/10/2022 Miles Guo: Post the COVID vaccine disasters, humanity will enter a new era in terms of financial systems and information technologies: an era of digital currencies and metaverse. The traditional means used by the governme...
 
 <img src="https://media.gettr.com/group32/getter/2022/05/11/22/dad84aa9-ee87-b274-7823-7524a7479658/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p19cmxu5e7b.md)
-
-七哥与战友们连线直播
-
-<img src="https://media.gettr.com/group31/origin/2022/05/11/22/77038342-3f14-d659-fa42-c1e31de59d8c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
