@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/11/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p19cy3f1e51.md)
+
+5/11/2022 Miles Guo: Putin appeared extremely panicked during the Victory Day Parade. A person who attended the parade told me that the armored vehicles loaded with live ammunition were found to have arrived at the scene. After tha...
+
+<img src="https://media.gettr.com/group14/getter/2022/05/11/23/a2fd328c-d596-62ff-b666-ba730facdaf5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p19ct2h7ff2.md)
 
 5/11/2022 Miles Guo: Bravery and courage have different meanings: courage is one’s personal attitude, while bravery is the outcome of one’s actions, and it is  the persistence and insistence and assiduity of embracing the common st...
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 5/11/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p19cy3f1e51.md)
+[@miles 5/12/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p19cmyc7142.md)
 
-5/11/2022 Miles Guo: Putin appeared extremely panicked during the Victory Day Parade. A person who attended the parade told me that the armored vehicles loaded with live ammunition were found to have arrived at the scene. After tha...
+2022.05.11  晚 新中国联邦 | 新闻访谈    美国劳工统计数据显示4月通胀达到40年来最高点；中共核酸检测新风潮 “核酸采样员”成抢手工作
 
-<img src="https://media.gettr.com/group14/getter/2022/05/11/23/a2fd328c-d596-62ff-b666-ba730facdaf5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/05/12/00/cd32f564-615c-1301-7750-8da39e6ae7dc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Nicole introduces to him that the reaso...
 2022-5-11  中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group42/origin/2022/05/11/04/220aa6d9-1d50-471e-fcac-c9017a24926e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 4:44 AM UTC  - :tv:直播](/content/gettr/p198xo59039.md)
-
-5/10/2022 Miles Guo: Putin received two pieces of intelligence during the Victory Day Parade at the Red Square: 1) there would be a protest by 700,000 to 1.2 million people, which may be turned into a riot, and 2) multiple attempts...
-
-<img src="https://media.gettr.com/group28/getter/2022/05/11/04/9dcb8f74-0090-cd2b-c1b6-37bcffc47fb1/out.jpg" width="506" height="284">
 
 ---
 
