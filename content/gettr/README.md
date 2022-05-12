@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p19cmyc7142.md)
+
+2022.05.11  晚 新中国联邦 | 新闻访谈    美国劳工统计数据显示4月通胀达到40年来最高点；中共核酸检测新风潮 “核酸采样员”成抢手工作
+
+<img src="https://media.gettr.com/group35/origin/2022/05/12/00/cd32f564-615c-1301-7750-8da39e6ae7dc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/11/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p19cy3f1e51.md)
 
 5/11/2022 Miles Guo: Putin appeared extremely panicked during the Victory Day Parade. A person who attended the parade told me that the armored vehicles loaded with live ammunition were found to have arrived at the scene. After tha...
@@ -30,11 +38,11 @@
 
 ---
 
-[@miles 5/12/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p19cmyc7142.md)
+[@miles 5/12/2022 1:55 AM UTC  - :tv:直播](/content/gettr/p19dnjcbd17.md)
 
-2022.05.11  晚 新中国联邦 | 新闻访谈    美国劳工统计数据显示4月通胀达到40年来最高点；中共核酸检测新风潮 “核酸采样员”成抢手工作
+5/11/2022 Miles Guo: One of Putin’s family members, who knows the whereabouts of Putin’s wealth, was arrested in France, indicating that the West has basically found all the wealth that Putin has hidden overseas. This is a heavy bl...
 
-<img src="https://media.gettr.com/group35/origin/2022/05/12/00/cd32f564-615c-1301-7750-8da39e6ae7dc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/05/12/01/59e4d929-75da-aec0-020a-15ac60e12f20/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ Putin feared beheading and left the military parade early
 On May 10, Mr. Guo Wengui blew the whistle on Gettr that the military parade on Red Square in Russia made the Chinese Communist Party astounded. There were 700,000 to 1.2 m...
 
 <img src="https://media.gettr.com/group21/origin/2022/05/11/05/d124be1a-249c-dbdd-1cfd-0fe8b0470be3/ffed722679290830f24914df5fd027fd.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p198lptf424.md)
-
-A Jewish volunteer fled from the Soviet Union to New York with his family about 48 years ago. He is now volunteering with free Belarusians who are opposed to the bloody dictator of Belarus. 
-
-Nicole introduces to him that the reaso...
-
-<img src="https://media.gettr.com/group14/origin/2022/05/11/04/a756466d-c4e2-0ae5-9fa1-2c9acfa34705/out.jpg" width="506" height="284">
 
 ---
 
