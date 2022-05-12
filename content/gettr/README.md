@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/12/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p19i454fffd.md)
+
+2022-5-12 《避风港》（46）“蛋白脱落”会导致严重健康危害
+
+<img src="https://media.gettr.com/group23/origin/2022/03/24/18/ce279f72-a6f3-f9b9-b079-3d3cd052012b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 6:18 PM UTC  - :tv:直播](/content/gettr/p19hpgz5064.md)
+
+2022年5月12日  俄乌战争战况播报
+
+<img src="https://media.gettr.com/group21/origin/2022/05/12/18/977ad68b-9fe6-0d13-38cc-6e4578f2c3db/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 5:32 PM UTC ](/content/gettr/p19hdyx6729.md)
 
 Nnnnnnnn
@@ -38,11 +54,9 @@ Nnnnnnnn
 
 ---
 
-[@miles 5/12/2022 6:18 PM UTC  - :tv:直播](/content/gettr/p19hpgz5064.md)
+[@miles 5/12/2022 7:07 PM UTC ](/content/gettr/p19i7vj9184.md)
 
-2022年5月12日  俄乌战争战况播报
-
-<img src="https://media.gettr.com/group21/origin/2022/05/12/18/977ad68b-9fe6-0d13-38cc-6e4578f2c3db/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+请大家关注一下G Fashion 小妹的GETTR, 谢谢🙏 
 
 ---
 
@@ -163,22 +177,6 @@ Day 67 - Date: M...
 2022-5-11《鸡血王喜币大作战》 第一百九十二集 嘉宾：Nick、封神榜
 
 <img src="https://media.gettr.com/group38/origin/2022/05/12/03/decf75be-0ca5-a343-c28c-0990cc4b2adf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p19e3k42d97.md)
-
-2022.05.11  新中国联邦 | 喜财经 
-
-<img src="https://media.gettr.com/group8/origin/2022/05/12/02/8a4f55c0-aeaf-57d1-55b8-ede1029d583f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/12/2022 1:55 AM UTC  - :tv:直播](/content/gettr/p19dnjcbd17.md)
-
-5/11/2022 Miles Guo: One of Putin’s family members, who knows the whereabouts of Putin’s wealth, was arrested in France, indicating that the West has basically found all the wealth that Putin has hidden overseas. This is a heavy bl...
-
-<img src="https://media.gettr.com/group49/getter/2022/05/12/01/59e4d929-75da-aec0-020a-15ac60e12f20/out.jpg" width="506" height="284">
 
 ---
 
