@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/12/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19dpsh94de.md)
+
+2022-5-11《鸡血王喜币大作战》 第一百九十二集 嘉宾：Nick、封神榜
+
+<img src="https://media.gettr.com/group38/origin/2022/05/12/03/decf75be-0ca5-a343-c28c-0990cc4b2adf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 1:55 AM UTC  - :tv:直播](/content/gettr/p19dnjcbd17.md)
 
 5/11/2022 Miles Guo: One of Putin’s family members, who knows the whereabouts of Putin’s wealth, was arrested in France, indicating that the West has basically found all the wealth that Putin has hidden overseas. This is a heavy bl...
@@ -181,14 +189,6 @@ Day 66 - Date: Ma...
 【Ukraine Rescue】05/10/2022 Fellow fighters of the NFSC provide relief materials to Ukraine for the Sewa international relief organization. The big tent of the NFSC and ROLF has become a transit point for international supplies to U...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/11/05/cdbe314b-f47e-2cae-c182-ea8bb9e2f461/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p198fb7ce15.md)
-
-2022-5-11  中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group42/origin/2022/05/11/04/220aa6d9-1d50-471e-fcac-c9017a24926e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
