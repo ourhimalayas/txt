@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p19epv9eb38.md)
+
+5/11/2022 Miles Guo: An Indian friend of mine predicted that the CCP's invasion of Taiwan will result in the collapse of Communist China and that severe flooding will happen in Communist China, with corpses scattered everywhere. Th...
+
+<img src="https://media.gettr.com/group19/getter/2022/05/12/07/39bacb5e-7bcd-aedb-aad5-f21f0690a8e6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p19en6h65b5.md)
 
 2022.05.12 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -66,11 +74,11 @@ Day 67 - Date: M...
 
 ---
 
-[@miles 5/12/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p19epv9eb38.md)
+[@miles 5/12/2022 8:13 AM UTC  - :tv:直播](/content/gettr/p19fbopa069.md)
 
-5/11/2022 Miles Guo: An Indian friend of mine predicted that the CCP's invasion of Taiwan will result in the collapse of Communist China and that severe flooding will happen in Communist China, with corpses scattered everywhere. Th...
+2022.05.11 文贵大直播（精华版）
 
-<img src="https://media.gettr.com/group19/getter/2022/05/12/07/39bacb5e-7bcd-aedb-aad5-f21f0690a8e6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/05/12/08/f516fb8b-20e0-defb-2f08-d17cbd99fd40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ Day 66 - Date: Ma...
 2022年5月11日 文贵大直播：普京红场阅兵匆忙中断；香港金融市场今非昔比；变化中的国内金融政策；灭共事业进入新的阶段
 
 <img src="https://media.gettr.com/group18/origin/2022/05/11/11/4a9ee610-b352-e1b3-5a50-9bc2f5244a0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p19aqyt8c78.md)
-
- 5月11号：尊敬的战友们好．G FASHION 在国际时尚舞台，创造了前所未有的东方时尚的神话，马上开始今天的大直播了……
-
-<img src="https://media.gettr.com/group37/getter/2022/05/11/11/9c882442-253f-fe42-0f4c-6c2391006139/out.jpg" width="506" height="284">
 
 ---
 
