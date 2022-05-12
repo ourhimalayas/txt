@@ -11,6 +11,15 @@
 
 ---
 
+#### [谈古论今┃因果与业力](/content/gnews/2518799.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃中共军队实弹攻击美国海军目标模型](/content/gnews/2518798.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [DC大中华时事：港共警方本月11日逮捕“612”人道支援基金4名信托人](/content/gnews/2518776.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [五月花简报（2022/05/12）](/content/gnews/2518768.md)
  `mayflowertranslate`
 
@@ -20,13 +29,7 @@
 #### [七哥告诉我们，贵族是一种精神](/content/gnews/2518754.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [郭氏情报站- 2022.05.11 文贵大直播概要](/content/gnews/2518746.md)
- `MOS Designer香草山设计部`
-
 #### [郭氏情报站- 2022.05.10 文贵先生生日直播概要](/content/gnews/2518745.md)
- `MOS Designer香草山设计部`
-
-#### [战友日常之-紧紧跟随](/content/gnews/2518732.md)
  `MOS Designer香草山设计部`
 
 #### [芬兰总统与英国签署安全协议时指责俄罗斯造成了今天的局面](/content/gnews/2518682.md)
@@ -74,9 +77,6 @@
 #### [英国与瑞典签署安全协议；俄军从哈尔科夫“被逼退”（二）](/content/gnews/2518112.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [天文学家首次捕捉到银河系巨大黑洞的图像](/content/gnews/2518105.md)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [樱花FM┃中共上海市实施“一人阳性、全楼转运”防疫新政](/content/gnews/2518038.md)
  `樱花FM`
 
@@ -85,9 +85,6 @@
 
 #### [樱花FM┃中纪委督导组问责地方卫健委录音（三）](/content/gnews/2517993.md)
  `樱花FM`
-
-#### [郭文贵盖特音频2022.05.12](/content/gnews/2517943.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [朝鲜官宣首个染疫病例](/content/gnews/2517731.md)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -121,6 +118,9 @@
 
 #### [加拿大食物油短缺食品餐饮价格暴涨](/content/gnews/2517409.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [让智慧和创造财富的能力，成为灭共的工具](/content/gnews/2517408.md)
+ `KarmaLabs`
 
 #### [逃离暴政，香港人移民加拿大人数创新高](/content/gnews/2517405.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
