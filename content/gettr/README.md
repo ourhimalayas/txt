@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 8:13 AM UTC  - :tv:直播](/content/gettr/p19fbopa069.md)
+
+2022.05.11 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group24/origin/2022/05/12/08/f516fb8b-20e0-defb-2f08-d17cbd99fd40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p19epv9eb38.md)
 
 5/11/2022 Miles Guo: An Indian friend of mine predicted that the CCP's invasion of Taiwan will result in the collapse of Communist China and that severe flooding will happen in Communist China, with corpses scattered everywhere. Th...
@@ -74,11 +82,11 @@ Day 67 - Date: M...
 
 ---
 
-[@miles 5/12/2022 8:13 AM UTC  - :tv:直播](/content/gettr/p19fbopa069.md)
+[@miles 5/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p19gsmo339e.md)
 
-2022.05.11 文贵大直播（精华版）
+2022.05.12  AM NFSC news   Sky News interviewed fellow fighter at the rescue camp in Medyka, Poland
 
-<img src="https://media.gettr.com/group24/origin/2022/05/12/08/f516fb8b-20e0-defb-2f08-d17cbd99fd40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/05/12/11/a3d40dc9-1867-6650-5568-ac5660ff72c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 66 - Date: Ma...
 
 <img src="https://media.gettr.com/group40/getter/2022/05/11/13/cc2f9ab4-71e1-0aac-7d89-cbdc9dc8071d/3f9b73cd1743cac11e975b8beec5b65b.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 12:05 PM UTC  - :tv:直播](/content/gettr/p19a84pe4db.md)
-
-2022年5月11日 文贵大直播：普京红场阅兵匆忙中断；香港金融市场今非昔比；变化中的国内金融政策；灭共事业进入新的阶段
-
-<img src="https://media.gettr.com/group18/origin/2022/05/11/11/4a9ee610-b352-e1b3-5a50-9bc2f5244a0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
