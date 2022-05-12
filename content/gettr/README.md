@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19j1k32e8d.md)
+
+2022.05.12  新中国联邦 | 喜健康     吃饭真的很重要吗？
+
+<img src="https://media.gettr.com/group45/origin/2022/05/12/20/4adae7f0-90c2-2d83-980e-9391afa3aa75/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p19i454fffd.md)
 
 2022-5-12 《避风港》（46）“蛋白脱落”会导致严重健康危害
@@ -10,11 +18,13 @@
 
 ---
 
-[@miles 5/12/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19j1k32e8d.md)
+[@miles 5/12/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19ifjn23c1.md)
 
-2022.05.12  新中国联邦 | 喜健康     吃饭真的很重要吗？
+“戒” 飞飞秀救援快报 2022-05-12
 
-<img src="https://media.gettr.com/group45/origin/2022/05/12/20/4adae7f0-90c2-2d83-980e-9391afa3aa75/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p19ip7231e1
+
+<img src="https://media.gettr.com/group27/origin/2022/05/08/22/6a38f4b4-3f19-9332-1469-f0db0da7ce91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,38 +155,6 @@ Nnnnnnnn
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group38/origin/2022/05/12/04/4dc93826-769d-e0ad-9a6f-f584e94c8b9d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 3:44 AM UTC ](/content/gettr/p19dpv46052.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月10日第67天当日救援统计：
-
-Medyka救援站接待：约329人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约18131人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 67 - Date: M...
-
-<img src="https://media.gettr.com/group20/getter/2022/05/12/03/c2df5786-82fd-4e4d-d4b6-4121b1ae6542/6658e6eff96dd345d7fc1486d9cac36d.jpg" width="506" height="284">
 
 ---
 
