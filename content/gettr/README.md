@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p19h9ar4480.md)
+
+5/11/2022 Miles Guo: Russia is working with the CCP, Iran, North Korea, Pakistan, and Syria, preparing to build the new systems for digital currencies and transactions. Putin is unable to launch a war that can destroy the world, bu...
+
+<img src="https://media.gettr.com/group28/getter/2022/05/12/14/e40756cb-2a50-6266-bfa5-09999afe89f9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p19h97w325a.md)
 
 5/11/2022 Miles Guo: Himalaya Coin will definitely become the most important currency in Russia after its dissolution. I can feel at every moment that foreigners hate the Chinese far more than they hate the Russians, and the Commun...
@@ -10,11 +18,9 @@
 
 ---
 
-[@miles 5/12/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p19h9ar4480.md)
+[@miles 5/12/2022 3:31 PM UTC ](/content/gettr/p19h7xue9c2.md)
 
-5/11/2022 Miles Guo: Russia is working with the CCP, Iran, North Korea, Pakistan, and Syria, preparing to build the new systems for digital currencies and transactions. Putin is unable to launch a war that can destroy the world, bu...
-
-<img src="https://media.gettr.com/group28/getter/2022/05/12/14/e40756cb-2a50-6266-bfa5-09999afe89f9/out.jpg" width="506" height="284">
+5月12号：脱丝袜直播开始啦……【腹肌在线直播唱歌哦】https://gettr.com/streaming/p19guik9f6b
 
 ---
 
@@ -175,14 +181,6 @@ Day 67 - Date: M...
 5/11/2022 Miles Guo: Bravery and courage have different meanings: courage is one’s personal attitude, while bravery is the outcome of one’s actions, and it is  the persistence and insistence and assiduity of embracing the common st...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/11/23/fb8ace19-331c-9f2b-d152-f1452822f7b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p19d7bq7fb7.md)
-
-5/11/2022 Miles Guo: This year Elon Musk will be facing four disasters: (1) the disaster of Tesla stock and its factory in Shanghai; (2) the disaster of Twitter acquisition; (3) the disaster in rocket launching; (4) Elon Musk is st...
-
-<img src="https://media.gettr.com/group20/getter/2022/05/11/23/8325ba72-00f8-4610-a41a-cec61bf503b5/out.jpg" width="506" height="284">
 
 ---
 
