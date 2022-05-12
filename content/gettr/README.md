@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p19j7z54dee.md)
+
+5/11/2022 Miles Guo: President Biden signed the Lend-Lease Act so swiftly, what does it mean? An internal report from the UK forecasts that Communist China will be facing the biggest natural disasters of the past 60 years; when Hon...
+
+<img src="https://media.gettr.com/group41/getter/2022/05/12/23/ca182545-8813-5050-4ef9-f06e02a780fa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p19jcip88dd.md)
 
 5/11/2022 Miles Guo: The Russia-Ukraine war has broken three traditional perceptions: (1) dictatorship cannot be challenged by Lao Baixing; (2) Russia and Communist China are unrivaled when they join forces; (3) nuclear blackmail i...
@@ -36,11 +44,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/12/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p19j7z54dee.md)
+[@miles 5/12/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p19im4886d4.md)
 
-5/11/2022 Miles Guo: President Biden signed the Lend-Lease Act so swiftly, what does it mean? An internal report from the UK forecasts that Communist China will be facing the biggest natural disasters of the past 60 years; when Hon...
+5/12/2022 Miles Guo GETTR: The biggest tragedy of living in Communist China is watching your assets turned into debts and you don’t even have an option to die; The CCP locks your money in the banks, wipes out your money in the stoc...
 
-<img src="https://media.gettr.com/group41/getter/2022/05/12/23/ca182545-8813-5050-4ef9-f06e02a780fa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/05/12/23/c00195c1-a6e3-3992-98a6-81883d5191c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Nnnnnnnn
 2022.05.11 文贵大直播（精华版）
 
 <img src="https://media.gettr.com/group24/origin/2022/05/12/08/f516fb8b-20e0-defb-2f08-d17cbd99fd40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p19epv9eb38.md)
-
-5/11/2022 Miles Guo: An Indian friend of mine predicted that the CCP's invasion of Taiwan will result in the collapse of Communist China and that severe flooding will happen in Communist China, with corpses scattered everywhere. Th...
-
-<img src="https://media.gettr.com/group19/getter/2022/05/12/07/39bacb5e-7bcd-aedb-aad5-f21f0690a8e6/out.jpg" width="506" height="284">
 
 ---
 
