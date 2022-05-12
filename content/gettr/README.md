@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p19im4886d4.md)
+
+5/12/2022 Miles Guo GETTR: The biggest tragedy of living in Communist China is watching your assets turned into debts and you don’t even have an option to die; The CCP locks your money in the banks, wipes out your money in the stoc...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/12/23/c00195c1-a6e3-3992-98a6-81883d5191c2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p19j7z54dee.md)
 
 5/11/2022 Miles Guo: President Biden signed the Lend-Lease Act so swiftly, what does it mean? An internal report from the UK forecasts that Communist China will be facing the biggest natural disasters of the past 60 years; when Hon...
@@ -44,11 +52,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/12/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p19im4886d4.md)
+[@miles 5/12/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p19jcgbfd08.md)
 
-5/12/2022 Miles Guo GETTR: The biggest tragedy of living in Communist China is watching your assets turned into debts and you don’t even have an option to die; The CCP locks your money in the banks, wipes out your money in the stoc...
+5/12/2022 Miles Guo’s GETTR: In the face of the economic and humanitarian disasters around the world, family members and relatives are extremely important. Only if you treat other fellow fighters more kindly and sincerely than your...
 
-<img src="https://media.gettr.com/group21/getter/2022/05/12/23/c00195c1-a6e3-3992-98a6-81883d5191c2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/05/12/23/253df547-2ae0-b2de-5834-52bafec2c2f5/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Nnnnnnnn
 2022.05.12  AM NFSC news   Sky News interviewed fellow fighter at the rescue camp in Medyka, Poland
 
 <img src="https://media.gettr.com/group6/origin/2022/05/12/11/a3d40dc9-1867-6650-5568-ac5660ff72c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/12/2022 8:13 AM UTC  - :tv:直播](/content/gettr/p19fbopa069.md)
-
-2022.05.11 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group24/origin/2022/05/12/08/f516fb8b-20e0-defb-2f08-d17cbd99fd40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
