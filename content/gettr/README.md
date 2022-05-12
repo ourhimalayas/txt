@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19dpsh94de.md)
+
+2022-5-11《鸡血王喜币大作战》 第一百九十二集 嘉宾：Nick、封神榜
+
+<img src="https://media.gettr.com/group38/origin/2022/05/12/03/decf75be-0ca5-a343-c28c-0990cc4b2adf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p19e3k42d97.md)
 
 2022.05.11  新中国联邦 | 喜财经 
@@ -10,11 +18,35 @@
 
 ---
 
-[@miles 5/12/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19dpsh94de.md)
+[@miles 5/12/2022 3:44 AM UTC ](/content/gettr/p19dpv46052.md)
 
-2022-5-11《鸡血王喜币大作战》 第一百九十二集 嘉宾：Nick、封神榜
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group38/origin/2022/05/12/03/decf75be-0ca5-a343-c28c-0990cc4b2adf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月10日第67天当日救援统计：
+
+Medyka救援站接待：约329人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约18131人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 67 - Date: M...
+
+<img src="https://media.gettr.com/group20/getter/2022/05/12/03/c2df5786-82fd-4e4d-d4b6-4121b1ae6542/6658e6eff96dd345d7fc1486d9cac36d.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +213,6 @@ Day 66 - Date: Ma...
 2022-5-11  新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group50/origin/2022/05/11/06/0981dac0-5975-d413-b0e3-234eb4e40c5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 5:48 AM UTC  - :tv:直播](/content/gettr/p198ygj2496.md)
-
-【Ukraine Rescue】05/10/2022 Fellow fighters of the NFSC provide relief materials to Ukraine for the Sewa international relief organization. The big tent of the NFSC and ROLF has become a transit point for international supplies to U...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/11/05/cdbe314b-f47e-2cae-c182-ea8bb9e2f461/out.jpg" width="506" height="284">
 
 ---
 
