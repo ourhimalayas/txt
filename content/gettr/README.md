@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/12/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19ifjn23c1.md)
+
+“戒” 飞飞秀救援快报 2022-05-12
+
+For English：gettr.com/streaming/p19ip7231e1
+
+<img src="https://media.gettr.com/group27/origin/2022/05/08/22/6a38f4b4-3f19-9332-1469-f0db0da7ce91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19j1k32e8d.md)
 
 2022.05.12  新中国联邦 | 喜健康     吃饭真的很重要吗？
@@ -18,13 +28,11 @@
 
 ---
 
-[@miles 5/12/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19ifjn23c1.md)
+[@miles 5/12/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p19jcip88dd.md)
 
-“戒” 飞飞秀救援快报 2022-05-12
+5/11/2022 Miles Guo: The Russia-Ukraine war has broken three traditional perceptions: (1) dictatorship cannot be challenged by Lao Baixing; (2) Russia and Communist China are unrivaled when they join forces; (3) nuclear blackmail i...
 
-For English：gettr.com/streaming/p19ip7231e1
-
-<img src="https://media.gettr.com/group27/origin/2022/05/08/22/6a38f4b4-3f19-9332-1469-f0db0da7ce91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/05/12/22/3f3560d2-3580-08d8-28dc-c0c124ba2025/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Nnnnnnnn
 2022.05.12 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
 <img src="https://media.gettr.com/group47/origin/2022/05/12/07/1c5d9832-d90f-94c6-6d9a-d64084ab9f91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p19enm4b7c6.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group38/origin/2022/05/12/04/4dc93826-769d-e0ad-9a6f-f584e94c8b9d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
