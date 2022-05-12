@@ -3,6 +3,8 @@
 
 ## 頁面 37/42 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果](/content/transcript/2018/04/20180418-7942093624246044835.md)
+
 [文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/content/transcript/2018/04/20180418-5411508062276363731.md)
 
 [文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/content/transcript/2018/04/20180418-2511616355314092455.md)
@@ -50,8 +52,6 @@
 [2018年2月3号 文贵郭媒体报平安视频](/content/transcript/2018/04/20180418-8770803911585151936.md)
 
 [翻译：中国的思想警察管得越来越宽（小平事件）](/content/transcript/2018/04/20180418-8145984323910916538.md)
-
-[郭先生01/30/18郭媒体的3段讲话](/content/transcript/2018/04/20180418-6787859769038780160.md)
 
 
 ## 頁面 37/42 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

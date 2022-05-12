@@ -3,6 +3,8 @@
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：文贵1118 Instagram 直播](/content/transcript/2018/04/20180418-6170218360988993353.md)
+
 [颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/transcript/2018/04/20180418-7352823982455357971.md)
 
 [翻译：班农在第十二届族群青年领袖研习营演讲](/content/transcript/2018/04/20180418-291103909959910855.md)
@@ -50,8 +52,6 @@
 [翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/content/transcript/2018/04/20180418-1943689665396012735.md)
 
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/transcript/2018/04/20180418-1971865478484839021.md)
-
-[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/transcript/2018/04/20180418-4391930695523447506.md)
 
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

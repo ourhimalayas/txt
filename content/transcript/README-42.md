@@ -3,6 +3,8 @@
 
 ## 頁面 42/42 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [查看全部](/content/transcript/README-all.md)
 
+[2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/transcript/2018/04/20180418-1436420880757298143.md)
+
 [2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”](/content/transcript/2018/04/20180418-3702263840213416314.md)
 
 [2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵](/content/transcript/2018/04/20180418-6242782845301179834.md)

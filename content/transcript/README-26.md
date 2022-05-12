@@ -3,6 +3,8 @@
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：7月29日 共产党已经进入倒计时](/content/transcript/2019/07/20190730-277183401038624152.md)
+
 [文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/content/transcript/2019/07/20190730-643602008810576333.md)
 
 [文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/content/transcript/2019/07/20190728-6395183003803536442.md)
@@ -50,8 +52,6 @@
 [文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/transcript/2019/06/20190627-3104653818463071254.md)
 
 [文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/content/transcript/2019/06/20190625-920777833882255491.md)
-
-[翻译美国对伊朗实施制裁的行政命令](/content/transcript/2019/06/20190625-2187152093709329841.md)
 
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

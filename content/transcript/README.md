@@ -3,6 +3,8 @@
 
 ## 頁面 1/42 **1** [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-2.md) [查看全部](/content/transcript/README-all.md)
 
+[2022年5月11日《文贵大直播》全文字版](/content/transcript/2022/05/20220511-2518612.md)
+
 [2022年5月10日 郭文贵先生生日与战友聊天直播 全文字版](/content/transcript/2022/05/20220510-2507566.md)
 
 [2022年5月7日 郭文贵先生直播 全文字版](/content/transcript/2022/05/20220507-2497858.md)
@@ -50,8 +52,6 @@
 [郭文贵先生2022年4月12日盖特视频（9分34秒）全文字版](/content/transcript/2022/04/20220412-2337039.md)
 
 [郭文贵先生2022年4月11日第二条盖特视频（2分04秒）全文字版](/content/transcript/2022/04/20220411-2332223.md)
-
-[​2022年4月11日 郭文贵先生试直播 全文字版](/content/transcript/2022/04/20220411-2333262.md)
 
 
 ## 頁面 1/42 **1** [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-2.md) [查看全部](/content/transcript/README-all.md)
