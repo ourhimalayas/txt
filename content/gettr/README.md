@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p19en6h65b5.md)
+
+2022.05.12 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group47/origin/2022/05/12/07/1c5d9832-d90f-94c6-6d9a-d64084ab9f91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p19enm4b7c6.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -58,11 +66,11 @@ Day 67 - Date: M...
 
 ---
 
-[@miles 5/12/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p19en6h65b5.md)
+[@miles 5/12/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p19epv9eb38.md)
 
-2022.05.12 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+5/11/2022 Miles Guo: An Indian friend of mine predicted that the CCP's invasion of Taiwan will result in the collapse of Communist China and that severe flooding will happen in Communist China, with corpses scattered everywhere. Th...
 
-<img src="https://media.gettr.com/group47/origin/2022/05/12/07/1c5d9832-d90f-94c6-6d9a-d64084ab9f91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/05/12/07/39bacb5e-7bcd-aedb-aad5-f21f0690a8e6/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ Day 66 - Date: Ma...
  5月11号：尊敬的战友们好．G FASHION 在国际时尚舞台，创造了前所未有的东方时尚的神话，马上开始今天的大直播了……
 
 <img src="https://media.gettr.com/group37/getter/2022/05/11/11/9c882442-253f-fe42-0f4c-6c2391006139/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19agj85638.md)
-
-2022.05.11  新中国联邦 | 军情室 乌军收复哈尔科夫东北部领土，美军巡洋舰再次穿越台湾海峡，地中海地区的北约陆海空布防，俄军前线挖战壕乌军专注伏击
-
-<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
