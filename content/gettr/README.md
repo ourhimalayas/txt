@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/12/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p19h9ar4480.md)
+
+5/11/2022 Miles Guo: Russia is working with the CCP, Iran, North Korea, Pakistan, and Syria, preparing to build the new systems for digital currencies and transactions. Putin is unable to launch a war that can destroy the world, bu...
+
+<img src="https://media.gettr.com/group28/getter/2022/05/12/14/e40756cb-2a50-6266-bfa5-09999afe89f9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p19h5lhcea3.md)
+
+ 5月12号：尊敬的战友们好……共产党的经济和世界的股票市场即将崩溃，大家切勿因小失大．因投机而失去一切、务必小心！
+
+<img src="https://media.gettr.com/group44/getter/2022/05/12/14/9930b0f5-6399-6443-edf5-9432d2be089d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 2:07 PM UTC  - :tv:直播](/content/gettr/p19g4hze241.md)
 
 叶钊颖-郝海东-飞飞 《大实话·第二十场》： “成材的土壤”   2022-05-12
@@ -23,14 +39,6 @@
 2022.05.12 早  新中国联邦 | 新闻访谈    
 
 <img src="https://media.gettr.com/group32/origin/2022/05/12/12/3531e5d1-cd91-5cab-13fb-54bd42b8f642/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/12/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p19h5lhcea3.md)
-
- 5月12号：尊敬的战友们好……共产党的经济和世界的股票市场即将崩溃，大家切勿因小失大．因投机而失去一切、务必小心！
-
-<img src="https://media.gettr.com/group44/getter/2022/05/12/14/9930b0f5-6399-6443-edf5-9432d2be089d/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Day 67 - Date: M...
 5/11/2022 Miles Guo: Bravery and courage have different meanings: courage is one’s personal attitude, while bravery is the outcome of one’s actions, and it is  the persistence and insistence and assiduity of embracing the common st...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/11/23/fb8ace19-331c-9f2b-d152-f1452822f7b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p19db3d0091.md)
-
-5/11/2022 Miles Guo: Macron has been taking a tough stance towards Xi Jinping after he got re-elected! The rescue operation of our fellow fighters at the Ukraine front line has shown the world a new image of Chinese people; citizen...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/11/23/d0ca360b-042c-5980-0ef1-b0ec7a489695/out.jpg" width="506" height="284">
 
 ---
 
