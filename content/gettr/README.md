@@ -2,13 +2,11 @@
 ---
 
 
-[@miles 5/11/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p198lptf424.md)
+[@miles 5/12/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p19e3k42d97.md)
 
-A Jewish volunteer fled from the Soviet Union to New York with his family about 48 years ago. He is now volunteering with free Belarusians who are opposed to the bloody dictator of Belarus. 
+2022.05.11  新中国联邦 | 喜财经 
 
-Nicole introduces to him that the reaso...
-
-<img src="https://media.gettr.com/group14/origin/2022/05/11/04/a756466d-c4e2-0ae5-9fa1-2c9acfa34705/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/05/12/02/8a4f55c0-aeaf-57d1-55b8-ede1029d583f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
