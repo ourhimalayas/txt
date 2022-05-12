@@ -2,22 +2,6 @@
 ---
 
 
-[@miles 5/12/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19dpsh94de.md)
-
-2022-5-11《鸡血王喜币大作战》 第一百九十二集 嘉宾：Nick、封神榜
-
-<img src="https://media.gettr.com/group38/origin/2022/05/12/03/decf75be-0ca5-a343-c28c-0990cc4b2adf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p19e3k42d97.md)
-
-2022.05.11  新中国联邦 | 喜财经 
-
-<img src="https://media.gettr.com/group8/origin/2022/05/12/02/8a4f55c0-aeaf-57d1-55b8-ede1029d583f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 5/12/2022 3:44 AM UTC ](/content/gettr/p19dpv46052.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -47,6 +31,30 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 67 - Date: M...
 
 <img src="https://media.gettr.com/group20/getter/2022/05/12/03/c2df5786-82fd-4e4d-d4b6-4121b1ae6542/6658e6eff96dd345d7fc1486d9cac36d.jpg" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19dpsh94de.md)
+
+2022-5-11《鸡血王喜币大作战》 第一百九十二集 嘉宾：Nick、封神榜
+
+<img src="https://media.gettr.com/group38/origin/2022/05/12/03/decf75be-0ca5-a343-c28c-0990cc4b2adf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p19e3k42d97.md)
+
+2022.05.11  新中国联邦 | 喜财经 
+
+<img src="https://media.gettr.com/group8/origin/2022/05/12/02/8a4f55c0-aeaf-57d1-55b8-ede1029d583f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/12/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p19enm4b7c6.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group38/origin/2022/05/12/04/4dc93826-769d-e0ad-9a6f-f584e94c8b9d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -205,14 +213,6 @@ Day 66 - Date: Ma...
 新中国連邦（以下、NFSC）は、中国共産党（以下、CCP）の邪悪な本質と、彼らが世界中で何百万人もの人々を殺したCCPウイルスを作り出した真相を暴き出し、常に真実の提供と人命救助に尽力してきた。またコロナ治療薬、関連薬及びコロナワクチンに関する正確な情報やデータを世界へ発信してきた。NFSCの多くの早期警告や忠告によって、数え切れない程の命が救われ、今後もその様な活動を継続してゆく所存で...
 
 <img src="https://media.gettr.com/group25/origin/2022/05/11/10/1738cb51-46c3-bdf0-293b-ea874fddef5a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/11/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p198fh87918.md)
-
-2022-5-11  新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group50/origin/2022/05/11/06/0981dac0-5975-d413-b0e3-234eb4e40c5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
