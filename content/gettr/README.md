@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p19knu36404.md)
+
+2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group44/origin/2022/05/13/06/37caf130-e77e-c446-b555-2675789e23fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 5:33 AM UTC  - :tv:直播](/content/gettr/p19l7t8132d.md)
 
 NFSC frontline volunteer interviewed three people who came from Spain and Peru to help Ukraine refugees. They explained why is it so important to come here to help Ukraine and appreciated what the New Federal State of China and the...
@@ -122,7 +130,7 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p19knu36404.md)
+[@miles 5/13/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p19l61sf6a5.md)
 
 2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
@@ -155,12 +163,6 @@ Nnnnnnnn
 5/11/2022 Miles Guo: The Russians are very clear that Putin's invasion of Ukraine only suits the interest of very few people, and the majority of them are victims of the war. Therefore Putin dares not to take the war to an extreme;...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/12/16/3f2eb026-3f4b-341e-bb7f-9abacaaa8599/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 3:31 PM UTC ](/content/gettr/p19h7xue9c2.md)
-
-5月12号：脱丝袜直播开始啦……【腹肌在线直播唱歌哦】https://gettr.com/streaming/p19guik9f6b
 
 ---
 
