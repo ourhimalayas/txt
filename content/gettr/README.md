@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 9:57 PM UTC  - :tv:直播](/content/gettr/p19o81zb77a.md)
+
+2022年5月13号 七哥与战友们连线吃播
+
+<img src="https://media.gettr.com/group10/liveorigin/2022/05/13/21/c34a6476-25bb-2e46-86f0-2da26abeafed/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19nycn86ca.md)
 
 2022.05.13  新中国联邦 | 喜健康    知死而生，向自杀说--不!
@@ -182,19 +190,11 @@ NFSC frontline volunteer interviewed three people who came from Spain and Peru t
 
 ---
 
-[@miles 5/12/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p19im4886d4.md)
+[@miles 5/13/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p19ntlm3e01.md)
 
-5/12/2022 Miles Guo GETTR: The biggest tragedy of living in Communist China is watching your assets turned into debts and you don’t even have an option to die; The CCP locks your money in the banks, wipes out your money in the stoc...
+5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange, because the Himalaya Dollar is a tru...
 
-<img src="https://media.gettr.com/group21/getter/2022/05/12/23/c00195c1-a6e3-3992-98a6-81883d5191c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 9:57 PM UTC  - :tv:直播](/content/gettr/p19o81zb77a.md)
-
-2022年5月13号 七哥与战友们连线吃播
-
-<img src="https://media.gettr.com/group10/liveorigin/2022/05/13/21/c34a6476-25bb-2e46-86f0-2da26abeafed/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/05/13/22/fc9bb56b-ddd2-052b-6c6f-4d6c5581e792/out.jpg" width="506" height="284">
 
 ---
 
