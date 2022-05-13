@@ -2,6 +2,14 @@
 ---
 
 
+[@7upgogo 5/13/2022 6:44 AM UTC  - :tv:直播](/content/gettr/p19kumfaeb4.md)
+
+It is common to test everyone for the COVID-19 every day in some cities. It is common that quarantine policies in some cities confine all residents to their homes for weeks. Now the Chinese Communist Party government even tests the...
+
+<img src="https://media.gettr.com/group12/origin/2022/05/13/06/7407cdd6-c282-74f8-0bad-f2792f0694f7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 5:46 PM UTC  - :tv:直播](/content/gettr/p19m875a143.md)
 
 2022.05.13 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -182,19 +190,11 @@ NFSC frontline volunteer interviewed three people who came from Spain and Peru t
 
 ---
 
-[@miles 5/12/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p19jcip88dd.md)
+[@miles 5/13/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19nycn86ca.md)
 
-5/11/2022 Miles Guo: The Russia-Ukraine war has broken three traditional perceptions: (1) dictatorship cannot be challenged by Lao Baixing; (2) Russia and Communist China are unrivaled when they join forces; (3) nuclear blackmail i...
+2022.05.13  新中国联邦 | 喜健康    知死而生，向自杀说--不!
 
-<img src="https://media.gettr.com/group47/getter/2022/05/12/22/3f3560d2-3580-08d8-28dc-c0c124ba2025/out.jpg" width="506" height="284">
-
----
-
-[@7upgogo 5/13/2022 6:44 AM UTC  - :tv:直播](/content/gettr/p19kumfaeb4.md)
-
-It is common to test everyone for the COVID-19 every day in some cities. It is common that quarantine policies in some cities confine all residents to their homes for weeks. Now the Chinese Communist Party government even tests the...
-
-<img src="https://media.gettr.com/group12/origin/2022/05/13/06/7407cdd6-c282-74f8-0bad-f2792f0694f7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/05/13/20/852df71d-0fda-9138-9ff5-902aa203a3c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
