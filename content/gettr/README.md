@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19nycn86ca.md)
+
+2022.05.13  新中国联邦 | 喜健康    知死而生，向自杀说--不!
+
+<img src="https://media.gettr.com/group28/origin/2022/05/13/20/852df71d-0fda-9138-9ff5-902aa203a3c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@7upgogo 5/13/2022 6:44 AM UTC  - :tv:直播](/content/gettr/p19kumfaeb4.md)
 
 It is common to test everyone for the COVID-19 every day in some cities. It is common that quarantine policies in some cities confine all residents to their homes for weeks. Now the Chinese Communist Party government even tests the...
@@ -182,19 +190,11 @@ NFSC frontline volunteer interviewed three people who came from Spain and Peru t
 
 ---
 
-[@miles 5/12/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p19j7z54dee.md)
+[@miles 5/13/2022 9:57 PM UTC  - :tv:直播](/content/gettr/p19o81zb77a.md)
 
-5/11/2022 Miles Guo: President Biden signed the Lend-Lease Act so swiftly, what does it mean? An internal report from the UK forecasts that Communist China will be facing the biggest natural disasters of the past 60 years; when Hon...
+2022年5月13号 七哥与战友们连线吃播
 
-<img src="https://media.gettr.com/group41/getter/2022/05/12/23/ca182545-8813-5050-4ef9-f06e02a780fa/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19nycn86ca.md)
-
-2022.05.13  新中国联邦 | 喜健康    知死而生，向自杀说--不!
-
-<img src="https://media.gettr.com/group28/origin/2022/05/13/20/852df71d-0fda-9138-9ff5-902aa203a3c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/liveorigin/2022/05/13/21/c34a6476-25bb-2e46-86f0-2da26abeafed/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
