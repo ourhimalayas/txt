@@ -2,6 +2,36 @@
 ---
 
 
+#### [【樱话】中共“清零”防疫让上海特斯拉出口归零](/content/gnews/2522889.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】樱花时政&#124; “以民治民”控製社會 中國各地“法理民兵”應運而生](/content/gnews/2522861.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】中日财经爆&#124;润达医疗单月核酸收入超2.5亿，还“检讨”赚得少](/content/gnews/2522824.md)
+ `TokyoSakuraDesignGroup`
+
+#### [文·贵天成——文贵先生谈孟建柱（七十八）](/content/gnews/2522809.md)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】樱花时政┃天府粮仓：成都平原耕地面积10年锐减40%](/content/gnews/2522801.md)
+ `TokyoSakuraDesignGroup`
+
+#### [世界正在进行千年没有的大变局 经济正走向大崩溃](/content/gnews/2522746.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [泄露的文件暗示了俄罗斯的经济崩溃](/content/gnews/2522723.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [秘翻在线：俄罗斯企图转移的乌克兰粮食在地中海被抓包](/content/gnews/2522711.md)
+ `秘密翻譯組G-Translators`
+
+#### [樱花时政┃朝鲜宣布因中共病毒感染进入最高紧急状态](/content/gnews/2522708.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [有声&#124;乌克兰救援让世界了解新中国人](/content/gnews/2522678.md)
+ `MOSREC`
+
 #### [秘翻在线：韩国KB金融集团会长称乌克兰危机导致可再生能源需求扩大](/content/gnews/2522668.md)
  `秘密翻譯組G-Translators`
 
@@ -17,38 +47,20 @@
 #### [秘翻在线：俄罗斯国营船运公司因欧盟的制裁出售固有资产](/content/gnews/2522628.md)
  `秘密翻譯組G-Translators`
 
-#### [有声｜海关剪护照 中共承认限制出境](/content/gnews/2522627.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [樱花时政&#124;中共国餐桌上必不可少的大豆油脂，即将断供](/content/gnews/2522609.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [有声&#124;中共疫情封控越来越严 解封遥遥无期](/content/gnews/2522603.md)
- `MOSREC`
-
 #### [秘翻在线：韩国表示俄罗斯“特别经济措施”对韩国的影响有限](/content/gnews/2522581.md)
  `秘密翻譯組G-Translators`
 
-#### [樱花FM┃比特币价格半年时间大跌55%！](/content/gnews/2522522.md)
- `樱花FM`
-
-#### [樱花FM┃比特币价格跌破31000美元 萨尔瓦多再次买入500枚](/content/gnews/2522518.md)
- `樱花FM`
-
-#### [樱花FM┃雷诺将韩国子公司三成以上的股份出售给吉利汽车](/content/gnews/2522516.md)
- `樱花FM`
-
-#### [樱花FM┃韩国总统尹锡悦宣誓就职 未提日韩关系](/content/gnews/2522509.md)
- `樱花FM`
+#### [有声&#124;上海某机构被曝大量核酸检测结果为假阳性](/content/gnews/2522482.md)
+ `MOSREC`
 
 #### [秘翻在线：韩国参与有关俄罗斯“乌克兰战争罪行”的联合国决议案](/content/gnews/2522440.md)
  `秘密翻譯組G-Translators`
 
-#### [由于乌克兰战争，西门子将退出俄罗斯市场](/content/gnews/2522439.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [中共大白们的路西法效应](/content/gnews/2522354.md)
  `喜马拉雅农场新西兰站`
+
+#### [中共文革式防疫—“消杀”](/content/gnews/2522281.md)
+ `【🌹玫瑰新闻】`
 
 #### [疫苗灾难爆发 灭共拯救人类](/content/gnews/2522173.md)
  `MilesGuoLivePPT`
@@ -64,12 +76,6 @@
 
 #### [秘翻在线:被中共渗透的NIH删除COVID-19 基因序列数据](/content/gnews/2521965.md)
  `秘密翻譯組G-Translators`
-
-#### [COVID-19疫苗副作用集萃（2022.5.12D）黄贝街道打疫苗，无语了](/content/gnews/2521953.md)
- `墨尔本雅典娜农场`
-
-#### [2022年1月5日 文贵大直播最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](/content/gnews/2521932.md)
- `文贵视频字幕全集`
 
 #### [瑞典加入北约的好处](/content/gnews/2521747.md)
  `Shuizhuyu`
@@ -122,9 +128,6 @@
 #### [美国会兰托斯人权委员会就中共国强摘器官举行听证会](/content/gnews/2521241.md)
  `墨尔本雅典娜农场`
 
-#### [二十大召开在即，北京管控形势日益严峻](/content/gnews/2521201.md)
- `NFSC News`
-
 #### [“这里随时可能被导弹击中”：德国外长访问乌克兰](/content/gnews/2521193.md)
  `澳喜特战旅Gnews`
 
@@ -133,9 +136,6 @@
 
 #### [“大白”入室消杀 上海民众愤怒回击](/content/gnews/2520979.md)
  `日本东京方舟农场`
-
-#### [请问中共“不履行行政命令要影响三代”是依据哪条法律？](/content/gnews/2519971.md)
- `thedawn`
 
 #### [5月12日文贵大直播：建邦立规 探索新中国联邦世界新型管理模式](/content/gnews/2519866.md)
  `日本东京方舟农场`
