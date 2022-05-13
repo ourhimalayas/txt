@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p19lgl5ca9e.md)
+
+尊敬的战友们好，分享海鲜海手指。
+
+<img src="https://media.gettr.com/group34/getter/2022/05/13/14/7025c84d-75ac-18e8-441c-b6a33972253c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 12:40 PM UTC  - :tv:直播](/content/gettr/p19m88r7e1f.md)
 
 2022年5月13日 文贵大直播：最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用
@@ -178,17 +186,17 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p19lgl5ca9e.md)
+[@miles 5/13/2022 4:20 PM UTC ](/content/gettr/p19mktw2946.md)
 
-尊敬的战友们好，分享海鲜海手指。
+05/13/2022 on the 25th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
 
-<img src="https://media.gettr.com/group34/getter/2022/05/13/14/7025c84d-75ac-18e8-441c-b6a33972253c/out.jpg" width="506" height="284">
+No.1🥇 on Germany🇩🇪 Top MV Chart for 25 Consecutive Days
 
----
+No.1🥇 on Germany🇩🇪 Pop MV Chart for 25 Consecutive Days
 
-[@miles 5/12/2022 7:07 PM UTC ](/content/gettr/p19i7vj9184.md)
 
-请大家关注一下G Fashion 小妹的GETTR, 谢谢🙏 
+
+“The Terminator ...
 
 ---
 
