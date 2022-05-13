@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p19k6dw69e5.md)
+
+2022-5-12《鸡血王喜币大作战》 第一百九十三集 嘉宾：无双柳薇薇、Tex
+
+<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19jd15b046.md)
 
 2022.05.12  新中国联邦 | 喜财经    通货膨胀，经济崩溃与货币的关系
@@ -98,11 +106,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p19k6dw69e5.md)
+[@miles 5/13/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19krln57b8.md)
 
-2022-5-12《鸡血王喜币大作战》 第一百九十三集 嘉宾：无双柳薇薇、Tex
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/05/13/05/8f130e23-8550-b2a6-99c9-1d9694926417/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ Nnnnnnnn
 5/11/2022 Miles Guo: Russia is working with the CCP, Iran, North Korea, Pakistan, and Syria, preparing to build the new systems for digital currencies and transactions. Putin is unable to launch a war that can destroy the world, bu...
 
 <img src="https://media.gettr.com/group28/getter/2022/05/12/14/e40756cb-2a50-6266-bfa5-09999afe89f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p19h97w325a.md)
-
-5/11/2022 Miles Guo: Himalaya Coin will definitely become the most important currency in Russia after its dissolution. I can feel at every moment that foreigners hate the Chinese far more than they hate the Russians, and the Commun...
-
-<img src="https://media.gettr.com/group36/getter/2022/05/12/14/764f44cb-a377-2570-6098-7ced2bc99730/out.jpg" width="506" height="284">
 
 ---
 
