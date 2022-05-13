@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19jd15b046.md)
+
+2022.05.12  新中国联邦 | 喜财经    通货膨胀，经济崩溃与货币的关系
+
+<img src="https://media.gettr.com/group12/origin/2022/05/13/02/70772219-1b06-0fa4-e1c4-f9376d2723ba/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p19jnsqfe8c.md)
 
 2022.05.12 晚 新中国联邦 | 新闻访谈   李家超当选党首后，香港会变成什么样子
@@ -90,11 +98,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19jd15b046.md)
+[@miles 5/13/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p19k6dw69e5.md)
 
-2022.05.12  新中国联邦 | 喜财经    通货膨胀，经济崩溃与货币的关系
+2022-5-12《鸡血王喜币大作战》 第一百九十三集 嘉宾：无双柳薇薇、Tex
 
-<img src="https://media.gettr.com/group12/origin/2022/05/13/02/70772219-1b06-0fa4-e1c4-f9376d2723ba/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Nnnnnnnn
  5月12号：尊敬的战友们好……共产党的经济和世界的股票市场即将崩溃，大家切勿因小失大．因投机而失去一切、务必小心！
 
 <img src="https://media.gettr.com/group44/getter/2022/05/12/14/9930b0f5-6399-6443-edf5-9432d2be089d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 2:07 PM UTC  - :tv:直播](/content/gettr/p19g4hze241.md)
-
-叶钊颖-郝海东-飞飞 《大实话·第二十场》： “成材的土壤”   2022-05-12
-
-<img src="https://media.gettr.com/group35/origin/2022/05/12/14/d9fe7e5a-0c78-811c-2ef0-95713deac81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
