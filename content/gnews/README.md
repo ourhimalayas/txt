@@ -2,6 +2,30 @@
 ---
 
 
+#### [朝鲜首次宣布疫情紧急状态和封锁令](/content/gnews/2523640.md)
+ `秘密翻譯組G-Translators`
+
+#### [20220513郭文贵大直播 ：Medyka前线营地成立了线上医生小组](/content/gnews/2523598.md)
+ `Tokyo Sakura Video Group`
+
+#### [有声新闻-新西兰财经G乐部2022年5月13日:财经新闻整理](/content/gnews/2523585.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [新西兰财经G乐部2022年5月13日:财经新闻整理](/content/gnews/2523584.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [中共国移民管理局从严限制非必要出境活动](/content/gnews/2523580.md)
+ `NFSC News`
+
+#### [韩国总统办公室：朝鲜似乎已准备好进行核试验](/content/gnews/2523570.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [美国上月通胀率达到8.3%，但从40年的高点放缓](/content/gnews/2523565.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [中共病毒疫苗灾难近在咫尺](/content/gnews/2523558.md)
+ `NFSC News`
+
 #### [中国，又有一个不稳定因素要加入到名单中？（二）](/content/gnews/2523554.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -23,20 +47,23 @@
 #### [20220513郭文贵大直播 ：HDO永远挤兑不垮](/content/gnews/2523466.md)
  `Tokyo Sakura Video Group`
 
-#### [20220513郭文贵大直播 ：全世界只有喜币最稳定](/content/gnews/2523465.md)
- `Tokyo Sakura Video Group`
-
-#### [中国，又有一个不稳定因素要加入到名单中？（一）](/content/gnews/2523464.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [媒体对人类思想行为造成巨大影响](/content/gnews/2523432.md)
  `NFSC News`
 
 #### [爆料革命——历史的今天2月26日](/content/gnews/2523431.md)
  `新加坡狮城农场 Himalaya Singapore`
 
-#### [乌克兰战争正在恶化东非的粮食危机（四）](/content/gnews/2523424.md)
- `西班牙巴塞罗那喜悦农场`
+#### [联合国难民署广告进驻新中国联邦大屏幕](/content/gnews/2523423.md)
+ `NFSC News`
+
+#### [盖特直播观看量破亿](/content/gnews/2523419.md)
+ `NFSC News`
+
+#### [美国众议院批准 400 亿美元援乌法案](/content/gnews/2523418.md)
+ `NFSC News`
+
+#### [英国与瑞典、芬兰达成安全协议](/content/gnews/2523417.md)
+ `NFSC News`
 
 #### [中共病毒致美100万死亡，白宫降半旗致哀](/content/gnews/2523412.md)
  `波士顿五月花农场`
@@ -46,9 +73,6 @@
 
 #### [推特垃圾虚假账户问题成为马斯克收购谈判的重要杠杆](/content/gnews/2523385.md)
  `秘密翻譯組G-Translators`
-
-#### [【说事儿】2019年5月以来港汇首次触及弱方兑换保证](/content/gnews/2523372.md)
- `TokyoSakuraDesignGroup`
 
 #### [美国及世界疫情简报（05-13-2022）](/content/gnews/2523370.md)
  `波士顿五月花农场`
@@ -65,20 +89,17 @@
 #### [个人崇拜的危害](/content/gnews/2523308.md)
  `波士顿五月花农场`
 
+#### [有声&#124;红场阅兵吹响中俄解体的号角](/content/gnews/2523290.md)
+ `MOSREC`
+
 #### [警匪头子当“特首”，香港手足请暂避](/content/gnews/2523263.md)
  `波士顿五月花农场`
 
 #### [有声&#124;郭先生爆普京匆忙中断阅兵仪式内幕](/content/gnews/2523232.md)
  `MOSREC`
 
-#### [跟妮可学英语2：纪念犹太大屠杀 面对邪恶势力的时候](/content/gnews/2523147.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [秘翻在线：俄乌战争用十岁中共国女孩带风向 菲律宾外长助攻](/content/gnews/2523129.md)
  `秘密翻譯組G-Translators`
-
-#### [有声&#124;俄乌战争后 圣彼得堡帮注定毁灭](/content/gnews/2523121.md)
- `MOSREC`
 
 #### [乌克兰战争正在恶化东非的粮食危机（二）](/content/gnews/2523120.md)
  `西班牙巴塞罗那喜悦农场`
@@ -98,18 +119,6 @@
 #### [“LUNA兄弟”加密历史上最大的崩溃时刻](/content/gnews/2522733.md)
  `波士顿五月花农场金融部`
 
-#### [秘翻在线：俄罗斯企图转移的乌克兰粮食在地中海被抓包](/content/gnews/2522711.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：韩国KB金融集团会长称乌克兰危机导致可再生能源需求扩大](/content/gnews/2522668.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：俄罗斯国营船运公司因欧盟的制裁出售固有资产](/content/gnews/2522628.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：韩国表示俄罗斯“特别经济措施”对韩国的影响有限](/content/gnews/2522581.md)
- `秘密翻譯組G-Translators`
-
 #### [老百姓为什么穷，所有的乱象压榨全是因为这个体制](/content/gnews/2522365.md)
  `Tokyo Sakura Video Group`
 
@@ -122,19 +131,10 @@
 #### [美联手欧亚应对中共威胁、](/content/gnews/2522028.md)
  `墨尔本雅典娜农场`
 
-#### [秘翻在线:被中共渗透的NIH删除COVID-19 基因序列数据](/content/gnews/2521965.md)
- `秘密翻譯組G-Translators`
-
-#### [瑞典加入北约的好处](/content/gnews/2521747.md)
- `Shuizhuyu`
-
 #### [樱花时政┃欧理会主席：全球安全受到独裁政权威胁](/content/gnews/2521524.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆┃美国宣布向东盟提供1.5亿美元支持](/content/gnews/2521514.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [金融危机触及香港 二手住宅全线跌价](/content/gnews/2521502.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [印度将对数字货币交易征收28%的税](/content/gnews/2521353.md)
