@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p19o78raca5.md)
+
+5/13/2022 Mile Guo: The COVID vaccine disasters will lead to the darkest age of human history: there will be extreme shortage of food, collapse of fiat currencies, digital currencies and financial products. The Hong Kong dollar wil...
+
+<img src="https://media.gettr.com/group32/getter/2022/05/13/22/7a373fa1-5dba-86b3-3965-a021b54f05f2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p19o6x61cae.md)
 
 5/13/2022 Miles Guo: The first and most important reason for the "triple falls" in the stock market, bond market, and digital currencies are the Russia-Ukraine war and the Chinese Communist Party; when the CCP knew that the US woul...
@@ -10,11 +18,15 @@
 
 ---
 
-[@miles 5/13/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p19o78raca5.md)
+[@miles 5/13/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p19nsb18b3e.md)
 
-5/13/2022 Mile Guo: The COVID vaccine disasters will lead to the darkest age of human history: there will be extreme shortage of food, collapse of fiat currencies, digital currencies and financial products. The Hong Kong dollar wil...
+5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange
 
-<img src="https://media.gettr.com/group32/getter/2022/05/13/22/7a373fa1-5dba-86b3-3965-a021b54f05f2/out.jpg" width="506" height="284">
+
+
+5/13/2022文贵直播：LUNA闪崩意味着什么？全人类的金融机构...
+
+<img src="https://media.gettr.com/group7/getter/2022/05/13/23/07162a8e-ce4c-d927-2ad4-866712413266/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +193,6 @@ NFSC frontline volunteer interviewed three people who came from Spain and Peru t
 2022-5-12《鸡血王喜币大作战》 第一百九十三集 嘉宾：无双柳薇薇、Tex
 
 <img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19jd15b046.md)
-
-2022.05.12  新中国联邦 | 喜财经    通货膨胀，经济崩溃与货币的关系
-
-<img src="https://media.gettr.com/group12/origin/2022/05/13/02/70772219-1b06-0fa4-e1c4-f9376d2723ba/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
