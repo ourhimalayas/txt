@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 5:46 PM UTC  - :tv:直播](/content/gettr/p19m875a143.md)
+
+2022.05.13 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group26/origin/2022/05/13/17/142ac4e8-68fc-845e-008e-bf92cfba6935/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 4:20 PM UTC ](/content/gettr/p19mktw2946.md)
 
 05/13/2022 on the 25th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
@@ -182,21 +190,11 @@ NFSC frontline volunteer interviewed three people who came from Spain and Peru t
 
 ---
 
-[@miles 5/12/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19ifjn23c1.md)
+[@7upgogo 5/13/2022 6:44 AM UTC  - :tv:直播](/content/gettr/p19kumfaeb4.md)
 
-“戒” 飞飞秀救援快报 2022-05-12
+It is common to test everyone for the COVID-19 every day in some cities. It is common that quarantine policies in some cities confine all residents to their homes for weeks. Now the Chinese Communist Party government even tests the...
 
-For English：gettr.com/streaming/p19ip7231e1
-
-<img src="https://media.gettr.com/group27/origin/2022/05/08/22/6a38f4b4-3f19-9332-1469-f0db0da7ce91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 5:46 PM UTC  - :tv:直播](/content/gettr/p19m875a143.md)
-
-2022.05.13 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group26/origin/2022/05/13/17/142ac4e8-68fc-845e-008e-bf92cfba6935/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/05/13/06/7407cdd6-c282-74f8-0bad-f2792f0694f7/out.jpg" width="506" height="284">
 
 ---
 
