@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19j45d91d5.md)
+
+2022.05.12 晚 新中国联邦 | 新闻
+
+<img src="https://media.gettr.com/group26/origin/2022/05/13/00/9f6baead-abea-ca5c-0496-cf8ea9d91aa8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p19jp6gdcbd.md)
 
 5/11/2022 Miles Guo: This year Elon Musk will face four disasters
@@ -74,11 +82,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19j45d91d5.md)
+[@miles 5/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p19jnsqfe8c.md)
 
-2022.05.12 晚 新中国联邦 | 新闻
+2022.05.12 晚 新中国联邦 | 新闻访谈   李家超当选党首后，香港会变成什么样子
 
-<img src="https://media.gettr.com/group26/origin/2022/05/13/00/9f6baead-abea-ca5c-0496-cf8ea9d91aa8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/13/00/94f5382e-3418-69fc-4632-7750c298e5ef/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ Nnnnnnnn
 叶钊颖-郝海东-飞飞 《大实话·第二十场》： “成材的土壤”   2022-05-12
 
 <img src="https://media.gettr.com/group35/origin/2022/05/12/14/d9fe7e5a-0c78-811c-2ef0-95713deac81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p19h2tq4e3c.md)
-
-2022.05.12 早  新中国联邦 | 新闻访谈    
-
-<img src="https://media.gettr.com/group32/origin/2022/05/12/12/3531e5d1-cd91-5cab-13fb-54bd42b8f642/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
