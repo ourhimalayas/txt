@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 5/13/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p19o6x61cae.md)
+
+5/13/2022 Miles Guo: The first and most important reason for the "triple falls" in the stock market, bond market, and digital currencies are the Russia-Ukraine war and the Chinese Communist Party; when the CCP knew that the US woul...
+
+<img src="https://media.gettr.com/group32/getter/2022/05/13/22/81c4622f-cf82-4b40-bdcb-6e8fc70beba6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/13/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p19nmqqac71.md)
+
+5/13/2022 Miles Guo: Following the "triple kill" of stocks, bonds, and cryptos, where did the money go? The global GDP growth rate is only half of that of last year, but the amount of money issued has doubled. So, your money has de...
+
+<img src="https://media.gettr.com/group32/getter/2022/05/13/22/50ba9f31-db99-f8c8-3e50-892e02f6b5b9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/13/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p19ntlm3e01.md)
+
+5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange, because the Himalaya Dollar is a tru...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/13/22/fc9bb56b-ddd2-052b-6c6f-4d6c5581e792/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 9:57 PM UTC  - :tv:直播](/content/gettr/p19o81zb77a.md)
 
 2022年5月13号 七哥与战友们连线吃播
@@ -160,41 +184,11 @@ NFSC frontline volunteer interviewed three people who came from Spain and Peru t
 
 ---
 
-[@miles 5/13/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19j45d91d5.md)
+[@miles 5/13/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p19nw8m806d.md)
 
-2022.05.12 晚 新中国联邦 | 新闻
+5/13/2022 Miles Guo: Who is the biggest winner and behind-the-scenes manipulator of the global economic and financial collapse? The CCP has single-handedly created this unprecedented economic and financial war in human history, and...
 
-<img src="https://media.gettr.com/group26/origin/2022/05/13/00/9f6baead-abea-ca5c-0496-cf8ea9d91aa8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p19jp6gdcbd.md)
-
-5/11/2022 Miles Guo: This year Elon Musk will face four disasters
-
-
-
-5/11/2022 文贵直播：今年将有四个灾难等着Elon Musk
-
-
-
-<img src="https://media.gettr.com/group16/getter/2022/05/13/00/9b6f1f98-83f2-a3d9-ee95-95fb381db53f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p19jcgbfd08.md)
-
-5/12/2022 Miles Guo’s GETTR: In the face of the economic and humanitarian disasters around the world, family members and relatives are extremely important. Only if you treat other fellow fighters more kindly and sincerely than your...
-
-<img src="https://media.gettr.com/group30/getter/2022/05/12/23/253df547-2ae0-b2de-5834-52bafec2c2f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p19ntlm3e01.md)
-
-5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange, because the Himalaya Dollar is a tru...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/13/22/fc9bb56b-ddd2-052b-6c6f-4d6c5581e792/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/05/13/22/ab4e030a-1289-e2a5-1ef3-47b420ed509b/out.jpg" width="506" height="284">
 
 ---
 
