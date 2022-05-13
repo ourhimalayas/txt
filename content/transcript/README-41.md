@@ -3,6 +3,8 @@
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-2147041283197958185.md)
+
 [（四）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-980107644225560251.md)
 
 [（五）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-4956474100974687354.md)
@@ -50,8 +52,6 @@
 [（三）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（三）](/content/transcript/2018/04/20180418-132220289355262532.md)
 
 [（一）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（一）](/content/transcript/2018/04/20180418-5664665363890615082.md)
-
-[翻译 :中国逃亡大亨郭文贵在美国法庭上击败了对冲基金高达8800万美元的诉讼](/content/transcript/2018/04/20180418-3031315413205773844.md)
 
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)

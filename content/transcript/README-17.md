@@ -3,6 +3,8 @@
 
 ## 頁面 17/42 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：5月8日郭先生GTV直播连线挺郭小妹](/content/transcript/2020/05/20200512-5842185723258318346.md)
+
 [文字版：5月9日郭先生GTV直播连线草根小哥](/content/transcript/2020/05/20200512-4168570393845620810.md)
 
 [文字版:5月8日郭先生GTV直播连线战友文信](/content/transcript/2020/05/20200510-6481268913488602343.md)
@@ -50,8 +52,6 @@
 [文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/content/transcript/2020/04/20200410-1671828290392113200.md)
 
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/content/transcript/2020/04/20200408-8436401289033941417.md)
-
-[文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/content/transcript/2020/04/20200406-4712830590535337259.md)
 
 
 ## 頁面 17/42 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)

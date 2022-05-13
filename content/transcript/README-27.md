@@ -3,6 +3,8 @@
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/content/transcript/2019/06/20190625-920777833882255491.md)
+
 [翻译美国对伊朗实施制裁的行政命令](/content/transcript/2019/06/20190625-2187152093709329841.md)
 
 [文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/content/transcript/2019/06/20190623-2853766971834487830.md)
@@ -50,8 +52,6 @@
 [文字版：2019年5月19日文貴船上直播](/content/transcript/2019/05/20190520-8156245383371433216.md)
 
 [文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/content/transcript/2019/05/20190519-4417640762564146374.md)
-
-[文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/content/transcript/2019/05/20190519-3485871189561501121.md)
 
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 40/42 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/transcript/2018/04/20180418-1971865478484839021.md)
+
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/transcript/2018/04/20180418-4391930695523447506.md)
 
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/transcript/2018/04/20180418-4149088156971792367.md)
@@ -50,8 +52,6 @@
 [（六）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-7403014981154876678.md)
 
 [（七）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-5887917197465527624.md)
-
-[（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-2147041283197958185.md)
 
 
 ## 頁面 40/42 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

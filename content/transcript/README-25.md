@@ -3,6 +3,8 @@
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/transcript/2019/09/20190904-6068893514694750692.md)
+
 [文字版：2019年9月1日文贵与班农先生直播](/content/transcript/2019/09/20190903-5392054395112197573.md)
 
 [文字版：2019-08-28郭文貴直播军车进入香港](/content/transcript/2019/08/20190829-4985715477870205378.md)
@@ -50,8 +52,6 @@
 [文字版：郭先生2019年8月1日緊急直播](/content/transcript/2019/08/20190805-195928358226764282.md)
 
 [文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/content/transcript/2019/08/20190804-3048854052865103791.md)
-
-[文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/content/transcript/2019/08/20190802-6690690952476016345.md)
 
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

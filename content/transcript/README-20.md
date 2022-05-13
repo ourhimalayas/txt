@@ -3,6 +3,8 @@
 
 ## 頁面 20/42 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/content/transcript/2020/01/20200127-3403056014280027444.md)
+
 [文字版：2020年1月24日庚子年“文贵看春晚”直播](/content/transcript/2020/01/20200127-1065691289737851203.md)
 
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/content/transcript/2020/01/20200124-5709534972923488807.md)
@@ -50,8 +52,6 @@
 [文字版：2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人王健死亡照片](/content/transcript/2020/01/20200102-5236405611062477381.md)
 
 [文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！](/content/transcript/2020/01/20200102-3330652484007682662.md)
-
-[文字版：2019年12月29日郭先生与钢铁侠电话连线直播](/content/transcript/2019/12/20191231-3168641532778332278.md)
 
 
 ## 頁面 20/42 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
