@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19krln57b8.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group22/origin/2022/05/13/05/8f130e23-8550-b2a6-99c9-1d9694926417/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p19k6dw69e5.md)
 
 2022-5-12《鸡血王喜币大作战》 第一百九十三集 嘉宾：无双柳薇薇、Tex
@@ -106,11 +114,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19krln57b8.md)
+[@miles 5/13/2022 5:33 AM UTC  - :tv:直播](/content/gettr/p19l7t8132d.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+NFSC frontline volunteer interviewed three people who came from Spain and Peru to help Ukraine refugees. They explained why is it so important to come here to help Ukraine and appreciated what the New Federal State of China and the...
 
-<img src="https://media.gettr.com/group22/origin/2022/05/13/05/8f130e23-8550-b2a6-99c9-1d9694926417/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/05/13/05/29e88fa4-6a08-a37e-0121-f92c4ba6c59a/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Nnnnnnnn
 5/11/2022 Miles Guo: Russia is working with the CCP, Iran, North Korea, Pakistan, and Syria, preparing to build the new systems for digital currencies and transactions. Putin is unable to launch a war that can destroy the world, bu...
 
 <img src="https://media.gettr.com/group28/getter/2022/05/12/14/e40756cb-2a50-6266-bfa5-09999afe89f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p19h5lhcea3.md)
-
- 5月12号：尊敬的战友们好……共产党的经济和世界的股票市场即将崩溃，大家切勿因小失大．因投机而失去一切、务必小心！
-
-<img src="https://media.gettr.com/group44/getter/2022/05/12/14/9930b0f5-6399-6443-edf5-9432d2be089d/out.jpg" width="506" height="284">
 
 ---
 
