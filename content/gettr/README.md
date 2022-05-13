@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 12:40 PM UTC  - :tv:直播](/content/gettr/p19m88r7e1f.md)
+
+2022年5月13日 文贵大直播：最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用
+
+<img src="https://media.gettr.com/group49/origin/2022/05/13/12/0f7dbb14-fc09-f16a-6825-e484431660fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19lq637542.md)
 
 2022.05.13  新中国联邦 | 军情室 乌军半渡而击俄营战术群，俄军再次向蛇岛补充装备，俄军为何爱偷家用洗衣机
@@ -170,19 +178,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/12/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p19i454fffd.md)
+[@miles 5/13/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p19lgl5ca9e.md)
 
-2022-5-12 《避风港》（46）“蛋白脱落”会导致严重健康危害
+尊敬的战友们好，分享海鲜海手指。
 
-<img src="https://media.gettr.com/group23/origin/2022/03/24/18/ce279f72-a6f3-f9b9-b079-3d3cd052012b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 12:40 PM UTC  - :tv:直播](/content/gettr/p19m88r7e1f.md)
-
-2022年5月13日 文贵大直播：最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用
-
-<img src="https://media.gettr.com/group49/origin/2022/05/13/12/0f7dbb14-fc09-f16a-6825-e484431660fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/05/13/14/7025c84d-75ac-18e8-441c-b6a33972253c/out.jpg" width="506" height="284">
 
 ---
 
