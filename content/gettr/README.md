@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 5:33 AM UTC  - :tv:直播](/content/gettr/p19l7t8132d.md)
+
+NFSC frontline volunteer interviewed three people who came from Spain and Peru to help Ukraine refugees. They explained why is it so important to come here to help Ukraine and appreciated what the New Federal State of China and the...
+
+<img src="https://media.gettr.com/group45/origin/2022/05/13/05/29e88fa4-6a08-a37e-0121-f92c4ba6c59a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19krln57b8.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -114,11 +122,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 5:33 AM UTC  - :tv:直播](/content/gettr/p19l7t8132d.md)
+[@miles 5/13/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p19knu36404.md)
 
-NFSC frontline volunteer interviewed three people who came from Spain and Peru to help Ukraine refugees. They explained why is it so important to come here to help Ukraine and appreciated what the New Federal State of China and the...
+2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group45/origin/2022/05/13/05/29e88fa4-6a08-a37e-0121-f92c4ba6c59a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/05/13/06/37caf130-e77e-c446-b555-2675789e23fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Nnnnnnnn
 [@miles 5/12/2022 3:31 PM UTC ](/content/gettr/p19h7xue9c2.md)
 
 5月12号：脱丝袜直播开始啦……【腹肌在线直播唱歌哦】https://gettr.com/streaming/p19guik9f6b
-
----
-
-[@miles 5/12/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p19h9ar4480.md)
-
-5/11/2022 Miles Guo: Russia is working with the CCP, Iran, North Korea, Pakistan, and Syria, preparing to build the new systems for digital currencies and transactions. Putin is unable to launch a war that can destroy the world, bu...
-
-<img src="https://media.gettr.com/group28/getter/2022/05/12/14/e40756cb-2a50-6266-bfa5-09999afe89f9/out.jpg" width="506" height="284">
 
 ---
 
