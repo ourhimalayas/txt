@@ -11,6 +11,9 @@
 
 ---
 
+#### [七哥自评一生最愚蠢的错误就是没学好外语](/content/gnews/2519033.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [大直播后记：新中国联邦人要尊严、体面、安全地活着](/content/gnews/2519027.md)
  `雅典娜GNotes`
 
@@ -55,9 +58,6 @@
 
 #### [20220512郭文贵乱聊直播 ：Coinbase未来一定会成为数字货币界的谷歌](/content/gnews/2518892.md)
  `Tokyo Sakura Video Group`
-
-#### [90年代初7哥在珠海和香港的经历](/content/gnews/2518874.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [新中国联邦必须要做到的三点](/content/gnews/2518865.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
