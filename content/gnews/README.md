@@ -2,6 +2,9 @@
 ---
 
 
+#### [郭文贵直播摘要和音频 2022.05.13](/content/gnews/2523924.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [俄罗斯青年反对战争，直言不会去送死](/content/gnews/2523917.md)
  `Tokyo Sakura Video Group`
 
@@ -13,6 +16,15 @@
 
 #### [20220513郭文贵大直播 ：喜币是100%的保证金制度，永远不怕提现，永远稳定！](/content/gnews/2523876.md)
  `Tokyo Sakura Video Group`
+
+#### [迪士尼总裁对失去中共国市场后票房充满信心](/content/gnews/2523875.md)
+ `NFSC News`
+
+#### [比特币触及16个月低点 加密市场日蒸发2000亿](/content/gnews/2523874.md)
+ `NFSC News`
+
+#### [美军舰两周内再次航行台湾海峡](/content/gnews/2523873.md)
+ `NFSC News`
 
 #### [跌幅过大致币安暂停luna和UST的交易](/content/gnews/2523806.md)
  `银河歌舞厅`
@@ -70,18 +82,6 @@
 
 #### [欧洲下周将取消航空旅行的口罩强制令](/content/gnews/2523501.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [爆料革命——历史的今天2月26日](/content/gnews/2523431.md)
- `新加坡狮城农场 Himalaya Singapore`
-
-#### [盖特直播观看量破亿](/content/gnews/2523419.md)
- `NFSC News`
-
-#### [美国众议院批准 400 亿美元援乌法案](/content/gnews/2523418.md)
- `NFSC News`
-
-#### [英国与瑞典、芬兰达成安全协议](/content/gnews/2523417.md)
- `NFSC News`
 
 #### [人民币继续贬值](/content/gnews/2523398.md)
  `新加坡狮城农场 Himalaya Singapore`
