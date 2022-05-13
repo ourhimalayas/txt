@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/13/2022 10:40 AM UTC ](/content/gettr/p19lfz85269.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月11日第68天当日救援统计：
+
+Medyka救援站接待：约431人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约18562人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 68 - Date: M...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/13/10/2ed212e1-85d9-2c2c-d877-ceb9d7aea363/1bac29336a1a96e84b30cb3c1c6fe306.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p19l61sf6a5.md)
 
 2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -138,35 +170,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 10:40 AM UTC ](/content/gettr/p19lfz85269.md)
+[@miles 5/13/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19lq637542.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+2022.05.13  新中国联邦 | 军情室 乌军半渡而击俄营战术群，俄军再次向蛇岛补充装备，俄军为何爱偷家用洗衣机
 
-
-
-2022年5月11日第68天当日救援统计：
-
-Medyka救援站接待：约431人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约18562人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 68 - Date: M...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/13/10/2ed212e1-85d9-2c2c-d877-ceb9d7aea363/1bac29336a1a96e84b30cb3c1c6fe306.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,12 +189,6 @@ Day 68 - Date: M...
 2022年5月12日  俄乌战争战况播报
 
 <img src="https://media.gettr.com/group21/origin/2022/05/12/18/977ad68b-9fe6-0d13-38cc-6e4578f2c3db/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/12/2022 5:32 PM UTC ](/content/gettr/p19hdyx6729.md)
-
-Nnnnnnnn
 
 ---
 
