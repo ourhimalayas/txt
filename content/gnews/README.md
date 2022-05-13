@@ -2,11 +2,26 @@
 ---
 
 
+#### [爆料革命——历史的今天2月26日](/content/gnews/2523431.md)
+ `新加坡狮城农场 Himalaya Singapore`
+
+#### [乌克兰战争正在恶化东非的粮食危机（四）](/content/gnews/2523424.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [中共病毒致美100万死亡，白宫降半旗致哀](/content/gnews/2523412.md)
+ `波士顿五月花农场`
+
+#### [人民币继续贬值](/content/gnews/2523398.md)
+ `新加坡狮城农场 Himalaya Singapore`
+
 #### [推特垃圾虚假账户问题成为马斯克收购谈判的重要杠杆](/content/gnews/2523385.md)
  `秘密翻譯組G-Translators`
 
 #### [【说事儿】2019年5月以来港汇首次触及弱方兑换保证](/content/gnews/2523372.md)
  `TokyoSakuraDesignGroup`
+
+#### [美国及世界疫情简报（05-13-2022）](/content/gnews/2523370.md)
+ `波士顿五月花农场`
 
 #### [习包子的脑动脉瘤传闻](/content/gnews/2523361.md)
  `新加坡狮城农场 Himalaya Singapore`
@@ -14,11 +29,11 @@
 #### [【说事儿】外媒报道，“清零”政策引发通货膨胀 中共国食品价格飙升](/content/gnews/2523360.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】欧盟-日本联合声明应对中俄北韩邪恶轴心的威胁](/content/gnews/2523347.md)
- `TokyoSakuraDesignGroup`
-
 #### [致敬！全球医生和医学科学家吹响了反击号角](/content/gnews/2523346.md)
  `波士顿五月花农场`
+
+#### [2022年05月13日文贵大直播速记](/content/gnews/2523345.md)
+ `Mr. Miles Guo's News Briefing`
 
 #### [2022年2月26日 郭文贵先生—乌克兰救援紧急直播 节选整理](/content/gnews/2523344.md)
  `新加坡狮城农场 Himalaya Singapore`
@@ -35,11 +50,17 @@
 #### [20220513郭文贵大直播 ：PPT 疫苗灾难爆发灭共拯救人类](/content/gnews/2523218.md)
  `Tokyo Sakura Video Group`
 
-#### [【说事儿】5月11日文贵大直播爆料普京红场阅兵落荒而逃](/content/gnews/2523142.md)
- `TokyoSakuraDesignGroup`
-
 #### [秘翻在线：俄乌战争用十岁中共国女孩带风向 菲律宾外长助攻](/content/gnews/2523129.md)
  `秘密翻譯組G-Translators`
+
+#### [有声&#124;俄乌战争后 圣彼得堡帮注定毁灭](/content/gnews/2523121.md)
+ `MOSREC`
+
+#### [乌克兰战争正在恶化东非的粮食危机（二）](/content/gnews/2523120.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [你们已经无路可走了](/content/gnews/2523091.md)
+ `G-NEWS TAIWAN`
 
 #### [有声&#124;新中国联邦两周年后中共必遭清算](/content/gnews/2523084.md)
  `MOSREC`
@@ -48,9 +69,6 @@
  `秘密翻譯組G-Translators`
 
 #### [【樱话】最新研究证实：中共病毒疫苗能够导致严重的自身免疫性肝炎](/content/gnews/2523017.md)
- `TokyoSakuraDesignGroup`
-
-#### [【樱话】美国疫苗灾难显现 接种者死亡率飙升](/content/gnews/2522985.md)
  `TokyoSakuraDesignGroup`
 
 #### [有声&#124;新中国联邦将创建数据时代的真正民主选举](/content/gnews/2522984.md)
@@ -65,9 +83,6 @@
 #### [秘翻在线：俄罗斯企图转移的乌克兰粮食在地中海被抓包](/content/gnews/2522711.md)
  `秘密翻譯組G-Translators`
 
-#### [樱花时政┃朝鲜宣布因中共病毒感染进入最高紧急状态](/content/gnews/2522708.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [秘翻在线：韩国KB金融集团会长称乌克兰危机导致可再生能源需求扩大](/content/gnews/2522668.md)
  `秘密翻譯組G-Translators`
 
@@ -77,14 +92,14 @@
 #### [秘翻在线：韩国表示俄罗斯“特别经济措施”对韩国的影响有限](/content/gnews/2522581.md)
  `秘密翻譯組G-Translators`
 
-#### [数字货币风雨飘摇 喜币坚挺稳如泰山](/content/gnews/2522463.md)
- `MilesGuoLivePPT`
-
 #### [秘翻在线：韩国参与有关俄罗斯“乌克兰战争罪行”的联合国决议案](/content/gnews/2522440.md)
  `秘密翻譯組G-Translators`
 
 #### [老百姓为什么穷，所有的乱象压榨全是因为这个体制](/content/gnews/2522365.md)
  `Tokyo Sakura Video Group`
+
+#### [2022.5.13大直播 全球经济崩溃是中共蓄谋已久的经济超限战](/content/gnews/2522257.md)
+ `秘密翻译组-原创组`
 
 #### [澳大利亚称中共国间谍船在西海岸的存在是“侵略行为”](/content/gnews/2522077.md)
  `走进澳洲`
@@ -110,20 +125,11 @@
 #### [金融危机触及香港 二手住宅全线跌价](/content/gnews/2521502.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [秘翻新闻｜ “共产主义受害日”新假期始现美学校](/content/gnews/2521453.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [有声｜加密货币市场现抛售潮 头牌币惨跌](/content/gnews/2521430.md)
- `秘密翻译组-即时新闻播报组`
-
 #### [印度将对数字货币交易征收28%的税](/content/gnews/2521353.md)
  `墨尔本雅典娜农场`
 
 #### [乌克兰驻德大使：“舒尔茨应召开战争峰会”](/content/gnews/2521292.md)
  `澳喜特战旅Gnews`
-
-#### [勇敢，是坚持正义和信仰的贵族精神](/content/gnews/2521242.md)
- `NFSC News`
 
 #### [美国会兰托斯人权委员会就中共国强摘器官举行听证会](/content/gnews/2521241.md)
  `墨尔本雅典娜农场`
@@ -139,12 +145,6 @@
 
 #### [5月12日文贵大直播：建邦立规 探索新中国联邦世界新型管理模式](/content/gnews/2519866.md)
  `日本东京方舟农场`
-
-#### [中共避谈斯里兰卡总理辞职 呼吁政府和反对派团结](/content/gnews/2519855.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [中日财经爆&#124;小米涉嫌逃税被印度税务机关冻结4.78亿美元资金](/content/gnews/2519763.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [国际｜2022年欧盟-日本峰会联合声明](/content/gnews/2515833.md)
  `關注組`
