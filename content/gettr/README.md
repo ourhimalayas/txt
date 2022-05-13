@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/13/2022 4:20 PM UTC ](/content/gettr/p19mktw2946.md)
+
+05/13/2022 on the 25th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+
+No.1🥇 on Germany🇩🇪 Top MV Chart for 25 Consecutive Days
+
+No.1🥇 on Germany🇩🇪 Pop MV Chart for 25 Consecutive Days
+
+
+
+“The Terminator ...
+
+---
+
 [@miles 5/13/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p19lgl5ca9e.md)
 
 尊敬的战友们好，分享海鲜海手指。
@@ -178,25 +192,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/12/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19j1k32e8d.md)
+[@miles 5/13/2022 5:46 PM UTC  - :tv:直播](/content/gettr/p19m875a143.md)
 
-2022.05.12  新中国联邦 | 喜健康     吃饭真的很重要吗？
+2022.05.13 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group45/origin/2022/05/12/20/4adae7f0-90c2-2d83-980e-9391afa3aa75/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 4:20 PM UTC ](/content/gettr/p19mktw2946.md)
-
-05/13/2022 on the 25th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
-
-No.1🥇 on Germany🇩🇪 Top MV Chart for 25 Consecutive Days
-
-No.1🥇 on Germany🇩🇪 Pop MV Chart for 25 Consecutive Days
-
-
-
-“The Terminator ...
+<img src="https://media.gettr.com/group26/origin/2022/05/13/17/142ac4e8-68fc-845e-008e-bf92cfba6935/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
