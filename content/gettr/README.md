@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p19l61sf6a5.md)
+
+2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group44/origin/2022/05/13/06/37caf130-e77e-c446-b555-2675789e23fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p19knu36404.md)
 
 2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -130,11 +138,35 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p19l61sf6a5.md)
+[@miles 5/13/2022 10:40 AM UTC ](/content/gettr/p19lfz85269.md)
 
-2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group44/origin/2022/05/13/06/37caf130-e77e-c446-b555-2675789e23fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月11日第68天当日救援统计：
+
+Medyka救援站接待：约431人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约18562人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 68 - Date: M...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/13/10/2ed212e1-85d9-2c2c-d877-ceb9d7aea363/1bac29336a1a96e84b30cb3c1c6fe306.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +187,6 @@ For English：gettr.com/streaming/p19ip7231e1
 [@miles 5/12/2022 5:32 PM UTC ](/content/gettr/p19hdyx6729.md)
 
 Nnnnnnnn
-
----
-
-[@miles 5/12/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p19hw7me642.md)
-
-5/11/2022 Miles Guo: The Russians are very clear that Putin's invasion of Ukraine only suits the interest of very few people, and the majority of them are victims of the war. Therefore Putin dares not to take the war to an extreme;...
-
-<img src="https://media.gettr.com/group38/getter/2022/05/12/16/3f2eb026-3f4b-341e-bb7f-9abacaaa8599/out.jpg" width="506" height="284">
 
 ---
 
