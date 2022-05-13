@@ -11,11 +11,41 @@
 
 ---
 
+#### [20220513郭文贵大直播 ：共产党没有其他的病毒了 这个病毒就是他们的最终武器](/content/gnews/2523750.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220513郭文贵大直播 ：比特币暴跌的三个原因](/content/gnews/2523746.md)
+ `Tokyo Sakura Video Group`
+
+#### [全球近日金融大跌是中共的脱逃和经济超限战](/content/gnews/2523739.md)
+ `银河歌舞厅`
+
+#### [俄罗斯再次编造乌克兰军事生物项目谎言](/content/gnews/2523698.md)
+ `温哥华扬帆农场`
+
+#### [【G时新闻】多伦多涌现儿童严重肝炎病例](/content/gnews/2523685.md)
+ `G-时新闻`
+
+#### [20220513郭文贵大直播 ：世界各国如承认疫苗危害必会导致社会政治经济军事大灾难，感恩无苗有币](/content/gnews/2523670.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220513郭文贵大直播 ：没钱没人 二十大习上中共就给习陪葬 习不上就内乱](/content/gnews/2523666.md)
+ `Tokyo Sakura Video Group`
+
+#### [要斗的是谁?中共成立“法理斗争民兵排” 狼子野心昭然若揭](/content/gnews/2523660.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [文贵大直播要点-主持：Tex（2022年5月13日）](/content/gnews/2523647.md)
+ `波士顿五月花农场`
+
 #### [朝鲜首次宣布疫情紧急状态和封锁令](/content/gnews/2523640.md)
  `秘密翻譯組G-Translators`
 
-#### [20220513郭文贵大直播 ：Medyka前线营地成立了线上医生小组](/content/gnews/2523598.md)
- `Tokyo Sakura Video Group`
+#### [【G时新闻】莫德纳利用美国政府侵犯疫苗专利权](/content/gnews/2523609.md)
+ `G-时新闻`
+
+#### [20大，中共政权岌岌可危](/content/gnews/2523599.md)
+ `thedawn`
 
 #### [有声新闻-新西兰财经G乐部2022年5月13日:财经新闻整理](/content/gnews/2523585.md)
  `Finance-GCLUB【新西兰财经G乐部】`
@@ -32,32 +62,11 @@
 #### [美国上月通胀率达到8.3%，但从40年的高点放缓](/content/gnews/2523565.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [中共病毒疫苗灾难近在咫尺](/content/gnews/2523558.md)
- `NFSC News`
-
-#### [中国，又有一个不稳定因素要加入到名单中？（二）](/content/gnews/2523554.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [爆料革命加害者必自食其果](/content/gnews/2523524.md)
- `NFSC News`
-
-#### [20220513郭文贵大直播 ：Medyka前线营地非常注意病毒感染问题](/content/gnews/2523519.md)
- `Tokyo Sakura Video Group`
-
 #### [文贵大直播 5/13 金融崩塌匪共喜 习共随时会犯台](/content/gnews/2523509.md)
  `秘密翻译组-原创组`
 
-#### [20220513郭文贵大直播 ：新中国联邦Medyka营地铺上了石子，方便了大家](/content/gnews/2523508.md)
- `Tokyo Sakura Video Group`
-
 #### [欧洲下周将取消航空旅行的口罩强制令](/content/gnews/2523501.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [20220513郭文贵大直播 ：HDO永远挤兑不垮](/content/gnews/2523466.md)
- `Tokyo Sakura Video Group`
-
-#### [媒体对人类思想行为造成巨大影响](/content/gnews/2523432.md)
- `NFSC News`
 
 #### [爆料革命——历史的今天2月26日](/content/gnews/2523431.md)
  `新加坡狮城农场 Himalaya Singapore`
@@ -92,20 +101,11 @@
 #### [致敬！全球医生和医学科学家吹响了反击号角](/content/gnews/2523346.md)
  `波士顿五月花农场`
 
-#### [2022年05月13日文贵大直播速记](/content/gnews/2523345.md)
- `Mr. Miles Guo's News Briefing`
-
 #### [个人崇拜的危害](/content/gnews/2523308.md)
  `波士顿五月花农场`
 
-#### [有声&#124;红场阅兵吹响中俄解体的号角](/content/gnews/2523290.md)
- `MOSREC`
-
 #### [警匪头子当“特首”，香港手足请暂避](/content/gnews/2523263.md)
  `波士顿五月花农场`
-
-#### [有声&#124;郭先生爆普京匆忙中断阅兵仪式内幕](/content/gnews/2523232.md)
- `MOSREC`
 
 #### [秘翻在线：俄乌战争用十岁中共国女孩带风向 菲律宾外长助攻](/content/gnews/2523129.md)
  `秘密翻譯組G-Translators`
