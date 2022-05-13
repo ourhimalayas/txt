@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/13/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p19jp6gdcbd.md)
+
+5/11/2022 Miles Guo: This year Elon Musk will face four disasters
+
+
+
+5/11/2022 文贵直播：今年将有四个灾难等着Elon Musk
+
+
+
+<img src="https://media.gettr.com/group16/getter/2022/05/13/00/9b6f1f98-83f2-a3d9-ee95-95fb381db53f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p19jcgbfd08.md)
 
 5/12/2022 Miles Guo’s GETTR: In the face of the economic and humanitarian disasters around the world, family members and relatives are extremely important. Only if you treat other fellow fighters more kindly and sincerely than your...
@@ -60,17 +74,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p19jp6gdcbd.md)
+[@miles 5/13/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19j45d91d5.md)
 
-5/11/2022 Miles Guo: This year Elon Musk will face four disasters
+2022.05.12 晚 新中国联邦 | 新闻
 
-
-
-5/11/2022 文贵直播：今年将有四个灾难等着Elon Musk
-
-
-
-<img src="https://media.gettr.com/group16/getter/2022/05/13/00/9b6f1f98-83f2-a3d9-ee95-95fb381db53f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/05/13/00/9f6baead-abea-ca5c-0496-cf8ea9d91aa8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Nnnnnnnn
  5月12号：尊敬的战友们好．这个世界上．除了七哥的直播阅读量在增加之外，没有什么东西，不是往下跌的．几年来的爆料革命．和战友们一起，在锻炼我们辩真假．识善恶的能力。我们对世界上所有的事情的认知和判断，都是基于绝对的理性和基本的常识，和我们丰富的经验．和有着对世界所有灾难根源都来自共产党的．这个最重要的根本性的认知！才有了，我们伟大的新中国联邦人．无苗有币的新民族！
 
 <img src="https://media.gettr.com/group23/getter/2022/05/12/13/53f4c0d4-e2f6-aad0-fdc4-76f1cca973dc/680ff4f0cf01dda8165c2ede3ff0ada8.jpg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p19g4etfb91.md)
-
-2022.05.12 早 新中国联邦 | 新闻 乌克兰国家橄榄球队感谢新中国联邦；乌克兰救援让世界了解新中国人
-
-<img src="https://media.gettr.com/group22/origin/2022/05/12/12/8f91cc90-ad8f-d6fc-83ff-2a69d45b21f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
