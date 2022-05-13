@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/12/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p19jcgbfd08.md)
+
+5/12/2022 Miles Guo’s GETTR: In the face of the economic and humanitarian disasters around the world, family members and relatives are extremely important. Only if you treat other fellow fighters more kindly and sincerely than your...
+
+<img src="https://media.gettr.com/group30/getter/2022/05/12/23/253df547-2ae0-b2de-5834-52bafec2c2f5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/12/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p19im4886d4.md)
 
 5/12/2022 Miles Guo GETTR: The biggest tragedy of living in Communist China is watching your assets turned into debts and you don’t even have an option to die; The CCP locks your money in the banks, wipes out your money in the stoc...
@@ -52,11 +60,17 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/12/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p19jcgbfd08.md)
+[@miles 5/13/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p19jp6gdcbd.md)
 
-5/12/2022 Miles Guo’s GETTR: In the face of the economic and humanitarian disasters around the world, family members and relatives are extremely important. Only if you treat other fellow fighters more kindly and sincerely than your...
+5/11/2022 Miles Guo: This year Elon Musk will face four disasters
 
-<img src="https://media.gettr.com/group30/getter/2022/05/12/23/253df547-2ae0-b2de-5834-52bafec2c2f5/out.jpg" width="506" height="284">
+
+
+5/11/2022 文贵直播：今年将有四个灾难等着Elon Musk
+
+
+
+<img src="https://media.gettr.com/group16/getter/2022/05/13/00/9b6f1f98-83f2-a3d9-ee95-95fb381db53f/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +161,6 @@ Nnnnnnnn
 2022.05.12 早 新中国联邦 | 新闻 乌克兰国家橄榄球队感谢新中国联邦；乌克兰救援让世界了解新中国人
 
 <img src="https://media.gettr.com/group22/origin/2022/05/12/12/8f91cc90-ad8f-d6fc-83ff-2a69d45b21f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p19gsmo339e.md)
-
-2022.05.12  AM NFSC news   Sky News interviewed fellow fighter at the rescue camp in Medyka, Poland
-
-<img src="https://media.gettr.com/group6/origin/2022/05/12/11/a3d40dc9-1867-6650-5568-ac5660ff72c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
