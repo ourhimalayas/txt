@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p19jnsqfe8c.md)
+
+2022.05.12 晚 新中国联邦 | 新闻访谈   李家超当选党首后，香港会变成什么样子
+
+<img src="https://media.gettr.com/group14/origin/2022/05/13/00/94f5382e-3418-69fc-4632-7750c298e5ef/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19j45d91d5.md)
 
 2022.05.12 晚 新中国联邦 | 新闻
@@ -82,11 +90,11 @@ For English：gettr.com/streaming/p19ip7231e1
 
 ---
 
-[@miles 5/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p19jnsqfe8c.md)
+[@miles 5/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19jd15b046.md)
 
-2022.05.12 晚 新中国联邦 | 新闻访谈   李家超当选党首后，香港会变成什么样子
+2022.05.12  新中国联邦 | 喜财经    通货膨胀，经济崩溃与货币的关系
 
-<img src="https://media.gettr.com/group14/origin/2022/05/13/00/94f5382e-3418-69fc-4632-7750c298e5ef/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/05/13/02/70772219-1b06-0fa4-e1c4-f9376d2723ba/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Nnnnnnnn
 叶钊颖-郝海东-飞飞 《大实话·第二十场》： “成材的土壤”   2022-05-12
 
 <img src="https://media.gettr.com/group35/origin/2022/05/12/14/d9fe7e5a-0c78-811c-2ef0-95713deac81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/12/2022 1:01 PM UTC  - 4圖](/content/gettr/p19grhe1835.md)
-
- 5月12号：尊敬的战友们好．这个世界上．除了七哥的直播阅读量在增加之外，没有什么东西，不是往下跌的．几年来的爆料革命．和战友们一起，在锻炼我们辩真假．识善恶的能力。我们对世界上所有的事情的认知和判断，都是基于绝对的理性和基本的常识，和我们丰富的经验．和有着对世界所有灾难根源都来自共产党的．这个最重要的根本性的认知！才有了，我们伟大的新中国联邦人．无苗有币的新民族！
-
-<img src="https://media.gettr.com/group23/getter/2022/05/12/13/53f4c0d4-e2f6-aad0-fdc4-76f1cca973dc/680ff4f0cf01dda8165c2ede3ff0ada8.jpg" width="506" height="284">
 
 ---
 
