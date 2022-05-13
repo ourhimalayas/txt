@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 5/13/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p19o78raca5.md)
+
+5/13/2022 Mile Guo: The COVID vaccine disasters will lead to the darkest age of human history: there will be extreme shortage of food, collapse of fiat currencies, digital currencies and financial products. The Hong Kong dollar wil...
+
+<img src="https://media.gettr.com/group32/getter/2022/05/13/22/7a373fa1-5dba-86b3-3965-a021b54f05f2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p19nmqqac71.md)
 
 5/13/2022 Miles Guo: Following the "triple kill" of stocks, bonds, and cryptos, where did the money go? The global GDP growth rate is only half of that of last year, but the amount of money issued has doubled. So, your money has de...
 
 <img src="https://media.gettr.com/group32/getter/2022/05/13/22/50ba9f31-db99-f8c8-3e50-892e02f6b5b9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/13/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p19nw8m806d.md)
+
+5/13/2022 Miles Guo: Who is the biggest winner and behind-the-scenes manipulator of the global economic and financial collapse? The CCP has single-handedly created this unprecedented economic and financial war in human history, and...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/13/22/ab4e030a-1289-e2a5-1ef3-47b420ed509b/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,22 +189,6 @@ NFSC frontline volunteer interviewed three people who came from Spain and Peru t
 2022.05.12  新中国联邦 | 喜财经    通货膨胀，经济崩溃与货币的关系
 
 <img src="https://media.gettr.com/group12/origin/2022/05/13/02/70772219-1b06-0fa4-e1c4-f9376d2723ba/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p19jnsqfe8c.md)
-
-2022.05.12 晚 新中国联邦 | 新闻访谈   李家超当选党首后，香港会变成什么样子
-
-<img src="https://media.gettr.com/group14/origin/2022/05/13/00/94f5382e-3418-69fc-4632-7750c298e5ef/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p19nw8m806d.md)
-
-5/13/2022 Miles Guo: Who is the biggest winner and behind-the-scenes manipulator of the global economic and financial collapse? The CCP has single-handedly created this unprecedented economic and financial war in human history, and...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/13/22/ab4e030a-1289-e2a5-1ef3-47b420ed509b/out.jpg" width="506" height="284">
 
 ---
 
