@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 5/14/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p19s9p2a64b.md)
+
+5/14/2022 Miles Guo’s GETTR: At least $7 trillion has recently vanished in the US financial markets. People should not be too greedy and must have the fundamental capabilities to tell true from false and to discern good from evil. ...
+
+<img src="https://media.gettr.com/group29/getter/2022/05/14/22/094110c2-2057-3cd1-c739-4aea0d8c3418/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19r349df8e.md)
+
+“你经历过绝望吗？” 飞飞秀救援快报  2022-05-14
+
+For English: gettr.com/streaming/p19smvmcdf7
+
+<img src="https://media.gettr.com/group45/origin/2022/05/14/22/9eb50722-ba94-00e2-50f7-6d48cc3f2474/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p19r1q23049.md)
 
 2022.05.14  新中国联邦 | 喜健康    马丽娅战友专访
@@ -26,13 +44,11 @@
 
 ---
 
-[@miles 5/14/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19r349df8e.md)
+[@miles 5/14/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19siy61207.md)
 
-“你经历过绝望吗？” 飞飞秀救援快报  2022-05-14
+5/14/2022 Miles Guo’s GETTR: How will fashion be different after the collapse of the world economy? Western countries are divided over the issues of Russia and Ukraine and the reconstruction of Ukraine. By inflicting the collapse o...
 
-For English: gettr.com/streaming/p19smvmcdf7
-
-<img src="https://media.gettr.com/group45/origin/2022/05/14/22/9eb50722-ba94-00e2-50f7-6d48cc3f2474/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/05/14/22/132d37a0-1a3a-761e-b7d2-b0da8768d4c8/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,46 +175,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
 2022.05.13 文贵大直播（精华版）
 
 <img src="https://media.gettr.com/group37/origin/2022/05/14/08/c944b8f7-b8c5-27ed-954c-a0c9a401e8fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 7:41 AM UTC ](/content/gettr/p19pjlkb3fa.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月12日第69天当日救援统计：
-
-Medyka救援站接待：约413人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约18975人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 69 - Date: M...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/14/07/419dae08-ed61-f15c-b75e-98f916161d85/0026333c158481085602520d36b8992a.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p19q4qx727e.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group46/origin/2022/05/14/06/e1c43ed7-db08-da5e-b9b5-45f55a90b447/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
