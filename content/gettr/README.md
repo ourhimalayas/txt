@@ -2,11 +2,39 @@
 ---
 
 
+[@miles 5/14/2022 1:16 AM UTC  - :tv:直播](/content/gettr/p19omwd151a.md)
+
+5/13/2022 Miles Guo: Who is the biggest winner and behind-the-scenes manipulator of the global economic and financial collapse?
+
+
+
+5/13/2022 文贵直播：全球经济、金融崩塌最大赢家和幕后操作者是谁？
+
+
+
+<img src="https://media.gettr.com/group16/getter/2022/05/14/01/cf4dc21c-bb74-0521-ec1a-689f7ea133c4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p19nt8e2baf.md)
 
 2022.05.13 晚 新中国联邦 | 新闻访谈      芬兰总统和总理发布联合生命毫不犹豫申请加入北约
 
 <img src="https://media.gettr.com/group16/origin/2022/05/14/01/c1641d7a-7afd-dcb7-80dc-ab9ecc9ad8e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p19o8buafb1.md)
+
+5/13/2022 Miles Guo:  All the government having contacted me are considering revoking the COVID vaccine mandates. They are worried about being taken to court by the vaccine victims, but ending the mandates is an irreversible trend ...
+
+<img src="https://media.gettr.com/group20/getter/2022/05/14/01/46717afa-292c-1cfa-d3d5-cd25fbb9bbed/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 1:05 AM UTC ](/content/gettr/p19owwfd1a6.md)
+
+ 5月13号：但愿有更多的人．能更早的醒悟过来，一切都已经开始！
 
 ---
 
@@ -43,12 +71,6 @@
 5/13/2022 Miles Guo: The first and most important reason for the "triple falls" in the stock market, bond market, and digital currencies are the Russia-Ukraine war and the Chinese Communist Party; when the CCP knew that the US woul...
 
 <img src="https://media.gettr.com/group32/getter/2022/05/13/22/81c4622f-cf82-4b40-bdcb-6e8fc70beba6/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 1:05 AM UTC ](/content/gettr/p19owwfd1a6.md)
-
- 5月13号：但愿有更多的人．能更早的醒悟过来，一切都已经开始！
 
 ---
 
@@ -175,22 +197,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 68 - Date: M...
 
 <img src="https://media.gettr.com/group3/getter/2022/05/13/10/2ed212e1-85d9-2c2c-d877-ceb9d7aea363/1bac29336a1a96e84b30cb3c1c6fe306.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 7:22 AM UTC  - :tv:直播](/content/gettr/p19l61sf6a5.md)
-
-2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group44/origin/2022/05/13/06/37caf130-e77e-c446-b555-2675789e23fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p19knu36404.md)
-
-2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group44/origin/2022/05/13/06/37caf130-e77e-c446-b555-2675789e23fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
