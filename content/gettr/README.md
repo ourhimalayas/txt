@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p19q4qx727e.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group46/origin/2022/05/14/06/e1c43ed7-db08-da5e-b9b5-45f55a90b447/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p19pt31dc11.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -18,11 +26,35 @@
 
 ---
 
-[@miles 5/14/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p19q4qx727e.md)
+[@miles 5/14/2022 7:41 AM UTC ](/content/gettr/p19pjlkb3fa.md)
 
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group46/origin/2022/05/14/06/e1c43ed7-db08-da5e-b9b5-45f55a90b447/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月12日第69天当日救援统计：
+
+Medyka救援站接待：约413人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约18975人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 69 - Date: M...
+
+<img src="https://media.gettr.com/group11/getter/2022/05/14/07/419dae08-ed61-f15c-b75e-98f916161d85/0026333c158481085602520d36b8992a.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +191,6 @@
 2022年5月13号 七哥与战友们连线吃播
 
 <img src="https://media.gettr.com/group10/liveorigin/2022/05/13/21/c34a6476-25bb-2e46-86f0-2da26abeafed/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p19nycn86ca.md)
-
-2022.05.13  新中国联邦 | 喜健康    知死而生，向自杀说--不!
-
-<img src="https://media.gettr.com/group28/origin/2022/05/13/20/852df71d-0fda-9138-9ff5-902aa203a3c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
