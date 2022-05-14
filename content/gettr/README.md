@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/14/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p19nt8e2baf.md)
+
+2022.05.13 晚 新中国联邦 | 新闻访谈      芬兰总统和总理发布联合生命毫不犹豫申请加入北约
+
+<img src="https://media.gettr.com/group16/origin/2022/05/14/01/c1641d7a-7afd-dcb7-80dc-ab9ecc9ad8e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p19ookq8929.md)
+
+2022.05.13  晚 新中国联邦 | 新闻   新中国联邦人正在改变中国人的形象; 中共对世界的威胁远超俄罗斯普京
+
+<img src="https://media.gettr.com/group13/origin/2022/05/14/00/d03c674b-c532-c8c1-e125-a3201fbc02c3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p19nsb18b3e.md)
 
 5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange
@@ -30,11 +46,9 @@
 
 ---
 
-[@miles 5/14/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p19ookq8929.md)
+[@miles 5/14/2022 1:05 AM UTC ](/content/gettr/p19owwfd1a6.md)
 
-2022.05.13  晚 新中国联邦 | 新闻   新中国联邦人正在改变中国人的形象; 中共对世界的威胁远超俄罗斯普京
-
-<img src="https://media.gettr.com/group13/origin/2022/05/14/00/d03c674b-c532-c8c1-e125-a3201fbc02c3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ 5月13号：但愿有更多的人．能更早的醒悟过来，一切都已经开始！
 
 ---
 
@@ -177,22 +191,6 @@ Day 68 - Date: M...
 2022.05.13 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
 <img src="https://media.gettr.com/group44/origin/2022/05/13/06/37caf130-e77e-c446-b555-2675789e23fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 5:33 AM UTC  - :tv:直播](/content/gettr/p19l7t8132d.md)
-
-NFSC frontline volunteer interviewed three people who came from Spain and Peru to help Ukraine refugees. They explained why is it so important to come here to help Ukraine and appreciated what the New Federal State of China and the...
-
-<img src="https://media.gettr.com/group45/origin/2022/05/13/05/29e88fa4-6a08-a37e-0121-f92c4ba6c59a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19krln57b8.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group22/origin/2022/05/13/05/8f130e23-8550-b2a6-99c9-1d9694926417/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
