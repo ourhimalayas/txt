@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/14/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p19pt31dc11.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group29/origin/2022/05/14/04/1e081a03-c190-073b-a274-a8dc39084e7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 4:25 AM UTC  - :tv:直播](/content/gettr/p19olm95902.md)
+
+5/13/2022 Miles Guo: We cannot expect all governments to admit the COVID vaccine disaster anytime soon as they are concerned about being asked to compensate the vaccine injuries. In addition, after admitting the truth of the vaccin...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/14/04/2afaa927-c585-55d6-8a5f-8407190af8da/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 4:06 AM UTC  - :tv:直播](/content/gettr/p19ouuz1816.md)
 
 5/13/2022 Miles Guo: If Xi Jinping stays in power after the 20th Party Congress, he will continue messing up China and will end up being buried. If Xi does not stay in power after the 20th Party Congress, Communist China will enter...
@@ -45,14 +61,6 @@
 
 
 <img src="https://media.gettr.com/group16/getter/2022/05/14/01/cf4dc21c-bb74-0521-ec1a-689f7ea133c4/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 4:25 AM UTC  - :tv:直播](/content/gettr/p19olm95902.md)
-
-5/13/2022 Miles Guo: We cannot expect all governments to admit the COVID vaccine disaster anytime soon as they are concerned about being asked to compensate the vaccine injuries. In addition, after admitting the truth of the vaccin...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/14/04/2afaa927-c585-55d6-8a5f-8407190af8da/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@
 It is common to test everyone for the COVID-19 every day in some cities. It is common that quarantine policies in some cities confine all residents to their homes for weeks. Now the Chinese Communist Party government even tests the...
 
 <img src="https://media.gettr.com/group12/origin/2022/05/13/06/7407cdd6-c282-74f8-0bad-f2792f0694f7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 5:46 PM UTC  - :tv:直播](/content/gettr/p19m875a143.md)
-
-2022.05.13 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group26/origin/2022/05/13/17/142ac4e8-68fc-845e-008e-bf92cfba6935/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
