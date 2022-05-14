@@ -2,14 +2,26 @@
 ---
 
 
+#### [【说事儿】韩国总统办公室：朝鲜似乎已准备好进行核试验](/content/gnews/2526639.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2526638.md)
+ `MOSVIDEO`
+
+#### [【说事儿】加拿大创纪录接收香港新移民](/content/gnews/2526629.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】联邦政府包机乌克兰难民飞抵加拿大](/content/gnews/2526617.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;美国佛州将11月7日定为共产主义受害者日](/content/gnews/2526616.md)
+ `MOSVIDEO`
+
 #### [【说事儿】喜币需3-5年积蓄用户、逐步完善，与G系列整合迸发无限商机](/content/gnews/2526607.md)
  `TokyoSakuraDesignGroup`
 
 #### [视频&#124;日、欧领导人讨论俄乌战争、印太安全 强调台海稳定](/content/gnews/2526606.md)
  `MOSVIDEO`
-
-#### [【说事儿】焦点：乌克兰“马歇尔”式万亿美元重建计划启动](/content/gnews/2526583.md)
- `TokyoSakuraDesignGroup`
 
 #### [中日财经爆&#124;阿里巴巴在俄合资企业宣布裁员40%](/content/gnews/2526579.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -20,23 +32,11 @@
 #### [视频&#124;中共模拟打击台湾苏澳基地军舰](/content/gnews/2526573.md)
  `MOSVIDEO`
 
-#### [【说事儿】拜登东盟峰会上承诺援助东盟各国1.5亿美元以抗衡中共](/content/gnews/2526572.md)
- `TokyoSakuraDesignGroup`
-
 #### [文贵对夏平女士的评价](/content/gnews/2526571.md)
  `喜马拉雅-华盛顿DC农场`
 
 #### [美国中共病毒死亡超百万大关，而病毒起源仍旧无从知晓](/content/gnews/2526558.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [法国志愿者感谢新中国联邦帮助其开展救援工作并得到大使认可](/content/gnews/2526539.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【人民不再蒙面】](/content/gnews/2526538.md)
- `SpicyWorld`
-
-#### [【说事儿】欧洲下周将取消航空旅行的口罩强制令](/content/gnews/2526520.md)
- `TokyoSakuraDesignGroup`
 
 #### [隐藏在北京植物园的中共国际情报中心](/content/gnews/2526518.md)
  `喜马拉雅-华盛顿DC农场`
