@@ -11,6 +11,24 @@
 
 ---
 
+#### [20220513郭文贵大直播 ：七哥的手势和出狱后第一笔巨额借款都来源于共济会，所以打听消息情报神通广大](/content/gnews/2524862.md)
+ `Tokyo Sakura Video Group`
+
+#### [埃隆马斯克：440 亿美元的 Twitter 交易暂时搁置](/content/gnews/2524861.md)
+ `墨尔本雅典娜农场`
+
+#### [20220513郭文贵大直播 ： 北约会解体，未来新北约一定会以基辅为中心](/content/gnews/2524859.md)
+ `Tokyo Sakura Video Group`
+
+#### [雅典娜时报-第290期](/content/gnews/2524855.md)
+ `墨尔本雅典娜农场`
+
+#### [樱花时政┃拜登签署法案 支持台湾重获世卫观察员身份](/content/gnews/2524841.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃支持乌克兰西欧与英美分歧加深](/content/gnews/2524840.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [飞行员瘫倒驾驶台，疫苗灾难接连不断](/content/gnews/2524756.md)
  `喜马拉雅农场新西兰站`
 
@@ -35,14 +53,8 @@
 #### [第240期 玫瑰看新闻](/content/gnews/2524657.md)
  `【🌹玫瑰新闻】`
 
-#### [05/13/22 香港快讯 外汇基金4月境外资产减少1196亿港元](/content/gnews/2524638.md)
- `英喜-粵語組`
-
 #### [中共国的倒退和灾难进入自动加速模式](/content/gnews/2524578.md)
  `蓝莲花农场`
-
-#### [上海封锁导致全球医学影像供应短缺](/content/gnews/2524577.md)
- `纽约香草山MOS02`
 
 #### [今日俄乌战局最新消息汇总](/content/gnews/2524527.md)
  `NFSC News`
@@ -67,12 +79,6 @@
 
 #### [美股崩溃预示全球经济危机的开始](/content/gnews/2524265.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [联合国难民署和联合国儿童基金会帮助难民的广告信息进入新中国联邦大屏幕](/content/gnews/2524264.md)
- `NewS Gman`
-
-#### [朝鲜新冠病毒感染首次确认](/content/gnews/2524260.md)
- `NewS Gman`
 
 #### [西藏航空客机在重庆江北机场冲出跑道起火](/content/gnews/2524256.md)
  `NewS Gman`
@@ -106,9 +112,6 @@
 
 #### [文贵先生直播重点大纲2022/05/13](/content/gnews/2524119.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [朝鲜确认首次爆发COVID疫情，金正日下令封锁边境（二）](/content/gnews/2524103.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [截至5.14 俄乌战事汇总](/content/gnews/2524099.md)
  `秘密翻譯組G-Translators`
@@ -163,9 +166,6 @@
 
 #### [中共快马加鞭努力达成与所罗门群岛安全协议](/content/gnews/2514863.md)
  `秘密翻譯組G-Translators`
-
-#### [迈克·蓬佩奥：中共碾碎了香港的自由](/content/gnews/2513072.md)
- `美国政要直译推`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
