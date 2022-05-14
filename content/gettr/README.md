@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/14/2022 1:33 PM UTC  - :tv:直播](/content/gettr/p19qsup2a25.md)
+
+ 5月13号：这个视频里谈到的数据……没有包括最重要的即将发生的．疫苗灾难．和接下来的病毒政治．对世界经济的大通杀，通胀在这一切即将发生的疫苗灾难面前．根本已经不重要了‼️我们走着瞧……
+
+<img src="https://media.gettr.com/group12/getter/2022/05/14/13/7eef8627-6d3f-f5cb-d904-17becd19a43a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p19qn4w53e6.md)
+
+2022.05.14 早  新中国联邦 | 新闻访谈   
+
+<img src="https://media.gettr.com/group28/origin/2022/05/14/13/2f06abe6-9d1c-4dd6-26a5-d0d1091235ee/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@haotiantian 5/13/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p19nby1adac.md)
 
 六四倒计时啦🤩
@@ -98,14 +114,6 @@ Day 69 - Date: M...
 
 ---
 
-[@miles 5/14/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p19qn4w53e6.md)
-
-2022.05.14 早  新中国联邦 | 新闻访谈   
-
-<img src="https://media.gettr.com/group28/origin/2022/05/14/13/2f06abe6-9d1c-4dd6-26a5-d0d1091235ee/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 5/14/2022 4:25 AM UTC  - :tv:直播](/content/gettr/p19olm95902.md)
 
 5/13/2022 Miles Guo: We cannot expect all governments to admit the COVID vaccine disaster anytime soon as they are concerned about being asked to compensate the vaccine injuries. In addition, after admitting the truth of the vaccin...
@@ -179,18 +187,6 @@ Day 69 - Date: M...
 2022.05.13  晚 新中国联邦 | 新闻   新中国联邦人正在改变中国人的形象; 中共对世界的威胁远超俄罗斯普京
 
 <img src="https://media.gettr.com/group13/origin/2022/05/14/00/d03c674b-c532-c8c1-e125-a3201fbc02c3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p19nsb18b3e.md)
-
-5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange
-
-
-
-5/13/2022文贵直播：LUNA闪崩意味着什么？全人类的金融机构...
-
-<img src="https://media.gettr.com/group7/getter/2022/05/13/23/07162a8e-ce4c-d927-2ad4-866712413266/out.jpg" width="506" height="284">
 
 ---
 
