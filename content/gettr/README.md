@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19ouaobbe2.md)
+
+2022.05.13  新中国联邦 | 喜财经    去美元化翻车！中国央企买俄油 付美元或欧元
+
+<img src="https://media.gettr.com/group44/origin/2022/05/14/02/c01bd3b2-37f6-c949-b141-c13e1ba7751a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 1:16 AM UTC  - :tv:直播](/content/gettr/p19omwd151a.md)
 
 5/13/2022 Miles Guo: Who is the biggest winner and behind-the-scenes manipulator of the global economic and financial collapse?
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 5/14/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19ouaobbe2.md)
+[@miles 5/14/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19ovgne014.md)
 
-2022.05.13  新中国联邦 | 喜财经    去美元化翻车！中国央企买俄油 付美元或欧元
+2022-5-13《鸡血王喜币大作战》 第一百九十四集 嘉宾：青藤、文空、风雨之中
 
-<img src="https://media.gettr.com/group44/origin/2022/05/14/02/c01bd3b2-37f6-c949-b141-c13e1ba7751a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ No.1🥇 on Germany🇩🇪 Pop MV Chart for 25 Consecutive Days
 2022年5月13日 文贵大直播：最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用
 
 <img src="https://media.gettr.com/group49/origin/2022/05/13/12/0f7dbb14-fc09-f16a-6825-e484431660fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19lq637542.md)
-
-2022.05.13  新中国联邦 | 军情室 乌军半渡而击俄营战术群，俄军再次向蛇岛补充装备，俄军为何爱偷家用洗衣机
-
-<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
