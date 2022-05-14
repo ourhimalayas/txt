@@ -2,6 +2,21 @@
 ---
 
 
+#### [视频&#124;中共对世界的威胁远超俄罗斯普京](/content/gnews/2526001.md)
+ `MOSVIDEO`
+
+#### [视频&#124;新中国联邦人正在改变中国人的形象](/content/gnews/2525994.md)
+ `MOSVIDEO`
+
+#### [视频&#124;了解新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2525984.md)
+ `MOSVIDEO`
+
+#### [【说事儿】安理会紧急会议制裁北朝鲜 美国与中俄对立](/content/gnews/2525979.md)
+ `TokyoSakuraDesignGroup`
+
+#### [未接种空军学员被标记剥夺训练资格](/content/gnews/2525972.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [【说事儿】最新研究证实：中共病毒疫苗能够导致严重的自身免疫性肝炎](/content/gnews/2525938.md)
  `TokyoSakuraDesignGroup`
 
@@ -32,26 +47,26 @@
 #### [习特勒与普京强推霸权，世界正被迫反抗](/content/gnews/2525823.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
+#### [中国过去习王时代，人才流失最多，今年年底战友们准备齐聚盘古](/content/gnews/2525795.md)
+ `雅典娜GNotes`
+
+#### [俄乌战争，俄罗斯败笔最核心的原因就是人才](/content/gnews/2525794.md)
+ `雅典娜GNotes`
+
 #### [欧盟将取消搭乘飞机须配戴口罩的要求](/content/gnews/2525787.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [台湾军事专家警示，中共疑建模型模拟攻击苏澳军港](/content/gnews/2525786.md)
  `墨尔本雅典娜农场`
 
+#### [七哥分享自己怎么看书](/content/gnews/2525784.md)
+ `雅典娜GNotes`
+
 #### [英国与芬兰和瑞典就加强安全保障达成协议（e）](/content/gnews/2525767.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [有声&#124;勇敢，是坚持正义和信仰的贵族精神](/content/gnews/2525752.md)
- `MOSREC`
-
 #### [中共政府表示将“严格限制”公民出国](/content/gnews/2525738.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [北约加强在波罗的海国家的影响力](/content/gnews/2525707.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [有声&#124;焚烧](/content/gnews/2525705.md)
- `MOSREC`
 
 #### [中共与谭德赛从狼狈为奸到互相攻击沦为笑柄](/content/gnews/2525704.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -59,14 +74,8 @@
 #### [【说事儿】大科技公司使用第五修正案做保护控制言论自由](/content/gnews/2525672.md)
  `TokyoSakuraDesignGroup`
 
-#### [英国追加经济制裁 与普京关系密切的俄罗斯人名列其中](/content/gnews/2525614.md)
- `日本东京方舟农场`
-
 #### [中日财经爆&#124;马斯克表示对Twitter的收购因虚假账户数据而被搁置](/content/gnews/2525603.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [有声&#124;新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月12日晚](/content/gnews/2525601.md)
- `MOSREC`
 
 #### [中日财经爆┃经济下行钢材需求低迷 多地钢企严重减产](/content/gnews/2525599.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -79,15 +88,6 @@
 
 #### [英国与芬兰和瑞典就加强安全保障达成协议（d）](/content/gnews/2525589.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [20220514郭文贵乱聊直播 ：美国对付共产党手段很多，关键在于符合美国利益和让更多人认识到必须灭共](/content/gnews/2525559.md)
- `Tokyo Sakura Video Group`
-
-#### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年5月12日早](/content/gnews/2525558.md)
- `MOSREC`
-
-#### [七哥与战友们连线吃播要点（2022年5月13日）](/content/gnews/2525520.md)
- `波士顿五月花农场`
 
 #### [抖音的“铲子”生意](/content/gnews/2525488.md)
  `加拿大温哥华英里农场`
