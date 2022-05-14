@@ -10,6 +10,20 @@
 
 ---
 
+[@miles 5/14/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p19qq2g9dfa.md)
+
+2022-5-14 《避风港》（47）保险公司预计今年疫苗伤亡增加50倍
+
+<img src="https://media.gettr.com/group15/origin/2022/05/10/18/a98d2da7-6f72-c023-9577-a2859b091423/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 5:44 PM UTC ](/content/gettr/p19rqxk7f51.md)
+
+5月14日：又……https://www.dailymail.co.uk/news/article-10816327/Chinas-leader-Xi-Jinping-suffering-brain-aneurysm-snub-new-medicine-reports-claim.html
+
+---
+
 [@cornfieldsis 5/14/2022 4:15 PM UTC ](/content/gettr/p19r6dd094a.md)
 
 好消息战友们🥰😍 
@@ -55,12 +69,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
 5月13号：【This foreigner is too talented to write such a Chinese couplet.  Grasp the current situation in China...so accurately...】
 
 <img src="https://media.gettr.com/group4/getter/2022/05/14/14/4b324659-4511-ab91-0e96-8165282cfe73/ccc35ab1937ed01b374814391dfe51bd.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 5:44 PM UTC ](/content/gettr/p19rqxk7f51.md)
-
-5月14日：又……https://www.dailymail.co.uk/news/article-10816327/Chinas-leader-Xi-Jinping-suffering-brain-aneurysm-snub-new-medicine-reports-claim.html
 
 ---
 
@@ -181,14 +189,6 @@ Day 69 - Date: M...
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group29/origin/2022/05/14/04/1e081a03-c190-073b-a274-a8dc39084e7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 4:16 AM UTC  - :tv:直播](/content/gettr/p19oq0c7391.md)
-
-【Ukraine Rescue】05/12/2022 A French volunteer says that thanks to the help of the NFSC, the French rescue work in Medica has been carried out successfully and recognized by the French Ambassador to Poland. He is very grateful to th...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/14/04/a28c1dfc-5cf8-8233-47f5-c856c48e6959/out.jpg" width="506" height="284">
 
 ---
 
