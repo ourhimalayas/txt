@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 8:17 AM UTC  - :tv:直播](/content/gettr/p19psn08633.md)
+
+2022.05.13 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group37/origin/2022/05/14/08/c944b8f7-b8c5-27ed-954c-a0c9a401e8fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 7:41 AM UTC ](/content/gettr/p19pjlkb3fa.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -58,11 +66,11 @@ Day 69 - Date: M...
 
 ---
 
-[@miles 5/14/2022 8:17 AM UTC  - :tv:直播](/content/gettr/p19psn08633.md)
+[@miles 5/14/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p19qryuaecb.md)
 
-2022.05.13 文贵大直播（精华版）
+2022.05.14 AM NFSC news  German Foreign Minister Visits Ukraine and expresses tough stance on Russia
 
-<img src="https://media.gettr.com/group37/origin/2022/05/14/08/c944b8f7-b8c5-27ed-954c-a0c9a401e8fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/05/14/11/9fdd980a-7b47-b8ca-f954-bc5e68b9f14c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Day 69 - Date: M...
 5/13/2022 Miles Guo: Who is the biggest winner and behind-the-scenes manipulator of the global economic and financial collapse? The CCP has single-handedly created this unprecedented economic and financial war in human history, and...
 
 <img src="https://media.gettr.com/group35/getter/2022/05/13/22/ab4e030a-1289-e2a5-1ef3-47b420ed509b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p19ntlm3e01.md)
-
-5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange, because the Himalaya Dollar is a tru...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/13/22/fc9bb56b-ddd2-052b-6c6f-4d6c5581e792/out.jpg" width="506" height="284">
 
 ---
 
