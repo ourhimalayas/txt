@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p19qg5wb9ba.md)
+
+2022.05.14  早 新中国联邦 | 新闻   国际志愿者支持新中国联邦灭共行动；真正的优秀者将带领人类走向下一个巅峰
+
+<img src="https://media.gettr.com/group35/origin/2022/05/14/12/40856798-abcd-9111-ead7-545bcb5c1f85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p19qryuaecb.md)
 
 2022.05.14 AM NFSC news  German Foreign Minister Visits Ukraine and expresses tough stance on Russia
@@ -74,11 +82,11 @@ Day 69 - Date: M...
 
 ---
 
-[@miles 5/14/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p19qg5wb9ba.md)
+[@haotiantian 5/13/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p19nby1adac.md)
 
-2022.05.14  早 新中国联邦 | 新闻   国际志愿者支持新中国联邦灭共行动；真正的优秀者将带领人类走向下一个巅峰
+六四倒计时啦🤩
 
-<img src="https://media.gettr.com/group35/origin/2022/05/14/12/40856798-abcd-9111-ead7-545bcb5c1f85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/gvision/2022/05/13/20/d8dd6a50-f62e-b21a-0fa0-040f34b72bf6/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 69 - Date: M...
 5/13/2022 Mile Guo: The COVID vaccine disasters will lead to the darkest age of human history: there will be extreme shortage of food, collapse of fiat currencies, digital currencies and financial products. The Hong Kong dollar wil...
 
 <img src="https://media.gettr.com/group32/getter/2022/05/13/22/7a373fa1-5dba-86b3-3965-a021b54f05f2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p19nmqqac71.md)
-
-5/13/2022 Miles Guo: Following the "triple kill" of stocks, bonds, and cryptos, where did the money go? The global GDP growth rate is only half of that of last year, but the amount of money issued has doubled. So, your money has de...
-
-<img src="https://media.gettr.com/group32/getter/2022/05/13/22/50ba9f31-db99-f8c8-3e50-892e02f6b5b9/out.jpg" width="506" height="284">
 
 ---
 
