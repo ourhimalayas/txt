@@ -16,11 +16,11 @@
 
 ---
 
-[@miles 5/14/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p19nt8e2baf.md)
+[@miles 5/14/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19ouaobbe2.md)
 
-2022.05.13 晚 新中国联邦 | 新闻访谈      芬兰总统和总理发布联合生命毫不犹豫申请加入北约
+2022.05.13  新中国联邦 | 喜财经    去美元化翻车！中国央企买俄油 付美元或欧元
 
-<img src="https://media.gettr.com/group16/origin/2022/05/14/01/c1641d7a-7afd-dcb7-80dc-ab9ecc9ad8e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/05/14/02/c01bd3b2-37f6-c949-b141-c13e1ba7751a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -29,6 +29,14 @@
 5/13/2022 Miles Guo:  All the government having contacted me are considering revoking the COVID vaccine mandates. They are worried about being taken to court by the vaccine victims, but ending the mandates is an irreversible trend ...
 
 <img src="https://media.gettr.com/group20/getter/2022/05/14/01/46717afa-292c-1cfa-d3d5-cd25fbb9bbed/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p19nt8e2baf.md)
+
+2022.05.13 晚 新中国联邦 | 新闻访谈      芬兰总统和总理发布联合生命毫不犹豫申请加入北约
+
+<img src="https://media.gettr.com/group16/origin/2022/05/14/01/c1641d7a-7afd-dcb7-80dc-ab9ecc9ad8e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -165,38 +173,6 @@ No.1🥇 on Germany🇩🇪 Pop MV Chart for 25 Consecutive Days
 2022.05.13  新中国联邦 | 军情室 乌军半渡而击俄营战术群，俄军再次向蛇岛补充装备，俄军为何爱偷家用洗衣机
 
 <img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:40 AM UTC ](/content/gettr/p19lfz85269.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月11日第68天当日救援统计：
-
-Medyka救援站接待：约431人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约18562人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 68 - Date: M...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/13/10/2ed212e1-85d9-2c2c-d877-ceb9d7aea363/1bac29336a1a96e84b30cb3c1c6fe306.jpg" width="506" height="284">
 
 ---
 
