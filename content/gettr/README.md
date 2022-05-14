@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p19r1pb71bf.md)
+
+新中国联邦｜真人真事 第53期  香草山农场  正义的小新
+
+<img src="https://media.gettr.com/group12/origin/2022/05/14/14/a8e1567f-d445-e6bd-b3ae-58a79ad61b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 2:50 PM UTC ](/content/gettr/p19qk7t3eed.md)
 
 5月13号：【This foreigner is too talented to write such a Chinese couplet.  Grasp the current situation in China...so accurately...】
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/14/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p19r1pb71bf.md)
+[@cornfieldsis 5/14/2022 3:34 PM UTC ](/content/gettr/p19r5y56dee.md)
 
-新中国联邦｜真人真事 第53期  香草山农场  正义的小新
+亲爱的战友们， 如果你们有任何关于G ｜Fashion 的问题，请在我Gettr 下面留言，我们会把所有信息一并汇总，然后统一尽快解决。谢谢🙏
 
-<img src="https://media.gettr.com/group12/origin/2022/05/14/14/a8e1567f-d445-e6bd-b3ae-58a79ad61b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/05/14/15/3743e9c1-9a0d-3abe-89d7-5da2f8bd7fed/95c27b7a7a119acbed71db9a0f55327b.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 69 - Date: M...
 2022.05.13  新中国联邦 | 喜财经    去美元化翻车！中国央企买俄油 付美元或欧元
 
 <img src="https://media.gettr.com/group44/origin/2022/05/14/02/c01bd3b2-37f6-c949-b141-c13e1ba7751a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/14/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p19o8buafb1.md)
-
-5/13/2022 Miles Guo:  All the government having contacted me are considering revoking the COVID vaccine mandates. They are worried about being taken to court by the vaccine victims, but ending the mandates is an irreversible trend ...
-
-<img src="https://media.gettr.com/group20/getter/2022/05/14/01/46717afa-292c-1cfa-d3d5-cd25fbb9bbed/out.jpg" width="506" height="284">
 
 ---
 
