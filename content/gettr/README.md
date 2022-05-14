@@ -2,27 +2,19 @@
 ---
 
 
-[@miles 5/14/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p19saux20f0.md)
+[@miles 5/14/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p19qg5wb9ba.md)
+
+2022.05.14  早 新中国联邦 | 新闻   国际志愿者支持新中国联邦灭共行动；真正的优秀者将带领人类走向下一个巅峰
+
+<img src="https://media.gettr.com/group35/origin/2022/05/14/12/40856798-abcd-9111-ead7-545bcb5c1f85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p19stg140d4.md)
 
 2022.05.14  PM NFSC news   Citizens of NFSC are changing the image of Chinese people
 
 <img src="https://media.gettr.com/group22/origin/2022/05/14/22/93aa44ad-078f-2aa2-c23d-1abaae5ab7a9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/14/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p19snw03e04.md)
-
-2022.05.14  PM NFSC news   Citizens of NFSC are changing the image of Chinese people
-
-<img src="https://media.gettr.com/group22/origin/2022/05/14/22/93aa44ad-078f-2aa2-c23d-1abaae5ab7a9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/14/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p19s9p2a64b.md)
-
-5/14/2022 Miles Guo’s GETTR: At least $7 trillion has recently vanished in the US financial markets. People should not be too greedy and must have the fundamental capabilities to tell true from false and to discern good from evil. ...
-
-<img src="https://media.gettr.com/group29/getter/2022/05/14/22/094110c2-2057-3cd1-c739-4aea0d8c3418/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,6 +23,14 @@
 Nicole was interviewed by Belarusian political activist Mikalai Maslouski, with Alex helping with the translation. Mikalai was an assistant to Sviatlana Tsikhanouskaya, who was a presidential candidate in the 2020 Belarusian electi...
 
 <img src="https://media.gettr.com/group29/origin/2022/05/14/23/b6e6cc8e-99f2-9cc2-9e43-b64accc9faa0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p19s9p2a64b.md)
+
+5/14/2022 Miles Guo’s GETTR: At least $7 trillion has recently vanished in the US financial markets. People should not be too greedy and must have the fundamental capabilities to tell true from false and to discern good from evil. ...
+
+<img src="https://media.gettr.com/group29/getter/2022/05/14/22/094110c2-2057-3cd1-c739-4aea0d8c3418/out.jpg" width="506" height="284">
 
 ---
 
