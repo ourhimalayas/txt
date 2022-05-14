@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19ovgne014.md)
+
+2022-5-13《鸡血王喜币大作战》 第一百九十四集 嘉宾：青藤、文空、风雨之中
+
+<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19ouaobbe2.md)
 
 2022.05.13  新中国联邦 | 喜财经    去美元化翻车！中国央企买俄油 付美元或欧元
@@ -24,11 +32,11 @@
 
 ---
 
-[@miles 5/14/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19ovgne014.md)
+[@miles 5/14/2022 4:06 AM UTC  - :tv:直播](/content/gettr/p19ouuz1816.md)
 
-2022-5-13《鸡血王喜币大作战》 第一百九十四集 嘉宾：青藤、文空、风雨之中
+5/13/2022 Miles Guo: If Xi Jinping stays in power after the 20th Party Congress, he will continue messing up China and will end up being buried. If Xi does not stay in power after the 20th Party Congress, Communist China will enter...
 
-<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/05/14/04/0e837c9a-95a1-4946-fb0a-07d5ea591e27/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ No.1🥇 on Germany🇩🇪 Pop MV Chart for 25 Consecutive Days
 尊敬的战友们好，分享海鲜海手指。
 
 <img src="https://media.gettr.com/group34/getter/2022/05/13/14/7025c84d-75ac-18e8-441c-b6a33972253c/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 12:40 PM UTC  - :tv:直播](/content/gettr/p19m88r7e1f.md)
-
-2022年5月13日 文贵大直播：最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用
-
-<img src="https://media.gettr.com/group49/origin/2022/05/13/12/0f7dbb14-fc09-f16a-6825-e484431660fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
