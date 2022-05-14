@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/14/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p19r1pb71bf.md)
+
+新中国联邦｜真人真事 第53期  香草山农场  正义的小新
+
+<img src="https://media.gettr.com/group12/origin/2022/05/14/14/a8e1567f-d445-e6bd-b3ae-58a79ad61b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 2:55 PM UTC ](/content/gettr/p19qe9nd904.md)
+
+5月13号：七哥，您看，订阅量从2020年8月以后几乎就是一条横线，没有任何波动了数据好像停止在那里了Brother Seven, you see, the subscription volume has almost been a horizontal line since August 2020, and there is no fluctuation. The data seems to stop there.【Brother Seven, you s...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/14/14/47a14295-4cbe-d3ed-08ce-e35f014ff1eb/cf4d6b9603d6f3242fae9e9c252dccc0.jpg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p19r6mh8c6a.md)
 
  5月13号：尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一起消灭邪恶的共产主义和中国共产党……
@@ -31,14 +47,6 @@
 5月14号：一个14亿人民的国家．公然这样的撒谎，而且成为了治国之策，真的是全国人民的悲哀。【海外大批科学家逃亡中国🤣🤣🥲🥲🥲评论又翻车了】
 
 <img src="https://media.gettr.com/group26/getter/2022/05/14/13/d2c3dacf-e06d-b672-af51-204f5232fd1c/61018d0b16bdddba6ad22ae6655f5db8.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 2:55 PM UTC ](/content/gettr/p19qe9nd904.md)
-
-5月13号：七哥，您看，订阅量从2020年8月以后几乎就是一条横线，没有任何波动了数据好像停止在那里了Brother Seven, you see, the subscription volume has almost been a horizontal line since August 2020, and there is no fluctuation. The data seems to stop there.【Brother Seven, you s...
-
-<img src="https://media.gettr.com/group21/getter/2022/05/14/14/47a14295-4cbe-d3ed-08ce-e35f014ff1eb/cf4d6b9603d6f3242fae9e9c252dccc0.jpg" width="506" height="284">
 
 ---
 
@@ -167,20 +175,6 @@ Day 69 - Date: M...
 2022.05.13  新中国联邦 | 喜财经    去美元化翻车！中国央企买俄油 付美元或欧元
 
 <img src="https://media.gettr.com/group44/origin/2022/05/14/02/c01bd3b2-37f6-c949-b141-c13e1ba7751a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/14/2022 1:16 AM UTC  - :tv:直播](/content/gettr/p19omwd151a.md)
-
-5/13/2022 Miles Guo: Who is the biggest winner and behind-the-scenes manipulator of the global economic and financial collapse?
-
-
-
-5/13/2022 文贵直播：全球经济、金融崩塌最大赢家和幕后操作者是谁？
-
-
-
-<img src="https://media.gettr.com/group16/getter/2022/05/14/01/cf4dc21c-bb74-0521-ec1a-689f7ea133c4/out.jpg" width="506" height="284">
 
 ---
 
