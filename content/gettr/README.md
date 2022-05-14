@@ -2,6 +2,14 @@
 ---
 
 
+[@cornfieldsis 5/14/2022 3:34 PM UTC ](/content/gettr/p19r5y56dee.md)
+
+亲爱的战友们， 如果你们有任何关于G ｜Fashion 的问题，请在我Gettr 下面留言，我们会把所有信息一并汇总，然后统一尽快解决。谢谢🙏
+
+<img src="https://media.gettr.com/group38/origin/2022/05/14/15/3743e9c1-9a0d-3abe-89d7-5da2f8bd7fed/95c27b7a7a119acbed71db9a0f55327b.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p19r1pb71bf.md)
 
 新中国联邦｜真人真事 第53期  香草山农场  正义的小新
@@ -18,11 +26,27 @@
 
 ---
 
-[@cornfieldsis 5/14/2022 3:34 PM UTC ](/content/gettr/p19r5y56dee.md)
+[@cornfieldsis 5/14/2022 4:15 PM UTC ](/content/gettr/p19r6dd094a.md)
 
-亲爱的战友们， 如果你们有任何关于G ｜Fashion 的问题，请在我Gettr 下面留言，我们会把所有信息一并汇总，然后统一尽快解决。谢谢🙏
+好消息战友们🥰😍 
 
-<img src="https://media.gettr.com/group38/origin/2022/05/14/15/3743e9c1-9a0d-3abe-89d7-5da2f8bd7fed/95c27b7a7a119acbed71db9a0f55327b.jpeg" width="506" height="284">
+
+
+G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定最终的合同。  一旦敲定所有发货会直接从意大利发向全世界  
+
+
+
+1. 免税收
+
+2. 免关税
+
+3. 免运费
+
+
+
+@gfashion @ddnyc @miles
+
+<img src="https://media.gettr.com/group34/origin/2022/05/14/16/471cce36-41d8-638d-9d1e-22f3e26fa066/1baa84b2932785c888abe870faba31e8.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +199,6 @@ Day 69 - Date: M...
 2022-5-13《鸡血王喜币大作战》 第一百九十四集 嘉宾：青藤、文空、风雨之中
 
 <img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p19ouaobbe2.md)
-
-2022.05.13  新中国联邦 | 喜财经    去美元化翻车！中国央企买俄油 付美元或欧元
-
-<img src="https://media.gettr.com/group44/origin/2022/05/14/02/c01bd3b2-37f6-c949-b141-c13e1ba7751a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
