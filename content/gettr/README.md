@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 1:33 PM UTC  - :tv:直播](/content/gettr/p19qsup2a25.md)
+
+ 5月13号：这个视频里谈到的数据……没有包括最重要的即将发生的．疫苗灾难．和接下来的病毒政治．对世界经济的大通杀，通胀在这一切即将发生的疫苗灾难面前．根本已经不重要了‼️我们走着瞧……
+
+<img src="https://media.gettr.com/group12/getter/2022/05/14/13/7eef8627-6d3f-f5cb-d904-17becd19a43a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 1:02 PM UTC  - 6圖](/content/gettr/p19qs85f686.md)
 
 5月14号：一个14亿人民的国家．公然这样的撒谎，而且成为了治国之策，真的是全国人民的悲哀。【海外大批科学家逃亡中国🤣🤣🥲🥲🥲评论又翻车了】
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/14/2022 1:33 PM UTC  - :tv:直播](/content/gettr/p19qsup2a25.md)
+[@miles 5/14/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p19r6mh8c6a.md)
 
- 5月13号：这个视频里谈到的数据……没有包括最重要的即将发生的．疫苗灾难．和接下来的病毒政治．对世界经济的大通杀，通胀在这一切即将发生的疫苗灾难面前．根本已经不重要了‼️我们走着瞧……
+ 5月13号：尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一起消灭邪恶的共产主义和中国共产党……
 
-<img src="https://media.gettr.com/group12/getter/2022/05/14/13/7eef8627-6d3f-f5cb-d904-17becd19a43a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/05/14/14/fe0798cc-2f11-e39a-8386-b006e7932d5b/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Day 69 - Date: M...
 [@miles 5/14/2022 1:05 AM UTC ](/content/gettr/p19owwfd1a6.md)
 
  5月13号：但愿有更多的人．能更早的醒悟过来，一切都已经开始！
-
----
-
-[@miles 5/14/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p19ookq8929.md)
-
-2022.05.13  晚 新中国联邦 | 新闻   新中国联邦人正在改变中国人的形象; 中共对世界的威胁远超俄罗斯普京
-
-<img src="https://media.gettr.com/group13/origin/2022/05/14/00/d03c674b-c532-c8c1-e125-a3201fbc02c3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
