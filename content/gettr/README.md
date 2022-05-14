@@ -2,11 +2,43 @@
 ---
 
 
+[@miles 5/14/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p19saux20f0.md)
+
+2022.05.14  PM NFSC news   Citizens of NFSC are changing the image of Chinese people
+
+<img src="https://media.gettr.com/group22/origin/2022/05/14/22/93aa44ad-078f-2aa2-c23d-1abaae5ab7a9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p19snw03e04.md)
+
+2022.05.14  PM NFSC news   Citizens of NFSC are changing the image of Chinese people
+
+<img src="https://media.gettr.com/group22/origin/2022/05/14/22/93aa44ad-078f-2aa2-c23d-1abaae5ab7a9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p19s9p2a64b.md)
 
 5/14/2022 Miles Guo’s GETTR: At least $7 trillion has recently vanished in the US financial markets. People should not be too greedy and must have the fundamental capabilities to tell true from false and to discern good from evil. ...
 
 <img src="https://media.gettr.com/group29/getter/2022/05/14/22/094110c2-2057-3cd1-c739-4aea0d8c3418/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p19sn9o1504.md)
+
+Nicole was interviewed by Belarusian political activist Mikalai Maslouski, with Alex helping with the translation. Mikalai was an assistant to Sviatlana Tsikhanouskaya, who was a presidential candidate in the 2020 Belarusian electi...
+
+<img src="https://media.gettr.com/group29/origin/2022/05/14/23/b6e6cc8e-99f2-9cc2-9e43-b64accc9faa0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19siy61207.md)
+
+5/14/2022 Miles Guo’s GETTR: How will fashion be different after the collapse of the world economy? Western countries are divided over the issues of Russia and Ukraine and the reconstruction of Ukraine. By inflicting the collapse o...
+
+<img src="https://media.gettr.com/group25/getter/2022/05/14/22/132d37a0-1a3a-761e-b7d2-b0da8768d4c8/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +73,6 @@ For English: gettr.com/streaming/p19smvmcdf7
 2022.05.14 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group5/origin/2022/05/14/17/6e1f877c-24a5-bdd8-eb95-3a376cec7cba/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/14/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19siy61207.md)
-
-5/14/2022 Miles Guo’s GETTR: How will fashion be different after the collapse of the world economy? Western countries are divided over the issues of Russia and Ukraine and the reconstruction of Ukraine. By inflicting the collapse o...
-
-<img src="https://media.gettr.com/group25/getter/2022/05/14/22/132d37a0-1a3a-761e-b7d2-b0da8768d4c8/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,30 +175,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
 六四倒计时啦🤩
 
 <img src="https://media.gettr.com/group47/gvision/2022/05/13/20/d8dd6a50-f62e-b21a-0fa0-040f34b72bf6/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p19qg5wb9ba.md)
-
-2022.05.14  早 新中国联邦 | 新闻   国际志愿者支持新中国联邦灭共行动；真正的优秀者将带领人类走向下一个巅峰
-
-<img src="https://media.gettr.com/group35/origin/2022/05/14/12/40856798-abcd-9111-ead7-545bcb5c1f85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p19qryuaecb.md)
-
-2022.05.14 AM NFSC news  German Foreign Minister Visits Ukraine and expresses tough stance on Russia
-
-<img src="https://media.gettr.com/group33/origin/2022/05/14/11/9fdd980a-7b47-b8ca-f954-bc5e68b9f14c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/14/2022 8:17 AM UTC  - :tv:直播](/content/gettr/p19psn08633.md)
-
-2022.05.13 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group37/origin/2022/05/14/08/c944b8f7-b8c5-27ed-954c-a0c9a401e8fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
