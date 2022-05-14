@@ -2,30 +2,6 @@
 ---
 
 
-[@miles 5/14/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p19q4qx727e.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group46/origin/2022/05/14/06/e1c43ed7-db08-da5e-b9b5-45f55a90b447/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p19pt31dc11.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group29/origin/2022/05/14/04/1e081a03-c190-073b-a274-a8dc39084e7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 4:16 AM UTC  - :tv:直播](/content/gettr/p19oq0c7391.md)
-
-【Ukraine Rescue】05/12/2022 A French volunteer says that thanks to the help of the NFSC, the French rescue work in Medica has been carried out successfully and recognized by the French Ambassador to Poland. He is very grateful to th...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/14/04/a28c1dfc-5cf8-8233-47f5-c856c48e6959/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/14/2022 7:41 AM UTC ](/content/gettr/p19pjlkb3fa.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -55,6 +31,38 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 69 - Date: M...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/14/07/419dae08-ed61-f15c-b75e-98f916161d85/0026333c158481085602520d36b8992a.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p19q4qx727e.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group46/origin/2022/05/14/06/e1c43ed7-db08-da5e-b9b5-45f55a90b447/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p19pt31dc11.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group29/origin/2022/05/14/04/1e081a03-c190-073b-a274-a8dc39084e7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 4:16 AM UTC  - :tv:直播](/content/gettr/p19oq0c7391.md)
+
+【Ukraine Rescue】05/12/2022 A French volunteer says that thanks to the help of the NFSC, the French rescue work in Medica has been carried out successfully and recognized by the French Ambassador to Poland. He is very grateful to th...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/14/04/a28c1dfc-5cf8-8233-47f5-c856c48e6959/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 8:17 AM UTC  - :tv:直播](/content/gettr/p19psn08633.md)
+
+2022.05.13 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group37/origin/2022/05/14/08/c944b8f7-b8c5-27ed-954c-a0c9a401e8fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Day 69 - Date: M...
 5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange, because the Himalaya Dollar is a tru...
 
 <img src="https://media.gettr.com/group47/getter/2022/05/13/22/fc9bb56b-ddd2-052b-6c6f-4d6c5581e792/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 9:57 PM UTC  - :tv:直播](/content/gettr/p19o81zb77a.md)
-
-2022年5月13号 七哥与战友们连线吃播
-
-<img src="https://media.gettr.com/group10/liveorigin/2022/05/13/21/c34a6476-25bb-2e46-86f0-2da26abeafed/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
