@@ -2,27 +2,11 @@
 ---
 
 
-[@cornfieldsis 5/14/2022 3:34 PM UTC ](/content/gettr/p19r5y56dee.md)
+[@miles 5/14/2022 5:40 PM UTC  - :tv:直播](/content/gettr/p19r33j38b6.md)
 
-亲爱的战友们， 如果你们有任何关于G ｜Fashion 的问题，请在我Gettr 下面留言，我们会把所有信息一并汇总，然后统一尽快解决。谢谢🙏
+2022.05.14 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group38/origin/2022/05/14/15/3743e9c1-9a0d-3abe-89d7-5da2f8bd7fed/95c27b7a7a119acbed71db9a0f55327b.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p19r1pb71bf.md)
-
-新中国联邦｜真人真事 第53期  香草山农场  正义的小新
-
-<img src="https://media.gettr.com/group12/origin/2022/05/14/14/a8e1567f-d445-e6bd-b3ae-58a79ad61b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 2:50 PM UTC ](/content/gettr/p19qk7t3eed.md)
-
-5月13号：【This foreigner is too talented to write such a Chinese couplet.  Grasp the current situation in China...so accurately...】
-
-<img src="https://media.gettr.com/group4/getter/2022/05/14/14/4b324659-4511-ab91-0e96-8165282cfe73/ccc35ab1937ed01b374814391dfe51bd.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/05/14/17/6e1f877c-24a5-bdd8-eb95-3a376cec7cba/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -47,6 +31,36 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
 @gfashion @ddnyc @miles
 
 <img src="https://media.gettr.com/group34/origin/2022/05/14/16/471cce36-41d8-638d-9d1e-22f3e26fa066/1baa84b2932785c888abe870faba31e8.jpeg" width="506" height="284">
+
+---
+
+[@cornfieldsis 5/14/2022 3:34 PM UTC ](/content/gettr/p19r5y56dee.md)
+
+亲爱的战友们， 如果你们有任何关于G ｜Fashion 的问题，请在我Gettr 下面留言，我们会把所有信息一并汇总，然后统一尽快解决。谢谢🙏
+
+<img src="https://media.gettr.com/group38/origin/2022/05/14/15/3743e9c1-9a0d-3abe-89d7-5da2f8bd7fed/95c27b7a7a119acbed71db9a0f55327b.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p19r1pb71bf.md)
+
+新中国联邦｜真人真事 第53期  香草山农场  正义的小新
+
+<img src="https://media.gettr.com/group12/origin/2022/05/14/14/a8e1567f-d445-e6bd-b3ae-58a79ad61b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 2:50 PM UTC ](/content/gettr/p19qk7t3eed.md)
+
+5月13号：【This foreigner is too talented to write such a Chinese couplet.  Grasp the current situation in China...so accurately...】
+
+<img src="https://media.gettr.com/group4/getter/2022/05/14/14/4b324659-4511-ab91-0e96-8165282cfe73/ccc35ab1937ed01b374814391dfe51bd.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 5:44 PM UTC ](/content/gettr/p19rqxk7f51.md)
+
+5月14日：又……https://www.dailymail.co.uk/news/article-10816327/Chinas-leader-Xi-Jinping-suffering-brain-aneurysm-snub-new-medicine-reports-claim.html
 
 ---
 
@@ -183,22 +197,6 @@ Day 69 - Date: M...
 5/13/2022 Miles Guo: We cannot expect all governments to admit the COVID vaccine disaster anytime soon as they are concerned about being asked to compensate the vaccine injuries. In addition, after admitting the truth of the vaccin...
 
 <img src="https://media.gettr.com/group35/getter/2022/05/14/04/2afaa927-c585-55d6-8a5f-8407190af8da/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 4:06 AM UTC  - :tv:直播](/content/gettr/p19ouuz1816.md)
-
-5/13/2022 Miles Guo: If Xi Jinping stays in power after the 20th Party Congress, he will continue messing up China and will end up being buried. If Xi does not stay in power after the 20th Party Congress, Communist China will enter...
-
-<img src="https://media.gettr.com/group50/getter/2022/05/14/04/0e837c9a-95a1-4946-fb0a-07d5ea591e27/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19ovgne014.md)
-
-2022-5-13《鸡血王喜币大作战》 第一百九十四集 嘉宾：青藤、文空、风雨之中
-
-<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
