@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/13/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p19nsb18b3e.md)
+
+5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange
+
+
+
+5/13/2022文贵直播：LUNA闪崩意味着什么？全人类的金融机构...
+
+<img src="https://media.gettr.com/group7/getter/2022/05/13/23/07162a8e-ce4c-d927-2ad4-866712413266/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/13/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p19o78raca5.md)
 
 5/13/2022 Mile Guo: The COVID vaccine disasters will lead to the darkest age of human history: there will be extreme shortage of food, collapse of fiat currencies, digital currencies and financial products. The Hong Kong dollar wil...
@@ -18,15 +30,11 @@
 
 ---
 
-[@miles 5/13/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p19nsb18b3e.md)
+[@miles 5/14/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p19ookq8929.md)
 
-5/13/2022 Miles Guo: What does it mean when LUNA collapses overnight? When a bank run occurs, almost no financial institution in the world could survive. The only exception is Himalaya Exchange
+2022.05.13  晚 新中国联邦 | 新闻   新中国联邦人正在改变中国人的形象; 中共对世界的威胁远超俄罗斯普京
 
-
-
-5/13/2022文贵直播：LUNA闪崩意味着什么？全人类的金融机构...
-
-<img src="https://media.gettr.com/group7/getter/2022/05/13/23/07162a8e-ce4c-d927-2ad4-866712413266/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/05/14/00/d03c674b-c532-c8c1-e125-a3201fbc02c3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ NFSC frontline volunteer interviewed three people who came from Spain and Peru t
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group22/origin/2022/05/13/05/8f130e23-8550-b2a6-99c9-1d9694926417/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p19k6dw69e5.md)
-
-2022-5-12《鸡血王喜币大作战》 第一百九十三集 嘉宾：无双柳薇薇、Tex
-
-<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
