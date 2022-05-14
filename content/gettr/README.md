@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p19r1q23049.md)
+
+2022.05.14  新中国联邦 | 喜健康    马丽娅战友专访
+
+<img src="https://media.gettr.com/group7/origin/2022/05/14/20/6fda23be-a7ce-ce45-5033-511a9a50e166/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p19qq2g9dfa.md)
 
 2022-5-14 《避风港》（47）保险公司预计今年疫苗伤亡增加50倍
@@ -18,11 +26,13 @@
 
 ---
 
-[@miles 5/14/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p19r1q23049.md)
+[@miles 5/14/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19r349df8e.md)
 
-2022.05.14  新中国联邦 | 喜健康    马丽娅战友专访
+“你经历过绝望吗？” 飞飞秀救援快报  2022-05-14
 
-<img src="https://media.gettr.com/group7/origin/2022/05/14/20/6fda23be-a7ce-ce45-5033-511a9a50e166/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English: gettr.com/streaming/p19smvmcdf7
+
+<img src="https://media.gettr.com/group45/origin/2022/05/14/22/9eb50722-ba94-00e2-50f7-6d48cc3f2474/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ Day 69 - Date: M...
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group46/origin/2022/05/14/06/e1c43ed7-db08-da5e-b9b5-45f55a90b447/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p19pt31dc11.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group29/origin/2022/05/14/04/1e081a03-c190-073b-a274-a8dc39084e7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
