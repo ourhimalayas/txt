@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p19pt31dc11.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group29/origin/2022/05/14/04/1e081a03-c190-073b-a274-a8dc39084e7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 4:16 AM UTC  - :tv:直播](/content/gettr/p19oq0c7391.md)
 
 【Ukraine Rescue】05/12/2022 A French volunteer says that thanks to the help of the NFSC, the French rescue work in Medica has been carried out successfully and recognized by the French Ambassador to Poland. He is very grateful to th...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/14/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p19pt31dc11.md)
+[@miles 5/14/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p19q4qx727e.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group29/origin/2022/05/14/04/1e081a03-c190-073b-a274-a8dc39084e7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/05/14/06/e1c43ed7-db08-da5e-b9b5-45f55a90b447/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@
 2022.05.13  新中国联邦 | 喜健康    知死而生，向自杀说--不!
 
 <img src="https://media.gettr.com/group28/origin/2022/05/13/20/852df71d-0fda-9138-9ff5-902aa203a3c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@7upgogo 5/13/2022 6:44 AM UTC  - :tv:直播](/content/gettr/p19kumfaeb4.md)
-
-It is common to test everyone for the COVID-19 every day in some cities. It is common that quarantine policies in some cities confine all residents to their homes for weeks. Now the Chinese Communist Party government even tests the...
-
-<img src="https://media.gettr.com/group12/origin/2022/05/13/06/7407cdd6-c282-74f8-0bad-f2792f0694f7/out.jpg" width="506" height="284">
 
 ---
 
