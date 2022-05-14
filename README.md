@@ -11,11 +11,41 @@
 
 ---
 
+#### [樱花时政&#124;比利时议会通过谴责中国议案 要求欧盟制裁李家超](/content/gnews/2528007.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [美国总统5月13日签署法案将协助台湾重获观察员身分](/content/gnews/2527990.md)
+ `澳喜特战旅Gnews`
+
+#### [大直播后记：连线梅迪卡俄乌战争前线战友](/content/gnews/2527989.md)
+ `雅典娜GNotes`
+
+#### [宣言四：恢复科学完整性](/content/gnews/2527985.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [樱花时政┃独裁末路：简谈独裁者身体健康对政局的影响](/content/gnews/2527915.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [2022年5月14日战时快讯](/content/gnews/2527900.md)
+ `墨尔本雅典娜农场`
+
+#### [印度立即禁止出口小麦，全球小麦价格飙升](/content/gnews/2527895.md)
+ `秘密翻譯組G-Translators`
+
+#### [钢铁厂内地面战的情况公开 乌克兰军队抵抗到底](/content/gnews/2527884.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [5月13号七哥直播之人类完成了有史以来最大的去QE化](/content/gnews/2527871.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [塔利班统治下的阿富汗女性](/content/gnews/2527846.md)
+ `澳喜特战旅Gnews`
+
 #### [法德全面支持芬兰加入北约选择](/content/gnews/2527789.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [全球疫情疫苗数据更新](/content/gnews/2527773.md)
- `墨尔本雅典娜农场`
+#### [欧盟：应将没收俄资产用于重建乌克兰](/content/gnews/2527781.md)
+ `NFSC News`
 
 #### [秘翻在线：中共国交回了亚洲杯的主办权](/content/gnews/2527772.md)
  `秘密翻譯組G-Translators`
@@ -26,38 +56,23 @@
 #### [大直播后记：今年年底盘古相聚](/content/gnews/2527765.md)
  `雅典娜GNotes`
 
-#### [黄鼠狼给鸡拜年，中共驻日使领馆忙于拉关系套近乎](/content/gnews/2527760.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [大直播后记：喜币永远不是一个炒作的东西](/content/gnews/2527750.md)
- `雅典娜GNotes`
-
-#### [秘翻在线：法国表示G7将继续支援乌克兰到战争获胜为止](/content/gnews/2527749.md)
- `秘密翻譯組G-Translators`
-
-#### [樱花时政&#124;中共放弃举办2023年亚洲杯足球赛！](/content/gnews/2527740.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [大直播后记：无苗有币就是胜利](/content/gnews/2527739.md)
- `雅典娜GNotes`
-
-#### [秘翻在线：乌克兰称21万名儿童被强制送往俄罗斯](/content/gnews/2527738.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：俄罗斯职业足球队对UEFA禁赛措施不服向CAS提出上诉](/content/gnews/2527728.md)
- `秘密翻譯組G-Translators`
-
-#### [喜联储NFT2.0版在未来的应用](/content/gnews/2527717.md)
- `银河歌舞厅`
-
-#### [秘翻在线：俄罗斯强硬表示乌克兰不能加入北约和欧盟](/content/gnews/2527711.md)
- `秘密翻譯組G-Translators`
+#### [郭先生指出马斯克将面临四重灾难](/content/gnews/2527752.md)
+ `NFSC News`
 
 #### [G7国家支持向乌克兰提供更多援助以对抗俄罗斯](/content/gnews/2527706.md)
  `墨尔本雅典娜农场`
 
+#### [中共对世界的威胁远超俄罗斯普京](/content/gnews/2527696.md)
+ `NFSC News`
+
+#### [新中国联邦人正在改变中国人的形象](/content/gnews/2527682.md)
+ `NFSC News`
+
 #### [有声｜新西兰总理中共病毒检测呈阳性](/content/gnews/2527681.md)
  `秘密翻译组-即时新闻播报组`
+
+#### [新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2527656.md)
+ `NFSC News`
 
 #### [乌克兰和英国官员：俄军渡河遇袭 损失惨重](/content/gnews/2527651.md)
  `日本东京方舟农场`
@@ -65,20 +80,8 @@
 #### [汇丰聘请 Robey Warshaw 为平安解体压力提供建议](/content/gnews/2527646.md)
  `Shuizhuyu`
 
-#### [上海封城导致全球医学影像供应短缺](/content/gnews/2527642.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [2022/05/14 英喜时事速递](/content/gnews/2527630.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [台湾的中共病毒灾难因为太严格措施和高疫苗接种率](/content/gnews/2527629.md)
- `mayflowertranslate`
-
 #### [有声｜美俄国防部长开战后首次通话](/content/gnews/2527603.md)
  `秘密翻译组-即时新闻播报组`
-
-#### [欲出口来自乌克兰的偷盗粮食 地中海港口拒绝俄罗斯商船入港（下）](/content/gnews/2527574.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [谭德赛对中共清零政策的谴责已被全网封杀](/content/gnews/2527536.md)
  `GTV News Talk`
@@ -112,9 +115,6 @@
 
 #### [整个夏天，中共国港口的僵局将波及全球](/content/gnews/2527122.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [中共病毒康复者跟踪结果表明 两年后仍然持续受伤害](/content/gnews/2527102.md)
- `温哥华扬帆农场`
 
 #### [逃离中共国——冷门中转路线攻略](/content/gnews/2526997.md)
  `澳喜特战旅Gnews`
