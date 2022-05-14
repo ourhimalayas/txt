@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/14/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p19qryuaecb.md)
+
+2022.05.14 AM NFSC news  German Foreign Minister Visits Ukraine and expresses tough stance on Russia
+
+<img src="https://media.gettr.com/group33/origin/2022/05/14/11/9fdd980a-7b47-b8ca-f954-bc5e68b9f14c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 8:17 AM UTC  - :tv:直播](/content/gettr/p19psn08633.md)
 
 2022.05.13 文贵大直播（精华版）
@@ -66,11 +74,11 @@ Day 69 - Date: M...
 
 ---
 
-[@miles 5/14/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p19qryuaecb.md)
+[@miles 5/14/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p19qg5wb9ba.md)
 
-2022.05.14 AM NFSC news  German Foreign Minister Visits Ukraine and expresses tough stance on Russia
+2022.05.14  早 新中国联邦 | 新闻   国际志愿者支持新中国联邦灭共行动；真正的优秀者将带领人类走向下一个巅峰
 
-<img src="https://media.gettr.com/group33/origin/2022/05/14/11/9fdd980a-7b47-b8ca-f954-bc5e68b9f14c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/05/14/12/40856798-abcd-9111-ead7-545bcb5c1f85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Day 69 - Date: M...
 5/13/2022 Mile Guo: The COVID vaccine disasters will lead to the darkest age of human history: there will be extreme shortage of food, collapse of fiat currencies, digital currencies and financial products. The Hong Kong dollar wil...
 
 <img src="https://media.gettr.com/group32/getter/2022/05/13/22/7a373fa1-5dba-86b3-3965-a021b54f05f2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p19o6x61cae.md)
-
-5/13/2022 Miles Guo: The first and most important reason for the "triple falls" in the stock market, bond market, and digital currencies are the Russia-Ukraine war and the Chinese Communist Party; when the CCP knew that the US woul...
-
-<img src="https://media.gettr.com/group32/getter/2022/05/13/22/81c4622f-cf82-4b40-bdcb-6e8fc70beba6/out.jpg" width="506" height="284">
 
 ---
 
