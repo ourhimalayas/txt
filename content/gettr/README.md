@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/14/2022 4:16 AM UTC  - :tv:直播](/content/gettr/p19oq0c7391.md)
+
+【Ukraine Rescue】05/12/2022 A French volunteer says that thanks to the help of the NFSC, the French rescue work in Medica has been carried out successfully and recognized by the French Ambassador to Poland. He is very grateful to th...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/14/04/a28c1dfc-5cf8-8233-47f5-c856c48e6959/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 4:06 AM UTC  - :tv:直播](/content/gettr/p19ouuz1816.md)
+
+5/13/2022 Miles Guo: If Xi Jinping stays in power after the 20th Party Congress, he will continue messing up China and will end up being buried. If Xi does not stay in power after the 20th Party Congress, Communist China will enter...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/14/04/0e837c9a-95a1-4946-fb0a-07d5ea591e27/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p19ovgne014.md)
 
 2022-5-13《鸡血王喜币大作战》 第一百九十四集 嘉宾：青藤、文空、风雨之中
@@ -32,11 +48,11 @@
 
 ---
 
-[@miles 5/14/2022 4:06 AM UTC  - :tv:直播](/content/gettr/p19ouuz1816.md)
+[@miles 5/14/2022 4:25 AM UTC  - :tv:直播](/content/gettr/p19olm95902.md)
 
-5/13/2022 Miles Guo: If Xi Jinping stays in power after the 20th Party Congress, he will continue messing up China and will end up being buried. If Xi does not stay in power after the 20th Party Congress, Communist China will enter...
+5/13/2022 Miles Guo: We cannot expect all governments to admit the COVID vaccine disaster anytime soon as they are concerned about being asked to compensate the vaccine injuries. In addition, after admitting the truth of the vaccin...
 
-<img src="https://media.gettr.com/group50/getter/2022/05/14/04/0e837c9a-95a1-4946-fb0a-07d5ea591e27/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/05/14/04/2afaa927-c585-55d6-8a5f-8407190af8da/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,28 +167,6 @@ It is common to test everyone for the COVID-19 every day in some cities. It is c
 2022.05.13 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group26/origin/2022/05/13/17/142ac4e8-68fc-845e-008e-bf92cfba6935/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/13/2022 4:20 PM UTC ](/content/gettr/p19mktw2946.md)
-
-05/13/2022 on the 25th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
-
-No.1🥇 on Germany🇩🇪 Top MV Chart for 25 Consecutive Days
-
-No.1🥇 on Germany🇩🇪 Pop MV Chart for 25 Consecutive Days
-
-
-
-“The Terminator ...
-
----
-
-[@miles 5/13/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p19lgl5ca9e.md)
-
-尊敬的战友们好，分享海鲜海手指。
-
-<img src="https://media.gettr.com/group34/getter/2022/05/13/14/7025c84d-75ac-18e8-441c-b6a33972253c/out.jpg" width="506" height="284">
 
 ---
 
