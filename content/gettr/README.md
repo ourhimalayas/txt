@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/14/2022 1:02 PM UTC  - 6圖](/content/gettr/p19qs85f686.md)
+
+5月14号：一个14亿人民的国家．公然这样的撒谎，而且成为了治国之策，真的是全国人民的悲哀。【海外大批科学家逃亡中国🤣🤣🥲🥲🥲评论又翻车了】
+
+<img src="https://media.gettr.com/group26/getter/2022/05/14/13/d2c3dacf-e06d-b672-af51-204f5232fd1c/61018d0b16bdddba6ad22ae6655f5db8.jpg" width="506" height="284">
+
+---
+
+[@haotiantian 5/13/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p19nby1adac.md)
+
+六四倒计时啦🤩
+
+<img src="https://media.gettr.com/group47/gvision/2022/05/13/20/d8dd6a50-f62e-b21a-0fa0-040f34b72bf6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p19qg5wb9ba.md)
 
 2022.05.14  早 新中国联邦 | 新闻   国际志愿者支持新中国联邦灭共行动；真正的优秀者将带领人类走向下一个巅峰
@@ -82,11 +98,11 @@ Day 69 - Date: M...
 
 ---
 
-[@haotiantian 5/13/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p19nby1adac.md)
+[@miles 5/14/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p19qn4w53e6.md)
 
-六四倒计时啦🤩
+2022.05.14 早  新中国联邦 | 新闻访谈   
 
-<img src="https://media.gettr.com/group47/gvision/2022/05/13/20/d8dd6a50-f62e-b21a-0fa0-040f34b72bf6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/05/14/13/2f06abe6-9d1c-4dd6-26a5-d0d1091235ee/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -175,22 +191,6 @@ Day 69 - Date: M...
 5/13/2022文贵直播：LUNA闪崩意味着什么？全人类的金融机构...
 
 <img src="https://media.gettr.com/group7/getter/2022/05/13/23/07162a8e-ce4c-d927-2ad4-866712413266/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p19o78raca5.md)
-
-5/13/2022 Mile Guo: The COVID vaccine disasters will lead to the darkest age of human history: there will be extreme shortage of food, collapse of fiat currencies, digital currencies and financial products. The Hong Kong dollar wil...
-
-<img src="https://media.gettr.com/group32/getter/2022/05/13/22/7a373fa1-5dba-86b3-3965-a021b54f05f2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/13/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p19nw8m806d.md)
-
-5/13/2022 Miles Guo: Who is the biggest winner and behind-the-scenes manipulator of the global economic and financial collapse? The CCP has single-handedly created this unprecedented economic and financial war in human history, and...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/13/22/ab4e030a-1289-e2a5-1ef3-47b420ed509b/out.jpg" width="506" height="284">
 
 ---
 
