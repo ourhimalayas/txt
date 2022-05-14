@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/14/2022 2:50 PM UTC ](/content/gettr/p19qk7t3eed.md)
+
+5月13号：【This foreigner is too talented to write such a Chinese couplet.  Grasp the current situation in China...so accurately...】
+
+<img src="https://media.gettr.com/group4/getter/2022/05/14/14/4b324659-4511-ab91-0e96-8165282cfe73/ccc35ab1937ed01b374814391dfe51bd.jpg" width="506" height="284">
+
+---
+
+[@miles 5/14/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p19r6mh8c6a.md)
+
+ 5月13号：尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一起消灭邪恶的共产主义和中国共产党……
+
+<img src="https://media.gettr.com/group6/getter/2022/05/14/14/fe0798cc-2f11-e39a-8386-b006e7932d5b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 1:33 PM UTC  - :tv:直播](/content/gettr/p19qsup2a25.md)
 
  5月13号：这个视频里谈到的数据……没有包括最重要的即将发生的．疫苗灾难．和接下来的病毒政治．对世界经济的大通杀，通胀在这一切即将发生的疫苗灾难面前．根本已经不重要了‼️我们走着瞧……
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 5/14/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p19r6mh8c6a.md)
+[@miles 5/14/2022 2:55 PM UTC ](/content/gettr/p19qe9nd904.md)
 
- 5月13号：尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一起消灭邪恶的共产主义和中国共产党……
+5月13号：七哥，您看，订阅量从2020年8月以后几乎就是一条横线，没有任何波动了数据好像停止在那里了Brother Seven, you see, the subscription volume has almost been a horizontal line since August 2020, and there is no fluctuation. The data seems to stop there.【Brother Seven, you s...
 
-<img src="https://media.gettr.com/group6/getter/2022/05/14/14/fe0798cc-2f11-e39a-8386-b006e7932d5b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/05/14/14/47a14295-4cbe-d3ed-08ce-e35f014ff1eb/cf4d6b9603d6f3242fae9e9c252dccc0.jpg" width="506" height="284">
 
 ---
 
@@ -173,20 +189,6 @@ Day 69 - Date: M...
 5/13/2022 Miles Guo:  All the government having contacted me are considering revoking the COVID vaccine mandates. They are worried about being taken to court by the vaccine victims, but ending the mandates is an irreversible trend ...
 
 <img src="https://media.gettr.com/group20/getter/2022/05/14/01/46717afa-292c-1cfa-d3d5-cd25fbb9bbed/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p19nt8e2baf.md)
-
-2022.05.13 晚 新中国联邦 | 新闻访谈      芬兰总统和总理发布联合生命毫不犹豫申请加入北约
-
-<img src="https://media.gettr.com/group16/origin/2022/05/14/01/c1641d7a-7afd-dcb7-80dc-ab9ecc9ad8e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/14/2022 1:05 AM UTC ](/content/gettr/p19owwfd1a6.md)
-
- 5月13号：但愿有更多的人．能更早的醒悟过来，一切都已经开始！
 
 ---
 
