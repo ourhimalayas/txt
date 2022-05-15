@@ -2,6 +2,39 @@
 ---
 
 
+#### [视频&#124;西藏歌手才旺罗布父亲被中共破害致死](/content/gnews/2531803.md)
+ `MOSVIDEO`
+
+#### [白俄罗斯政治活动家Mikalai Maslousk采访妮可，以了解新中国联邦如何帮助乌克兰人以及对推翻独裁政权的看法](/content/gnews/2531801.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [G7：绝不承认俄罗斯通过武力改变的国界](/content/gnews/2531788.md)
+ `日本东京方舟农场`
+
+#### [【乌克兰救援】英国自由媒体人阿兰采访了新中国联邦义工妮可](/content/gnews/2531776.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [2022年5月13日郭先生盖特 — 视频1「9分30秒」](/content/gnews/2531767.md)
+ `喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+#### [要求求职者接种Covid-19疫苗的雇主正在减少](/content/gnews/2531757.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [美国需要将其战略和关键部门的经济与中国经济脱钩](/content/gnews/2531746.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [马斯克想收购推特等于把推特给灭了](/content/gnews/2531741.md)
+ `墨尔本雅典娜农场`
+
+#### [加州男子扰乱 &#8220;制止亚裔仇恨 &#8220;集会被逮捕](/content/gnews/2531740.md)
+ `日本东京方舟农场`
+
+#### [AB1797法案是最新的重拳出击的鬼蜮伎俩，它建立了一个追踪新冠疫苗接种情况的数据库](/content/gnews/2531731.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [视频&#124;马斯克暂缓收购推特 SEC也介入调查](/content/gnews/2531728.md)
+ `MOSVIDEO`
+
 #### [印度禁止小麦出口](/content/gnews/2531679.md)
  `澳喜农场`
 
@@ -11,23 +44,11 @@
 #### [澳大利亚本周在新冠疫情方面冠绝全球](/content/gnews/2531652.md)
  `澳喜农场`
 
-#### [视频&#124;俄乌战争开启最好的全球灭共格局](/content/gnews/2531634.md)
- `MOSVIDEO`
-
 #### [德国宣布持有数字货币一年后卖出将免税](/content/gnews/2531631.md)
  `澳喜农场`
 
 #### [市值前五300亿美元Luna“归零”，喜交所是唯一挤兑不垮的](/content/gnews/2531592.md)
  `新加坡狮城农场 Himalaya Singapore`
-
-#### [视频&#124;郭先生揭露社交媒体篡改数据的真相](/content/gnews/2531581.md)
- `MOSVIDEO`
-
-#### [乌克兰kalush乐团凭借单曲《Stefania》赢得今年欧视歌唱大赛冠军](/content/gnews/2531574.md)
- `澳喜农场`
-
-#### [视频&#124;真正的优秀者将带领人类走向下一个巅峰](/content/gnews/2531566.md)
- `MOSVIDEO`
 
 #### [专家称中共每年从集中营受害者身上摘取器官超过15万个](/content/gnews/2531547.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -35,28 +56,13 @@
 #### [因covid-19疫苗引發的對信仰的重新思考](/content/gnews/2531546.md)
  `喜马拉雅农场新西兰站`
 
-#### [视频&#124;国际志愿者支持新中国联邦灭共行动](/content/gnews/2531534.md)
- `MOSVIDEO`
-
 #### [全世界著名医生和科学家对COVID-19公共卫生政策大反攻的号角已经吹响](/content/gnews/2531513.md)
  `喜马拉雅农场新西兰站`
 
 #### [俄乌战争引发全球粮食危机、中共国大饥荒时代到来](/content/gnews/2531463.md)
  `经济小组`
 
-#### [中共国成立地方执法民兵组织以加强“维稳”](/content/gnews/2531406.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [回到1984](/content/gnews/2531361.md)
- `SpicyWorld`
-
 #### [马斯克将遇到4个灾难](/content/gnews/2531359.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [2022年2月26日郭文贵先生EDU教育特别专场 节选整理](/content/gnews/2531297.md)
- `新加坡狮城农场 Himalaya Singapore`
-
-#### [97年七哥已经进入到中共的核心](/content/gnews/2531272.md)
  `喜马拉雅-华盛顿DC农场`
 
 #### [独家：普京的36岁继承人浮出水面](/content/gnews/2531257.md)
@@ -87,9 +93,6 @@
  `喜马拉雅-华盛顿DC农场`
 
 #### [2022年5月15日《樱花简报》：日美将加强太空合作对抗中俄威胁](/content/gnews/2530971.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃G7农业部长会议“粮食安全受到严重影响”](/content/gnews/2530949.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [俄罗斯的“战争罪行”、联合国等的追究行动 乌克兰仍在受到攻击（d）](/content/gnews/2530912.md)
@@ -154,9 +157,6 @@
 
 #### [众议员吉姆·班克斯提出法案，将要求所有签证申请人披露与中共的关系](/content/gnews/2524716.md)
  `美国政要直译推`
-
-#### [樱花时政┃泽连斯基：马克龙不应为俄罗斯寻找出路](/content/gnews/2524685.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
