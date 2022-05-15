@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/15/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p19vx7yf0cc.md)
+
+15/05/2022 The real picture of the Chinese Communist Party's rule by falsehoods: fake trees are planted on both sides of the street, and the quotation is expensive. It seems some corrupt officials can enrich themselves again as a r...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/15/15/067d0290-b5c0-0601-ce52-72645a50097f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/15/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p19v9f8561f.md)
+
+【Ukraine Rescue】05/14/2022 The volunteer from Israel is very interested in the slogan on our vest to exterminate the Communist Party. She says that China is a great country and has made great contributions to mankind, but the CCP r...
+
+<img src="https://media.gettr.com/group33/getter/2022/05/15/14/45f59af3-bcf0-d36a-b90a-930487182a09/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 1:51 PM UTC ](/content/gettr/p19v7hy3a7f.md)
 
 05/15/2022 on the 27th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
@@ -85,14 +101,6 @@ Day 70 - Date: M...
 2022/05/15  新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group50/origin/2022/05/15/06/9e809d20-eac7-7647-b649-799b66f6684e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p19v9f8561f.md)
-
-【Ukraine Rescue】05/14/2022 The volunteer from Israel is very interested in the slogan on our vest to exterminate the Communist Party. She says that China is a great country and has made great contributions to mankind, but the CCP r...
-
-<img src="https://media.gettr.com/group33/getter/2022/05/15/14/45f59af3-bcf0-d36a-b90a-930487182a09/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Alan from the British independent media interviewed Nicole, a volunteer of the N
 Nicole was interviewed by Belarusian political activist Mikalai Maslouski, with Alex helping with the translation. Mikalai was an assistant to Sviatlana Tsikhanouskaya, who was a presidential candidate in the 2020 Belarusian electi...
 
 <img src="https://media.gettr.com/group29/origin/2022/05/14/23/b6e6cc8e-99f2-9cc2-9e43-b64accc9faa0/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19siy61207.md)
-
-5/14/2022 Miles Guo’s GETTR: How will fashion be different after the collapse of the world economy? Western countries are divided over the issues of Russia and Ukraine and the reconstruction of Ukraine. By inflicting the collapse o...
-
-<img src="https://media.gettr.com/group25/getter/2022/05/14/22/132d37a0-1a3a-761e-b7d2-b0da8768d4c8/out.jpg" width="506" height="284">
 
 ---
 
