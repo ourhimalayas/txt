@@ -11,23 +11,23 @@
 
 ---
 
-#### [七哥回答文智战友问题（四）](/content/gnews/2531058.md)
+#### [天道酬勤地道酬人（二）](/content/gnews/2531083.md)
  `雅典娜GNotes`
 
-#### [七哥回答文智战友问题（三）](/content/gnews/2531050.md)
+#### [天道酬勤地道酬人（一）](/content/gnews/2531082.md)
  `雅典娜GNotes`
 
-#### [七哥回答文智战友问题（二）](/content/gnews/2531044.md)
+#### [新中国联邦最重要的是什么（五）](/content/gnews/2531081.md)
+ `雅典娜GNotes`
+
+#### [新中国联邦最重要的是什么（四）](/content/gnews/2531077.md)
+ `雅典娜GNotes`
+
+#### [新中国联邦最重要的是什么（三）](/content/gnews/2531076.md)
  `雅典娜GNotes`
 
 #### [郭文贵先生2022年5月13日盖特视频（9分30秒）全文字版](/content/gnews/2531015.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [七哥回答文智战友问题（一）](/content/gnews/2531014.md)
- `雅典娜GNotes`
-
-#### [斯坦福大学研发出可在夜间发电的太阳能电池板](/content/gnews/2530981.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [【G时新闻】特鲁多以纳税人资金捐助世界经济论坛](/content/gnews/2530931.md)
  `G-时新闻`
