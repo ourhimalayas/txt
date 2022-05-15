@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 5:41 PM UTC  - :tv:直播](/content/gettr/p19wdwr0d8e.md)
+
+2022年5月15日  俄乌战争战况播报
+
+<img src="https://media.gettr.com/group47/origin/2022/05/15/17/44bb426d-30bd-c47a-2a58-efe536ae994d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 4:43 PM UTC ](/content/gettr/p19vv8me319.md)
 
 5月15号：这都是乱球扯……【使用@CNASdc进入我们的独家战争游戏——
@@ -58,11 +66,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/15/2022 5:41 PM UTC  - :tv:直播](/content/gettr/p19wdwr0d8e.md)
+[@miles 5/15/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p19wi008a62.md)
 
-2022年5月15日  俄乌战争战况播报
+2022-5-15 ，「创新💡，来自跌倒的力量🎢」？#小小尼莫音乐会 🎼第十一期，不确定和犯错才是常态，美好发生在偶然之间，不畏跌倒，勇敢站立，一起拥抱新世界🌼
 
-<img src="https://media.gettr.com/group47/origin/2022/05/15/17/44bb426d-30bd-c47a-2a58-efe536ae994d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/05/15/18/51621603-acdd-85e7-516b-133949e45266/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ Alan from the British independent media interviewed Nicole, a volunteer of the N
 2022.05.14  新中国联邦 | 喜财经    数字货币市场最新重要信息 喜币和躺平币的时代即将到来
 
 <img src="https://media.gettr.com/group29/origin/2022/05/15/01/58e67835-2bab-50d2-663b-2476ad77e226/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/15/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p19spwrcdaa.md)
-
-2022.05.14  晚 新中国联邦 | 新闻访谈     美议员推《共产党签证透明度法案》； 郭先生爆料与金融战； 中共疫苗异常反应鉴定费3500元
-
-<img src="https://media.gettr.com/group37/origin/2022/05/15/01/b8c776d2-3471-08b8-133f-a7707e599eb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
