@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 5/15/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p19ul62a64b.md)
-
-2022/05/15  新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group50/origin/2022/05/15/06/9e809d20-eac7-7647-b649-799b66f6684e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/15/2022 7:47 AM UTC ](/content/gettr/p19u7fk8bab.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -39,6 +31,22 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 70 - Date: M...
 
 <img src="https://media.gettr.com/group45/getter/2022/05/15/07/3c9767cb-cc5c-ac76-85d0-a38bb554b1ba/60fc4583bacbce0abbd774bf650cb722.jpg" width="506" height="284">
+
+---
+
+[@miles 5/15/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p19ul62a64b.md)
+
+2022/05/15  新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group50/origin/2022/05/15/06/9e809d20-eac7-7647-b649-799b66f6684e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/15/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p19vd8xa011.md)
+
+Nicole interviewed a young photographer from New York. He came to Medyka to document the volunteers and Ukrainian refugees to let more people better appreciate the unknown efforts of these ordinary people. Nicole invited him to par...
+
+<img src="https://media.gettr.com/group11/origin/2022/05/15/12/4b039020-714e-a3f3-d4cb-cc3b31419ff5/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ For English: gettr.com/streaming/p19smvmcdf7
 2022-5-14 《避风港》（47）保险公司预计今年疫苗伤亡增加50倍
 
 <img src="https://media.gettr.com/group15/origin/2022/05/10/18/a98d2da7-6f72-c023-9577-a2859b091423/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 5:40 PM UTC  - :tv:直播](/content/gettr/p19r33j38b6.md)
-
-2022.05.14 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group5/origin/2022/05/14/17/6e1f877c-24a5-bdd8-eb95-3a376cec7cba/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
