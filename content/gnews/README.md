@@ -2,6 +2,12 @@
 ---
 
 
+#### [截至5.15 俄乌战事汇总](/content/gnews/2535807.md)
+ `秘密翻譯組G-Translators`
+
+#### [加拿大成为第一个制定太空法律的国家](/content/gnews/2535742.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [乌克兰救援&#8211;温哥华团队历时50小时奔赴前线纪实](/content/gnews/2535715.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -22,12 +28,6 @@
 
 #### [马斯克收购推特让彼此双方都陷入窘境](/content/gnews/2535651.md)
  `NFSC News`
-
-#### [中共趁全球经济危机会随时攻打台湾](/content/gnews/2535641.md)
- `NFSC News`
-
-#### [意外长称意大利全力支持芬兰和瑞典加入北约](/content/gnews/2535637.md)
- `xiaobaige`
 
 #### [20220515郭文贵大直播 ：这次虚拟币大跌 就是中共控制的大基金对美国发动的金融超限作战](/content/gnews/2535593.md)
  `Tokyo Sakura Video Group`
