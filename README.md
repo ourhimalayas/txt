@@ -11,6 +11,33 @@
 
 ---
 
+#### [爆料革命不只是直播，事关中国人的追求、尊严和生活方式](/content/gnews/2535514.md)
+ `银河歌舞厅`
+
+#### [20220515郭文贵大直播 ：一把干掉了美国7万亿，全世界十几万亿，是共产党对美国发动的一场完美经济超限战](/content/gnews/2535491.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220515郭文贵大直播 ：世界金融灾难即将开始。数字货币灾难只是共产党3F方案的开胃小菜](/content/gnews/2535489.md)
+ `Tokyo Sakura Video Group`
+
+#### [68岁习近平身患脑瘤，传统医术恐回天乏力](/content/gnews/2535488.md)
+ `G-NEWS TAIWAN`
+
+#### [中共领导人习近平患有脑动脉瘤并希望接受传统医学治疗](/content/gnews/2535469.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [中国人对暴力防疫态度的转变](/content/gnews/2535444.md)
+ `银河歌舞厅`
+
+#### [共产党代言人在今时今日已集中到习近平一人身上](/content/gnews/2535410.md)
+ `银河歌舞厅`
+
+#### [20220515郭文贵大直播 ：即使没有中国共产党，美国内部和外部的挑战，迟早会引发经济危机](/content/gnews/2535405.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220515郭文贵大直播 ：游说文化是华盛顿永生的力量 是沼泽地的力量](/content/gnews/2535404.md)
+ `Tokyo Sakura Video Group`
+
 #### [2022.5.15大直播 直播数据体现爆料革命的真实力量](/content/gnews/2535400.md)
  `秘密翻译组-原创组`
 
@@ -29,35 +56,11 @@
 #### [20220515郭文贵大直播 ：平爆经费(2)](/content/gnews/2535346.md)
  `Tokyo Sakura Video Group`
 
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月15日早](/content/gnews/2535337.md)
- `纽约香草山MOS01`
-
 #### [韩国总统尹锡悦：首次韩美峰会旨在加强同盟关系，协商应对北朝鲜挑衅等内容](/content/gnews/2535309.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [20220515郭文贵大直播 ：卫星通信改变了价值存在的方式](/content/gnews/2535287.md)
- `Tokyo Sakura Video Group`
-
-#### [20220515郭文贵大直播 ：习近平认为中国老百姓就是家奴](/content/gnews/2535239.md)
- `Tokyo Sakura Video Group`
-
-#### [20220515-11平爆经费(1)](/content/gnews/2535229.md)
- `Tokyo Sakura Video Group`
-
 #### [乌克兰利沃夫地区遭导弹袭击](/content/gnews/2535219.md)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [北京封城日记 2022年5月11日](/content/gnews/2535190.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [北京封城日记 2022年5月10日](/content/gnews/2535183.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [20220515郭文贵大直播 ：爆料革命的真实数据在2017年已经达到50亿次，YouTube上无人做到](/content/gnews/2535169.md)
- `Tokyo Sakura Video Group`
-
-#### [20220515郭文贵大直播 ：为什么郭先生的YouTube的账号至今没有被关掉](/content/gnews/2535164.md)
- `Tokyo Sakura Video Group`
 
 #### [文贵大直播要点（2022年5月15日）](/content/gnews/2535138.md)
  `波士顿五月花农场`
@@ -65,14 +68,8 @@
 #### [IMF提高人民币在一篮子顶级货币中的权重](/content/gnews/2535124.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [乌克兰对俄罗斯的关键攻击线进行反攻](/content/gnews/2535082.md)
- `澳喜特战旅Gnews`
-
 #### [中共国科技工作者在封锁和损失中迎来裁员血洗](/content/gnews/2535081.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [20220515郭文贵大直播 ：习近平反腐立新寡头](/content/gnews/2535045.md)
- `Tokyo Sakura Video Group`
 
 #### [痛苦的上海封锁政策仍在持续](/content/gnews/2535039.md)
  `澳喜特战旅Gnews`
@@ -80,17 +77,26 @@
 #### [中国的动态清零恐怖秀正在激发台湾的开放热情](/content/gnews/2534999.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [三股力量促使媒体曝光习近平和普京的身体出现问题](/content/gnews/2534974.md)
- `thedawn`
+#### [喜币经过3～5年的成长期会成为最公平开放的货币](/content/gnews/2534975.md)
+ `NFSC News`
+
+#### [郭先生解析大科技公司利用第五修正案控制言论自由](/content/gnews/2534964.md)
+ `NFSC News`
+
+#### [疫苗灾难之后世界将发生巨大改变](/content/gnews/2534904.md)
+ `NFSC News`
 
 #### [【樱话】欲盖弥彰，第二届COVID-19峰会唯独不谈病毒的起源](/content/gnews/2534824.md)
  `TokyoSakuraDesignGroup`
 
+#### [世界各国不承认疫苗危机真相的原因](/content/gnews/2534788.md)
+ `NFSC News`
+
+#### [二十大，中共政权岌岌可危](/content/gnews/2534715.md)
+ `NFSC News`
+
 #### [秘翻在线：福奇资助的实验室主任向武汉病毒研究所通风报信](/content/gnews/2534434.md)
  `秘密翻譯組G-Translators`
-
-#### [【全文字幕】2021年12月22日 文贵大直播：外媒采访台前幕后；疫苗灾难典型案例；彭帅被迫澄清事实；大外宣媒体真面目](/content/gnews/2534432.md)
- `文贵视频字幕全集`
 
 #### [华尔街周报：大幅抛售后 市场触底的迹象让投资者望而却步](/content/gnews/2534025.md)
  `西班牙巴塞罗那喜悦农场`
@@ -100,9 +106,6 @@
 
 #### [5/15/2022国内经济财经周报：居民贷款大幅下滑；人民币跌破6.8关口](/content/gnews/2533898.md)
  `秘密翻译组金融团队`
-
-#### [2022年5月15日战时快讯](/content/gnews/2533897.md)
- `墨尔本雅典娜农场`
 
 #### [随着乌克兰的反攻，顿巴斯的前线转移](/content/gnews/2533831.md)
  `Shuizhuyu`
@@ -119,26 +122,11 @@
 #### [粮食危机推波助澜，全球第二生产国印度禁止小麦出口](/content/gnews/2533589.md)
  `墨尔本雅典娜农场`
 
-#### [【你的民生起诉你】](/content/gnews/2533422.md)
- `SpicyWorld`
-
-#### [樱花FM┃中共国又爆学术人渣，女学生告教授诱奸无门](/content/gnews/2533187.md)
- `樱花FM`
-
-#### [樱花FM┃广西桂林出现超170毫米降雨 湘江漓江将出现超警戒洪水](/content/gnews/2533183.md)
- `樱花FM`
-
-#### [中日财经爆┃上交所等66家机构倡议：不因短期涨跌过度交易](/content/gnews/2533123.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [爆料革命平民观察：马里乌波尔控制权是俄罗斯在俄乌战争的关键](/content/gnews/2532795.md)
  `澳喜农场`
 
 #### [错综复杂的所有权拖延了美对俄超级游艇的扣押](/content/gnews/2532599.md)
  `喜马拉雅农场新西兰站`
-
-#### [秘翻在线：英国《泰晤士报》报道称普京患有白血病](/content/gnews/2531976.md)
- `秘密翻譯組G-Translators`
 
 #### [2022年05月15日文贵大直播速记](/content/gnews/2531933.md)
  `Mr. Miles Guo's News Briefing`
@@ -146,14 +134,26 @@
 #### [加州男子扰乱 &#8220;制止亚裔仇恨 &#8220;集会被逮捕](/content/gnews/2531740.md)
  `日本东京方舟农场`
 
-#### [市值前五300亿美元Luna“归零”，喜交所是唯一挤兑不垮的](/content/gnews/2531592.md)
- `新加坡狮城农场 Himalaya Singapore`
-
 #### [参议员斯科特: 世卫组织曾充当中共的傀儡](/content/gnews/2530508.md)
  `美国政要直译推`
 
 #### [七国集团外长敦促中共国不要破坏国际制裁或为俄罗斯辩护](/content/gnews/2529929.md)
  `温哥华扬帆农场`
+
+#### [西藏歌手才旺罗布父亲被中共破害致死](/content/gnews/2529611.md)
+ `NFSC News`
+
+#### [香港金管局为维持联系汇率三次购买港元](/content/gnews/2529607.md)
+ `NFSC News`
+
+#### [严厉制裁下 俄无奈用洗碗机和冰箱的芯片制造武器](/content/gnews/2529606.md)
+ `NFSC News`
+
+#### [联合国称逃离乌克兰难民超过600万](/content/gnews/2529605.md)
+ `NFSC News`
+
+#### [法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2529601.md)
+ `NFSC News`
 
 #### [天人合一 舟山福州天象预示着共惨党灭亡习一神归西](/content/gnews/2529268.md)
  `温哥华扬帆农场`
