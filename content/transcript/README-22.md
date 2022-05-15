@@ -3,6 +3,8 @@
 
 ## 頁面 22/42 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年11月30日文贵直播](/content/transcript/2019/12/20191201-7479279258492241579.md)
+
 [文字版：2019年11月29日文贵谈龚小夏过往点滴](/content/transcript/2019/12/20191201-3479974122524096649.md)
 
 [文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/content/transcript/2019/11/20191129-6884019306620752974.md)
@@ -50,8 +52,6 @@
 [文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/content/transcript/2019/11/20191108-5173281267885078042.md)
 
 [文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/content/transcript/2019/11/20191107-407016786599015158.md)
-
-[文字版：2019年11月4日文贵报平安谈香港抗议活动将会发生什么](/content/transcript/2019/11/20191106-1023423131938564457.md)
 
 
 ## 頁面 22/42 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 24/42 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年9月29日郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/content/transcript/2019/10/20191010-834338873791119399.md)
+
 [文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/transcript/2019/10/20191009-2888489214062371964.md)
 
 [文字版：2019年10月01日晚上郭先生和班农先生连线各地战友，传播香港抗议现场，解读国际重大事件，揭露中共十一国庆真相！](/content/transcript/2019/10/20191007-4819247370019373728.md)
@@ -50,8 +52,6 @@
 [文字版：9月3號白宮前直播](/content/transcript/2019/09/20190904-4087259509718924066.md)
 
 [文字版：2019年9月3日郭先生第一次直播](/content/transcript/2019/09/20190904-8691813112681761342.md)
-
-[文字版：2019年9月2日郭文贵先生图桑报平安直播](/content/transcript/2019/09/20190904-5593137024471595991.md)
 
 
 ## 頁面 24/42 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)

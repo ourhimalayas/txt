@@ -3,6 +3,8 @@
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/content/transcript/2019/08/20190804-3048854052865103791.md)
+
 [文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/content/transcript/2019/08/20190802-6690690952476016345.md)
 
 [文字版：7月29日 共产党已经进入倒计时](/content/transcript/2019/07/20190730-277183401038624152.md)
@@ -50,8 +52,6 @@
 [文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/content/transcript/2019/07/20190702-6850390939330933218.md)
 
 [文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/content/transcript/2019/06/20190630-3604984578617941887.md)
-
-[文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/transcript/2019/06/20190627-3104653818463071254.md)
 
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
