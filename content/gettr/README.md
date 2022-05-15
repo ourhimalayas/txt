@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p19vx7yf0cc.md)
+
+15/05/2022 The real picture of the Chinese Communist Party's rule by falsehoods: fake trees are planted on both sides of the street, and the quotation is expensive. It seems some corrupt officials can enrich themselves again as a r...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/15/15/067d0290-b5c0-0601-ce52-72645a50097f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 2:52 PM UTC  - :tv:直播](/content/gettr/p19vjgq5226.md)
 
 15/05/2022 The Chinese Communist Party has once again staged a farce of outsiders directing insiders: the Ministry of Agriculture called off the harvest of silage wheat due to internet speculation, leaving a large amount of wheat t...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/15/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p19vx7yf0cc.md)
+[@miles 5/15/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p19vtayf440.md)
 
-15/05/2022 The real picture of the Chinese Communist Party's rule by falsehoods: fake trees are planted on both sides of the street, and the quotation is expensive. It seems some corrupt officials can enrich themselves again as a r...
+【Ukraine Rescue】05/08/2022 Larry, a volunteer from Ireland, not only strongly agrees with the NFSC's philosophy of eliminating the CCP, but after hearing the various persecutions Mr. Guo has suffered, he says with emotion: The pric...
 
-<img src="https://media.gettr.com/group35/getter/2022/05/15/15/067d0290-b5c0-0601-ce52-72645a50097f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/05/15/15/a73e78a5-f177-b863-bee8-bfb74af4cf18/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Alan from the British independent media interviewed Nicole, a volunteer of the N
 2022.05.14  PM NFSC news   Citizens of NFSC are changing the image of Chinese people
 
 <img src="https://media.gettr.com/group22/origin/2022/05/14/22/93aa44ad-078f-2aa2-c23d-1abaae5ab7a9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/14/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p19sn9o1504.md)
-
-Nicole was interviewed by Belarusian political activist Mikalai Maslouski, with Alex helping with the translation. Mikalai was an assistant to Sviatlana Tsikhanouskaya, who was a presidential candidate in the 2020 Belarusian electi...
-
-<img src="https://media.gettr.com/group29/origin/2022/05/14/23/b6e6cc8e-99f2-9cc2-9e43-b64accc9faa0/out.jpg" width="506" height="284">
 
 ---
 
