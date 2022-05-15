@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19xhhe6795.md)
+
+5/15/2022 Miles Guo: It is no coincidence that the media simultaneously exposed Xi and Putin have health issues. The Shanghai gang is no more, but there is an anti-Xi gang, which must ally with the US and me to take out Xi. Wang Qi...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/15/22/c55e0e6b-a85d-6286-f6e2-b367e1e32407/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p19wzyf473b.md)
 
 2022.05.15  新中国联邦 | 喜健康   贺建奎出狱了，艾滋受体编辑小孩怎么样了
@@ -82,11 +90,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/15/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19xhhe6795.md)
+[@miles 5/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p19x45c6344.md)
 
-5/15/2022 Miles Guo: It is no coincidence that the media simultaneously exposed Xi and Putin have health issues. The Shanghai gang is no more, but there is an anti-Xi gang, which must ally with the US and me to take out Xi. Wang Qi...
+2022.05.15  PM NFSC news   Top 5 Italian Luxury Brands want to Become the Manufacturers of GFashion
 
-<img src="https://media.gettr.com/group21/getter/2022/05/15/22/c55e0e6b-a85d-6286-f6e2-b367e1e32407/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/05/15/22/4ec9d4ad-d67b-5137-12f3-313e41c33693/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ Alan asks Nicole if any people in the leadership who are more liberal-minded try
 2022/05/15  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
 
 <img src="https://media.gettr.com/group20/origin/2022/05/15/04/b298f65e-6cd2-364a-dee2-7fe688e2ee1a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p19tnd0f417.md)
-
-Alan from the British independent media interviewed Nicole, a volunteer of the New Federal State of China who participated in humanitarian relief on the frontline of Russia and Ukraine. Nicole pointed out that the supporters behind...
-
-<img src="https://media.gettr.com/group5/origin/2022/05/15/03/5c4ef193-321b-c51d-f7ad-11398c049d91/out.jpg" width="506" height="284">
 
 ---
 
