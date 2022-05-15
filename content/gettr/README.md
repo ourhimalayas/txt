@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/15/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19t2aqe22a.md)
+
+2022.05.14  晚 新中国联邦 | 新闻   二十大，中共政权岌岌可危；世界各国不承认疫苗危机真相的原因
+
+<img src="https://media.gettr.com/group43/origin/2022/05/15/00/ce18497f-c037-25e9-be09-8ef047201dc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p19stg140d4.md)
 
 2022.05.14  PM NFSC news   Citizens of NFSC are changing the image of Chinese people
@@ -167,14 +175,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
 2022.05.14 早  新中国联邦 | 新闻访谈   
 
 <img src="https://media.gettr.com/group28/origin/2022/05/14/13/2f06abe6-9d1c-4dd6-26a5-d0d1091235ee/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@haotiantian 5/13/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p19nby1adac.md)
-
-六四倒计时啦🤩
-
-<img src="https://media.gettr.com/group47/gvision/2022/05/13/20/d8dd6a50-f62e-b21a-0fa0-040f34b72bf6/out.jpg" width="506" height="284">
 
 ---
 
