@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 5/15/2022 2:52 PM UTC  - :tv:直播](/content/gettr/p19vjgq5226.md)
+
+15/05/2022 The Chinese Communist Party has once again staged a farce of outsiders directing insiders: the Ministry of Agriculture called off the harvest of silage wheat due to internet speculation, leaving a large amount of wheat t...
+
+<img src="https://media.gettr.com/group26/getter/2022/05/15/14/583b32d3-6534-8e55-cde3-65d920ecf26d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/15/2022 1:51 PM UTC ](/content/gettr/p19v7hy3a7f.md)
+
+05/15/2022 on the 27th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+
+No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 27 Consecutive Days
+
+No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 27 Consecutive Days...
+
+---
+
 [@miles 5/15/2022 12:46 PM UTC  - 6圖](/content/gettr/p19v5ba1d70.md)
 
 5月15日 这就是中国社会的真实现状，惨不忍睹，丧失人权. 人道，这种天理不容的畜奴的社会！🔥🔥🔥
@@ -70,13 +88,11 @@ Day 70 - Date: M...
 
 ---
 
-[@miles 5/15/2022 1:51 PM UTC ](/content/gettr/p19v7hy3a7f.md)
+[@miles 5/15/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p19v9f8561f.md)
 
-05/15/2022 on the 27th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+【Ukraine Rescue】05/14/2022 The volunteer from Israel is very interested in the slogan on our vest to exterminate the Communist Party. She says that China is a great country and has made great contributions to mankind, but the CCP r...
 
-No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 27 Consecutive Days
-
-No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 27 Consecutive Days...
+<img src="https://media.gettr.com/group33/getter/2022/05/15/14/45f59af3-bcf0-d36a-b90a-930487182a09/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,29 +184,11 @@ Nicole was interviewed by Belarusian political activist Mikalai Maslouski, with 
 
 ---
 
-[@miles 5/14/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p19s9p2a64b.md)
-
-5/14/2022 Miles Guo’s GETTR: At least $7 trillion has recently vanished in the US financial markets. People should not be too greedy and must have the fundamental capabilities to tell true from false and to discern good from evil. ...
-
-<img src="https://media.gettr.com/group29/getter/2022/05/14/22/094110c2-2057-3cd1-c739-4aea0d8c3418/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/14/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19siy61207.md)
 
 5/14/2022 Miles Guo’s GETTR: How will fashion be different after the collapse of the world economy? Western countries are divided over the issues of Russia and Ukraine and the reconstruction of Ukraine. By inflicting the collapse o...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/14/22/132d37a0-1a3a-761e-b7d2-b0da8768d4c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p19r349df8e.md)
-
-“你经历过绝望吗？” 飞飞秀救援快报  2022-05-14
-
-For English: gettr.com/streaming/p19smvmcdf7
-
-<img src="https://media.gettr.com/group45/origin/2022/05/14/22/9eb50722-ba94-00e2-50f7-6d48cc3f2474/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
