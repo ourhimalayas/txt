@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p19x45c6344.md)
+
+2022.05.15  PM NFSC news   Top 5 Italian Luxury Brands want to Become the Manufacturers of GFashion
+
+<img src="https://media.gettr.com/group31/origin/2022/05/15/22/4ec9d4ad-d67b-5137-12f3-313e41c33693/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19xhhe6795.md)
 
 5/15/2022 Miles Guo: It is no coincidence that the media simultaneously exposed Xi and Putin have health issues. The Shanghai gang is no more, but there is an anti-Xi gang, which must ally with the US and me to take out Xi. Wang Qi...
@@ -90,11 +98,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p19x45c6344.md)
+[@miles 5/15/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p19x5bu5c7f.md)
 
-2022.05.15  PM NFSC news   Top 5 Italian Luxury Brands want to Become the Manufacturers of GFashion
+5/15/2022 Miles Guo: The worse Xi's health is, the faster and more ruthless he will attack Taiwan and the crueler he will treat the Chinese. Xi finds Putin a man of words and believes that Communist China belongs to his family. Xi'...
 
-<img src="https://media.gettr.com/group31/origin/2022/05/15/22/4ec9d4ad-d67b-5137-12f3-313e41c33693/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/05/15/23/530c9b7d-ce47-f89e-fbfc-98d7c1f58fa5/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ Day 70 - Date: M...
 Alan asks Nicole if any people in the leadership who are more liberal-minded try to use a peaceful transition to overthrow the CCP. Nicole replies that this is exactly what NFSC wants and working towards. We want the revolution to ...
 
 <img src="https://media.gettr.com/group9/origin/2022/05/15/05/b7f709f1-9067-f367-c07c-b0fa6b968b16/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ug7kc8b2.md)
-
-2022/05/15  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
-
-<img src="https://media.gettr.com/group20/origin/2022/05/15/04/b298f65e-6cd2-364a-dee2-7fe688e2ee1a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
