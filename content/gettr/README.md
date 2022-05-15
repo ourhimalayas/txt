@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p19tnd0f417.md)
+
+Alan from the British independent media interviewed Nicole, a volunteer of the New Federal State of China who participated in humanitarian relief on the frontline of Russia and Ukraine. Nicole pointed out that the supporters behind...
+
+<img src="https://media.gettr.com/group5/origin/2022/05/15/03/5c4ef193-321b-c51d-f7ad-11398c049d91/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19tmfm65f2.md)
 
 2022-5-14《鸡血王喜币大作战》 第一百九十五集 嘉宾：青藤、Eric
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 5/15/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p19tnd0f417.md)
+[@miles 5/15/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ug7kc8b2.md)
 
-Alan from the British independent media interviewed Nicole, a volunteer of the New Federal State of China who participated in humanitarian relief on the frontline of Russia and Ukraine. Nicole pointed out that the supporters behind...
+2022/05/15  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
 
-<img src="https://media.gettr.com/group5/origin/2022/05/15/03/5c4ef193-321b-c51d-f7ad-11398c049d91/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/05/15/04/b298f65e-6cd2-364a-dee2-7fe688e2ee1a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
 新中国联邦｜真人真事 第53期  香草山农场  正义的小新
 
 <img src="https://media.gettr.com/group12/origin/2022/05/14/14/a8e1567f-d445-e6bd-b3ae-58a79ad61b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 2:50 PM UTC ](/content/gettr/p19qk7t3eed.md)
-
-5月13号：【This foreigner is too talented to write such a Chinese couplet.  Grasp the current situation in China...so accurately...】
-
-<img src="https://media.gettr.com/group4/getter/2022/05/14/14/4b324659-4511-ab91-0e96-8165282cfe73/ccc35ab1937ed01b374814391dfe51bd.jpg" width="506" height="284">
 
 ---
 
