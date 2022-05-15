@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p19t53acb82.md)
+
+2022.05.14  新中国联邦 | 喜财经    数字货币市场最新重要信息 喜币和躺平币的时代即将到来
+
+<img src="https://media.gettr.com/group29/origin/2022/05/15/01/58e67835-2bab-50d2-663b-2476ad77e226/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p19spwrcdaa.md)
 
 2022.05.14  晚 新中国联邦 | 新闻访谈     美议员推《共产党签证透明度法案》； 郭先生爆料与金融战； 中共疫苗异常反应鉴定费3500元
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/15/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p19t53acb82.md)
+[@miles 5/15/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19tmfm65f2.md)
 
-2022.05.14  新中国联邦 | 喜财经    数字货币市场最新重要信息 喜币和躺平币的时代即将到来
+2022-5-14《鸡血王喜币大作战》 第一百九十五集 嘉宾：青藤、Eric
 
-<img src="https://media.gettr.com/group29/origin/2022/05/15/01/58e67835-2bab-50d2-663b-2476ad77e226/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
  5月13号：尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一起消灭邪恶的共产主义和中国共产党……
 
 <img src="https://media.gettr.com/group6/getter/2022/05/14/14/fe0798cc-2f11-e39a-8386-b006e7932d5b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 1:33 PM UTC  - :tv:直播](/content/gettr/p19qsup2a25.md)
-
- 5月13号：这个视频里谈到的数据……没有包括最重要的即将发生的．疫苗灾难．和接下来的病毒政治．对世界经济的大通杀，通胀在这一切即将发生的疫苗灾难面前．根本已经不重要了‼️我们走着瞧……
-
-<img src="https://media.gettr.com/group12/getter/2022/05/14/13/7eef8627-6d3f-f5cb-d904-17becd19a43a/out.jpg" width="506" height="284">
 
 ---
 
