@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p19wzyf473b.md)
+
+2022.05.15  新中国联邦 | 喜健康   贺建奎出狱了，艾滋受体编辑小孩怎么样了
+
+<img src="https://media.gettr.com/group45/origin/2022/04/20/20/a6469969-4406-4ccc-bb57-97a4052eed26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p19wi008a62.md)
 
 2022-5-15 ，「创新💡，来自跌倒的力量🎢」？#小小尼莫音乐会 🎼第十一期，不确定和犯错才是常态，美好发生在偶然之间，不畏跌倒，勇敢站立，一起拥抱新世界🌼
@@ -74,11 +82,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/15/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p19wzyf473b.md)
+[@miles 5/15/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19xhhe6795.md)
 
-2022.05.15  新中国联邦 | 喜健康   贺建奎出狱了，艾滋受体编辑小孩怎么样了
+5/15/2022 Miles Guo: It is no coincidence that the media simultaneously exposed Xi and Putin have health issues. The Shanghai gang is no more, but there is an anti-Xi gang, which must ally with the US and me to take out Xi. Wang Qi...
 
-<img src="https://media.gettr.com/group45/origin/2022/04/20/20/a6469969-4406-4ccc-bb57-97a4052eed26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/05/15/22/c55e0e6b-a85d-6286-f6e2-b367e1e32407/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ Alan asks Nicole if any people in the leadership who are more liberal-minded try
 Alan from the British independent media interviewed Nicole, a volunteer of the New Federal State of China who participated in humanitarian relief on the frontline of Russia and Ukraine. Nicole pointed out that the supporters behind...
 
 <img src="https://media.gettr.com/group5/origin/2022/05/15/03/5c4ef193-321b-c51d-f7ad-11398c049d91/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19tmfm65f2.md)
-
-2022-5-14《鸡血王喜币大作战》 第一百九十五集 嘉宾：青藤、Eric
-
-<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
