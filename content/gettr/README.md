@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ug7kc8b2.md)
+
+2022/05/15  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
+
+<img src="https://media.gettr.com/group20/origin/2022/05/15/04/b298f65e-6cd2-364a-dee2-7fe688e2ee1a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p19tnd0f417.md)
 
 Alan from the British independent media interviewed Nicole, a volunteer of the New Federal State of China who participated in humanitarian relief on the frontline of Russia and Ukraine. Nicole pointed out that the supporters behind...
@@ -50,11 +58,11 @@ Alan from the British independent media interviewed Nicole, a volunteer of the N
 
 ---
 
-[@miles 5/15/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ug7kc8b2.md)
+[@miles 5/15/2022 5:27 AM UTC  - :tv:直播](/content/gettr/p19uhalfddf.md)
 
-2022/05/15  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
+Alan asks Nicole if any people in the leadership who are more liberal-minded try to use a peaceful transition to overthrow the CCP. Nicole replies that this is exactly what NFSC wants and working towards. We want the revolution to ...
 
-<img src="https://media.gettr.com/group20/origin/2022/05/15/04/b298f65e-6cd2-364a-dee2-7fe688e2ee1a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/05/15/05/b7f709f1-9067-f367-c07c-b0fa6b968b16/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
 新中国联邦｜真人真事 第53期  香草山农场  正义的小新
 
 <img src="https://media.gettr.com/group12/origin/2022/05/14/14/a8e1567f-d445-e6bd-b3ae-58a79ad61b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 2:55 PM UTC ](/content/gettr/p19qe9nd904.md)
-
-5月13号：七哥，您看，订阅量从2020年8月以后几乎就是一条横线，没有任何波动了数据好像停止在那里了Brother Seven, you see, the subscription volume has almost been a horizontal line since August 2020, and there is no fluctuation. The data seems to stop there.【Brother Seven, you s...
-
-<img src="https://media.gettr.com/group21/getter/2022/05/14/14/47a14295-4cbe-d3ed-08ce-e35f014ff1eb/cf4d6b9603d6f3242fae9e9c252dccc0.jpg" width="506" height="284">
 
 ---
 
