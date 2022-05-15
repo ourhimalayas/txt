@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 3:53 PM UTC  - :tv:直播](/content/gettr/p19vveac57d.md)
+
+吃海手指了…
+
+<img src="https://media.gettr.com/group15/getter/2022/05/15/15/641563b9-594e-89e8-549e-e414fd69a31d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p19vtayf440.md)
 
 【Ukraine Rescue】05/08/2022 Larry, a volunteer from Ireland, not only strongly agrees with the NFSC's philosophy of eliminating the CCP, but after hearing the various persecutions Mr. Guo has suffered, he says with emotion: The pric...
@@ -26,11 +34,27 @@
 
 ---
 
-[@miles 5/15/2022 3:53 PM UTC  - :tv:直播](/content/gettr/p19vveac57d.md)
+[@miles 5/15/2022 4:43 PM UTC ](/content/gettr/p19vv8me319.md)
 
-吃海手指了…
+5月15号：这都是乱球扯……【使用@CNASdc进入我们的独家战争游戏——
 
-<img src="https://media.gettr.com/group15/getter/2022/05/15/15/641563b9-594e-89e8-549e-e414fd69a31d/out.jpg" width="506" height="284">
+
+
+这一年是2027年。简报：中国准备进攻台湾。
+
+
+
+哪一方会占上风？中国会攻击美国大陆吗？核战争会爆发吗？
+
+
+
+在@PeacockTV和MeetThePress.com观看完整剧集Miles Brother 
+
+
+
+
+
+https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt...
 
 ---
 
@@ -181,14 +205,6 @@ Alan from the British independent media interviewed Nicole, a volunteer of the N
 2022.05.14  晚 新中国联邦 | 新闻   二十大，中共政权岌岌可危；世界各国不承认疫苗危机真相的原因
 
 <img src="https://media.gettr.com/group43/origin/2022/05/15/00/ce18497f-c037-25e9-be09-8ef047201dc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 11:54 PM UTC  - :tv:直播](/content/gettr/p19sj1l7006.md)
-
-2022.05.14 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-
-<img src="https://media.gettr.com/group15/origin/2022/05/14/23/d37a8181-311f-0855-8c78-d093b0f8128e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
