@@ -11,6 +11,9 @@
 
 ---
 
+#### [【粤语配音】2022年5月15日：为何西方两家媒体同时爆出习近平身体有问题](/content/gnews/2535918.md)
+ `MOS香港部`
+
 #### [2022/05/15 文贵先生直播大纲](/content/gnews/2535892.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -22,9 +25,6 @@
 
 #### [民意调查显示到目前为止有超过50万人被中共病毒疫苗杀死](/content/gnews/2535832.md)
  `mayflowertranslate`
-
-#### [俄暂停向芬兰供电](/content/gnews/2535824.md)
- `加拿大温哥华英里农场`
 
 #### [G7继续施压](/content/gnews/2535823.md)
  `加拿大温哥华英里农场`
@@ -74,9 +74,6 @@
 #### [20220515郭文贵大直播 ：即使没有中国共产党，美国内部和外部的挑战，迟早会引发经济危机](/content/gnews/2535405.md)
  `Tokyo Sakura Video Group`
 
-#### [20220515郭文贵大直播 ：游说文化是华盛顿永生的力量 是沼泽地的力量](/content/gnews/2535404.md)
- `Tokyo Sakura Video Group`
-
 #### [芬兰和瑞典寻求加入北约 一个新时代正在到来](/content/gnews/2535388.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
@@ -118,6 +115,9 @@
 
 #### [随着乌克兰的反攻，顿巴斯的前线转移](/content/gnews/2533831.md)
  `Shuizhuyu`
+
+#### [文编&#124;在中国取钱限额的背后逻辑](/content/gnews/2533820.md)
+ `KarmaLabs`
 
 #### [樱花时政&#124;亚速钢厂乌克兰守军亲属：全世界要看清中共这个魔鬼](/content/gnews/2533803.md)
  `東京櫻花団-Tokyo Sakura Group`
