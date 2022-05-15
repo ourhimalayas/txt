@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p19v4ge37ba.md)
+
+文贵大直播：谈被黑客，数字货币，习近平普京身体  2022-05-15
+
+<img src="https://media.gettr.com/group37/origin/2022/05/15/12/67754ecc-1ef9-60e5-0b23-cb033f64d949/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p19vd8xa011.md)
 
 Nicole interviewed a young photographer from New York. He came to Medyka to document the volunteers and Ukrainian refugees to let more people better appreciate the unknown efforts of these ordinary people. Nicole invited him to par...
@@ -50,11 +58,15 @@ Day 70 - Date: M...
 
 ---
 
-[@miles 5/15/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p19v4ge37ba.md)
+[@miles 5/15/2022 12:46 PM UTC  - 6圖](/content/gettr/p19v5ba1d70.md)
 
-文贵大直播：谈被黑客，数字货币，习近平普京身体  2022-05-15
+5月15日 这就是中国社会的真实现状，惨不忍睹，丧失人权. 人道，这种天理不容的畜奴的社会！🔥🔥🔥
 
-<img src="https://media.gettr.com/group37/origin/2022/05/15/12/67754ecc-1ef9-60e5-0b23-cb033f64d949/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+15/05/2022 The loss of human rights and humanity has led to this slavery society, which is the unbearable true state of China！🔥🔥🔥
+
+<img src="https://media.gettr.com/group44/getter/2022/05/15/12/63d4fb03-ab3f-50b1-95bb-0f847613ff94/914e5dd350bda05baa9f4a41d9dff668.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +189,6 @@ For English: gettr.com/streaming/p19smvmcdf7
 2022.05.14  新中国联邦 | 喜健康    马丽娅战友专访
 
 <img src="https://media.gettr.com/group7/origin/2022/05/14/20/6fda23be-a7ce-ce45-5033-511a9a50e166/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p19qq2g9dfa.md)
-
-2022-5-14 《避风港》（47）保险公司预计今年疫苗伤亡增加50倍
-
-<img src="https://media.gettr.com/group15/origin/2022/05/10/18/a98d2da7-6f72-c023-9577-a2859b091423/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
