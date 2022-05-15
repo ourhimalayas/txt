@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19tmfm65f2.md)
+
+2022-5-14《鸡血王喜币大作战》 第一百九十五集 嘉宾：青藤、Eric
+
+<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p19t53acb82.md)
 
 2022.05.14  新中国联邦 | 喜财经    数字货币市场最新重要信息 喜币和躺平币的时代即将到来
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 5/15/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19tmfm65f2.md)
+[@miles 5/15/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p19tnd0f417.md)
 
-2022-5-14《鸡血王喜币大作战》 第一百九十五集 嘉宾：青藤、Eric
+Alan from the British independent media interviewed Nicole, a volunteer of the New Federal State of China who participated in humanitarian relief on the frontline of Russia and Ukraine. Nicole pointed out that the supporters behind...
 
-<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/05/15/03/5c4ef193-321b-c51d-f7ad-11398c049d91/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
 5月13号：七哥，您看，订阅量从2020年8月以后几乎就是一条横线，没有任何波动了数据好像停止在那里了Brother Seven, you see, the subscription volume has almost been a horizontal line since August 2020, and there is no fluctuation. The data seems to stop there.【Brother Seven, you s...
 
 <img src="https://media.gettr.com/group21/getter/2022/05/14/14/47a14295-4cbe-d3ed-08ce-e35f014ff1eb/cf4d6b9603d6f3242fae9e9c252dccc0.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p19r6mh8c6a.md)
-
- 5月13号：尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一起消灭邪恶的共产主义和中国共产党……
-
-<img src="https://media.gettr.com/group6/getter/2022/05/14/14/fe0798cc-2f11-e39a-8386-b006e7932d5b/out.jpg" width="506" height="284">
 
 ---
 
