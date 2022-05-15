@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p19vtayf440.md)
+
+【Ukraine Rescue】05/08/2022 Larry, a volunteer from Ireland, not only strongly agrees with the NFSC's philosophy of eliminating the CCP, but after hearing the various persecutions Mr. Guo has suffered, he says with emotion: The pric...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/15/15/a73e78a5-f177-b863-bee8-bfb74af4cf18/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p19vx7yf0cc.md)
 
 15/05/2022 The real picture of the Chinese Communist Party's rule by falsehoods: fake trees are planted on both sides of the street, and the quotation is expensive. It seems some corrupt officials can enrich themselves again as a r...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/15/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p19vtayf440.md)
+[@miles 5/15/2022 3:53 PM UTC  - :tv:直播](/content/gettr/p19vveac57d.md)
 
-【Ukraine Rescue】05/08/2022 Larry, a volunteer from Ireland, not only strongly agrees with the NFSC's philosophy of eliminating the CCP, but after hearing the various persecutions Mr. Guo has suffered, he says with emotion: The pric...
+吃海手指了…
 
-<img src="https://media.gettr.com/group23/getter/2022/05/15/15/a73e78a5-f177-b863-bee8-bfb74af4cf18/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/05/15/15/641563b9-594e-89e8-549e-e414fd69a31d/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Alan from the British independent media interviewed Nicole, a volunteer of the N
 2022.05.14 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group15/origin/2022/05/14/23/d37a8181-311f-0855-8c78-d093b0f8128e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p19stg140d4.md)
-
-2022.05.14  PM NFSC news   Citizens of NFSC are changing the image of Chinese people
-
-<img src="https://media.gettr.com/group22/origin/2022/05/14/22/93aa44ad-078f-2aa2-c23d-1abaae5ab7a9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
