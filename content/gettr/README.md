@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p19spwrcdaa.md)
+
+2022.05.14  晚 新中国联邦 | 新闻访谈     美议员推《共产党签证透明度法案》； 郭先生爆料与金融战； 中共疫苗异常反应鉴定费3500元
+
+<img src="https://media.gettr.com/group37/origin/2022/05/15/01/b8c776d2-3471-08b8-133f-a7707e599eb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19t2aqe22a.md)
 
 2022.05.14  晚 新中国联邦 | 新闻   二十大，中共政权岌岌可危；世界各国不承认疫苗危机真相的原因
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/15/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p19spwrcdaa.md)
+[@miles 5/15/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p19t53acb82.md)
 
-2022.05.14  晚 新中国联邦 | 新闻访谈     美议员推《共产党签证透明度法案》； 郭先生爆料与金融战； 中共疫苗异常反应鉴定费3500元
+2022.05.14  新中国联邦 | 喜财经    数字货币市场最新重要信息 喜币和躺平币的时代即将到来
 
-<img src="https://media.gettr.com/group37/origin/2022/05/15/01/b8c776d2-3471-08b8-133f-a7707e599eb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/15/01/58e67835-2bab-50d2-663b-2476ad77e226/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
  5月13号：这个视频里谈到的数据……没有包括最重要的即将发生的．疫苗灾难．和接下来的病毒政治．对世界经济的大通杀，通胀在这一切即将发生的疫苗灾难面前．根本已经不重要了‼️我们走着瞧……
 
 <img src="https://media.gettr.com/group12/getter/2022/05/14/13/7eef8627-6d3f-f5cb-d904-17becd19a43a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p19qn4w53e6.md)
-
-2022.05.14 早  新中国联邦 | 新闻访谈   
-
-<img src="https://media.gettr.com/group28/origin/2022/05/14/13/2f06abe6-9d1c-4dd6-26a5-d0d1091235ee/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
