@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19t2aqe22a.md)
+
+2022.05.14  晚 新中国联邦 | 新闻   二十大，中共政权岌岌可危；世界各国不承认疫苗危机真相的原因
+
+<img src="https://media.gettr.com/group43/origin/2022/05/15/00/ce18497f-c037-25e9-be09-8ef047201dc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/14/2022 11:54 PM UTC  - :tv:直播](/content/gettr/p19sj1l7006.md)
 
 2022.05.14 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/15/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19t2aqe22a.md)
+[@miles 5/15/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p19spwrcdaa.md)
 
-2022.05.14  晚 新中国联邦 | 新闻   二十大，中共政权岌岌可危；世界各国不承认疫苗危机真相的原因
+2022.05.14  晚 新中国联邦 | 新闻访谈     美议员推《共产党签证透明度法案》； 郭先生爆料与金融战； 中共疫苗异常反应鉴定费3500元
 
-<img src="https://media.gettr.com/group43/origin/2022/05/15/00/ce18497f-c037-25e9-be09-8ef047201dc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/05/15/01/b8c776d2-3471-08b8-133f-a7707e599eb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定
  5月13号：这个视频里谈到的数据……没有包括最重要的即将发生的．疫苗灾难．和接下来的病毒政治．对世界经济的大通杀，通胀在这一切即将发生的疫苗灾难面前．根本已经不重要了‼️我们走着瞧……
 
 <img src="https://media.gettr.com/group12/getter/2022/05/14/13/7eef8627-6d3f-f5cb-d904-17becd19a43a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/14/2022 1:02 PM UTC  - 6圖](/content/gettr/p19qs85f686.md)
-
-5月14号：一个14亿人民的国家．公然这样的撒谎，而且成为了治国之策，真的是全国人民的悲哀。【海外大批科学家逃亡中国🤣🤣🥲🥲🥲评论又翻车了】
-
-<img src="https://media.gettr.com/group26/getter/2022/05/14/13/d2c3dacf-e06d-b672-af51-204f5232fd1c/61018d0b16bdddba6ad22ae6655f5db8.jpg" width="506" height="284">
 
 ---
 
