@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 5/15/2022 4:43 PM UTC ](/content/gettr/p19vv8me319.md)
+
+5月15号：这都是乱球扯……【使用@CNASdc进入我们的独家战争游戏——
+
+
+
+这一年是2027年。简报：中国准备进攻台湾。
+
+
+
+哪一方会占上风？中国会攻击美国大陆吗？核战争会爆发吗？
+
+
+
+在@PeacockTV和MeetThePress.com观看完整剧集Miles Brother 
+
+
+
+
+
+https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt...
+
+---
+
 [@miles 5/15/2022 3:53 PM UTC  - :tv:直播](/content/gettr/p19vveac57d.md)
 
 吃海手指了…
@@ -34,27 +58,11 @@
 
 ---
 
-[@miles 5/15/2022 4:43 PM UTC ](/content/gettr/p19vv8me319.md)
+[@miles 5/15/2022 5:41 PM UTC  - :tv:直播](/content/gettr/p19wdwr0d8e.md)
 
-5月15号：这都是乱球扯……【使用@CNASdc进入我们的独家战争游戏——
+2022年5月15日  俄乌战争战况播报
 
-
-
-这一年是2027年。简报：中国准备进攻台湾。
-
-
-
-哪一方会占上风？中国会攻击美国大陆吗？核战争会爆发吗？
-
-
-
-在@PeacockTV和MeetThePress.com观看完整剧集Miles Brother 
-
-
-
-
-
-https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt...
+<img src="https://media.gettr.com/group47/origin/2022/05/15/17/44bb426d-30bd-c47a-2a58-efe536ae994d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ Alan from the British independent media interviewed Nicole, a volunteer of the N
 2022.05.14  晚 新中国联邦 | 新闻访谈     美议员推《共产党签证透明度法案》； 郭先生爆料与金融战； 中共疫苗异常反应鉴定费3500元
 
 <img src="https://media.gettr.com/group37/origin/2022/05/15/01/b8c776d2-3471-08b8-133f-a7707e599eb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/15/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19t2aqe22a.md)
-
-2022.05.14  晚 新中国联邦 | 新闻   二十大，中共政权岌岌可危；世界各国不承认疫苗危机真相的原因
-
-<img src="https://media.gettr.com/group43/origin/2022/05/15/00/ce18497f-c037-25e9-be09-8ef047201dc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
