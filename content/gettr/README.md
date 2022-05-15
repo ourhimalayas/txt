@@ -10,6 +10,46 @@
 
 ---
 
+[@miles 5/15/2022 7:47 AM UTC ](/content/gettr/p19u7fk8bab.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月13日第70天当日救援统计：
+
+Medyka救援站接待：约360人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约19335人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 70 - Date: M...
+
+<img src="https://media.gettr.com/group45/getter/2022/05/15/07/3c9767cb-cc5c-ac76-85d0-a38bb554b1ba/60fc4583bacbce0abbd774bf650cb722.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_1 5/15/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p19uu658b26.md)
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.05.15 ET
+
+<img src="https://media.gettr.com/group48/origin/2022/05/15/06/5dc0b88f-8b14-e389-6555-5198d6d42976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 5:27 AM UTC  - :tv:直播](/content/gettr/p19uhalfddf.md)
 
 Alan asks Nicole if any people in the leadership who are more liberal-minded try to use a peaceful transition to overthrow the CCP. Nicole replies that this is exactly what NFSC wants and working towards. We want the revolution to ...
@@ -71,14 +111,6 @@ Alan from the British independent media interviewed Nicole, a volunteer of the N
 2022.05.14 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group15/origin/2022/05/14/23/d37a8181-311f-0855-8c78-d093b0f8128e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtranslators_1 5/15/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p19uu658b26.md)
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.05.15 ET
-
-<img src="https://media.gettr.com/group48/origin/2022/05/15/06/5dc0b88f-8b14-e389-6555-5198d6d42976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,30 +183,6 @@ For English: gettr.com/streaming/p19smvmcdf7
 [@miles 5/14/2022 5:44 PM UTC ](/content/gettr/p19rqxk7f51.md)
 
 5月14日：又……https://www.dailymail.co.uk/news/article-10816327/Chinas-leader-Xi-Jinping-suffering-brain-aneurysm-snub-new-medicine-reports-claim.html
-
----
-
-[@cornfieldsis 5/14/2022 4:15 PM UTC ](/content/gettr/p19r6dd094a.md)
-
-好消息战友们🥰😍 
-
-
-
-G|Fashion 现在准备跟意大利的3家物流公司合作，目前正在敲定最终的合同。  一旦敲定所有发货会直接从意大利发向全世界  
-
-
-
-1. 免税收
-
-2. 免关税
-
-3. 免运费
-
-
-
-@gfashion @ddnyc @miles
-
-<img src="https://media.gettr.com/group34/origin/2022/05/14/16/471cce36-41d8-638d-9d1e-22f3e26fa066/1baa84b2932785c888abe870faba31e8.jpeg" width="506" height="284">
 
 ---
 
