@@ -2,6 +2,34 @@
 ---
 
 
+[@cornfieldsis 5/16/2022 4:57 PM UTC ](/content/gettr/p1a0be4194a.md)
+
+关于 Store Credit 问题： 
+
+
+
+因为G|Fashion 更新了系统， 所有目前大家没有办法在您的账户上查阅store credit 金额。 
+
+
+
+但是你们都会收到一封邮件，告知你们store credit 金额， 还有一个 CODE  (编码）； 当您们想用 store credit 购买产品的时候，直接输入这个CODE  （编码） 就可以了
+
+
+
+@gfashion @ddnyc @miles
+
+<img src="https://media.gettr.com/group47/origin/2022/05/16/16/40b7d468-6713-d880-a28b-efc4742a881c/c4bebc19ce58abc1866e7d5601b3c011.png" width="506" height="284">
+
+---
+
+[@miles 5/16/2022 4:26 PM UTC  - :tv:直播](/content/gettr/p19zd6gf768.md)
+
+05.16.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+
+<img src="https://media.gettr.com/group47/origin/2022/05/16/16/ba50a0bb-d2c4-d8b4-1b48-693b1ab114bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 2:52 PM UTC  - 2圖](/content/gettr/p1a0f6t974f.md)
 
 5月16号：所有的中国人民被玩弄了几十年……几代人，这可能是人类有史以来最大的丑闻和悲剧。新中国联邦人……将停止对中国人的愚弄和压榨……彻底消灭欺骗全世界的邪恶的中国共产党。
@@ -22,11 +50,11 @@
 
 ---
 
-[@miles 5/16/2022 4:26 PM UTC  - :tv:直播](/content/gettr/p19zd6gf768.md)
+[@cornfieldsis 5/15/2022 6:03 AM UTC  - 2圖](/content/gettr/p19u0h61ad2.md)
 
-05.16.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+亲爱的战友们， 当你们选择尺寸的时候， 不仅仅可以参考Size Chart, 同时在购物车的下面，GF 有注明模特的身高和她穿的尺寸！ 同时有些衣服我们也会建议，是否需要选择大一号！ @gfashion @ddnyc
 
-<img src="https://media.gettr.com/group47/origin/2022/05/16/16/ba50a0bb-d2c4-d8b4-1b48-693b1ab114bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/05/15/06/3fccaa8a-3568-e8e4-3ae1-af8931ce5870/bd8e39b100b567a6ad858724615291c5.png" width="506" height="284">
 
 ---
 
@@ -179,22 +207,6 @@ Only one method keeps your wealth and ...
 2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报
 
 <img src="https://media.gettr.com/group14/origin/2022/05/16/04/a9d8fbf0-3f81-cff6-41aa-e59fbd3d8aa6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p19y4cm9815.md)
-
-5/15/2022 Miles Guo: From NFT's trading changes you can see that this digital currency disaster actually started on May 1st, both LUNA and USDT are ridiculous to the point of pegging stablecoins to bitcoin. As a result, when bitcoi...
-
-<img src="https://media.gettr.com/group31/getter/2022/05/16/04/23482bd5-d792-d3ca-f053-0286810f5344/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19vhzv433a.md)
-
-2022-5-15《鸡血王喜币大作战》 第一百九十六集 嘉宾：齐天二圣、七里香
-
-<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
