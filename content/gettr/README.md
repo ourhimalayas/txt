@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 7:12 AM UTC  - :tv:直播](/content/gettr/p19ygyx83fd.md)
+
+2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group48/origin/2022/05/16/06/33c903ac-84fc-512f-2055-ac92fc9b402c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 6:25 AM UTC  - :tv:直播](/content/gettr/p19ylohf8b0.md)
 
 5/15/2022 Miles Guo: No one would believe that the disasters of the cryptocurrencies like LUNA were manipulated by the CCP. The whole world has lost over $10 trillion in the CCP's surprise attack on the economy. Large corporations ...
@@ -154,35 +162,11 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/15/2022 4:43 PM UTC ](/content/gettr/p19vv8me319.md)
+[@miles 5/16/2022 7:39 AM UTC  - :tv:直播](/content/gettr/p19yk2hb2bc.md)
 
-5月15号：这都是乱球扯……【使用@CNASdc进入我们的独家战争游戏——
+【Ukraine Rescue】05/15/2022 Korean volunteers from Seoul say they are inspired by the actions of the New Federal State of China. They sincerely pray for the NFSC and hope to build a better new world together with the NFSC. They also...
 
-
-
-这一年是2027年。简报：中国准备进攻台湾。
-
-
-
-哪一方会占上风？中国会攻击美国大陆吗？核战争会爆发吗？
-
-
-
-在@PeacockTV和MeetThePress.com观看完整剧集Miles Brother 
-
-
-
-
-
-https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt...
-
----
-
-[@miles 5/16/2022 7:12 AM UTC  - :tv:直播](/content/gettr/p19ygyx83fd.md)
-
-2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group48/origin/2022/05/16/06/33c903ac-84fc-512f-2055-ac92fc9b402c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/05/16/07/402077f8-4ad8-949b-1934-6d7200952cfc/out.jpg" width="506" height="284">
 
 ---
 
