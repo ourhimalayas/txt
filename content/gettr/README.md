@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1a1zys73e4.md)
+
+2022.05.16  新中国联邦 | 喜健康    勇敢的良心医生-弗拉基米尔·泽连科
+
+<img src="https://media.gettr.com/group31/origin/2022/05/16/20/91d1f271-1526-2405-4519-a90cea80c559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p19zdkt80e9.md)
 
 2022.05.16 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -30,11 +38,15 @@
 
 ---
 
-[@miles 5/16/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1a1zys73e4.md)
+[@cornfieldsis 5/16/2022 9:23 PM UTC ](/content/gettr/p1a20o38952.md)
 
-2022.05.16  新中国联邦 | 喜健康    勇敢的良心医生-弗拉基米尔·泽连科
+郭先生在开心的试装中 ～～～ 我们来看看有哪儿写时装单品？ 
 
-<img src="https://media.gettr.com/group31/origin/2022/05/16/20/91d1f271-1526-2405-4519-a90cea80c559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+@gfashion @ddnyc @miles
+
+<img src="https://media.gettr.com/group42/origin/2022/05/16/21/81467a67-148b-ee1d-e81f-3d5180e86005/3328b36c5ed22db62e845fa9d0bfaca5.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +203,6 @@ Day 71 - Date: M...
 2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group48/origin/2022/05/16/06/33c903ac-84fc-512f-2055-ac92fc9b402c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 6:25 AM UTC  - :tv:直播](/content/gettr/p19ylohf8b0.md)
-
-5/15/2022 Miles Guo: No one would believe that the disasters of the cryptocurrencies like LUNA were manipulated by the CCP. The whole world has lost over $10 trillion in the CCP's surprise attack on the economy. Large corporations ...
-
-<img src="https://media.gettr.com/group25/getter/2022/05/16/06/5cdfde8e-6866-59a7-d66f-dd9a3dee3be5/out.jpg" width="506" height="284">
 
 ---
 
