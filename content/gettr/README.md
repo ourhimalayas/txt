@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 5/16/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1a207z3389.md)
+
+5/15/2022 Miles Guo: The dollar reserves corresponding to the Himalaya Dollar will never be used as any financial leverage, nor will they be invested in any financial products. The Himalaya Dollar will never be affected by the vola...
+
+<img src="https://media.gettr.com/group34/getter/2022/05/16/22/b39f7291-5023-d341-27f5-fcbfd4d3802c/out.jpg" width="506" height="284">
+
+---
+
+[@cornfieldsis 5/16/2022 9:51 PM UTC  - 3圖](/content/gettr/p1a1ckr8fa0.md)
+
+郭先生在跟战友们一起和G｜Fashion 团队 试装中 ～～～ ☺️☺️🥰🥰😍😍😍😍
+
+
+
+@gfashion @miles @ddnyc @changdaobrother
+
+<img src="https://media.gettr.com/group7/origin/2022/05/16/21/e54cf631-6072-5164-82e6-4ba766ed3bf7/dc071337208942156d7717627a3ec441.jpeg" width="506" height="284">
+
+---
+
 [@cornfieldsis 5/16/2022 9:30 PM UTC  - 6圖](/content/gettr/p1a1twa9773.md)
 
 快来看～G｜Fashion 的帅哥！ 😍😍😍😍😍😍😍😍😍😍😘😘😘😘😘😘😘😘😘😘🥰🥰🥰🥰🥰🥰🤩🤩🤩🤩🤩🤩🤩🤩🤩🤩 
@@ -22,15 +42,13 @@ www.gfashion.com
 
 ---
 
-[@cornfieldsis 5/16/2022 9:51 PM UTC  - 3圖](/content/gettr/p1a1ckr8fa0.md)
+[@miles 5/16/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1a22qy7be3.md)
 
-郭先生在跟战友们一起和G｜Fashion 团队 试装中 ～～～ ☺️☺️🥰🥰😍😍😍😍
+“数据为牢” 飞飞秀救援快报  2022-05-16
 
+For English: gettr.com/streaming/p1a1ivt25ec
 
-
-@gfashion @miles @ddnyc @changdaobrother
-
-<img src="https://media.gettr.com/group7/origin/2022/05/16/21/e54cf631-6072-5164-82e6-4ba766ed3bf7/dc071337208942156d7717627a3ec441.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/05/16/22/252e723f-518a-fa1e-364b-b5d3745c34c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,46 +205,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 2022.05.16  新中国联邦 | 军情室 中共情报收集船逼近澳洲海岸，浅谈中共航母的几次南下出征
 
 <img src="https://media.gettr.com/group46/origin/2022/05/16/10/3fe2a8c4-ef1f-015d-5c7c-b04f315adde7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 8:40 AM UTC ](/content/gettr/p19ymuhd42e.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月14日第71天当日救援统计：
-
-Medyka救援站接待：约734人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约20069人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 71 - Date: M...
-
-<img src="https://media.gettr.com/group30/getter/2022/05/16/08/7bb53cd4-6e70-36ee-a57d-f086e067d944/862057441bd39669f054485a036c1c00.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p19z1cne15b.md)
-
-5/15/2022 Miles Guo: Zhu Rongji and Wang Qishan were forced to help Xi Jinping launch the financial warfare against the world. Peter Ma Mingzhe, Neil Shen, Pony Ma, Yan Yan, and Weijian Shan are all controlled by Zhu and Wang. If L...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/16/08/a1632413-ec72-5ffd-727e-b9e1e5f7e100/out.jpg" width="506" height="284">
 
 ---
 
