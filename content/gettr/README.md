@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1a1zzae250.md)
+
+2022.05.16 PM NFSC news   Miles Guo Explains the Significance of the U.S.-ASEAN Summit
+
+<img src="https://media.gettr.com/group24/origin/2022/05/16/22/3315af98-bdc6-8c96-1611-23d87658b699/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1a26je5202.md)
 
 5/16/2022 Miles Guo Gettr: Mankind is facing an unprecedented uncertainty and instability; when the entire world is focusing on the Russia-Ukraine war and financial markets, people have ignored the fact that the COVID vaccine disas...
@@ -18,11 +26,13 @@
 
 ---
 
-[@miles 5/16/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1a1zzae250.md)
+[@miles 5/16/2022 11:27 PM UTC ](/content/gettr/p1a1lg1644a.md)
 
-2022.05.16 PM NFSC news   Miles Guo Explains the Significance of the U.S.-ASEAN Summit
+Xi Jinping is suffering from six kinds of deadly diseases
 
-<img src="https://media.gettr.com/group24/origin/2022/05/16/22/3315af98-bdc6-8c96-1611-23d87658b699/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds of fatal diseases: 1) the most dangerous one is the pancreas; 2) a cardiac artery bypass sur...
+
+<img src="https://media.gettr.com/group5/origin/2022/05/16/23/4df782f0-6f3f-4eaf-6c86-ab970bd43206/138713d2dd1411652b34e7dbf96a6d7d.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +207,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 2022.05.16  早 新中国联邦 | 新闻   新中国联邦驻梅迪卡营地路面环境全面升级;英国独立媒体人采访新中国联邦义工
 
 <img src="https://media.gettr.com/group24/origin/2022/05/16/12/c9ecc45f-79ba-9014-0e70-e8901411ea73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p19zdb3d6e0.md)
-
-2022.05.16 AM NFSC news   Binance Suspends Trading of LUNA and UST
-
-<img src="https://media.gettr.com/group19/origin/2022/05/16/12/daac5e14-dbe0-4f41-5afd-7b73098373b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
