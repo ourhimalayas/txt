@@ -3,6 +3,8 @@
 
 ## 頁面 16/42 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版： 郭先生2020年6月15日直播-跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝](/content/transcript/2020/06/20200619-1125909043318608744.md)
+
 [文字版：郭先生6月15日直播关于战友们投资GTV被非法退款，非法被剥夺投资权益，这将是一场法律行动的维权](/content/transcript/2020/06/20200616-5878015194273820578.md)
 
 [文字版:2020年6月13日郭先生连线江财神畅谈喜马拉雅农场和新中国联邦的未来](/content/transcript/2020/06/20200616-1167287562234062263.md)
@@ -50,8 +52,6 @@
 [文字版:郭先生5月14日GTV直播](/content/transcript/2020/05/20200518-4909626383559328893.md)
 
 [文字版：5月10日郭先生GTV直播连线文欣](/content/transcript/2020/05/20200516-5917193876811912006.md)
-
-[文字版：5月11日郭先生GTV直播连线长岛伟哥](/content/transcript/2020/05/20200516-6242836971583369231.md)
 
 
 ## 頁面 16/42 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)

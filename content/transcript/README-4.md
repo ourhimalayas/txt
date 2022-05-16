@@ -3,6 +3,8 @@
 
 ## 頁面 4/42 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵先生2022年2月3日盖特视频（9分54秒）全文字版](/content/transcript/2022/02/20220203-1953478.md)
+
 [2022年2月2日 《文贵大直播 》全文字版](/content/transcript/2022/02/20220202-1952328.md)
 
 [郭文贵先生2022年2月1日盖特视频（9分47秒）全文字版](/content/transcript/2022/02/20220201-1944517.md)
@@ -50,8 +52,6 @@
 [2021年12月29日郭文贵先生直播全文字版](/content/transcript/2021/12/20211229-1805851.md)
 
 [郭文贵先生2021年12月28日盖特视频（9分00秒）全文字版](/content/transcript/2021/12/20211228-1800169.md)
-
-[郭文贵先生2021年12月27日盖特视频（9分37秒）全文字版](/content/transcript/2021/12/20211227-1797114.md)
 
 
 ## 頁面 4/42 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)

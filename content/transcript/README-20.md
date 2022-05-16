@@ -3,6 +3,8 @@
 
 ## 頁面 20/42 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/content/transcript/2020/01/20200128-8595436432379526422.md)
+
 [文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/content/transcript/2020/01/20200128-4895858785511453067.md)
 
 [文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/content/transcript/2020/01/20200127-3403056014280027444.md)
@@ -50,8 +52,6 @@
 [文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/content/transcript/2020/01/20200104-2138537406331428619.md)
 
 [文字版：2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！](/content/transcript/2020/01/20200104-4925314405005648052.md)
-
-[文字版：2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人王健死亡照片](/content/transcript/2020/01/20200102-5236405611062477381.md)
 
 
 ## 頁面 20/42 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)

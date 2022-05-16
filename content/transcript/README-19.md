@@ -3,6 +3,8 @@
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版:2020年2月27日文贵谈王岐山站着出来握手](/content/transcript/2020/02/20200229-501572706956306869.md)
+
 [文字版:2020年2月21日郭先生参加班农战斗室访谈](/content/transcript/2020/02/20200227-1553172568054337472.md)
 
 [文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/content/transcript/2020/02/20200224-7577071556955663808.md)
@@ -50,8 +52,6 @@
 [文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/content/transcript/2020/01/20200130-1699829441084097385.md)
 
 [文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治](/content/transcript/2020/01/20200129-3976457637426719538.md)
-
-[文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/content/transcript/2020/01/20200128-8595436432379526422.md)
 
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

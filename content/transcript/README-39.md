@@ -3,6 +3,8 @@
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/content/transcript/2018/04/20180418-662686657760766543.md)
+
 [2017.11.21 文贵Instagram健身直播](/content/transcript/2018/04/20180418-7655939134164928883.md)
 
 [2017.11.23文贵感恩节报平安视频](/content/transcript/2018/04/20180418-3850717849203274795.md)
@@ -50,8 +52,6 @@
 [翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/content/transcript/2018/04/20180418-732290735735777378.md)
 
 [文字版：2017年11月2号郭文贵先生在Livestream 直播！](/content/transcript/2018/04/20180418-6405859290507553352.md)
-
-[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/transcript/2018/04/20180418-1878969109929374456.md)
 
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
