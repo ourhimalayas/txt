@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/15/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p19x5bu5c7f.md)
+
+5/15/2022 Miles Guo: The worse Xi's health is, the faster and more ruthless he will attack Taiwan and the crueler he will treat the Chinese. Xi finds Putin a man of words and believes that Communist China belongs to his family. Xi'...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/15/23/530c9b7d-ce47-f89e-fbfc-98d7c1f58fa5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p19x45c6344.md)
 
 2022.05.15  PM NFSC news   Top 5 Italian Luxury Brands want to Become the Manufacturers of GFashion
@@ -98,11 +106,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/15/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p19x5bu5c7f.md)
+[@miles 5/16/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p19xenr03ee.md)
 
-5/15/2022 Miles Guo: The worse Xi's health is, the faster and more ruthless he will attack Taiwan and the crueler he will treat the Chinese. Xi finds Putin a man of words and believes that Communist China belongs to his family. Xi'...
+5/15/2022  Xi Jinping has serious health issues. Besides the brain surgery to treat the tumor, his heart, pancreas, spleen and kidneys also have problems and have received surgeries. The biggest threat to his life is the C6 spinal ...
 
-<img src="https://media.gettr.com/group47/getter/2022/05/15/23/530c9b7d-ce47-f89e-fbfc-98d7c1f58fa5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/05/16/00/f1c0f48d-5489-ecaa-2cae-78f8654c3e42/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ Day 70 - Date: M...
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.05.15 ET
 
 <img src="https://media.gettr.com/group48/origin/2022/05/15/06/5dc0b88f-8b14-e389-6555-5198d6d42976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 5:27 AM UTC  - :tv:直播](/content/gettr/p19uhalfddf.md)
-
-Alan asks Nicole if any people in the leadership who are more liberal-minded try to use a peaceful transition to overthrow the CCP. Nicole replies that this is exactly what NFSC wants and working towards. We want the revolution to ...
-
-<img src="https://media.gettr.com/group9/origin/2022/05/15/05/b7f709f1-9067-f367-c07c-b0fa6b968b16/out.jpg" width="506" height="284">
 
 ---
 
