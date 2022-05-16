@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p19z1cne15b.md)
+
+5/15/2022 Miles Guo: Zhu Rongji and Wang Qishan were forced to help Xi Jinping launch the financial warfare against the world. Peter Ma Mingzhe, Neil Shen, Pony Ma, Yan Yan, and Weijian Shan are all controlled by Zhu and Wang. If L...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/16/08/a1632413-ec72-5ffd-727e-b9e1e5f7e100/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 8:14 AM UTC  - :tv:直播](/content/gettr/p19ygyyff28.md)
 
 2022.05.15 文贵大直播（精华版）
@@ -154,19 +162,35 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/15/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p19wzyf473b.md)
+[@miles 5/16/2022 8:40 AM UTC ](/content/gettr/p19ymuhd42e.md)
 
-2022.05.15  新中国联邦 | 喜健康   贺建奎出狱了，艾滋受体编辑小孩怎么样了
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group45/origin/2022/04/20/20/a6469969-4406-4ccc-bb57-97a4052eed26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
----
 
-[@miles 5/16/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p19z1cne15b.md)
+2022年5月14日第71天当日救援统计：
 
-5/15/2022 Miles Guo: Zhu Rongji and Wang Qishan were forced to help Xi Jinping launch the financial warfare against the world. Peter Ma Mingzhe, Neil Shen, Pony Ma, Yan Yan, and Weijian Shan are all controlled by Zhu and Wang. If L...
+Medyka救援站接待：约734人
 
-<img src="https://media.gettr.com/group47/getter/2022/05/16/08/a1632413-ec72-5ffd-727e-b9e1e5f7e100/out.jpg" width="506" height="284">
+
+
+累计救援总计：
+
+Medyka救援站接待：约20069人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 71 - Date: M...
+
+<img src="https://media.gettr.com/group30/getter/2022/05/16/08/7bb53cd4-6e70-36ee-a57d-f086e067d944/862057441bd39669f054485a036c1c00.jpg" width="506" height="284">
 
 ---
 
