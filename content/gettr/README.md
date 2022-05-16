@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 8:14 AM UTC  - :tv:直播](/content/gettr/p19ygyyff28.md)
+
+2022.05.15 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group9/origin/2022/05/16/08/c6abc43e-79c3-420c-e420-816c3052074c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 7:39 AM UTC  - :tv:直播](/content/gettr/p19yk2hb2bc.md)
 
 【Ukraine Rescue】05/15/2022 Korean volunteers from Seoul say they are inspired by the actions of the New Federal State of China. They sincerely pray for the NFSC and hope to build a better new world together with the NFSC. They also...
@@ -154,19 +162,11 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/15/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p19wi008a62.md)
+[@miles 5/16/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p19z1cne15b.md)
 
-2022-5-15 ，「创新💡，来自跌倒的力量🎢」？#小小尼莫音乐会 🎼第十一期，不确定和犯错才是常态，美好发生在偶然之间，不畏跌倒，勇敢站立，一起拥抱新世界🌼
+5/15/2022 Miles Guo: Zhu Rongji and Wang Qishan were forced to help Xi Jinping launch the financial warfare against the world. Peter Ma Mingzhe, Neil Shen, Pony Ma, Yan Yan, and Weijian Shan are all controlled by Zhu and Wang. If L...
 
-<img src="https://media.gettr.com/group19/origin/2022/05/15/18/51621603-acdd-85e7-516b-133949e45266/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 8:14 AM UTC  - :tv:直播](/content/gettr/p19ygyyff28.md)
-
-2022.05.15 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group9/origin/2022/05/16/08/c6abc43e-79c3-420c-e420-816c3052074c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/05/16/08/a1632413-ec72-5ffd-727e-b9e1e5f7e100/out.jpg" width="506" height="284">
 
 ---
 
