@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1a26je5202.md)
+
+5/16/2022 Miles Guo Gettr: Mankind is facing an unprecedented uncertainty and instability; when the entire world is focusing on the Russia-Ukraine war and financial markets, people have ignored the fact that the COVID vaccine disas...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/16/22/073857c7-0e70-81f7-41d0-d69d4d794097/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1a207z3389.md)
 
 5/15/2022 Miles Guo: The dollar reserves corresponding to the Himalaya Dollar will never be used as any financial leverage, nor will they be invested in any financial products. The Himalaya Dollar will never be affected by the vola...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/16/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1a26je5202.md)
+[@miles 5/16/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1a1zzae250.md)
 
-5/16/2022 Miles Guo Gettr: Mankind is facing an unprecedented uncertainty and instability; when the entire world is focusing on the Russia-Ukraine war and financial markets, people have ignored the fact that the COVID vaccine disas...
+2022.05.16 PM NFSC news   Miles Guo Explains the Significance of the U.S.-ASEAN Summit
 
-<img src="https://media.gettr.com/group35/getter/2022/05/16/22/073857c7-0e70-81f7-41d0-d69d4d794097/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/05/16/22/3315af98-bdc6-8c96-1611-23d87658b699/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 2022.05.16 AM NFSC news   Binance Suspends Trading of LUNA and UST
 
 <img src="https://media.gettr.com/group19/origin/2022/05/16/12/daac5e14-dbe0-4f41-5afd-7b73098373b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/16/2022 11:33 AM UTC  - :tv:直播](/content/gettr/p19zm3vd5da.md)
-
- 5月16号：尊敬的战友们好……在北京发生的现在．感觉有点像．八九年四月份时候的情形．差不多，但是这时候的人．绝对没有那个时候的学生勇敢，而且他们会很快地被残忍的镇压……非常残忍……下场会非常的糟糕，因为现在中国拥有一个历史上最残忍的独裁的流氓政府．中国共产党。
-
-<img src="https://media.gettr.com/group32/getter/2022/05/16/11/34c40999-6678-9cf5-e880-455df98cefd2/out.jpg" width="506" height="284">
 
 ---
 
