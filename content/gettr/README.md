@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p19vhzobb89.md)
+
+2022.05.15 农场联盟工作汇报
+
+<img src="https://media.gettr.com/group12/origin/2022/05/16/01/3ec3f688-2c73-b8fe-7398-4186f88cb8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p19x36007d1.md)
 
 2022.05.15  晚 新中国联邦 | 新闻访谈    时局下的集中营-从历史到现实，新中国联邦话化行动为力量!
@@ -138,11 +146,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/16/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p19vhzobb89.md)
+[@miles 5/16/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p19y2lw0913.md)
 
-2022.05.15 农场联盟工作汇报
+【Ukraine Rescue】05/15/2022 The young girl who fled Ukraine told fellow fighter Nicole that she is convinced that Ukraine will win this war and Ukrainians will have freedom again. She thanked the New Chinese people from the New Fede...
 
-<img src="https://media.gettr.com/group12/origin/2022/05/16/01/3ec3f688-2c73-b8fe-7398-4186f88cb8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/05/16/02/070d4e21-56b9-9971-cfdf-f7be6e6aee50/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 27 Consecutive Days...
 15/05/2022 The loss of human rights and humanity has led to this slavery society, which is the unbearable true state of China！🔥🔥🔥
 
 <img src="https://media.gettr.com/group44/getter/2022/05/15/12/63d4fb03-ab3f-50b1-95bb-0f847613ff94/914e5dd350bda05baa9f4a41d9dff668.jpg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p19v4ge37ba.md)
-
-文贵大直播：谈被黑客，数字货币，习近平普京身体  2022-05-15
-
-<img src="https://media.gettr.com/group37/origin/2022/05/15/12/67754ecc-1ef9-60e5-0b23-cb033f64d949/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
