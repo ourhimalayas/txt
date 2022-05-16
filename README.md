@@ -11,6 +11,21 @@
 
 ---
 
+#### [中共国因疫情而取销2023年亚洲杯决赛的主办权](/content/gnews/2538163.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [韩国志愿者受新中国联邦鼓舞希望和我们共建美好新世界](/content/gnews/2538159.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [樱花FM┃华夏幸福累计逾期债务463亿 涉诉讼金额占净资产54%](/content/gnews/2538105.md)
+ `樱花FM`
+
+#### [樱花FM┃粮食危机已成现实 韩国释放1824吨海产品](/content/gnews/2538067.md)
+ `樱花FM`
+
+#### [樱花FM┃中法首脑电话会谈，支持和平解决乌克兰问题](/content/gnews/2538055.md)
+ `樱花FM`
+
 #### [大直播后记：斯坦福的网络政策研究中心](/content/gnews/2538035.md)
  `雅典娜GNotes`
 
@@ -26,22 +41,13 @@
 #### [樱花FM┃福德与功德](/content/gnews/2537983.md)
  `樱花FM`
 
-#### [真正看懂喜币，了解喜币的人是高智慧的人。](/content/gnews/2537952.md)
- `TokyoSakuraDesignGroup`
-
 #### [台湾正式宣布“新冠清零”时代结束](/content/gnews/2537951.md)
  `墨尔本雅典娜农场`
 
 #### [樱花时政┃国民党拟提名蒋家后人参选台北市长](/content/gnews/2537950.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中日财经爆&#124;日本通胀加剧CGPI飙升10%创历史新高](/content/gnews/2537949.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [樱花FM┃中共制造业是装满鲜艳颜料的玻璃瓶](/content/gnews/2537940.md)
- `樱花FM`
-
-#### [樱花FM┃日韩确认改善双边关系](/content/gnews/2537935.md)
  `樱花FM`
 
 #### [大直播后记：七哥谈把信息转到大陆和爆料革命的神器](/content/gnews/2537931.md)
@@ -50,17 +56,11 @@
 #### [全球疫情疫苗数据更新](/content/gnews/2537924.md)
  `墨尔本雅典娜农场`
 
-#### [要么是要你的钱，要么是要你的命，或者它两样都要！](/content/gnews/2537898.md)
- `TokyoSakuraDesignGroup`
-
-#### [樱花FM┃马克龙与习近平通电话：谈及疫情清零对在华法国人的影响](/content/gnews/2537875.md)
- `樱花FM`
-
-#### [大直播后记：俄罗斯一个国家被几个寡头给分了](/content/gnews/2537856.md)
- `雅典娜GNotes`
-
 #### [COVID-19疫苗副作用集萃（2022.5.16D）新冠疫苗第三针以后甲亢复发了](/content/gnews/2537808.md)
  `墨尔本雅典娜农场`
+
+#### [习近平的策略改变了而不是他不行了，战友要提高辨真假的能力](/content/gnews/2537456.md)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [中日财经爆&#124;数字货币遭遇挤兑风潮 市值4万亿的Luna一夜之间崩盘](/content/gnews/2537325.md)
  `東京櫻花団-Tokyo Sakura Group`
