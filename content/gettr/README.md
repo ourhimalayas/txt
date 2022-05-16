@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 5/16/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p1a0f6k725e.md)
-
-5/15/2022 Miles Guo: Digital currency market is collapsing in which the trading volume of ETH and NFT increased 3 to 5 times although 20% of Bitcoins were dumped, so who are the super players in the digital currency market? Goldman...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/16/14/c06de4c2-53ab-e3ac-c451-f14d99a242e5/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/16/2022 2:52 PM UTC  - 2圖](/content/gettr/p1a0f6t974f.md)
 
 5月16号：所有的中国人民被玩弄了几十年……几代人，这可能是人类有史以来最大的丑闻和悲剧。新中国联邦人……将停止对中国人的愚弄和压榨……彻底消灭欺骗全世界的邪恶的中国共产党。
@@ -19,6 +11,22 @@
 【七哥【招商证券，映华西证券APP也崩了。有大量投资者在社交平台发布信息称，华西证券APP出现故障，交易页面显示：“系统提示称，后台系统繁忙，请求被取消，请稍候。】中共惯用这种下三滥的招式割韭菜！感谢七哥这么多年的幸苦爆料，让我们一步一步认清这个中共这个魔鬼👹！】
 
 <img src="https://media.gettr.com/group11/getter/2022/05/16/14/b68b4441-8802-4680-2514-5f4beda1dbca/be5ee83881f695ef35cce3c699042337.jpg" width="506" height="284">
+
+---
+
+[@miles 5/16/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p1a0f6k725e.md)
+
+5/15/2022 Miles Guo: Digital currency market is collapsing in which the trading volume of ETH and NFT increased 3 to 5 times although 20% of Bitcoins were dumped, so who are the super players in the digital currency market? Goldman...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/16/14/c06de4c2-53ab-e3ac-c451-f14d99a242e5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/16/2022 4:26 PM UTC  - :tv:直播](/content/gettr/p19zd6gf768.md)
+
+05.16.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+
+<img src="https://media.gettr.com/group47/origin/2022/05/16/16/ba50a0bb-d2c4-d8b4-1b48-693b1ab114bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Only one method keeps your wealth and ...
 2022-5-15《鸡血王喜币大作战》 第一百九十六集 嘉宾：齐天二圣、七里香
 
 <img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p19y53477c2.md)
-
-Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They saw the people in the refugee center experiencing sadness and the loss of loved ones. They love our NFSC Coffee. They stand with the volunteers of the...
-
-<img src="https://media.gettr.com/group9/origin/2022/05/16/02/109db3ab-4f8d-f5b2-2473-960fec7aaa72/out.jpg" width="506" height="284">
 
 ---
 
