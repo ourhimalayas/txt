@@ -2,38 +2,56 @@
 ---
 
 
-#### [【樱话】黄鼠狼给鸡拜年，中共驻日使领馆忙于拉关系套近乎](/content/gnews/2536408.md)
+#### [习太阳利用王岐山反腐立新寡头瓜分中国](/content/gnews/2536601.md)
+ `雅典娜GNotes`
+
+#### [G系列投资者投资的是没有共产党后的中国（四）](/content/gnews/2536576.md)
+ `雅典娜GNotes`
+
+#### [剑指中共，美国会正式启动《跨党派创新与竞争法》](/content/gnews/2536548.md)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】中共国一边辟谣，一边阻断持有国外永居权和签证者离开](/content/gnews/2536539.md)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】樱花时政&#124;比利时议会通过谴责中国议案 要求欧盟制裁李家超](/content/gnews/2536388.md)
+#### [美韩峰会重点应对朝鲜威胁及中共国经济影响](/content/gnews/2536531.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [G系列投资者投资的是没有共产党后的中国（三）](/content/gnews/2536512.md)
+ `雅典娜GNotes`
+
+#### [七哥金句：共党早在2018年就印好了新版币](/content/gnews/2536511.md)
+ `雅典娜GNotes`
+
+#### [美股崩溃导致市场恐惧情绪增加](/content/gnews/2536492.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [【樱话】喜联储NFT2.0版在未来的应用](/content/gnews/2536483.md)
  `TokyoSakuraDesignGroup`
 
-#### [G&#124;Fashion 2024年全球大型时装秀即将开始筹备](/content/gnews/2536381.md)
+#### [世界各地粮食价格飙升、粮食危机悄然到来](/content/gnews/2536462.md)
+ `温哥华圆成农场🇨🇦`
+
+#### [文·贵天成——文贵先生谈“陆金所”（三）](/content/gnews/2536445.md)
+ `墨尔本雅典娜农场`
+
+#### [出国或逃亡之路](/content/gnews/2536434.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [年轻的乌克兰女孩坚信乌克兰人和中国人都会获得自由。她感谢新中国联邦在危难时刻对乌克兰人的帮助](/content/gnews/2536370.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [【樱话】樱花时政┃中共间谍船现身澳海军秘密设施附近](/content/gnews/2536366.md)
- `TokyoSakuraDesignGroup`
+#### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月15日晚](/content/gnews/2536364.md)
+ `纽约香草山MOS01`
 
 #### [自由的代价有可能是生命，但只要你的信念足够坚定，就一定会达成所愿](/content/gnews/2536343.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [【全文字幕第一部分】2021年12月19日 文贵大直播 超发货币导致的通胀通缩对世界经济与格局的影响；中共房地产持续暴雷破产；病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至](/content/gnews/2536308.md)
- `文贵视频字幕全集`
+#### [乌克兰情报局长透露推翻普京的政变正在进行](/content/gnews/2536292.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [乌克兰在2022年欧洲歌唱大赛中夺魁](/content/gnews/2536307.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [文·贵天成——文贵先生谈“陆金所”（二）](/content/gnews/2536303.md)
+#### [中共国18家大型龙头房企4月销售额腰斩](/content/gnews/2536257.md)
  `墨尔本雅典娜农场`
-
-#### [乌军不断收复失地，俄军损失惨重](/content/gnews/2536273.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [俄驻欧盟大使：俄乌冲突可能升级为更广泛的欧洲战争](/content/gnews/2536261.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [5月15日大直播速记精萃](/content/gnews/2536222.md)
  `雅典娜GNotes`
@@ -44,14 +62,11 @@
 #### [俄罗斯寡头爆料：普京罹患血癌时日不多](/content/gnews/2536191.md)
  `日本东京方舟农场`
 
+#### [G系列投资者投资的是没有共产党后的中国（二）](/content/gnews/2536167.md)
+ `雅典娜GNotes`
+
 #### [2022年5月16日《樱花快报》：NIH证实美国卫生官员应中共要求隐匿中共病毒基因测序](/content/gnews/2536166.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [G系列投资者投资的是没有共产党后的中国](/content/gnews/2536164.md)
- `雅典娜GNotes`
-
-#### [共产党一切恐惧的总和也比不上对爆料革命直播的恐惧；盖特未来一定是最牛的社交媒体](/content/gnews/2536161.md)
- `雅典娜GNotes`
 
 #### [全球粮食危机 印度宣布禁止小麦出口](/content/gnews/2536152.md)
  `蓝莲花农场`
@@ -83,26 +98,14 @@
 #### [马斯克收购推特让彼此双方都陷入窘境](/content/gnews/2535651.md)
  `NFSC News`
 
-#### [美国总统签署法案支持台湾在世界卫生大会的观察员地位](/content/gnews/2535555.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [北韩被证实15人死亡破两年来无感染神话](/content/gnews/2535550.md)
  `G-NEWS TAIWAN`
 
 #### [爆料革命不只是直播，事关中国人的追求、尊严和生活方式](/content/gnews/2535514.md)
  `银河歌舞厅`
 
-#### [中共领导人习近平患有脑动脉瘤并希望接受传统医学治疗](/content/gnews/2535469.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [中国人对暴力防疫态度的转变](/content/gnews/2535444.md)
- `银河歌舞厅`
-
 #### [共产党代言人在今时今日已集中到习近平一人身上](/content/gnews/2535410.md)
  `银河歌舞厅`
-
-#### [芬兰和瑞典寻求加入北约 一个新时代正在到来](/content/gnews/2535388.md)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [中共对美国发动了一场完美的经济超限战](/content/gnews/2535378.md)
  `银河歌舞厅`
@@ -119,6 +122,12 @@
 #### [5/15/2022国内经济财经周报：居民贷款大幅下滑；人民币跌破6.8关口](/content/gnews/2533898.md)
  `秘密翻译组金融团队`
 
+#### [文编&#124;第三个感受，新中国联邦深入人心](/content/gnews/2533852.md)
+ `KarmaLabs`
+
+#### [文编&#124;第二个感受，新中国联邦全方位受到全世界关注](/content/gnews/2533842.md)
+ `KarmaLabs`
+
 #### [随着乌克兰的反攻，顿巴斯的前线转移](/content/gnews/2533831.md)
  `Shuizhuyu`
 
@@ -131,14 +140,8 @@
 #### [法国称七国集团将支持乌克兰“直至胜利”](/content/gnews/2533601.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [粮食危机推波助澜，全球第二生产国印度禁止小麦出口](/content/gnews/2533589.md)
- `墨尔本雅典娜农场`
-
 #### [封城下的畜奴社会](/content/gnews/2533403.md)
  `墨尔本雅典娜农场`
-
-#### [爆料革命平民观察：马里乌波尔控制权是俄罗斯在俄乌战争的关键](/content/gnews/2532795.md)
- `澳喜农场`
 
 #### [加州男子扰乱 &#8220;制止亚裔仇恨 &#8220;集会被逮捕](/content/gnews/2531740.md)
  `日本东京方舟农场`
@@ -153,9 +156,6 @@
  `温哥华扬帆农场`
 
 #### [2022年5月14日《樱花快报》：马斯克宣布中止收购Twitter计划](/content/gnews/2525128.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃支持乌克兰西欧与英美分歧加深](/content/gnews/2524840.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
