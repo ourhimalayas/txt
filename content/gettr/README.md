@@ -10,6 +10,24 @@
 
 ---
 
+[@miles 5/16/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1a26je5202.md)
+
+5/16/2022 Miles Guo Gettr: Mankind is facing an unprecedented uncertainty and instability; when the entire world is focusing on the Russia-Ukraine war and financial markets, people have ignored the fact that the COVID vaccine disas...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/16/22/073857c7-0e70-81f7-41d0-d69d4d794097/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/16/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1a22qy7be3.md)
+
+“数据为牢” 飞飞秀救援快报  2022-05-16
+
+For English: gettr.com/streaming/p1a1ivt25ec
+
+<img src="https://media.gettr.com/group6/origin/2022/05/16/22/252e723f-518a-fa1e-364b-b5d3745c34c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@cornfieldsis 5/16/2022 9:51 PM UTC  - 3圖](/content/gettr/p1a1ckr8fa0.md)
 
 郭先生在跟战友们一起和G｜Fashion 团队 试装中 ～～～ ☺️☺️🥰🥰😍😍😍😍
@@ -39,16 +57,6 @@ www.gfashion.com
 @miles @gfashion @ddnyc
 
 <img src="https://media.gettr.com/group8/origin/2022/05/16/21/4b65b686-45fc-849d-d85f-390da6441423/008a46e43f54327afdd140d065a64fb7.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1a22qy7be3.md)
-
-“数据为牢” 飞飞秀救援快报  2022-05-16
-
-For English: gettr.com/streaming/p1a1ivt25ec
-
-<img src="https://media.gettr.com/group6/origin/2022/05/16/22/252e723f-518a-fa1e-364b-b5d3745c34c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
  5月16号：尊敬的战友们好……在北京发生的现在．感觉有点像．八九年四月份时候的情形．差不多，但是这时候的人．绝对没有那个时候的学生勇敢，而且他们会很快地被残忍的镇压……非常残忍……下场会非常的糟糕，因为现在中国拥有一个历史上最残忍的独裁的流氓政府．中国共产党。
 
 <img src="https://media.gettr.com/group32/getter/2022/05/16/11/34c40999-6678-9cf5-e880-455df98cefd2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19zd4xf2f4.md)
-
-2022.05.16  新中国联邦 | 军情室 中共情报收集船逼近澳洲海岸，浅谈中共航母的几次南下出征
-
-<img src="https://media.gettr.com/group46/origin/2022/05/16/10/3fe2a8c4-ef1f-015d-5c7c-b04f315adde7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
