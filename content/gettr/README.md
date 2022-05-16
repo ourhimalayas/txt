@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/16/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p1a0f6k725e.md)
+
+5/15/2022 Miles Guo: Digital currency market is collapsing in which the trading volume of ETH and NFT increased 3 to 5 times although 20% of Bitcoins were dumped, so who are the super players in the digital currency market? Goldman...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/16/14/c06de4c2-53ab-e3ac-c451-f14d99a242e5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/16/2022 1:52 PM UTC  - :tv:直播](/content/gettr/p1a07kx1cf3.md)
+
+ 5月16号：尊敬的战友们好－再次的劝告所有的新中国联邦的战友们……千万要看到全球的经济和股票市场的即将到来的危机……千万千万不要任何侥幸的投机行为……太可怕了……
+
+<img src="https://media.gettr.com/group8/getter/2022/05/16/13/dcb6404f-22c5-866b-2a43-45d793149f8f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p19zrlp81f3.md)
 
 2022.05.16  早 新中国联邦 | 新闻访谈   
@@ -170,27 +186,11 @@ Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They
 
 ---
 
-[@miles 5/16/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p19vhzobb89.md)
+[@miles 5/16/2022 2:44 PM UTC  - :tv:直播](/content/gettr/p1a05wadb9f.md)
 
-2022.05.15 农场联盟工作汇报
+ 5月16号：来自乌克兰人民的礼物……伟大的乌克兰人民必胜！
 
-<img src="https://media.gettr.com/group12/origin/2022/05/16/01/3ec3f688-2c73-b8fe-7398-4186f88cb8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p19x36007d1.md)
-
-2022.05.15  晚 新中国联邦 | 新闻访谈    时局下的集中营-从历史到现实，新中国联邦话化行动为力量!
-
-<img src="https://media.gettr.com/group19/origin/2022/05/16/00/3ade2021-c075-0c03-445c-a676bf14b74e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/16/2022 1:52 PM UTC  - :tv:直播](/content/gettr/p1a07kx1cf3.md)
-
- 5月16号：尊敬的战友们好－再次的劝告所有的新中国联邦的战友们……千万要看到全球的经济和股票市场的即将到来的危机……千万千万不要任何侥幸的投机行为……太可怕了……
-
-<img src="https://media.gettr.com/group8/getter/2022/05/16/13/dcb6404f-22c5-866b-2a43-45d793149f8f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/05/16/14/8ea384db-60db-f6fc-4d46-592477c3a310/out.jpg" width="506" height="284">
 
 ---
 
