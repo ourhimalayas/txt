@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/16/2022 11:27 PM UTC ](/content/gettr/p1a1lg1644a.md)
+
+Xi Jinping is suffering from six kinds of deadly diseases
+
+On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds of fatal diseases: 1) the most dangerous one is the pancreas; 2) a cardiac artery bypass sur...
+
+<img src="https://media.gettr.com/group5/origin/2022/05/16/23/4df782f0-6f3f-4eaf-6c86-ab970bd43206/138713d2dd1411652b34e7dbf96a6d7d.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1a1zzae250.md)
 
 2022.05.16 PM NFSC news   Miles Guo Explains the Significance of the U.S.-ASEAN Summit
@@ -26,13 +36,15 @@
 
 ---
 
-[@miles 5/16/2022 11:27 PM UTC ](/content/gettr/p1a1lg1644a.md)
+[@miles 5/16/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1a22r93995.md)
 
-Xi Jinping is suffering from six kinds of deadly diseases
+2022.05.16  NFSC fringe  Episode 190
 
-On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds of fatal diseases: 1) the most dangerous one is the pancreas; 2) a cardiac artery bypass sur...
 
-<img src="https://media.gettr.com/group5/origin/2022/05/16/23/4df782f0-6f3f-4eaf-6c86-ab970bd43206/138713d2dd1411652b34e7dbf96a6d7d.jpg" width="506" height="284">
+
+中文同传：
+
+<img src="https://media.gettr.com/group31/origin/2022/05/16/23/9fd652cb-614c-9584-24cd-92e1b13adbc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,14 +211,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 2022.05.16  早 新中国联邦 | 新闻访谈   
 
 <img src="https://media.gettr.com/group12/origin/2022/05/16/13/acb5d6f3-2299-c893-28c3-8996edc4102b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/16/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p19zdji3ada.md)
-
-2022.05.16  早 新中国联邦 | 新闻   新中国联邦驻梅迪卡营地路面环境全面升级;英国独立媒体人采访新中国联邦义工
-
-<img src="https://media.gettr.com/group24/origin/2022/05/16/12/c9ecc45f-79ba-9014-0e70-e8901411ea73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
