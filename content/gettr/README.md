@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p19y53477c2.md)
+
+Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They saw the people in the refugee center experiencing sadness and the loss of loved ones. They love our NFSC Coffee. They stand with the volunteers of the...
+
+<img src="https://media.gettr.com/group9/origin/2022/05/16/02/109db3ab-4f8d-f5b2-2473-960fec7aaa72/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p19y2lw0913.md)
 
 【Ukraine Rescue】05/15/2022 The young girl who fled Ukraine told fellow fighter Nicole that she is convinced that Ukraine will win this war and Ukrainians will have freedom again. She thanked the New Chinese people from the New Fede...
@@ -154,11 +162,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/16/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p19y53477c2.md)
+[@miles 5/16/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19vhzv433a.md)
 
-Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They saw the people in the refugee center experiencing sadness and the loss of loved ones. They love our NFSC Coffee. They stand with the volunteers of the...
+2022-5-15《鸡血王喜币大作战》 第一百九十六集 嘉宾：齐天二圣、七里香
 
-<img src="https://media.gettr.com/group9/origin/2022/05/16/02/109db3ab-4f8d-f5b2-2473-960fec7aaa72/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They
 【Ukraine Rescue】05/14/2022 The volunteer from Israel is very interested in the slogan on our vest to exterminate the Communist Party. She says that China is a great country and has made great contributions to mankind, but the CCP r...
 
 <img src="https://media.gettr.com/group33/getter/2022/05/15/14/45f59af3-bcf0-d36a-b90a-930487182a09/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 1:51 PM UTC ](/content/gettr/p19v7hy3a7f.md)
-
-05/15/2022 on the 27th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
-
-No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 27 Consecutive Days
-
-No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 27 Consecutive Days...
 
 ---
 
