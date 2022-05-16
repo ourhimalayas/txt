@@ -10,6 +10,26 @@
 
 ---
 
+[@miles 5/16/2022 2:52 PM UTC  - 2圖](/content/gettr/p1a0f6t974f.md)
+
+5月16号：所有的中国人民被玩弄了几十年……几代人，这可能是人类有史以来最大的丑闻和悲剧。新中国联邦人……将停止对中国人的愚弄和压榨……彻底消灭欺骗全世界的邪恶的中国共产党。
+
+
+
+【七哥【招商证券，映华西证券APP也崩了。有大量投资者在社交平台发布信息称，华西证券APP出现故障，交易页面显示：“系统提示称，后台系统繁忙，请求被取消，请稍候。】中共惯用这种下三滥的招式割韭菜！感谢七哥这么多年的幸苦爆料，让我们一步一步认清这个中共这个魔鬼👹！】
+
+<img src="https://media.gettr.com/group11/getter/2022/05/16/14/b68b4441-8802-4680-2514-5f4beda1dbca/be5ee83881f695ef35cce3c699042337.jpg" width="506" height="284">
+
+---
+
+[@miles 5/16/2022 2:44 PM UTC  - :tv:直播](/content/gettr/p1a05wadb9f.md)
+
+ 5月16号：来自乌克兰人民的礼物……伟大的乌克兰人民必胜！
+
+<img src="https://media.gettr.com/group38/getter/2022/05/16/14/8ea384db-60db-f6fc-4d46-592477c3a310/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 1:52 PM UTC  - :tv:直播](/content/gettr/p1a07kx1cf3.md)
 
  5月16号：尊敬的战友们好－再次的劝告所有的新中国联邦的战友们……千万要看到全球的经济和股票市场的即将到来的危机……千万千万不要任何侥幸的投机行为……太可怕了……
@@ -175,22 +195,6 @@ Only one method keeps your wealth and ...
 Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They saw the people in the refugee center experiencing sadness and the loss of loved ones. They love our NFSC Coffee. They stand with the volunteers of the...
 
 <img src="https://media.gettr.com/group9/origin/2022/05/16/02/109db3ab-4f8d-f5b2-2473-960fec7aaa72/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p19y2lw0913.md)
-
-【Ukraine Rescue】05/15/2022 The young girl who fled Ukraine told fellow fighter Nicole that she is convinced that Ukraine will win this war and Ukrainians will have freedom again. She thanked the New Chinese people from the New Fede...
-
-<img src="https://media.gettr.com/group19/getter/2022/05/16/02/070d4e21-56b9-9971-cfdf-f7be6e6aee50/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 2:44 PM UTC  - :tv:直播](/content/gettr/p1a05wadb9f.md)
-
- 5月16号：来自乌克兰人民的礼物……伟大的乌克兰人民必胜！
-
-<img src="https://media.gettr.com/group38/getter/2022/05/16/14/8ea384db-60db-f6fc-4d46-592477c3a310/out.jpg" width="506" height="284">
 
 ---
 
