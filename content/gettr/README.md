@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/16/2022 6:06 AM UTC  - :tv:直播](/content/gettr/p19yse82811.md)
+
+No better than hell , you live in the FireWall Country
+
+the murderous demons from hell are walking the streets
+
+Suppose three o’clock the CCP’d to demise you
+
+never they delay to four o’clock
+
+Only one method keeps your wealth and ...
+
+<img src="https://media.gettr.com/group21/origin/2022/05/16/06/d3c7959e-a401-99ff-c693-3e7fff47f948/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ygyoaa6b.md)
 
 2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报
@@ -162,27 +178,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/15/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p19vtayf440.md)
+[@miles 5/16/2022 6:25 AM UTC  - :tv:直播](/content/gettr/p19ylohf8b0.md)
 
-【Ukraine Rescue】05/08/2022 Larry, a volunteer from Ireland, not only strongly agrees with the NFSC's philosophy of eliminating the CCP, but after hearing the various persecutions Mr. Guo has suffered, he says with emotion: The pric...
+5/15/2022 Miles Guo: No one would believe that the disasters of the cryptocurrencies like LUNA were manipulated by the CCP. The whole world has lost over $10 trillion in the CCP's surprise attack on the economy. Large corporations ...
 
-<img src="https://media.gettr.com/group23/getter/2022/05/15/15/a73e78a5-f177-b863-bee8-bfb74af4cf18/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 6:06 AM UTC  - :tv:直播](/content/gettr/p19yse82811.md)
-
-No better than hell , you live in the FireWall Country
-
-the murderous demons from hell are walking the streets
-
-Suppose three o’clock the CCP’d to demise you
-
-never they delay to four o’clock
-
-Only one method keeps your wealth and ...
-
-<img src="https://media.gettr.com/group21/origin/2022/05/16/06/d3c7959e-a401-99ff-c693-3e7fff47f948/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/05/16/06/5cdfde8e-6866-59a7-d66f-dd9a3dee3be5/out.jpg" width="506" height="284">
 
 ---
 
