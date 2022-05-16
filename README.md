@@ -11,6 +11,24 @@
 
 ---
 
+#### [世界媒体都掌握在极少数家族了，世界没有真相](/content/gnews/2536110.md)
+ `雅典娜GNotes`
+
+#### [爆料革命直播不仅是用真相灭共更是一种生活方式即中国人的追求和中国人的尊严](/content/gnews/2536094.md)
+ `雅典娜GNotes`
+
+#### [七哥的直播数据从4亿次篡改到8000千次](/content/gnews/2536051.md)
+ `雅典娜GNotes`
+
+#### [2022年5月16日《樱花简报》：日本和英国合作共同开发下一代战斗机](/content/gnews/2536049.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [谈古论今 ┃ 青蒿素治疗癌症的原理机制与安全性与前景](/content/gnews/2536048.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [从2017年初开始七哥的直播数据被共产党大量篡改](/content/gnews/2536043.md)
+ `雅典娜GNotes`
+
 #### [七国集团继续对俄罗斯施加经济压力，以应对“小麦战争”](/content/gnews/2536033.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -38,9 +56,6 @@
 #### [全球最新报道5种致死疾病](/content/gnews/2535849.md)
  `mayflowertranslate`
 
-#### [民意调查显示到目前为止有超过50万人被中共病毒疫苗杀死](/content/gnews/2535832.md)
- `mayflowertranslate`
-
 #### [截至5.15 俄乌战事汇总](/content/gnews/2535807.md)
  `秘密翻譯組G-Translators`
 
@@ -53,17 +68,11 @@
 #### [马斯克收购推特让彼此双方都陷入窘境](/content/gnews/2535651.md)
  `NFSC News`
 
-#### [20220515郭文贵大直播 ：这次虚拟币大跌 就是中共控制的大基金对美国发动的金融超限作战](/content/gnews/2535593.md)
- `Tokyo Sakura Video Group`
-
 #### [美国总统签署法案支持台湾在世界卫生大会的观察员地位](/content/gnews/2535555.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [北韩被证实15人死亡破两年来无感染神话](/content/gnews/2535550.md)
  `G-NEWS TAIWAN`
-
-#### [20220515郭文贵大直播 ：美国、新中国联邦、沼泽地 反习帮拉拢的三股力量 习近平身体不佳消息是王岐山放出来的](/content/gnews/2535529.md)
- `Tokyo Sakura Video Group`
 
 #### [爆料革命不只是直播，事关中国人的追求、尊严和生活方式](/content/gnews/2535514.md)
  `银河歌舞厅`
@@ -101,12 +110,6 @@
 #### [IMF提高人民币在一篮子顶级货币中的权重](/content/gnews/2535124.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [中共国科技工作者在封锁和损失中迎来裁员血洗](/content/gnews/2535081.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [痛苦的上海封锁政策仍在持续](/content/gnews/2535039.md)
- `澳喜特战旅Gnews`
-
 #### [华尔街周报：大幅抛售后 市场触底的迹象让投资者望而却步](/content/gnews/2534025.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -123,9 +126,6 @@
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [文编&#124;希望被救助的战友能够感恩，救助的战友不图回报](/content/gnews/2533778.md)
- `KarmaLabs`
-
-#### [文编&#124;中共国已进入畜奴时代，历史殷鉴不远](/content/gnews/2533754.md)
  `KarmaLabs`
 
 #### [爆料革命学习之路&#8212;之对墙内的医院冷酷现实的感慨](/content/gnews/2533622.md)
