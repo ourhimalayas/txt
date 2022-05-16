@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p19zdkt80e9.md)
+
+2022.05.16 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group27/origin/2022/05/16/17/bee55ada-7066-029e-751e-d2e0a8940bb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@cornfieldsis 5/16/2022 4:57 PM UTC ](/content/gettr/p1a0be4194a.md)
 
 关于 Store Credit 问题： 
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 5/16/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p19zdkt80e9.md)
+[@miles 5/16/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1a1zys73e4.md)
 
-2022.05.16 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022.05.16  新中国联邦 | 喜健康    勇敢的良心医生-弗拉基米尔·泽连科
 
-<img src="https://media.gettr.com/group27/origin/2022/05/16/17/bee55ada-7066-029e-751e-d2e0a8940bb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/05/16/20/91d1f271-1526-2405-4519-a90cea80c559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,22 +199,6 @@ Day 71 - Date: M...
 5/15/2022 Miles Guo: No one would believe that the disasters of the cryptocurrencies like LUNA were manipulated by the CCP. The whole world has lost over $10 trillion in the CCP's surprise attack on the economy. Large corporations ...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/16/06/5cdfde8e-6866-59a7-d66f-dd9a3dee3be5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 6:06 AM UTC  - :tv:直播](/content/gettr/p19yse82811.md)
-
-No better than hell , you live in the FireWall Country
-
-the murderous demons from hell are walking the streets
-
-Suppose three o’clock the CCP’d to demise you
-
-never they delay to four o’clock
-
-Only one method keeps your wealth and ...
-
-<img src="https://media.gettr.com/group21/origin/2022/05/16/06/d3c7959e-a401-99ff-c693-3e7fff47f948/out.jpg" width="506" height="284">
 
 ---
 
