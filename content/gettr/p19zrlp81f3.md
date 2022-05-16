@@ -2,9 +2,9 @@
 ---
 
 
-`@miles 5/16/2022 1:12 PM UTC`
+`@miles 5/16/2022 1:36 PM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p19zdjod82f)
+[轉發自GETTR](https://gettr.com/post/p19zrlp81f3)
 
 2022.05.16  早 新中国联邦 | 新闻访谈   
 

@@ -186,7 +186,7 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/16/2022 1:12 PM UTC  - :tv:直播](/content/gettr/p19zdjod82f.md)
+[@miles 5/16/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p19zrlp81f3.md)
 
 2022.05.16  早 新中国联邦 | 新闻访谈   
 
