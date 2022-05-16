@@ -22,6 +22,18 @@ www.gfashion.com
 
 ---
 
+[@cornfieldsis 5/16/2022 9:51 PM UTC  - 3圖](/content/gettr/p1a1ckr8fa0.md)
+
+郭先生在跟战友们一起和G｜Fashion 团队 试装中 ～～～ ☺️☺️🥰🥰😍😍😍😍
+
+
+
+@gfashion @miles @ddnyc @changdaobrother
+
+<img src="https://media.gettr.com/group7/origin/2022/05/16/21/e54cf631-6072-5164-82e6-4ba766ed3bf7/dc071337208942156d7717627a3ec441.jpeg" width="506" height="284">
+
+---
+
 [@cornfieldsis 5/16/2022 9:34 PM UTC ](/content/gettr/p1a1xg1e574.md)
 
 郭先生在开心的试装中 ～～～ 我们来看看有哪儿些时装单品是你喜欢的🥰
@@ -31,6 +43,22 @@ www.gfashion.com
 @gfashion @ddnyc @miles
 
 <img src="https://media.gettr.com/group35/origin/2022/05/16/21/edb1af43-624d-4ebf-33c4-56f4ac1048c5/73a4e7bcf1eed4e504590b3bdbaa041b.jpeg" width="506" height="284">
+
+---
+
+[@himalayadcfarm 5/16/2022 11:47 AM UTC  - :tv:直播](/content/gettr/p1a03pb8e75.md)
+
+🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】:
+
+精糧向来自英国的志愿者介绍新中国联邦为什么要灭共。这位来自英国的志愿者曾在香港生活过，也会简单的粤语，非常喜欢香港，很多人很遗憾离开那里，精糧向他介绍 #新中国联邦人 为什么要灭共。
+
+
+
+ About the New Federal State of China #NFSC 👇
+
+We are the NEW CHINESE who are taking down EVIL Chinese Co...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/16/11/f1325b61-5e51-f95c-8da3-6a3742f1ea5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -67,22 +95,6 @@ www.gfashion.com
 @gfashion @ddnyc @miles
 
 <img src="https://media.gettr.com/group47/origin/2022/05/16/16/40b7d468-6713-d880-a28b-efc4742a881c/c4bebc19ce58abc1866e7d5601b3c011.png" width="506" height="284">
-
----
-
-[@himalayadcfarm 5/16/2022 11:47 AM UTC  - :tv:直播](/content/gettr/p1a03pb8e75.md)
-
-🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】:
-
-精糧向来自英国的志愿者介绍新中国联邦为什么要灭共。这位来自英国的志愿者曾在香港生活过，也会简单的粤语，非常喜欢香港，很多人很遗憾离开那里，精糧向他介绍 #新中国联邦人 为什么要灭共。
-
-
-
- About the New Federal State of China #NFSC 👇
-
-We are the NEW CHINESE who are taking down EVIL Chinese Co...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/16/11/f1325b61-5e51-f95c-8da3-6a3742f1ea5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -215,14 +227,6 @@ Day 71 - Date: M...
 5/15/2022 Miles Guo: Zhu Rongji and Wang Qishan were forced to help Xi Jinping launch the financial warfare against the world. Peter Ma Mingzhe, Neil Shen, Pony Ma, Yan Yan, and Weijian Shan are all controlled by Zhu and Wang. If L...
 
 <img src="https://media.gettr.com/group47/getter/2022/05/16/08/a1632413-ec72-5ffd-727e-b9e1e5f7e100/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 8:14 AM UTC  - :tv:直播](/content/gettr/p19ygyyff28.md)
-
-2022.05.15 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group9/origin/2022/05/16/08/c6abc43e-79c3-420c-e420-816c3052074c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
