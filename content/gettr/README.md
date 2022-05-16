@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19vhzv433a.md)
+
+2022-5-15《鸡血王喜币大作战》 第一百九十六集 嘉宾：齐天二圣、七里香
+
+<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p19y53477c2.md)
 
 Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They saw the people in the refugee center experiencing sadness and the loss of loved ones. They love our NFSC Coffee. They stand with the volunteers of the...
@@ -154,19 +162,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/15/2022 2:52 PM UTC  - :tv:直播](/content/gettr/p19vjgq5226.md)
+[@miles 5/16/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p19y4cm9815.md)
 
-15/05/2022 The Chinese Communist Party has once again staged a farce of outsiders directing insiders: the Ministry of Agriculture called off the harvest of silage wheat due to internet speculation, leaving a large amount of wheat t...
+5/15/2022 Miles Guo: From NFT's trading changes you can see that this digital currency disaster actually started on May 1st, both LUNA and USDT are ridiculous to the point of pegging stablecoins to bitcoin. As a result, when bitcoi...
 
-<img src="https://media.gettr.com/group26/getter/2022/05/15/14/583b32d3-6534-8e55-cde3-65d920ecf26d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19vhzv433a.md)
-
-2022-5-15《鸡血王喜币大作战》 第一百九十六集 嘉宾：齐天二圣、七里香
-
-<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/05/16/04/23482bd5-d792-d3ca-f053-0286810f5344/out.jpg" width="506" height="284">
 
 ---
 
