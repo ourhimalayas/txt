@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p19zdb3d6e0.md)
+
+2022.05.16 AM NFSC news   Binance Suspends Trading of LUNA and UST
+
+<img src="https://media.gettr.com/group19/origin/2022/05/16/12/daac5e14-dbe0-4f41-5afd-7b73098373b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 11:33 AM UTC  - :tv:直播](/content/gettr/p19zm3vd5da.md)
 
  5月16号：尊敬的战友们好……在北京发生的现在．感觉有点像．八九年四月份时候的情形．差不多，但是这时候的人．绝对没有那个时候的学生勇敢，而且他们会很快地被残忍的镇压……非常残忍……下场会非常的糟糕，因为现在中国拥有一个历史上最残忍的独裁的流氓政府．中国共产党。
@@ -178,19 +186,11 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/16/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p19xenr03ee.md)
+[@miles 5/16/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p19zdji3ada.md)
 
-5/15/2022  Xi Jinping has serious health issues. Besides the brain surgery to treat the tumor, his heart, pancreas, spleen and kidneys also have problems and have received surgeries. The biggest threat to his life is the C6 spinal ...
+2022.05.16  早 新中国联邦 | 新闻   新中国联邦驻梅迪卡营地路面环境全面升级;英国独立媒体人采访新中国联邦义工
 
-<img src="https://media.gettr.com/group34/getter/2022/05/16/00/f1c0f48d-5489-ecaa-2cae-78f8654c3e42/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p19zdb3d6e0.md)
-
-2022.05.16 AM NFSC news   Binance Suspends Trading of LUNA and UST
-
-<img src="https://media.gettr.com/group19/origin/2022/05/16/12/daac5e14-dbe0-4f41-5afd-7b73098373b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/05/16/12/c9ecc45f-79ba-9014-0e70-e8901411ea73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
