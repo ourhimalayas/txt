@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p19zrlp81f3.md)
+
+2022.05.16  早 新中国联邦 | 新闻访谈   
+
+<img src="https://media.gettr.com/group12/origin/2022/05/16/13/acb5d6f3-2299-c893-28c3-8996edc4102b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p19zdji3ada.md)
 
 2022.05.16  早 新中国联邦 | 新闻   新中国联邦驻梅迪卡营地路面环境全面升级;英国独立媒体人采访新中国联邦义工
@@ -178,19 +186,11 @@ Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They
 
 ---
 
-[@himalaya_mos 5/15/2022 7:12 PM UTC  - 6圖](/content/gettr/p19wagv6b68.md)
+[@miles 5/16/2022 1:52 PM UTC  - :tv:直播](/content/gettr/p1a07kx1cf3.md)
 
-A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cancer after being vaccinated against the COVID. He was undergoing painful chemotherapy. He said on the Internet: "It is the vaccine that caused the surge o...
+ 5月16号：尊敬的战友们好－再次的劝告所有的新中国联邦的战友们……千万要看到全球的经济和股票市场的即将到来的危机……千万千万不要任何侥幸的投机行为……太可怕了……
 
-<img src="https://media.gettr.com/group12/getter/2022/05/15/19/f7aff863-e55e-967d-88e2-e93503fcf346/41a848a40b241bbb88a7912c4cabb224.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p19zrlp81f3.md)
-
-2022.05.16  早 新中国联邦 | 新闻访谈   
-
-<img src="https://media.gettr.com/group12/origin/2022/05/16/13/acb5d6f3-2299-c893-28c3-8996edc4102b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/05/16/13/dcb6404f-22c5-866b-2a43-45d793149f8f/out.jpg" width="506" height="284">
 
 ---
 
