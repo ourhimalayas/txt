@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p19y4cm9815.md)
+
+5/15/2022 Miles Guo: From NFT's trading changes you can see that this digital currency disaster actually started on May 1st, both LUNA and USDT are ridiculous to the point of pegging stablecoins to bitcoin. As a result, when bitcoi...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/16/04/23482bd5-d792-d3ca-f053-0286810f5344/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p19vhzv433a.md)
 
 2022-5-15《鸡血王喜币大作战》 第一百九十六集 嘉宾：齐天二圣、七里香
@@ -162,19 +170,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/16/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p19y4cm9815.md)
+[@miles 5/16/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ygyoaa6b.md)
 
-5/15/2022 Miles Guo: From NFT's trading changes you can see that this digital currency disaster actually started on May 1st, both LUNA and USDT are ridiculous to the point of pegging stablecoins to bitcoin. As a result, when bitcoi...
+2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报
 
-<img src="https://media.gettr.com/group31/getter/2022/05/16/04/23482bd5-d792-d3ca-f053-0286810f5344/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p19v9f8561f.md)
-
-【Ukraine Rescue】05/14/2022 The volunteer from Israel is very interested in the slogan on our vest to exterminate the Communist Party. She says that China is a great country and has made great contributions to mankind, but the CCP r...
-
-<img src="https://media.gettr.com/group33/getter/2022/05/15/14/45f59af3-bcf0-d36a-b90a-930487182a09/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/16/04/a9d8fbf0-3f81-cff6-41aa-e59fbd3d8aa6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
