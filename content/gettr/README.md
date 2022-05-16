@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 7:39 AM UTC  - :tv:直播](/content/gettr/p19yk2hb2bc.md)
+
+【Ukraine Rescue】05/15/2022 Korean volunteers from Seoul say they are inspired by the actions of the New Federal State of China. They sincerely pray for the NFSC and hope to build a better new world together with the NFSC. They also...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/16/07/402077f8-4ad8-949b-1934-6d7200952cfc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 7:12 AM UTC  - :tv:直播](/content/gettr/p19ygyx83fd.md)
 
 2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -154,19 +162,11 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/15/2022 5:41 PM UTC  - :tv:直播](/content/gettr/p19wdwr0d8e.md)
+[@miles 5/16/2022 8:14 AM UTC  - :tv:直播](/content/gettr/p19ygyyff28.md)
 
-2022年5月15日  俄乌战争战况播报
+2022.05.15 文贵大直播（精华版）
 
-<img src="https://media.gettr.com/group47/origin/2022/05/15/17/44bb426d-30bd-c47a-2a58-efe536ae994d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/16/2022 7:39 AM UTC  - :tv:直播](/content/gettr/p19yk2hb2bc.md)
-
-【Ukraine Rescue】05/15/2022 Korean volunteers from Seoul say they are inspired by the actions of the New Federal State of China. They sincerely pray for the NFSC and hope to build a better new world together with the NFSC. They also...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/16/07/402077f8-4ad8-949b-1934-6d7200952cfc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/05/16/08/c6abc43e-79c3-420c-e420-816c3052074c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
