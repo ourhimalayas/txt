@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ygyoaa6b.md)
+
+2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报
+
+<img src="https://media.gettr.com/group14/origin/2022/05/16/04/a9d8fbf0-3f81-cff6-41aa-e59fbd3d8aa6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 4:11 AM UTC  - :tv:直播](/content/gettr/p19y4cm9815.md)
 
 5/15/2022 Miles Guo: From NFT's trading changes you can see that this digital currency disaster actually started on May 1st, both LUNA and USDT are ridiculous to the point of pegging stablecoins to bitcoin. As a result, when bitcoi...
@@ -162,19 +170,19 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/15/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p19vx7yf0cc.md)
+[@miles 5/16/2022 6:06 AM UTC  - :tv:直播](/content/gettr/p19yse82811.md)
 
-15/05/2022 The real picture of the Chinese Communist Party's rule by falsehoods: fake trees are planted on both sides of the street, and the quotation is expensive. It seems some corrupt officials can enrich themselves again as a r...
+No better than hell , you live in the FireWall Country
 
-<img src="https://media.gettr.com/group35/getter/2022/05/15/15/067d0290-b5c0-0601-ce52-72645a50097f/out.jpg" width="506" height="284">
+the murderous demons from hell are walking the streets
 
----
+Suppose three o’clock the CCP’d to demise you
 
-[@miles 5/16/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ygyoaa6b.md)
+never they delay to four o’clock
 
-2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报
+Only one method keeps your wealth and ...
 
-<img src="https://media.gettr.com/group14/origin/2022/05/16/04/a9d8fbf0-3f81-cff6-41aa-e59fbd3d8aa6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/05/16/06/d3c7959e-a401-99ff-c693-3e7fff47f948/out.jpg" width="506" height="284">
 
 ---
 
