@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19xfkpd45c.md)
+
+2022.05.15  晚 新中国联邦 | 新闻   新中国联邦战友接受英国独立媒体人采访；喜联储的NFT2.0版引领第五代区块链记账技术
+
+<img src="https://media.gettr.com/group3/origin/2022/05/16/00/da084652-664a-5903-e994-7c2cdfb5309e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p19xenr03ee.md)
 
 5/15/2022  Xi Jinping has serious health issues. Besides the brain surgery to treat the tumor, his heart, pancreas, spleen and kidneys also have problems and have received surgeries. The biggest threat to his life is the C6 spinal ...
@@ -114,11 +122,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/16/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19xfkpd45c.md)
+[@himalaya_mos 5/15/2022 7:12 PM UTC  - 6圖](/content/gettr/p19wagv6b68.md)
 
-2022.05.15  晚 新中国联邦 | 新闻   新中国联邦战友接受英国独立媒体人采访；喜联储的NFT2.0版引领第五代区块链记账技术
+A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cancer after being vaccinated against the COVID. He was undergoing painful chemotherapy. He said on the Internet: "It is the vaccine that caused the surge o...
 
-<img src="https://media.gettr.com/group3/origin/2022/05/16/00/da084652-664a-5903-e994-7c2cdfb5309e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/05/15/19/f7aff863-e55e-967d-88e2-e93503fcf346/41a848a40b241bbb88a7912c4cabb224.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 70 - Date: M...
 
 <img src="https://media.gettr.com/group45/getter/2022/05/15/07/3c9767cb-cc5c-ac76-85d0-a38bb554b1ba/60fc4583bacbce0abbd774bf650cb722.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 5/15/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p19uu658b26.md)
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.05.15 ET
-
-<img src="https://media.gettr.com/group48/origin/2022/05/15/06/5dc0b88f-8b14-e389-6555-5198d6d42976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
