@@ -2,6 +2,38 @@
 ---
 
 
+[@cornfieldsis 5/16/2022 9:30 PM UTC  - 6圖](/content/gettr/p1a1twa9773.md)
+
+快来看～G｜Fashion 的帅哥！ 😍😍😍😍😍😍😍😍😍😍😘😘😘😘😘😘😘😘😘😘🥰🥰🥰🥰🥰🥰🤩🤩🤩🤩🤩🤩🤩🤩🤩🤩 
+
+
+
+大家期不期待G Fashion 的新品啊～～～ 
+
+
+
+www.gfashion.com 
+
+
+
+@miles @gfashion @ddnyc
+
+<img src="https://media.gettr.com/group8/origin/2022/05/16/21/4b65b686-45fc-849d-d85f-390da6441423/008a46e43f54327afdd140d065a64fb7.jpeg" width="506" height="284">
+
+---
+
+[@cornfieldsis 5/16/2022 9:34 PM UTC ](/content/gettr/p1a1xg1e574.md)
+
+郭先生在开心的试装中 ～～～ 我们来看看有哪儿些时装单品是你喜欢的🥰
+
+
+
+@gfashion @ddnyc @miles
+
+<img src="https://media.gettr.com/group35/origin/2022/05/16/21/edb1af43-624d-4ebf-33c4-56f4ac1048c5/73a4e7bcf1eed4e504590b3bdbaa041b.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1a1zys73e4.md)
 
 2022.05.16  新中国联邦 | 喜健康    勇敢的良心医生-弗拉基米尔·泽连科
@@ -38,15 +70,19 @@
 
 ---
 
-[@cornfieldsis 5/16/2022 9:23 PM UTC ](/content/gettr/p1a20o38952.md)
+[@himalayadcfarm 5/16/2022 11:47 AM UTC  - :tv:直播](/content/gettr/p1a03pb8e75.md)
 
-郭先生在开心的试装中 ～～～ 我们来看看有哪儿写时装单品？ 
+🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】:
+
+精糧向来自英国的志愿者介绍新中国联邦为什么要灭共。这位来自英国的志愿者曾在香港生活过，也会简单的粤语，非常喜欢香港，很多人很遗憾离开那里，精糧向他介绍 #新中国联邦人 为什么要灭共。
 
 
 
-@gfashion @ddnyc @miles
+ About the New Federal State of China #NFSC 👇
 
-<img src="https://media.gettr.com/group42/origin/2022/05/16/21/81467a67-148b-ee1d-e81f-3d5180e86005/3328b36c5ed22db62e845fa9d0bfaca5.jpeg" width="506" height="284">
+We are the NEW CHINESE who are taking down EVIL Chinese Co...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/16/11/f1325b61-5e51-f95c-8da3-6a3742f1ea5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,22 +223,6 @@ Day 71 - Date: M...
 2022.05.15 文贵大直播（精华版）
 
 <img src="https://media.gettr.com/group9/origin/2022/05/16/08/c6abc43e-79c3-420c-e420-816c3052074c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/16/2022 7:39 AM UTC  - :tv:直播](/content/gettr/p19yk2hb2bc.md)
-
-【Ukraine Rescue】05/15/2022 Korean volunteers from Seoul say they are inspired by the actions of the New Federal State of China. They sincerely pray for the NFSC and hope to build a better new world together with the NFSC. They also...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/16/07/402077f8-4ad8-949b-1934-6d7200952cfc/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 7:12 AM UTC  - :tv:直播](/content/gettr/p19ygyx83fd.md)
-
-2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group48/origin/2022/05/16/06/33c903ac-84fc-512f-2055-ac92fc9b402c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
