@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p19y2lw0913.md)
+
+【Ukraine Rescue】05/15/2022 The young girl who fled Ukraine told fellow fighter Nicole that she is convinced that Ukraine will win this war and Ukrainians will have freedom again. She thanked the New Chinese people from the New Fede...
+
+<img src="https://media.gettr.com/group19/getter/2022/05/16/02/070d4e21-56b9-9971-cfdf-f7be6e6aee50/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p19vhzobb89.md)
 
 2022.05.15 农场联盟工作汇报
@@ -146,11 +154,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/16/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p19y2lw0913.md)
+[@miles 5/16/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p19y53477c2.md)
 
-【Ukraine Rescue】05/15/2022 The young girl who fled Ukraine told fellow fighter Nicole that she is convinced that Ukraine will win this war and Ukrainians will have freedom again. She thanked the New Chinese people from the New Fede...
+Jim and Satomi, a volunteer couple from the U.S., were interviewed by King. They saw the people in the refugee center experiencing sadness and the loss of loved ones. They love our NFSC Coffee. They stand with the volunteers of the...
 
-<img src="https://media.gettr.com/group19/getter/2022/05/16/02/070d4e21-56b9-9971-cfdf-f7be6e6aee50/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/05/16/02/109db3ab-4f8d-f5b2-2473-960fec7aaa72/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 27 Consecutive Days
 
 No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 27 Consecutive Days...
-
----
-
-[@miles 5/15/2022 12:46 PM UTC  - 6圖](/content/gettr/p19v5ba1d70.md)
-
-5月15日 这就是中国社会的真实现状，惨不忍睹，丧失人权. 人道，这种天理不容的畜奴的社会！🔥🔥🔥
-
-
-
-15/05/2022 The loss of human rights and humanity has led to this slavery society, which is the unbearable true state of China！🔥🔥🔥
-
-<img src="https://media.gettr.com/group44/getter/2022/05/15/12/63d4fb03-ab3f-50b1-95bb-0f847613ff94/914e5dd350bda05baa9f4a41d9dff668.jpg" width="506" height="284">
 
 ---
 
