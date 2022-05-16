@@ -22,6 +22,22 @@
 
 ---
 
+[@miles 5/16/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p19zdkt80e9.md)
+
+2022.05.16 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group27/origin/2022/05/16/17/bee55ada-7066-029e-751e-d2e0a8940bb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@cornfieldsis 5/15/2022 6:03 AM UTC  - 2圖](/content/gettr/p19u0h61ad2.md)
+
+亲爱的战友们， 当你们选择尺寸的时候， 不仅仅可以参考Size Chart, 同时在购物车的下面，GF 有注明模特的身高和她穿的尺寸！ 同时有些衣服我们也会建议，是否需要选择大一号！ @gfashion @ddnyc
+
+<img src="https://media.gettr.com/group44/origin/2022/05/15/06/3fccaa8a-3568-e8e4-3ae1-af8931ce5870/bd8e39b100b567a6ad858724615291c5.png" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 4:26 PM UTC  - :tv:直播](/content/gettr/p19zd6gf768.md)
 
 05.16.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
@@ -47,14 +63,6 @@
 5/15/2022 Miles Guo: Digital currency market is collapsing in which the trading volume of ETH and NFT increased 3 to 5 times although 20% of Bitcoins were dumped, so who are the super players in the digital currency market? Goldman...
 
 <img src="https://media.gettr.com/group3/getter/2022/05/16/14/c06de4c2-53ab-e3ac-c451-f14d99a242e5/out.jpg" width="506" height="284">
-
----
-
-[@cornfieldsis 5/15/2022 6:03 AM UTC  - 2圖](/content/gettr/p19u0h61ad2.md)
-
-亲爱的战友们， 当你们选择尺寸的时候， 不仅仅可以参考Size Chart, 同时在购物车的下面，GF 有注明模特的身高和她穿的尺寸！ 同时有些衣服我们也会建议，是否需要选择大一号！ @gfashion @ddnyc
-
-<img src="https://media.gettr.com/group44/origin/2022/05/15/06/3fccaa8a-3568-e8e4-3ae1-af8931ce5870/bd8e39b100b567a6ad858724615291c5.png" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ never they delay to four o’clock
 Only one method keeps your wealth and ...
 
 <img src="https://media.gettr.com/group21/origin/2022/05/16/06/d3c7959e-a401-99ff-c693-3e7fff47f948/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p19ygyoaa6b.md)
-
-2022.05.16 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报
-
-<img src="https://media.gettr.com/group14/origin/2022/05/16/04/a9d8fbf0-3f81-cff6-41aa-e59fbd3d8aa6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
