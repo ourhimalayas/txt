@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/16/2022 8:40 AM UTC ](/content/gettr/p19ymuhd42e.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月14日第71天当日救援统计：
+
+Medyka救援站接待：约734人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约20069人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 71 - Date: M...
+
+<img src="https://media.gettr.com/group30/getter/2022/05/16/08/7bb53cd4-6e70-36ee-a57d-f086e067d944/862057441bd39669f054485a036c1c00.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p19z1cne15b.md)
 
 5/15/2022 Miles Guo: Zhu Rongji and Wang Qishan were forced to help Xi Jinping launch the financial warfare against the world. Peter Ma Mingzhe, Neil Shen, Pony Ma, Yan Yan, and Weijian Shan are all controlled by Zhu and Wang. If L...
@@ -154,43 +186,11 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/15/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p19xhhe6795.md)
+[@miles 5/16/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19zd4xf2f4.md)
 
-5/15/2022 Miles Guo: It is no coincidence that the media simultaneously exposed Xi and Putin have health issues. The Shanghai gang is no more, but there is an anti-Xi gang, which must ally with the US and me to take out Xi. Wang Qi...
+2022.05.16  新中国联邦 | 军情室 中共情报收集船逼近澳洲海岸，浅谈中共航母的几次南下出征
 
-<img src="https://media.gettr.com/group21/getter/2022/05/15/22/c55e0e6b-a85d-6286-f6e2-b367e1e32407/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 8:40 AM UTC ](/content/gettr/p19ymuhd42e.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月14日第71天当日救援统计：
-
-Medyka救援站接待：约734人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约20069人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 71 - Date: M...
-
-<img src="https://media.gettr.com/group30/getter/2022/05/16/08/7bb53cd4-6e70-36ee-a57d-f086e067d944/862057441bd39669f054485a036c1c00.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/05/16/10/3fe2a8c4-ef1f-015d-5c7c-b04f315adde7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
