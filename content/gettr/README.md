@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p19x36007d1.md)
+
+2022.05.15  晚 新中国联邦 | 新闻访谈    时局下的集中营-从历史到现实，新中国联邦话化行动为力量!
+
+<img src="https://media.gettr.com/group19/origin/2022/05/16/00/3ade2021-c075-0c03-445c-a676bf14b74e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@himalaya_mos 5/15/2022 7:12 PM UTC  - 6圖](/content/gettr/p19wagv6b68.md)
 
 A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cancer after being vaccinated against the COVID. He was undergoing painful chemotherapy. He said on the Internet: "It is the vaccine that caused the surge o...
@@ -130,11 +138,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/16/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p19x36007d1.md)
+[@miles 5/16/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p19vhzobb89.md)
 
-2022.05.15  晚 新中国联邦 | 新闻访谈    时局下的集中营-从历史到现实，新中国联邦话化行动为力量!
+2022.05.15 农场联盟工作汇报
 
-<img src="https://media.gettr.com/group19/origin/2022/05/16/00/3ade2021-c075-0c03-445c-a676bf14b74e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/05/16/01/3ec3f688-2c73-b8fe-7398-4186f88cb8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 27 Consecutive Days...
 文贵大直播：谈被黑客，数字货币，习近平普京身体  2022-05-15
 
 <img src="https://media.gettr.com/group37/origin/2022/05/15/12/67754ecc-1ef9-60e5-0b23-cb033f64d949/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p19vd8xa011.md)
-
-Nicole interviewed a young photographer from New York. He came to Medyka to document the volunteers and Ukrainian refugees to let more people better appreciate the unknown efforts of these ordinary people. Nicole invited him to par...
-
-<img src="https://media.gettr.com/group11/origin/2022/05/15/12/4b039020-714e-a3f3-d4cb-cc3b31419ff5/out.jpg" width="506" height="284">
 
 ---
 
