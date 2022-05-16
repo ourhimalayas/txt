@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p19xenr03ee.md)
+
+5/15/2022  Xi Jinping has serious health issues. Besides the brain surgery to treat the tumor, his heart, pancreas, spleen and kidneys also have problems and have received surgeries. The biggest threat to his life is the C6 spinal ...
+
+<img src="https://media.gettr.com/group34/getter/2022/05/16/00/f1c0f48d-5489-ecaa-2cae-78f8654c3e42/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/15/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p19x5bu5c7f.md)
 
 5/15/2022 Miles Guo: The worse Xi's health is, the faster and more ruthless he will attack Taiwan and the crueler he will treat the Chinese. Xi finds Putin a man of words and believes that Communist China belongs to his family. Xi'...
@@ -106,11 +114,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@miles 5/16/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p19xenr03ee.md)
+[@miles 5/16/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19xfkpd45c.md)
 
-5/15/2022  Xi Jinping has serious health issues. Besides the brain surgery to treat the tumor, his heart, pancreas, spleen and kidneys also have problems and have received surgeries. The biggest threat to his life is the C6 spinal ...
+2022.05.15  晚 新中国联邦 | 新闻   新中国联邦战友接受英国独立媒体人采访；喜联储的NFT2.0版引领第五代区块链记账技术
 
-<img src="https://media.gettr.com/group34/getter/2022/05/16/00/f1c0f48d-5489-ecaa-2cae-78f8654c3e42/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/05/16/00/da084652-664a-5903-e994-7c2cdfb5309e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 70 - Date: M...
 
 <img src="https://media.gettr.com/group45/getter/2022/05/15/07/3c9767cb-cc5c-ac76-85d0-a38bb554b1ba/60fc4583bacbce0abbd774bf650cb722.jpg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p19ul62a64b.md)
-
-2022/05/15  新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group50/origin/2022/05/15/06/9e809d20-eac7-7647-b649-799b66f6684e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
