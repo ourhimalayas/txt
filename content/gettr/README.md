@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19zd4xf2f4.md)
+
+2022.05.16  新中国联邦 | 军情室 中共情报收集船逼近澳洲海岸，浅谈中共航母的几次南下出征
+
+<img src="https://media.gettr.com/group46/origin/2022/05/16/10/3fe2a8c4-ef1f-015d-5c7c-b04f315adde7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 8:40 AM UTC ](/content/gettr/p19ymuhd42e.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -178,19 +186,11 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p19x45c6344.md)
+[@miles 5/16/2022 11:33 AM UTC  - :tv:直播](/content/gettr/p19zm3vd5da.md)
 
-2022.05.15  PM NFSC news   Top 5 Italian Luxury Brands want to Become the Manufacturers of GFashion
+ 5月16号：尊敬的战友们好……在北京发生的现在．感觉有点像．八九年四月份时候的情形．差不多，但是这时候的人．绝对没有那个时候的学生勇敢，而且他们会很快地被残忍的镇压……非常残忍……下场会非常的糟糕，因为现在中国拥有一个历史上最残忍的独裁的流氓政府．中国共产党。
 
-<img src="https://media.gettr.com/group31/origin/2022/05/15/22/4ec9d4ad-d67b-5137-12f3-313e41c33693/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/16/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19zd4xf2f4.md)
-
-2022.05.16  新中国联邦 | 军情室 中共情报收集船逼近澳洲海岸，浅谈中共航母的几次南下出征
-
-<img src="https://media.gettr.com/group46/origin/2022/05/16/10/3fe2a8c4-ef1f-015d-5c7c-b04f315adde7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/05/16/11/34c40999-6678-9cf5-e880-455df98cefd2/out.jpg" width="506" height="284">
 
 ---
 
