@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 11:33 AM UTC  - :tv:直播](/content/gettr/p19zm3vd5da.md)
+
+ 5月16号：尊敬的战友们好……在北京发生的现在．感觉有点像．八九年四月份时候的情形．差不多，但是这时候的人．绝对没有那个时候的学生勇敢，而且他们会很快地被残忍的镇压……非常残忍……下场会非常的糟糕，因为现在中国拥有一个历史上最残忍的独裁的流氓政府．中国共产党。
+
+<img src="https://media.gettr.com/group32/getter/2022/05/16/11/34c40999-6678-9cf5-e880-455df98cefd2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p19zd4xf2f4.md)
 
 2022.05.16  新中国联邦 | 军情室 中共情报收集船逼近澳洲海岸，浅谈中共航母的几次南下出征
@@ -178,19 +186,11 @@ A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cance
 
 ---
 
-[@miles 5/15/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p19x5bu5c7f.md)
+[@miles 5/16/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p19zdb3d6e0.md)
 
-5/15/2022 Miles Guo: The worse Xi's health is, the faster and more ruthless he will attack Taiwan and the crueler he will treat the Chinese. Xi finds Putin a man of words and believes that Communist China belongs to his family. Xi'...
+2022.05.16 AM NFSC news   Binance Suspends Trading of LUNA and UST
 
-<img src="https://media.gettr.com/group47/getter/2022/05/15/23/530c9b7d-ce47-f89e-fbfc-98d7c1f58fa5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 11:33 AM UTC  - :tv:直播](/content/gettr/p19zm3vd5da.md)
-
- 5月16号：尊敬的战友们好……在北京发生的现在．感觉有点像．八九年四月份时候的情形．差不多，但是这时候的人．绝对没有那个时候的学生勇敢，而且他们会很快地被残忍的镇压……非常残忍……下场会非常的糟糕，因为现在中国拥有一个历史上最残忍的独裁的流氓政府．中国共产党。
-
-<img src="https://media.gettr.com/group32/getter/2022/05/16/11/34c40999-6678-9cf5-e880-455df98cefd2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/05/16/12/daac5e14-dbe0-4f41-5afd-7b73098373b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
