@@ -2,6 +2,14 @@
 ---
 
 
+[@himalaya_mos 5/15/2022 7:12 PM UTC  - 6圖](/content/gettr/p19wagv6b68.md)
+
+A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cancer after being vaccinated against the COVID. He was undergoing painful chemotherapy. He said on the Internet: "It is the vaccine that caused the surge o...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/15/19/f7aff863-e55e-967d-88e2-e93503fcf346/41a848a40b241bbb88a7912c4cabb224.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p19xfkpd45c.md)
 
 2022.05.15  晚 新中国联邦 | 新闻   新中国联邦战友接受英国独立媒体人采访；喜联储的NFT2.0版引领第五代区块链记账技术
@@ -122,11 +130,11 @@ https://twitter.com/MeetThePress/status/1525820838112546817?s=20&t=hDRlf9QQ2nGt.
 
 ---
 
-[@himalaya_mos 5/15/2022 7:12 PM UTC  - 6圖](/content/gettr/p19wagv6b68.md)
+[@miles 5/16/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p19x36007d1.md)
 
-A Chinese young man, 21-year-old Deng Qi, was suddenly diagnosed with bone cancer after being vaccinated against the COVID. He was undergoing painful chemotherapy. He said on the Internet: "It is the vaccine that caused the surge o...
+2022.05.15  晚 新中国联邦 | 新闻访谈    时局下的集中营-从历史到现实，新中国联邦话化行动为力量!
 
-<img src="https://media.gettr.com/group12/getter/2022/05/15/19/f7aff863-e55e-967d-88e2-e93503fcf346/41a848a40b241bbb88a7912c4cabb224.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/05/16/00/3ade2021-c075-0c03-445c-a676bf14b74e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -173,38 +181,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 27 Consecutive Days...
 Nicole interviewed a young photographer from New York. He came to Medyka to document the volunteers and Ukrainian refugees to let more people better appreciate the unknown efforts of these ordinary people. Nicole invited him to par...
 
 <img src="https://media.gettr.com/group11/origin/2022/05/15/12/4b039020-714e-a3f3-d4cb-cc3b31419ff5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/15/2022 7:47 AM UTC ](/content/gettr/p19u7fk8bab.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月13日第70天当日救援统计：
-
-Medyka救援站接待：约360人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约19335人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 70 - Date: M...
-
-<img src="https://media.gettr.com/group45/getter/2022/05/15/07/3c9767cb-cc5c-ac76-85d0-a38bb554b1ba/60fc4583bacbce0abbd774bf650cb722.jpg" width="506" height="284">
 
 ---
 
