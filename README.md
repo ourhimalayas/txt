@@ -11,6 +11,9 @@
 
 ---
 
+#### [有声&#124;新西兰总理确诊中共病毒](/content/gnews/2542324.md)
+ `MOSREC`
+
 #### [2022/05/16 文贵先生盖特精要](/content/gnews/2542306.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -76,9 +79,6 @@
 
 #### [新西兰财经G乐部2022年5月16日:财经新闻整理](/content/gnews/2541619.md)
  `Finance-GCLUB【新西兰财经G乐部】`
-
-#### [有声&#124;比特币触及16个月低点 加密市场日蒸发2000亿](/content/gnews/2541577.md)
- `MOSREC`
 
 #### [美政府释放巨额资金修复破旧的基础设施](/content/gnews/2541492.md)
  `秘密翻譯組G-Translators`
