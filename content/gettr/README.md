@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/17/2022 3:18 PM UTC  - :tv:直播](/content/gettr/p1a6oendc5f.md)
+
+5月17号：尊敬的战友们好……共产党的恐惧．和一些流氓烂崽们……正在盖特和各个媒体上用垃圾伪类们……发起的新的一波
+
+对我们新中国联邦攻击……共产党彻底玩球了，他们太害怕我们了……
+
+
+
+<img src="https://media.gettr.com/group3/getter/2022/05/17/15/c4b2200a-f5df-07bd-0859-8832f9e23165/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 2:18 PM UTC ](/content/gettr/p1a5ujfc704.md)
 
 05/17/2022 on the 29th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
@@ -9,6 +21,22 @@
 No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 29 Consecutive Days
 
 No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 29 Consecutive Days...
+
+---
+
+[@miles 5/17/2022 3:26 PM UTC  - :tv:直播](/content/gettr/p1a6ih467d1.md)
+
+【Ukraine Rescue】 05/16/2022 A university professor from Poland discloses the Confucius Institute of the Chinese Communist Party in Poland, calling its head the 'Communistic Queen'. He is very interested in the New Federal State of ...
+
+<img src="https://media.gettr.com/group45/getter/2022/05/17/15/9ca283e9-dfea-bf0b-07cb-4a41d75a047e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 2:23 PM UTC  - :tv:直播](/content/gettr/p1a59v1b9e5.md)
+
+5/15/2022 Miles Guo: A very influential figure in the financial sector from Europe said that he is investing in who we will be in ten years. More than 20 bigwigs at the Monaco Historic Grand Prix yesterday were all fellow fighters,...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/17/14/8e362d0e-54e8-c424-ac6f-c48a70063c76/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +69,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 72 - Date: M...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/17/14/9cc3d6db-c62f-e2f6-58e7-e8a378a8cc0d/d980146b8779b8d7a0c907486d7ccecc.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 2:23 PM UTC  - :tv:直播](/content/gettr/p1a59v1b9e5.md)
-
-5/15/2022 Miles Guo: A very influential figure in the financial sector from Europe said that he is investing in who we will be in ten years. More than 20 bigwigs at the Monaco Historic Grand Prix yesterday were all fellow fighters,...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/17/14/8e362d0e-54e8-c424-ac6f-c48a70063c76/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,24 +201,6 @@ Actions speak louder than words. As NFSC citizens, the reflections we need to ha
 中文同传：
 
 <img src="https://media.gettr.com/group31/origin/2022/05/16/23/9fd652cb-614c-9584-24cd-92e1b13adbc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 11:27 PM UTC ](/content/gettr/p1a1lg1644a.md)
-
-Xi Jinping is suffering from six kinds of deadly diseases
-
-On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds of fatal diseases: 1) the most dangerous one is the pancreas; 2) a cardiac artery bypass sur...
-
-<img src="https://media.gettr.com/group5/origin/2022/05/16/23/4df782f0-6f3f-4eaf-6c86-ab970bd43206/138713d2dd1411652b34e7dbf96a6d7d.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1a1zzae250.md)
-
-2022.05.16 PM NFSC news   Miles Guo Explains the Significance of the U.S.-ASEAN Summit
-
-<img src="https://media.gettr.com/group24/origin/2022/05/16/22/3315af98-bdc6-8c96-1611-23d87658b699/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
