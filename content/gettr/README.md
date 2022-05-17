@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/17/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1a2gwdcb34.md)
+
+5/16/2022 Miles Guo’s GETTR: The Chinese people’s education is in big trouble. The Chinese have long been brainwashed by the CCP just like a frog being boiled in lukewarm water. There is going to be the worst food crisis in the wor...
+
+<img src="https://media.gettr.com/group27/getter/2022/05/17/00/d1c4d327-ea6d-1518-f939-064cc36ad7bd/out.jpg" width="506" height="284">
+
+---
+
 [@cornfieldsis 5/17/2022 12:30 AM UTC ](/content/gettr/p1a2o4sf2c7.md)
 
 亲爱的战友们， 目前Hpay系统正在升级中，等升级后会更好的使用在G｜Fashion 平台上，请大家耐心等待，目前暂时不可以使用Hpay 支付在G｜Fashion 网页上
@@ -80,11 +88,11 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/17/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1a2gwdcb34.md)
+[@miles 5/17/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1a25l11959.md)
 
-5/16/2022 Miles Guo’s GETTR: The Chinese people’s education is in big trouble. The Chinese have long been brainwashed by the CCP just like a frog being boiled in lukewarm water. There is going to be the worst food crisis in the wor...
+2022.05.16  晚 新中国联邦 | 新闻访谈
 
-<img src="https://media.gettr.com/group27/getter/2022/05/17/00/d1c4d327-ea6d-1518-f939-064cc36ad7bd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/05/17/00/e895ffb8-9d4f-69db-97fa-46a133e9d42c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -207,18 +215,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 05.16.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 <img src="https://media.gettr.com/group47/origin/2022/05/16/16/ba50a0bb-d2c4-d8b4-1b48-693b1ab114bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 2:52 PM UTC  - 2圖](/content/gettr/p1a0f6t974f.md)
-
-5月16号：所有的中国人民被玩弄了几十年……几代人，这可能是人类有史以来最大的丑闻和悲剧。新中国联邦人……将停止对中国人的愚弄和压榨……彻底消灭欺骗全世界的邪恶的中国共产党。
-
-
-
-【七哥【招商证券，映华西证券APP也崩了。有大量投资者在社交平台发布信息称，华西证券APP出现故障，交易页面显示：“系统提示称，后台系统繁忙，请求被取消，请稍候。】中共惯用这种下三滥的招式割韭菜！感谢七哥这么多年的幸苦爆料，让我们一步一步认清这个中共这个魔鬼👹！】
-
-<img src="https://media.gettr.com/group11/getter/2022/05/16/14/b68b4441-8802-4680-2514-5f4beda1dbca/be5ee83881f695ef35cce3c699042337.jpg" width="506" height="284">
 
 ---
 
