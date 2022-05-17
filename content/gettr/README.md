@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/17/2022 11:52 AM UTC  - :tv:直播](/content/gettr/p1a5xc2b120.md)
+[@miles 5/17/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1a5w267a29.md)
 
-【Ukraine Rescue】05/15/2022  Two 18-year old Ukraine volunteers told fellow fighters Nicole that they will keep smiling and be strong in this challenging time. They thank the Rule of Law Foundation and the New Federal State of China...
+2022.05.17  早 新中国联邦 | 新闻访谈   土耳其反对瑞典和芬兰加入北约；喜美元永远不怕挤兑，不会破产；  英格兰银行行长承认无力应对通胀
 
-<img src="https://media.gettr.com/group49/getter/2022/05/17/11/fa6969ee-d5aa-5090-bd51-919e0b699c60/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/05/17/13/7ac5711f-8e4d-5ab0-869e-84a07b450ef5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 2022.05.17  早 新中国联邦 | 新闻   乌克兰人和新中国联邦人为自由而战; 爱尔兰志愿者表示 权力属于人民
 
 <img src="https://media.gettr.com/group22/origin/2022/05/17/12/d0c9fbf1-96ab-29d9-9db8-5d4a78918eb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 11:52 AM UTC  - :tv:直播](/content/gettr/p1a5xc2b120.md)
+
+【Ukraine Rescue】05/15/2022  Two 18-year old Ukraine volunteers told fellow fighters Nicole that they will keep smiling and be strong in this challenging time. They thank the Rule of Law Foundation and the New Federal State of China...
+
+<img src="https://media.gettr.com/group49/getter/2022/05/17/11/fa6969ee-d5aa-5090-bd51-919e0b699c60/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p1a5rf4e9ca.md)
+
+2022.05.17  早 新中国联邦 | 新闻访谈   土耳其反对瑞典和芬兰加入北约；喜美元永远不怕挤兑，不会破产；  英格兰银行行长承认无力应对通胀
+
+<img src="https://media.gettr.com/group39/origin/2022/05/17/13/7ac5711f-8e4d-5ab0-869e-84a07b450ef5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -152,14 +168,6 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/16/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1a207z3389.md)
-
-5/15/2022 Miles Guo: The dollar reserves corresponding to the Himalaya Dollar will never be used as any financial leverage, nor will they be invested in any financial products. The Himalaya Dollar will never be affected by the vola...
-
-<img src="https://media.gettr.com/group34/getter/2022/05/16/22/b39f7291-5023-d341-27f5-fcbfd4d3802c/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/16/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1a22qy7be3.md)
 
 “数据为牢” 飞飞秀救援快报  2022-05-16
@@ -167,18 +175,6 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 For English: gettr.com/streaming/p1a1ivt25ec
 
 <img src="https://media.gettr.com/group6/origin/2022/05/16/22/252e723f-518a-fa1e-364b-b5d3745c34c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@cornfieldsis 5/16/2022 9:51 PM UTC  - 3圖](/content/gettr/p1a1ckr8fa0.md)
-
-郭先生在跟战友们一起和G｜Fashion 团队 试装中 ～～～ ☺️☺️🥰🥰😍😍😍😍
-
-
-
-@gfashion @miles @ddnyc @changdaobrother
-
-<img src="https://media.gettr.com/group7/origin/2022/05/16/21/e54cf631-6072-5164-82e6-4ba766ed3bf7/dc071337208942156d7717627a3ec441.jpeg" width="506" height="284">
 
 ---
 
