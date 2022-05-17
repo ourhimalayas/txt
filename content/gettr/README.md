@@ -10,6 +10,46 @@
 
 ---
 
+[@miles 5/17/2022 2:13 PM UTC ](/content/gettr/p1a5vum0814.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月15日第72天当日救援统计：
+
+Medyka救援站接待：约748人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约20817人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 72 - Date: M...
+
+<img src="https://media.gettr.com/group25/getter/2022/05/17/14/9cc3d6db-c62f-e2f6-58e7-e8a378a8cc0d/d980146b8779b8d7a0c907486d7ccecc.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p1a5rf4e9ca.md)
+
+2022.05.17  早 新中国联邦 | 新闻访谈   土耳其反对瑞典和芬兰加入北约；喜美元永远不怕挤兑，不会破产；  英格兰银行行长承认无力应对通胀
+
+<img src="https://media.gettr.com/group39/origin/2022/05/17/13/7ac5711f-8e4d-5ab0-869e-84a07b450ef5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1a5ui233d2.md)
 
 2022.05.17  早 新中国联邦 | 新闻   乌克兰人和新中国联邦人为自由而战; 爱尔兰志愿者表示 权力属于人民
@@ -23,14 +63,6 @@
 【Ukraine Rescue】05/15/2022  Two 18-year old Ukraine volunteers told fellow fighters Nicole that they will keep smiling and be strong in this challenging time. They thank the Rule of Law Foundation and the New Federal State of China...
 
 <img src="https://media.gettr.com/group49/getter/2022/05/17/11/fa6969ee-d5aa-5090-bd51-919e0b699c60/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p1a5rf4e9ca.md)
-
-2022.05.17  早 新中国联邦 | 新闻访谈   土耳其反对瑞典和芬兰加入北约；喜美元永远不怕挤兑，不会破产；  英格兰银行行长承认无力应对通胀
-
-<img src="https://media.gettr.com/group39/origin/2022/05/17/13/7ac5711f-8e4d-5ab0-869e-84a07b450ef5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -165,16 +197,6 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 5/16/2022 Miles Guo Gettr: Mankind is facing an unprecedented uncertainty and instability; when the entire world is focusing on the Russia-Ukraine war and financial markets, people have ignored the fact that the COVID vaccine disas...
 
 <img src="https://media.gettr.com/group35/getter/2022/05/16/22/073857c7-0e70-81f7-41d0-d69d4d794097/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1a22qy7be3.md)
-
-“数据为牢” 飞飞秀救援快报  2022-05-16
-
-For English: gettr.com/streaming/p1a1ivt25ec
-
-<img src="https://media.gettr.com/group6/origin/2022/05/16/22/252e723f-518a-fa1e-364b-b5d3745c34c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
