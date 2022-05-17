@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/17/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1a2rb8f756.md)
+
+2022.05.16  新中国联邦 | 喜财经   中共经济奄奄一息；香港：东方之珠变东方之猪
+
+<img src="https://media.gettr.com/group45/origin/2022/05/17/01/ef07d2d4-645f-7386-e5eb-66daadb6ec39/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1a25l11959.md)
 
 2022.05.16  晚 新中国联邦 | 新闻访谈
@@ -96,11 +104,11 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/17/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1a2rb8f756.md)
+[@miles 5/17/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1a2tss4de4.md)
 
-2022.05.16  新中国联邦 | 喜财经   中共经济奄奄一息；香港：东方之珠变东方之猪
+2022-5-16《鸡血王喜币大作战》 第一百九十七集 嘉宾：卡丽熙、Nick
 
-<img src="https://media.gettr.com/group45/origin/2022/05/17/01/ef07d2d4-645f-7386-e5eb-66daadb6ec39/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,26 +195,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 2022.05.16 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group27/origin/2022/05/16/17/bee55ada-7066-029e-751e-d2e0a8940bb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@cornfieldsis 5/16/2022 4:57 PM UTC ](/content/gettr/p1a0be4194a.md)
-
-关于 Store Credit 问题： 
-
-
-
-因为G|Fashion 更新了系统， 所有目前大家没有办法在您的账户上查阅store credit 金额。 
-
-
-
-但是你们都会收到一封邮件，告知你们store credit 金额， 还有一个 CODE  (编码）； 当您们想用 store credit 购买产品的时候，直接输入这个CODE  （编码） 就可以了
-
-
-
-@gfashion @ddnyc @miles
-
-<img src="https://media.gettr.com/group47/origin/2022/05/16/16/40b7d468-6713-d880-a28b-efc4742a881c/c4bebc19ce58abc1866e7d5601b3c011.png" width="506" height="284">
 
 ---
 
