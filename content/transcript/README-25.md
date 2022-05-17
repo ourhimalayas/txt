@@ -3,6 +3,8 @@
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：9月3號白宮前直播](/content/transcript/2019/09/20190904-4087259509718924066.md)
+
 [文字版：2019年9月3日郭先生第一次直播](/content/transcript/2019/09/20190904-8691813112681761342.md)
 
 [文字版：2019年9月2日郭文贵先生图桑报平安直播](/content/transcript/2019/09/20190904-5593137024471595991.md)
@@ -50,8 +52,6 @@
 [文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义](/content/transcript/2019/08/20190807-3983824498310525116.md)
 
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/transcript/2019/08/20190807-8437960932132112238.md)
-
-[文字版：2019年8月3日关注香港即将发生的大事](/content/transcript/2019/08/20190805-62375152236056349.md)
 
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

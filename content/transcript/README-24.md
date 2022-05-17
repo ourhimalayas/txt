@@ -3,6 +3,8 @@
 
 ## 頁面 24/42 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年10月9日郭文贵先生报平安直播：港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/transcript/2019/10/20191011-7838742343464767600.md)
+
 [文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）](/content/transcript/2019/10/20191011-8102906543007438735.md)
 
 [文字版：2019年9月29日郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/content/transcript/2019/10/20191010-834338873791119399.md)
@@ -50,8 +52,6 @@
 [文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/content/transcript/2019/09/20190908-7629841718868230274.md)
 
 [文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/transcript/2019/09/20190906-2846090461215125304.md)
-
-[文字版：9月3號白宮前直播](/content/transcript/2019/09/20190904-4087259509718924066.md)
 
 
 ## 頁面 24/42 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)

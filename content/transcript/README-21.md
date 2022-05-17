@@ -3,6 +3,8 @@
 
 ## 頁面 21/42 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！](/content/transcript/2020/01/20200104-4925314405005648052.md)
+
 [文字版：2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人王健死亡照片](/content/transcript/2020/01/20200102-5236405611062477381.md)
 
 [文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！](/content/transcript/2020/01/20200102-3330652484007682662.md)
@@ -50,8 +52,6 @@
 [文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/content/transcript/2019/12/20191205-3740864739432231815.md)
 
 [文字版：2019年12月3日郭先生报平安](/content/transcript/2019/12/20191204-1258843651620864623.md)
-
-[文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/content/transcript/2019/12/20191203-2918612896973787175.md)
 
 
 ## 頁面 21/42 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)

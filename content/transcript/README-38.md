@@ -3,6 +3,8 @@
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年2月5日郭先生郭媒体3段直播](/content/transcript/2018/04/20180418-5529007716852834761.md)
+
 [郭文贵先生01/31/18郭媒体讲话](/content/transcript/2018/04/20180418-5498166230846343860.md)
 
 [2018年2月3号 文贵郭媒体报平安视频](/content/transcript/2018/04/20180418-8770803911585151936.md)
@@ -50,8 +52,6 @@
 [自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/transcript/2018/04/20180418-3363832914523693020.md)
 
 [2017年11月26日文贵健身报平安和Livestream 试播](/content/transcript/2018/04/20180418-3536740810604337739.md)
-
-[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/content/transcript/2018/04/20180418-8844190551130915159.md)
 
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

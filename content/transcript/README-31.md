@@ -3,6 +3,8 @@
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/content/transcript/2019/01/20190111-7038821530851525661.md)
+
 [文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/transcript/2019/01/20190108-2730263120772075960.md)
 
 [文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/content/transcript/2019/01/20190107-8663591932172573911.md)
@@ -50,8 +52,6 @@
 [2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/content/transcript/2018/11/20181123-7564165555128970884.md)
 
 [文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/content/transcript/2018/11/20181122-149600174493022230.md)
-
-[文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/content/transcript/2018/11/20181117-9134684520600037722.md)
 
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)

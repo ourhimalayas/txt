@@ -3,6 +3,8 @@
 
 ## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/content/transcript/2020/04/20200410-8094198208001085988.md)
+
 [文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/content/transcript/2020/04/20200410-1671828290392113200.md)
 
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/content/transcript/2020/04/20200408-8436401289033941417.md)
@@ -50,8 +52,6 @@
 [文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/transcript/2020/03/20200306-1461257140477457088.md)
 
 [文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/transcript/2020/03/20200305-4413506880481638032.md)
-
-[文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/content/transcript/2020/03/20200302-6186645591158961547.md)
 
 
 ## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

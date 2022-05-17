@@ -3,6 +3,8 @@
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年5月20日凌晨4点 直播](/content/transcript/2019/05/20190520-5140210759327330200.md)
+
 [文字版：2019年5月19日文貴船上直播](/content/transcript/2019/05/20190520-8156245383371433216.md)
 
 [文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/content/transcript/2019/05/20190519-4417640762564146374.md)
@@ -50,8 +52,6 @@
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/transcript/2019/04/20190421-3663457252526137440.md)
 
 [文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/content/transcript/2019/04/20190419-6305900525322511967.md)
-
-[文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/content/transcript/2019/04/20190417-8226491175604297051.md)
 
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
