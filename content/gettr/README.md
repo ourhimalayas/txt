@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/17/2022 4:41 PM UTC  - :tv:直播](/content/gettr/p1a6il6f6b6.md)
+
+5/15/2022 Miles Guo: One of the authors of the Stanford report is the mediator between YouTube and myself, as well as Wang Enge and myself! Under the intimidation of the CCP, YouTube dared not to show the real viewing data of my li...
+
+<img src="https://media.gettr.com/group19/getter/2022/05/17/16/67c39279-6588-c164-8bcb-d9351181cfd3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 3:18 PM UTC  - :tv:直播](/content/gettr/p1a6oendc5f.md)
 
 5月17号：尊敬的战友们好……共产党的恐惧．和一些流氓烂崽们……正在盖特和各个媒体上用垃圾伪类们……发起的新的一波
@@ -14,11 +22,11 @@
 
 ---
 
-[@miles 5/17/2022 4:41 PM UTC  - :tv:直播](/content/gettr/p1a6il6f6b6.md)
+[@miles 5/17/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1a4ctx644b.md)
 
-5/15/2022 Miles Guo: One of the authors of the Stanford report is the mediator between YouTube and myself, as well as Wang Enge and myself! Under the intimidation of the CCP, YouTube dared not to show the real viewing data of my li...
+2022.05.17  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group19/getter/2022/05/17/16/67c39279-6588-c164-8bcb-d9351181cfd3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/05/17/17/9c6cae02-9236-043c-3e3e-3ad5657072e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ Day 72 - Date: M...
 中文同传：https://gettr.com/streaming/p1a2h6ffe1f
 
 <img src="https://media.gettr.com/group11/origin/2022/05/17/00/df7bfb6c-51ef-068d-8081-6caaacbc112c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1a2kew4c8a.md)
-
-Actions speak louder than words. As NFSC citizens, the reflections we need to have today are, what we should do, what we have done, and what should we learn and think. They are never being talks all the time, but have no actions to...
-
-<img src="https://media.gettr.com/group45/origin/2022/05/16/23/c2f6d476-8195-ce8b-535d-3e375d3c223a/out.jpg" width="506" height="284">
 
 ---
 
