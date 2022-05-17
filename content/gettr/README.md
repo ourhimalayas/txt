@@ -2,11 +2,13 @@
 ---
 
 
-[@miles 5/17/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1a5w267a29.md)
+[@miles 5/17/2022 2:18 PM UTC ](/content/gettr/p1a5ujfc704.md)
 
-2022.05.17  早 新中国联邦 | 新闻访谈   土耳其反对瑞典和芬兰加入北约；喜美元永远不怕挤兑，不会破产；  英格兰银行行长承认无力应对通胀
+05/17/2022 on the 29th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
 
-<img src="https://media.gettr.com/group39/origin/2022/05/17/13/7ac5711f-8e4d-5ab0-869e-84a07b450ef5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 29 Consecutive Days
+
+No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 29 Consecutive Days...
 
 ---
 
@@ -39,6 +41,14 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 72 - Date: M...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/17/14/9cc3d6db-c62f-e2f6-58e7-e8a378a8cc0d/d980146b8779b8d7a0c907486d7ccecc.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 2:23 PM UTC  - :tv:直播](/content/gettr/p1a59v1b9e5.md)
+
+5/15/2022 Miles Guo: A very influential figure in the financial sector from Europe said that he is investing in who we will be in ten years. More than 20 bigwigs at the Monaco Historic Grand Prix yesterday were all fellow fighters,...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/17/14/8e362d0e-54e8-c424-ac6f-c48a70063c76/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 2022.05.16 PM NFSC news   Miles Guo Explains the Significance of the U.S.-ASEAN Summit
 
 <img src="https://media.gettr.com/group24/origin/2022/05/16/22/3315af98-bdc6-8c96-1611-23d87658b699/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/16/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1a26je5202.md)
-
-5/16/2022 Miles Guo Gettr: Mankind is facing an unprecedented uncertainty and instability; when the entire world is focusing on the Russia-Ukraine war and financial markets, people have ignored the fact that the COVID vaccine disas...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/16/22/073857c7-0e70-81f7-41d0-d69d4d794097/out.jpg" width="506" height="284">
 
 ---
 
