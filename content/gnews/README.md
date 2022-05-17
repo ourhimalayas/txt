@@ -2,6 +2,15 @@
 ---
 
 
+#### [核酸检测在中共国成为又一赚钱工具](/content/gnews/2548686.md)
+ `秘密翻譯組G-Translators`
+
+#### [法國馬克龍對習近平翻臉,德國國防和外交部長對親共總理攤牌](/content/gnews/2548643.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [英国宣布将停止对华援助](/content/gnews/2548631.md)
+ `秘密翻譯組G-Translators`
+
 #### [DC每日热点0517](/content/gnews/2548607.md)
  `喜马拉雅-华盛顿DC农场`
 
@@ -89,9 +98,6 @@
 #### [2022/05/15 墙内世界](/content/gnews/2547857.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [拜登总统签署法案 助台重获世卫观察员身份](/content/gnews/2547802.md)
- `NFSC News`
-
 #### [2022年5月17日，全球中共病毒疫情情况汇总](/content/gnews/2547798.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -109,12 +115,6 @@
 
 #### [【黑吃黑】黑帮寿宴被警方突袭开百万罚单](/content/gnews/2547403.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [专家吁放宽疫苗通行证被高官拒绝](/content/gnews/2547374.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [5/15/2022 文贵直播：在摩纳哥讨论最多的是喜币、爆料革命、习的健康和俄罗斯跟中共的豪船全部消失](/content/gnews/2547339.md)
- `秘密翻译组-北美组`
 
 #### [北朝鲜的中共冠状病毒病例暴增](/content/gnews/2547330.md)
  `新加坡狮城农场 Himalaya Singapore`
