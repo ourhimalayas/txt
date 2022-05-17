@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/17/2022 10:31 PM UTC ](/content/gettr/p1a7uq85534.md)
+
+5月17日 又一个大好消息🔥🔥🔥
+
+
+
+美国提起诉讼，迫使前赌场大亨永利(Wynn)注册为中国代理人
+
+
+
+https://www.reuters.com/world/us/us-sues-compel-former-casino-magnate-wynn-register-agent-china-2022-05-17/
+
+---
+
 [@cornfieldsis 5/17/2022 9:47 PM UTC  - 4圖](/content/gettr/p1a82107f7c.md)
 
 如何绑定您的GClub 会员卡到GFashion 的账户 ？ 
@@ -18,17 +32,11 @@
 
 ---
 
-[@miles 5/17/2022 10:31 PM UTC ](/content/gettr/p1a7uq85534.md)
+[@miles 5/17/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1a7g7f081f.md)
 
-5月17日 又一个大好消息🔥🔥🔥
+2022年5月17日 七哥直播乱聊 
 
-
-
-美国提起诉讼，迫使前赌场大亨永利(Wynn)注册为中国代理人
-
-
-
-https://www.reuters.com/world/us/us-sues-compel-former-casino-magnate-wynn-register-agent-china-2022-05-17/
+<img src="https://media.gettr.com/group24/origin/2022/05/17/22/bf96af6f-9141-587a-337d-6437cded9bd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -217,14 +225,6 @@ Day 72 - Date: M...
 2022.05.17 新中国联邦法治基金乌克兰人道救援行动 - 最新战况播报
 
 <img src="https://media.gettr.com/group5/origin/2022/05/17/04/08f0099d-5a2c-e3dd-0dd0-328b9ba07a74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1a39fjd411.md)
-
-5/15/2022 Miles Guo: Taking down the CCP is not the only goal of our Whistleblowers' Movement, our live broadcast is also a showcase of the pursuit, dignity and lifestyle of the citizens of the New Federal State of China. Even Peng...
-
-<img src="https://media.gettr.com/group46/getter/2022/05/17/04/851cc0a8-723d-bd76-c0ea-79314cffe742/out.jpg" width="506" height="284">
 
 ---
 
