@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/17/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1a5ui233d2.md)
+
+2022.05.17  早 新中国联邦 | 新闻   乌克兰人和新中国联邦人为自由而战; 爱尔兰志愿者表示 权力属于人民
+
+<img src="https://media.gettr.com/group22/origin/2022/05/17/12/d0c9fbf1-96ab-29d9-9db8-5d4a78918eb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1a5iay44e1.md)
+
+2022.05.17 AM NFSC news   The Ground Condition At The NFSC's Camp In Medyka Fully Upgraded
+
+<img src="https://media.gettr.com/group45/origin/2022/05/17/11/9d6fbecf-0d48-3ca0-d619-f7c0a3eb89f5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p1a48mu0975.md)
 
 5/15/2022 Miles Guo: The entire world’s media is controlled by five families, with all the data centers across the globe being controlled by three big tech companies. The Swamp and the CCP have worked together to tamper my data (e....
@@ -144,14 +160,6 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/17/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1a5iay44e1.md)
-
-2022.05.17 AM NFSC news   The Ground Condition At The NFSC's Camp In Medyka Fully Upgraded
-
-<img src="https://media.gettr.com/group45/origin/2022/05/17/11/9d6fbecf-0d48-3ca0-d619-f7c0a3eb89f5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 5/16/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1a22qy7be3.md)
 
 “数据为牢” 飞飞秀救援快报  2022-05-16
@@ -171,22 +179,6 @@ For English: gettr.com/streaming/p1a1ivt25ec
 @gfashion @miles @ddnyc @changdaobrother
 
 <img src="https://media.gettr.com/group7/origin/2022/05/16/21/e54cf631-6072-5164-82e6-4ba766ed3bf7/dc071337208942156d7717627a3ec441.jpeg" width="506" height="284">
-
----
-
-[@himalayadcfarm 5/16/2022 11:47 AM UTC  - :tv:直播](/content/gettr/p1a03pb8e75.md)
-
-🆘🇺🇦🆘【来自乌克兰救援前线 #精糧 的报道】:
-
-精糧向来自英国的志愿者介绍新中国联邦为什么要灭共。这位来自英国的志愿者曾在香港生活过，也会简单的粤语，非常喜欢香港，很多人很遗憾离开那里，精糧向他介绍 #新中国联邦人 为什么要灭共。
-
-
-
- About the New Federal State of China #NFSC 👇
-
-We are the NEW CHINESE who are taking down EVIL Chinese Co...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/16/11/f1325b61-5e51-f95c-8da3-6a3742f1ea5f/out.jpg" width="506" height="284">
 
 ---
 
