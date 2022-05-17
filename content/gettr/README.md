@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/16/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1a2kew4c8a.md)
+
+Actions speak louder than words. As NFSC citizens, the reflections we need to have today are, what we should do, what we have done, and what should we learn and think. They are never being talks all the time, but have no actions to...
+
+<img src="https://media.gettr.com/group45/origin/2022/05/16/23/c2f6d476-8195-ce8b-535d-3e375d3c223a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1a22r93995.md)
 
 2022.05.16  NFSC fringe  Episode 190
@@ -48,11 +56,15 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/16/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1a2kew4c8a.md)
+[@miles 5/17/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1a2348d3c1.md)
 
-Actions speak louder than words. As NFSC citizens, the reflections we need to have today are, what we should do, what we have done, and what should we learn and think. They are never being talks all the time, but have no actions to...
+2022.05.16  NFSC fringe  Episode 190
 
-<img src="https://media.gettr.com/group45/origin/2022/05/16/23/c2f6d476-8195-ce8b-535d-3e375d3c223a/out.jpg" width="506" height="284">
+
+
+中文同传：https://gettr.com/streaming/p1a2h6ffe1f
+
+<img src="https://media.gettr.com/group11/origin/2022/05/17/00/df7bfb6c-51ef-068d-8081-6caaacbc112c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,14 +215,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
  5月16号：来自乌克兰人民的礼物……伟大的乌克兰人民必胜！
 
 <img src="https://media.gettr.com/group38/getter/2022/05/16/14/8ea384db-60db-f6fc-4d46-592477c3a310/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 1:52 PM UTC  - :tv:直播](/content/gettr/p1a07kx1cf3.md)
-
- 5月16号：尊敬的战友们好－再次的劝告所有的新中国联邦的战友们……千万要看到全球的经济和股票市场的即将到来的危机……千万千万不要任何侥幸的投机行为……太可怕了……
-
-<img src="https://media.gettr.com/group8/getter/2022/05/16/13/dcb6404f-22c5-866b-2a43-45d793149f8f/out.jpg" width="506" height="284">
 
 ---
 
