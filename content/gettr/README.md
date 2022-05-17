@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/17/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p1a84ra5cbf.md)
+
+5/15/2022 Miles Guo: The CCP spent 20 billion USD in attacking the Whistleblowers' Movement and myself, including hacking and altering data on YouTube and Getter, buying off former senior official of FBI, intimidating and bribing B...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/17/23/e1d971c4-372b-e890-e342-7c855590e261/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1a7g7f081f.md)
+
+2022年5月17日 七哥直播乱聊 
+
+<img src="https://media.gettr.com/group24/origin/2022/05/17/22/bf96af6f-9141-587a-337d-6437cded9bd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 10:31 PM UTC ](/content/gettr/p1a7uq85534.md)
 
 5月17日 又一个大好消息🔥🔥🔥
@@ -32,11 +48,11 @@ https://www.reuters.com/world/us/us-sues-compel-former-casino-magnate-wynn-regis
 
 ---
 
-[@miles 5/17/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1a7g7f081f.md)
+[@miles 5/17/2022 11:29 PM UTC  - :tv:直播](/content/gettr/p1a7oo4b1e9.md)
 
-2022年5月17日 七哥直播乱聊 
+5/15/2022 Miles Guo: Since the start of the Whistleblowers' Movement in 2017, the CCP has been wielding the power of the whole country to attack us and alter our viewer data. This means the Whistleblowers' Movement has hit the nub ...
 
-<img src="https://media.gettr.com/group24/origin/2022/05/17/22/bf96af6f-9141-587a-337d-6437cded9bd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/05/17/23/49cba630-4083-966c-ca45-c69eb1cf4e28/out.jpg" width="506" height="284">
 
 ---
 
@@ -209,22 +225,6 @@ Day 72 - Date: M...
 2022.05.17 AM NFSC news   The Ground Condition At The NFSC's Camp In Medyka Fully Upgraded
 
 <img src="https://media.gettr.com/group45/origin/2022/05/17/11/9d6fbecf-0d48-3ca0-d619-f7c0a3eb89f5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/17/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p1a48mu0975.md)
-
-5/15/2022 Miles Guo: The entire world’s media is controlled by five families, with all the data centers across the globe being controlled by three big tech companies. The Swamp and the CCP have worked together to tamper my data (e....
-
-<img src="https://media.gettr.com/group29/getter/2022/05/17/08/c7ad576b-77d0-e531-0635-d398726877f1/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1a3hqvd83b.md)
-
-2022.05.17 新中国联邦法治基金乌克兰人道救援行动 - 最新战况播报
-
-<img src="https://media.gettr.com/group5/origin/2022/05/17/04/08f0099d-5a2c-e3dd-0dd0-328b9ba07a74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
