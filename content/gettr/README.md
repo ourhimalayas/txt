@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/17/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1a7gna4d12.md)
+
+2022-5-17 《避风港》（48）制药商全方位控制医疗体系
+
+
+
+<img src="https://media.gettr.com/group29/origin/2022/05/17/19/bba36827-c562-2a10-53ec-323b5ef8de2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1a4ctx644b.md)
 
 2022.05.17  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -30,13 +40,13 @@
 
 ---
 
-[@miles 5/17/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1a7gna4d12.md)
+[@miles 5/17/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1a7ju798db.md)
 
-2022-5-17 《避风港》（48）制药商全方位控制医疗体系
+2022.05.17  新中国联邦 | 喜健康    新西兰及全球有识之士勇敢智慧扎实实地反独裁，反伪科学权威，唤醒同类
 
 
 
-<img src="https://media.gettr.com/group29/origin/2022/05/17/19/bba36827-c562-2a10-53ec-323b5ef8de2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/05/17/20/2abc3e65-ee55-5f71-c8a5-a3a015cec976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,18 +193,6 @@ Day 72 - Date: M...
 5/16/2022 Miles Guo’s GETTR: The Chinese people’s education is in big trouble. The Chinese have long been brainwashed by the CCP just like a frog being boiled in lukewarm water. There is going to be the worst food crisis in the wor...
 
 <img src="https://media.gettr.com/group27/getter/2022/05/17/00/d1c4d327-ea6d-1518-f939-064cc36ad7bd/out.jpg" width="506" height="284">
-
----
-
-[@cornfieldsis 5/17/2022 12:30 AM UTC ](/content/gettr/p1a2o4sf2c7.md)
-
-亲爱的战友们， 目前Hpay系统正在升级中，等升级后会更好的使用在G｜Fashion 平台上，请大家耐心等待，目前暂时不可以使用Hpay 支付在G｜Fashion 网页上
-
-
-
-@gfashion @ddnyc @miles
-
-<img src="https://media.gettr.com/group28/origin/2022/05/17/00/9911a915-a181-4acd-086a-5b77f371d299/a087b6f3588ae8139d8a4c4e8307606e.png" width="506" height="284">
 
 ---
 
