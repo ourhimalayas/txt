@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/16/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1a22r93995.md)
+
+2022.05.16  NFSC fringe  Episode 190
+
+
+
+中文同传：
+
+<img src="https://media.gettr.com/group31/origin/2022/05/16/23/9fd652cb-614c-9584-24cd-92e1b13adbc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 11:27 PM UTC ](/content/gettr/p1a1lg1644a.md)
 
 Xi Jinping is suffering from six kinds of deadly diseases
@@ -36,15 +48,11 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/16/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1a22r93995.md)
+[@miles 5/16/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1a2kew4c8a.md)
 
-2022.05.16  NFSC fringe  Episode 190
+Actions speak louder than words. As NFSC citizens, the reflections we need to have today are, what we should do, what we have done, and what should we learn and think. They are never being talks all the time, but have no actions to...
 
-
-
-中文同传：
-
-<img src="https://media.gettr.com/group31/origin/2022/05/16/23/9fd652cb-614c-9584-24cd-92e1b13adbc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/05/16/23/c2f6d476-8195-ce8b-535d-3e375d3c223a/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
  5月16号：尊敬的战友们好－再次的劝告所有的新中国联邦的战友们……千万要看到全球的经济和股票市场的即将到来的危机……千万千万不要任何侥幸的投机行为……太可怕了……
 
 <img src="https://media.gettr.com/group8/getter/2022/05/16/13/dcb6404f-22c5-866b-2a43-45d793149f8f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p19zrlp81f3.md)
-
-2022.05.16  早 新中国联邦 | 新闻访谈   
-
-<img src="https://media.gettr.com/group12/origin/2022/05/16/13/acb5d6f3-2299-c893-28c3-8996edc4102b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
