@@ -14,13 +14,11 @@
 
 ---
 
-[@miles 5/17/2022 2:18 PM UTC ](/content/gettr/p1a5ujfc704.md)
+[@miles 5/17/2022 4:41 PM UTC  - :tv:直播](/content/gettr/p1a6il6f6b6.md)
 
-05/17/2022 on the 29th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+5/15/2022 Miles Guo: One of the authors of the Stanford report is the mediator between YouTube and myself, as well as Wang Enge and myself! Under the intimidation of the CCP, YouTube dared not to show the real viewing data of my li...
 
-No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 29 Consecutive Days
-
-No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 29 Consecutive Days...
+<img src="https://media.gettr.com/group19/getter/2022/05/17/16/67c39279-6588-c164-8bcb-d9351181cfd3/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +27,16 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 29 Consecutive Days...
 【Ukraine Rescue】 05/16/2022 A university professor from Poland discloses the Confucius Institute of the Chinese Communist Party in Poland, calling its head the 'Communistic Queen'. He is very interested in the New Federal State of ...
 
 <img src="https://media.gettr.com/group45/getter/2022/05/17/15/9ca283e9-dfea-bf0b-07cb-4a41d75a047e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 2:18 PM UTC ](/content/gettr/p1a5ujfc704.md)
+
+05/17/2022 on the 29th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+
+No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 29 Consecutive Days
+
+No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 29 Consecutive Days...
 
 ---
 
@@ -189,18 +197,6 @@ Day 72 - Date: M...
 Actions speak louder than words. As NFSC citizens, the reflections we need to have today are, what we should do, what we have done, and what should we learn and think. They are never being talks all the time, but have no actions to...
 
 <img src="https://media.gettr.com/group45/origin/2022/05/16/23/c2f6d476-8195-ce8b-535d-3e375d3c223a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1a22r93995.md)
-
-2022.05.16  NFSC fringe  Episode 190
-
-
-
-中文同传：
-
-<img src="https://media.gettr.com/group31/origin/2022/05/16/23/9fd652cb-614c-9584-24cd-92e1b13adbc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
