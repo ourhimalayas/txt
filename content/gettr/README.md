@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/17/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1a2tss4de4.md)
+
+2022-5-16《鸡血王喜币大作战》 第一百九十七集 嘉宾：卡丽熙、Nick
+
+<img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1a2rb8f756.md)
 
 2022.05.16  新中国联邦 | 喜财经   中共经济奄奄一息；香港：东方之珠变东方之猪
@@ -104,11 +112,11 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/17/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1a2tss4de4.md)
+[@miles 5/17/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1a39fjd411.md)
 
-2022-5-16《鸡血王喜币大作战》 第一百九十七集 嘉宾：卡丽熙、Nick
+5/15/2022 Miles Guo: Taking down the CCP is not the only goal of our Whistleblowers' Movement, our live broadcast is also a showcase of the pursuit, dignity and lifestyle of the citizens of the New Federal State of China. Even Peng...
 
-<img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/05/17/04/851cc0a8-723d-bd76-c0ea-79314cffe742/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 2022.05.16 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group27/origin/2022/05/16/17/bee55ada-7066-029e-751e-d2e0a8940bb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@cornfieldsis 5/15/2022 6:03 AM UTC  - 2圖](/content/gettr/p19u0h61ad2.md)
-
-亲爱的战友们， 当你们选择尺寸的时候， 不仅仅可以参考Size Chart, 同时在购物车的下面，GF 有注明模特的身高和她穿的尺寸！ 同时有些衣服我们也会建议，是否需要选择大一号！ @gfashion @ddnyc
-
-<img src="https://media.gettr.com/group44/origin/2022/05/15/06/3fccaa8a-3568-e8e4-3ae1-af8931ce5870/bd8e39b100b567a6ad858724615291c5.png" width="506" height="284">
 
 ---
 
