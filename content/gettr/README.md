@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/17/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1a39fjd411.md)
+
+5/15/2022 Miles Guo: Taking down the CCP is not the only goal of our Whistleblowers' Movement, our live broadcast is also a showcase of the pursuit, dignity and lifestyle of the citizens of the New Federal State of China. Even Peng...
+
+<img src="https://media.gettr.com/group46/getter/2022/05/17/04/851cc0a8-723d-bd76-c0ea-79314cffe742/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1a2tss4de4.md)
 
 2022-5-16《鸡血王喜币大作战》 第一百九十七集 嘉宾：卡丽熙、Nick
@@ -112,11 +120,11 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/17/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1a39fjd411.md)
+[@miles 5/17/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1a3hqvd83b.md)
 
-5/15/2022 Miles Guo: Taking down the CCP is not the only goal of our Whistleblowers' Movement, our live broadcast is also a showcase of the pursuit, dignity and lifestyle of the citizens of the New Federal State of China. Even Peng...
+2022.05.17 新中国联邦法治基金乌克兰人道救援行动 - 最新战况播报
 
-<img src="https://media.gettr.com/group46/getter/2022/05/17/04/851cc0a8-723d-bd76-c0ea-79314cffe742/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/05/17/04/08f0099d-5a2c-e3dd-0dd0-328b9ba07a74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 2022.05.16  新中国联邦 | 喜健康    勇敢的良心医生-弗拉基米尔·泽连科
 
 <img src="https://media.gettr.com/group31/origin/2022/05/16/20/91d1f271-1526-2405-4519-a90cea80c559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p19zdkt80e9.md)
-
-2022.05.16 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group27/origin/2022/05/16/17/bee55ada-7066-029e-751e-d2e0a8940bb7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
