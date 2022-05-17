@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/17/2022 11:52 AM UTC  - :tv:直播](/content/gettr/p1a5xc2b120.md)
+
+【Ukraine Rescue】05/15/2022  Two 18-year old Ukraine volunteers told fellow fighters Nicole that they will keep smiling and be strong in this challenging time. They thank the Rule of Law Foundation and the New Federal State of China...
+
+<img src="https://media.gettr.com/group49/getter/2022/05/17/11/fa6969ee-d5aa-5090-bd51-919e0b699c60/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p1a48mu0975.md)
+
+5/15/2022 Miles Guo: The entire world’s media is controlled by five families, with all the data centers across the globe being controlled by three big tech companies. The Swamp and the CCP have worked together to tamper my data (e....
+
+<img src="https://media.gettr.com/group29/getter/2022/05/17/08/c7ad576b-77d0-e531-0635-d398726877f1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1a3hqvd83b.md)
 
 2022.05.17 新中国联邦法治基金乌克兰人道救援行动 - 最新战况播报
@@ -128,11 +144,11 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/17/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p1a48mu0975.md)
+[@miles 5/17/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1a5iay44e1.md)
 
-5/15/2022 Miles Guo: The entire world’s media is controlled by five families, with all the data centers across the globe being controlled by three big tech companies. The Swamp and the CCP have worked together to tamper my data (e....
+2022.05.17 AM NFSC news   The Ground Condition At The NFSC's Camp In Medyka Fully Upgraded
 
-<img src="https://media.gettr.com/group29/getter/2022/05/17/08/c7ad576b-77d0-e531-0635-d398726877f1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/05/17/11/9d6fbecf-0d48-3ca0-d619-f7c0a3eb89f5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,38 +171,6 @@ For English: gettr.com/streaming/p1a1ivt25ec
 @gfashion @miles @ddnyc @changdaobrother
 
 <img src="https://media.gettr.com/group7/origin/2022/05/16/21/e54cf631-6072-5164-82e6-4ba766ed3bf7/dc071337208942156d7717627a3ec441.jpeg" width="506" height="284">
-
----
-
-[@cornfieldsis 5/16/2022 9:30 PM UTC  - 6圖](/content/gettr/p1a1twa9773.md)
-
-快来看～G｜Fashion 的帅哥！ 😍😍😍😍😍😍😍😍😍😍😘😘😘😘😘😘😘😘😘😘🥰🥰🥰🥰🥰🥰🤩🤩🤩🤩🤩🤩🤩🤩🤩🤩 
-
-
-
-大家期不期待G Fashion 的新品啊～～～ 
-
-
-
-www.gfashion.com 
-
-
-
-@miles @gfashion @ddnyc
-
-<img src="https://media.gettr.com/group8/origin/2022/05/16/21/4b65b686-45fc-849d-d85f-390da6441423/008a46e43f54327afdd140d065a64fb7.jpeg" width="506" height="284">
-
----
-
-[@cornfieldsis 5/16/2022 9:34 PM UTC ](/content/gettr/p1a1xg1e574.md)
-
-郭先生在开心的试装中 ～～～ 我们来看看有哪儿些时装单品是你喜欢的🥰
-
-
-
-@gfashion @ddnyc @miles
-
-<img src="https://media.gettr.com/group35/origin/2022/05/16/21/edb1af43-624d-4ebf-33c4-56f4ac1048c5/73a4e7bcf1eed4e504590b3bdbaa041b.jpeg" width="506" height="284">
 
 ---
 
