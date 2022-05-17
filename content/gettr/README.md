@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/17/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1a2348d3c1.md)
+
+2022.05.16  NFSC fringe  Episode 190
+
+
+
+中文同传：https://gettr.com/streaming/p1a2h6ffe1f
+
+<img src="https://media.gettr.com/group11/origin/2022/05/17/00/df7bfb6c-51ef-068d-8081-6caaacbc112c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/16/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1a2kew4c8a.md)
 
 Actions speak louder than words. As NFSC citizens, the reflections we need to have today are, what we should do, what we have done, and what should we learn and think. They are never being talks all the time, but have no actions to...
@@ -56,15 +68,15 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/17/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1a2348d3c1.md)
+[@cornfieldsis 5/17/2022 12:30 AM UTC ](/content/gettr/p1a2o4sf2c7.md)
 
-2022.05.16  NFSC fringe  Episode 190
+亲爱的战友们， 目前Hpay系统正在升级中，等升级后会更好的使用在G｜Fashion 平台上，请大家耐心等待，目前暂时不可以使用Hpay 支付在G｜Fashion 网页上
 
 
 
-中文同传：https://gettr.com/streaming/p1a2h6ffe1f
+@gfashion @ddnyc @miles
 
-<img src="https://media.gettr.com/group11/origin/2022/05/17/00/df7bfb6c-51ef-068d-8081-6caaacbc112c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/05/17/00/9911a915-a181-4acd-086a-5b77f371d299/a087b6f3588ae8139d8a4c4e8307606e.png" width="506" height="284">
 
 ---
 
@@ -199,14 +211,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Co...
 【七哥【招商证券，映华西证券APP也崩了。有大量投资者在社交平台发布信息称，华西证券APP出现故障，交易页面显示：“系统提示称，后台系统繁忙，请求被取消，请稍候。】中共惯用这种下三滥的招式割韭菜！感谢七哥这么多年的幸苦爆料，让我们一步一步认清这个中共这个魔鬼👹！】
 
 <img src="https://media.gettr.com/group11/getter/2022/05/16/14/b68b4441-8802-4680-2514-5f4beda1dbca/be5ee83881f695ef35cce3c699042337.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p1a0f6k725e.md)
-
-5/15/2022 Miles Guo: Digital currency market is collapsing in which the trading volume of ETH and NFT increased 3 to 5 times although 20% of Bitcoins were dumped, so who are the super players in the digital currency market? Goldman...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/16/14/c06de4c2-53ab-e3ac-c451-f14d99a242e5/out.jpg" width="506" height="284">
 
 ---
 
