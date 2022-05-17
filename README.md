@@ -11,6 +11,21 @@
 
 ---
 
+#### [樱花时政┃美国空军宣布成功进行高超音速武器测试](/content/gnews/2547672.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆┃受制裁卢布贬值，俄罗斯财政部仅有153亿美元](/content/gnews/2547586.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃法国第二位女总理就职：献给所有女孩，去追逐梦想](/content/gnews/2547569.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [美国及世界疫情简报（05-17-2022）](/content/gnews/2547567.md)
+ `波士顿五月花农场`
+
+#### [樱花时政┃俄罗斯报复芬兰，相互驱逐外交人员](/content/gnews/2547556.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [中日财经爆┃中共3月减持美债152亿美元，余额创2010年6月来新低](/content/gnews/2547549.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -56,23 +71,20 @@
 #### [美国华裔移民涉嫌反台湾人仇恨在教堂开枪](/content/gnews/2547309.md)
  `新加坡狮城农场 Himalaya Singapore`
 
+#### [有声&#124;币安暂停LUNA和UST的交易](/content/gnews/2547277.md)
+ `MOSREC`
+
 #### [从俄乌战争看“得道多助 失道寡助”](/content/gnews/2547239.md)
  `新加坡狮城农场 Himalaya Singapore`
 
 #### [【G时新闻】日媒揭露中共上海解封没有固定的标准](/content/gnews/2547229.md)
  `G-时新闻`
 
-#### [有声｜四川邻水封城 民众严重缺物资](/content/gnews/2547228.md)
- `秘密翻译组-即时新闻播报组`
-
 #### [【G时新闻】北京封城：92座地铁站关闭 中共人为制造出行困难](/content/gnews/2547191.md)
  `G-时新闻`
 
 #### [乌军缴获了俄军指挥官的秘密笔记本](/content/gnews/2547183.md)
  `韩国正道农场`
-
-#### [中共严控出入境，留学生出境被边检部门剪护照](/content/gnews/2547166.md)
- `新加坡狮城农场 Himalaya Singapore`
 
 #### [5/15/2022 文贵直播：全世界的媒体都被5个家族控制，全球所有的数据中心都掌握在3大科技公司手中](/content/gnews/2547146.md)
  `秘密翻译组-北美组`
@@ -92,14 +104,8 @@
 #### [特鲁多否认军方监视渥太华卡车抗议活动](/content/gnews/2547056.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [有声&#124;爆料革命网络平台数据被黑的真相](/content/gnews/2547055.md)
- `MOSREC`
-
 #### [【G时新闻】英国表示俄罗斯已经在战争中损失了约三分之一的部队](/content/gnews/2547025.md)
  `G-时新闻`
-
-#### [律师状告BC省政府与工会同流合污推广疫苗](/content/gnews/2546994.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [文•贵天成——文贵先生谈孟建柱（八十二）](/content/gnews/2546972.md)
  `墨尔本雅典娜农场`
@@ -136,12 +142,6 @@
 
 #### [秘翻在线：俄罗斯国家杜马宣布退出波罗的海议会会议](/content/gnews/2546199.md)
  `秘密翻譯組G-Translators`
-
-#### [港府逼针新诱因&nbsp; 首宗注射新冠疫苗死亡赔偿成功批核&nbsp;&nbsp;](/content/gnews/2545848.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [报告显示：中共继续在南中国海有争议的渚碧礁建造设施](/content/gnews/2545732.md)
- `日本东京方舟农场`
 
 #### [秘翻在线：麦当劳宣布出售其在俄罗斯的所有业务彻底退出](/content/gnews/2544839.md)
  `秘密翻譯組G-Translators`
