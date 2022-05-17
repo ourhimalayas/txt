@@ -11,6 +11,24 @@
 
 ---
 
+#### [福奇博士说，如果川普再次当选，他将不会继续担任白宫首席医疗顾问](/content/gnews/2549095.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [俄乌局势相关的最新消息](/content/gnews/2549088.md)
+ `NFSC News`
+
+#### [灭共只需灭习一人](/content/gnews/2549087.md)
+ `纽约香草山MOS03`
+
+#### [灭共只需灭习一人](/content/gnews/2549055.md)
+ `纽约香草山MOS03`
+
+#### [美日将发联合声明：加强合作实现台海稳定](/content/gnews/2549031.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [普京反对西方的联盟正在出现裂痕](/content/gnews/2549024.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [五月花简报（2022/05/17）](/content/gnews/2548978.md)
  `mayflowertranslate`
 
@@ -20,9 +38,6 @@
 #### [焦点：西方没收俄国家资产吹响灭共集结号](/content/gnews/2548956.md)
  `蓝莲花农场`
 
-#### [普京在顿巴斯胜利遥遥无期](/content/gnews/2548943.md)
- `Shuizhuyu`
-
 #### [郭氏情报站- 2022.05.16 文贵盖特视频概要](/content/gnews/2548925.md)
  `MOS Designer香草山设计部`
 
@@ -30,9 +45,6 @@
  `MOS Designer香草山设计部`
 
 #### [郭氏情报站- 2022.05.13 文贵大直播第二场概要](/content/gnews/2548923.md)
- `MOS Designer香草山设计部`
-
-#### [灭共漫画——习猪头](/content/gnews/2548895.md)
  `MOS Designer香草山设计部`
 
 #### [习的病 &#124; 王岐山泄露习近平身体情况通过三方势力把“灭习”变假戏真做](/content/gnews/2548888.md)
@@ -58,9 +70,6 @@
 
 #### [英国称俄罗斯在乌克兰损失了三分之一的军队](/content/gnews/2548546.md)
  `NFSC News`
-
-#### [截至5.17 俄乌战事汇总](/content/gnews/2548542.md)
- `秘密翻譯組G-Translators`
 
 #### [出口禁令推高全球食品价格](/content/gnews/2548520.md)
  `西班牙巴塞罗那喜悦农场`
@@ -89,9 +98,6 @@
 #### [加拿大多伦多地区油价持续疯涨](/content/gnews/2548440.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [日三井住友财团旗下飞机租赁公司收购一欧洲公司，成为世界第二大航空机队](/content/gnews/2548399.md)
- `温哥华圆成农场🇨🇦`
-
 #### [一位来自波兰的大学教授披露了中共的孔子学院在波兰的情况，称其负责人为‘共产主义女王’](/content/gnews/2548328.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -100,12 +106,6 @@
 
 #### [马隆博士呼吁立即叫停疫苗并展开调查，因为疫苗无法阻止病毒传播](/content/gnews/2548295.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [彭博社市场和金融：印度限制出口之后，小麦价格飙升](/content/gnews/2548273.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [卢比奥警告中共国将盈利作为武器极大影响美国公司](/content/gnews/2548110.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [中日财经爆┃中共病毒清零引发全球政经危机恐惧](/content/gnews/2548031.md)
  `東京櫻花団-Tokyo Sakura Group`
