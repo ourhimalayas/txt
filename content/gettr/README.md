@@ -2,11 +2,63 @@
 ---
 
 
+[@miles 5/17/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1a7rhyefea.md)
+
+5/17/2022 Miles Guo’s GETTR: Europe will initiate a series of major actions towards the Chinese Communist Party which may not be made public though; the U.S. will speed up in purging those U.S. passport holders but work for the CCP...
+
+<img src="https://media.gettr.com/group19/getter/2022/05/17/23/4038e0e7-23e7-760e-1315-61ba95f22d34/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1a7qcc3f3b.md)
+
+5/17/2022 Miles Guo’s GETTR: The CCP is afraid of GETTR! Almost all the CCP pawns that smeared me before have come to GETTR to attack me. Those fake democracy activists and the ABC in Australia are slandering GETTR at the same time...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/17/23/49b95975-b777-90dd-4658-011e031f7e01/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1a8e234d15.md)
+
+5/15/2022 Miles Guo: Russia has been divided between several oligarchs. It's the people around Putin that turned him into a demon. Xi's anti-corruption campaign gave rise to the new oligarchs in Communist China, and Wang Qishan, wh...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/17/23/cff832a8-3326-d293-204e-5974c97d7028/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p1a8brfde76.md)
+
+5/15/2022 Miles Guo: The Shanghai gang is no more, but there is an anti-Xi gang, which must ally with the US and me to take out Xi. Wang Qishan leaked the information that Xi has health issues
+
+
+
+5/15/2022 文贵直播：上海帮已不复存在，但有反习帮，它必须拉拢...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/17/23/e830bdf2-9774-d48d-dd8f-3f21b5f416a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p1a84ra5cbf.md)
 
 5/15/2022 Miles Guo: The CCP spent 20 billion USD in attacking the Whistleblowers' Movement and myself, including hacking and altering data on YouTube and Getter, buying off former senior official of FBI, intimidating and bribing B...
 
 <img src="https://media.gettr.com/group35/getter/2022/05/17/23/e1d971c4-372b-e890-e342-7c855590e261/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1a7o1k5f08.md)
+
+5/15/2022 Miles Guo: GETTR's DM will adopt the blockchain end-to-end encryption technology which terrified the Chinese Communist Party. The number of views of the live broadcasts of the Whistleblowers' Movement is even more powerfu...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/17/23/5b1bb646-c0d5-fce4-3493-012ccf2f60d2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 11:29 PM UTC  - :tv:直播](/content/gettr/p1a7oo4b1e9.md)
+
+5/15/2022 Miles Guo: Since the start of the Whistleblowers' Movement in 2017, the CCP has been wielding the power of the whole country to attack us and alter our viewer data. This means the Whistleblowers' Movement has hit the nub ...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/17/23/49cba630-4083-966c-ca45-c69eb1cf4e28/out.jpg" width="506" height="284">
 
 ---
 
@@ -45,14 +97,6 @@ https://www.reuters.com/world/us/us-sues-compel-former-casino-magnate-wynn-regis
 @gfashion @ddnyc
 
 <img src="https://media.gettr.com/group42/origin/2022/05/17/21/a6588a1d-4892-0946-5f01-5037db167a4b/db3fcd1b6cb7c5dccf166225a56eb69c.png" width="506" height="284">
-
----
-
-[@miles 5/17/2022 11:29 PM UTC  - :tv:直播](/content/gettr/p1a7oo4b1e9.md)
-
-5/15/2022 Miles Guo: Since the start of the Whistleblowers' Movement in 2017, the CCP has been wielding the power of the whole country to attack us and alter our viewer data. This means the Whistleblowers' Movement has hit the nub ...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/17/23/49cba630-4083-966c-ca45-c69eb1cf4e28/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,70 +205,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 29 Consecutive Days...
 5/15/2022 Miles Guo: A very influential figure in the financial sector from Europe said that he is investing in who we will be in ten years. More than 20 bigwigs at the Monaco Historic Grand Prix yesterday were all fellow fighters,...
 
 <img src="https://media.gettr.com/group39/getter/2022/05/17/14/8e362d0e-54e8-c424-ac6f-c48a70063c76/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 2:13 PM UTC ](/content/gettr/p1a5vum0814.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月15日第72天当日救援统计：
-
-Medyka救援站接待：约748人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约20817人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 72 - Date: M...
-
-<img src="https://media.gettr.com/group25/getter/2022/05/17/14/9cc3d6db-c62f-e2f6-58e7-e8a378a8cc0d/d980146b8779b8d7a0c907486d7ccecc.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 1:10 PM UTC  - :tv:直播](/content/gettr/p1a5rf4e9ca.md)
-
-2022.05.17  早 新中国联邦 | 新闻访谈   土耳其反对瑞典和芬兰加入北约；喜美元永远不怕挤兑，不会破产；  英格兰银行行长承认无力应对通胀
-
-<img src="https://media.gettr.com/group39/origin/2022/05/17/13/7ac5711f-8e4d-5ab0-869e-84a07b450ef5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/17/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1a5ui233d2.md)
-
-2022.05.17  早 新中国联邦 | 新闻   乌克兰人和新中国联邦人为自由而战; 爱尔兰志愿者表示 权力属于人民
-
-<img src="https://media.gettr.com/group22/origin/2022/05/17/12/d0c9fbf1-96ab-29d9-9db8-5d4a78918eb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 11:52 AM UTC  - :tv:直播](/content/gettr/p1a5xc2b120.md)
-
-【Ukraine Rescue】05/15/2022  Two 18-year old Ukraine volunteers told fellow fighters Nicole that they will keep smiling and be strong in this challenging time. They thank the Rule of Law Foundation and the New Federal State of China...
-
-<img src="https://media.gettr.com/group49/getter/2022/05/17/11/fa6969ee-d5aa-5090-bd51-919e0b699c60/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1a5iay44e1.md)
-
-2022.05.17 AM NFSC news   The Ground Condition At The NFSC's Camp In Medyka Fully Upgraded
-
-<img src="https://media.gettr.com/group45/origin/2022/05/17/11/9d6fbecf-0d48-3ca0-d619-f7c0a3eb89f5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
