@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/17/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1a4ctx644b.md)
+
+2022.05.17  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group15/origin/2022/05/17/17/9c6cae02-9236-043c-3e3e-3ad5657072e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 4:41 PM UTC  - :tv:直播](/content/gettr/p1a6il6f6b6.md)
 
 5/15/2022 Miles Guo: One of the authors of the Stanford report is the mediator between YouTube and myself, as well as Wang Enge and myself! Under the intimidation of the CCP, YouTube dared not to show the real viewing data of my li...
@@ -22,11 +30,13 @@
 
 ---
 
-[@miles 5/17/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1a4ctx644b.md)
+[@miles 5/17/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1a7gna4d12.md)
 
-2022.05.17  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022-5-17 《避风港》（48）制药商全方位控制医疗体系
 
-<img src="https://media.gettr.com/group15/origin/2022/05/17/17/9c6cae02-9236-043c-3e3e-3ad5657072e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group29/origin/2022/05/17/19/bba36827-c562-2a10-53ec-323b5ef8de2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,18 +195,6 @@ Day 72 - Date: M...
 @gfashion @ddnyc @miles
 
 <img src="https://media.gettr.com/group28/origin/2022/05/17/00/9911a915-a181-4acd-086a-5b77f371d299/a087b6f3588ae8139d8a4c4e8307606e.png" width="506" height="284">
-
----
-
-[@miles 5/17/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1a2348d3c1.md)
-
-2022.05.16  NFSC fringe  Episode 190
-
-
-
-中文同传：https://gettr.com/streaming/p1a2h6ffe1f
-
-<img src="https://media.gettr.com/group11/origin/2022/05/17/00/df7bfb6c-51ef-068d-8081-6caaacbc112c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
