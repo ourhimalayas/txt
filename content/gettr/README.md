@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/17/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1a3hqvd83b.md)
+
+2022.05.17 新中国联邦法治基金乌克兰人道救援行动 - 最新战况播报
+
+<img src="https://media.gettr.com/group5/origin/2022/05/17/04/08f0099d-5a2c-e3dd-0dd0-328b9ba07a74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1a39fjd411.md)
 
 5/15/2022 Miles Guo: Taking down the CCP is not the only goal of our Whistleblowers' Movement, our live broadcast is also a showcase of the pursuit, dignity and lifestyle of the citizens of the New Federal State of China. Even Peng...
@@ -120,11 +128,11 @@ On May 15, Mr. Guo Wengui blew the whistle on Gettr that Xi is battling 6 kinds 
 
 ---
 
-[@miles 5/17/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1a3hqvd83b.md)
+[@miles 5/17/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p1a48mu0975.md)
 
-2022.05.17 新中国联邦法治基金乌克兰人道救援行动 - 最新战况播报
+5/15/2022 Miles Guo: The entire world’s media is controlled by five families, with all the data centers across the globe being controlled by three big tech companies. The Swamp and the CCP have worked together to tamper my data (e....
 
-<img src="https://media.gettr.com/group5/origin/2022/05/17/04/08f0099d-5a2c-e3dd-0dd0-328b9ba07a74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/05/17/08/c7ad576b-77d0-e531-0635-d398726877f1/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ www.gfashion.com
 We are the NEW CHINESE who are taking down EVIL Chinese Co...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/16/11/f1325b61-5e51-f95c-8da3-6a3742f1ea5f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/16/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1a1zys73e4.md)
-
-2022.05.16  新中国联邦 | 喜健康    勇敢的良心医生-弗拉基米尔·泽连科
-
-<img src="https://media.gettr.com/group31/origin/2022/05/16/20/91d1f271-1526-2405-4519-a90cea80c559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
