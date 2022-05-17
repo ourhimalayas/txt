@@ -2,6 +2,9 @@
 ---
 
 
+#### [五月花简报（2022/05/17）](/content/gnews/2548978.md)
+ `mayflowertranslate`
+
 #### [五月十七号七哥盖特全文字版](/content/gnews/2548962.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -97,9 +100,6 @@
 
 #### [中日财经爆┃中共病毒清零引发全球政经危机恐惧](/content/gnews/2548031.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [美国和俄罗斯国防部长自乌克兰入侵以来首次谈话](/content/gnews/2548007.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [2022/05/15 墙内世界](/content/gnews/2547857.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
