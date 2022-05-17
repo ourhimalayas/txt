@@ -2,6 +2,56 @@
 ---
 
 
+[@cornfieldsis 5/17/2022 9:47 PM UTC  - 4圖](/content/gettr/p1a82107f7c.md)
+
+如何绑定您的GClub 会员卡到GFashion 的账户 ？ 
+
+
+
+请看下图 👇： 
+
+
+
+@gfashion @ddnyc
+
+<img src="https://media.gettr.com/group42/origin/2022/05/17/21/a6588a1d-4892-0946-5f01-5037db167a4b/db3fcd1b6cb7c5dccf166225a56eb69c.png" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 9:49 PM UTC  - :tv:直播](/content/gettr/p1a7sxwb06a.md)
+
+Miles Guo Music：Chained Dream
+
+many, many Chinese
+
+Actually when we face disaster
+
+They all chose to give up
+
+cowardly and give up
+
+This instinct to face the truth
+
+So we Chinese
+
+The best excuse is to be on the side of evil
+
+we ar...
+
+<img src="https://media.gettr.com/group35/origin/2022/05/17/21/308aed29-bae8-b09a-b97c-35c69240b294/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1a7ju798db.md)
+
+2022.05.17  新中国联邦 | 喜健康    新西兰及全球有识之士勇敢智慧扎实实地反独裁，反伪科学权威，唤醒同类
+
+
+
+<img src="https://media.gettr.com/group34/origin/2022/05/17/20/2abc3e65-ee55-5f71-c8a5-a3a015cec976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1a7gna4d12.md)
 
 2022-5-17 《避风港》（48）制药商全方位控制医疗体系
@@ -40,13 +90,13 @@
 
 ---
 
-[@miles 5/17/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1a7ju798db.md)
+[@miles 5/17/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1a82nm21b9.md)
 
-2022.05.17  新中国联邦 | 喜健康    新西兰及全球有识之士勇敢智慧扎实实地反独裁，反伪科学权威，唤醒同类
+“天王盖地虎 小鸡炖蘑菇” 飞飞秀救援快报  2022-05-17
 
+For English: gettr.com/streaming/p1a7mv6953e
 
-
-<img src="https://media.gettr.com/group34/origin/2022/05/17/20/2abc3e65-ee55-5f71-c8a5-a3a015cec976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/05/17/22/0fef3d21-62f6-b970-54d1-c15b25bdbed7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,30 +219,6 @@ Day 72 - Date: M...
 2022-5-16《鸡血王喜币大作战》 第一百九十七集 嘉宾：卡丽熙、Nick
 
 <img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1a2rb8f756.md)
-
-2022.05.16  新中国联邦 | 喜财经   中共经济奄奄一息；香港：东方之珠变东方之猪
-
-<img src="https://media.gettr.com/group45/origin/2022/05/17/01/ef07d2d4-645f-7386-e5eb-66daadb6ec39/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/17/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1a25l11959.md)
-
-2022.05.16  晚 新中国联邦 | 新闻访谈
-
-<img src="https://media.gettr.com/group3/origin/2022/05/17/00/e895ffb8-9d4f-69db-97fa-46a133e9d42c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/17/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1a2gwdcb34.md)
-
-5/16/2022 Miles Guo’s GETTR: The Chinese people’s education is in big trouble. The Chinese have long been brainwashed by the CCP just like a frog being boiled in lukewarm water. There is going to be the worst food crisis in the wor...
-
-<img src="https://media.gettr.com/group27/getter/2022/05/17/00/d1c4d327-ea6d-1518-f939-064cc36ad7bd/out.jpg" width="506" height="284">
 
 ---
 
