@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/18/2022 1:05 AM UTC ](/content/gettr/p1a8axoa1a4.md)
+
+美东时间5月17日，有关永利赌场大亨史蒂夫·永利（Steve Wynn）被起诉的事件被《路透社》、《华尔街日报》等多家媒体报道。美国司法部指控永利度假村前首席执行官永利在2017年曾充当共产主义北京政府的说客，游说当时在任的川普总统，要求他取消郭文贵（Miles Guo）先生的签证协助中共将其遣返回中共国。
+
+
+
+永利并没有根据《外国代理人登记法》(FARA)进行注册。司法部的民事诉讼称，它曾在2018年、2021年和2022年4月建议永利根据FARA注册为...
+
+---
+
 [@miles 5/18/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1a8mjs02aa.md)
 
 2022.05.17  晚 新中国联邦⎪新闻访谈
@@ -18,13 +28,11 @@
 
 ---
 
-[@miles 5/18/2022 1:05 AM UTC ](/content/gettr/p1a8axoa1a4.md)
+[@miles 5/18/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1a8k1a3a30.md)
 
-美东时间5月17日，有关永利赌场大亨史蒂夫·永利（Steve Wynn）被起诉的事件被《路透社》、《华尔街日报》等多家媒体报道。美国司法部指控永利度假村前首席执行官永利在2017年曾充当共产主义北京政府的说客，游说当时在任的川普总统，要求他取消郭文贵（Miles Guo）先生的签证协助中共将其遣返回中共国。
+2022.05.17  新中国联邦 | 喜财经   期股市汇市外汇黄金石油行情;  国内疫情及经济走势和新进展
 
-
-
-永利并没有根据《外国代理人登记法》(FARA)进行注册。司法部的民事诉讼称，它曾在2018年、2021年和2022年4月建议永利根据FARA注册为...
+<img src="https://media.gettr.com/group43/origin/2022/05/18/02/5cf4efa5-41f5-52dd-1e65-30ed95b5ee30/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -185,18 +193,6 @@ For English: gettr.com/streaming/p1a7mv6953e
 5/15/2022 Miles Guo: One of the authors of the Stanford report is the mediator between YouTube and myself, as well as Wang Enge and myself! Under the intimidation of the CCP, YouTube dared not to show the real viewing data of my li...
 
 <img src="https://media.gettr.com/group19/getter/2022/05/17/16/67c39279-6588-c164-8bcb-d9351181cfd3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 3:18 PM UTC  - :tv:直播](/content/gettr/p1a6oendc5f.md)
-
-5月17号：尊敬的战友们好……共产党的恐惧．和一些流氓烂崽们……正在盖特和各个媒体上用垃圾伪类们……发起的新的一波
-
-对我们新中国联邦攻击……共产党彻底玩球了，他们太害怕我们了……
-
-
-
-<img src="https://media.gettr.com/group3/getter/2022/05/17/15/c4b2200a-f5df-07bd-0859-8832f9e23165/out.jpg" width="506" height="284">
 
 ---
 
