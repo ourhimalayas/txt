@@ -11,41 +11,62 @@
 
 ---
 
-#### [特斯拉推迟将上海产量恢复至封锁前水平的计划](/content/gnews/2553518.md)
+#### [樱花FM┃经济下行钢材需求低迷 多地钢企严重减产](/content/gnews/2553829.md)
+ `樱花FM`
+
+#### [樱花FM┃世界粮食危机加剧 印度禁止小麦出口](/content/gnews/2553781.md)
+ `樱花FM`
+
+#### [一位逃离上海的人讲述逃离封锁中的上海](/content/gnews/2553777.md)
  `澳喜特战旅Gnews`
 
-#### [视频&#124;新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2553368.md)
- `MOSVIDEO`
+#### [一连串针对中共国人和中共国投资的袭击事件表明巴基斯坦的反共情绪正在抬头](/content/gnews/2553738.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [有声&#124;科技创新推动“无皇有主”时代的到来](/content/gnews/2553319.md)
+#### [樱花FM┃拜登签署法案 支持台湾重获世卫观察员身份](/content/gnews/2553726.md)
+ `樱花FM`
+
+#### [中共国经济因上海及多地严厉的封锁措施严重下滑](/content/gnews/2553724.md)
+ `澳喜特战旅Gnews`
+
+#### [有声&#124;外媒报道：仰光大主教抨击中共当局](/content/gnews/2553720.md)
  `MOSREC`
+
+#### [美国与盟友寻求建立新型全球贸易以降低对中俄的依赖](/content/gnews/2553705.md)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [美国指控赌场大亨永利充当中共代理人](/content/gnews/2553704.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [美国司法部起诉要求Stephen A.Wynn注册为中共国外国代理人](/content/gnews/2553690.md)
+ `温哥华扬帆农场`
+
+#### [研究：日本虎杖提取物或有助于降低亚硝酸钠相关的癌症风险](/content/gnews/2553652.md)
+ `东京樱花团Tokyo Sakura Group`
+
+#### [樱花FM┃支持乌克兰西欧与英美分歧加深](/content/gnews/2553632.md)
+ `樱花FM`
+
+#### [接种了中共病毒疫苗的飞行员着陆后心脏骤停，无法再飞](/content/gnews/2553618.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [有声&#124;爆料革命、喜币、G系列成为顶级富豪游戏F1现场绝对最热话题](/content/gnews/2553602.md)
+ `MOSREC`
+
+#### [【全文字幕】2021年12月6号继文贵北京盘古家人再次被抄家后的直播](/content/gnews/2553595.md)
+ `文贵视频字幕全集`
+
+#### [中共国4月房地产销售创2006年以来最大跌幅](/content/gnews/2553586.md)
+ `澳喜特战旅Gnews`
 
 #### [北朝鲜动员军队应对中共病毒爆发](/content/gnews/2553318.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [有声｜美指控赌场大亨是中共代理人 疑游说遣返郭文贵先生](/content/gnews/2553317.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [视频&#124;麦当劳宣布将完全退出俄罗斯](/content/gnews/2553302.md)
- `MOSVIDEO`
+#### [顶级情报机构：中共国入侵台湾也会觊觎钓鱼台，日本是“当事人”](/content/gnews/2553301.md)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [2022-05-06 文贵先生直播概要](/content/gnews/2553283.md)
  `喜马拉雅德国纽伦堡正义农场`
-
-#### [樱花深度报道┃逃离莫斯科（五）](/content/gnews/2553211.md)
- `东京樱花团Tokyo Sakura Group`
-
-#### [生活成本攀升，东部沿海地区双职工家庭入不敷出](/content/gnews/2553210.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [MV版《铁锁梦》上线第30天位列德国iTunesMV榜首](/content/gnews/2553208.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [视频&#124;英国称俄罗斯在乌克兰损失了三分之一的军队](/content/gnews/2553206.md)
- `MOSVIDEO`
-
-#### [樱花深度报道┃逃离莫斯科（六）](/content/gnews/2553165.md)
- `东京樱花团Tokyo Sakura Group`
 
 #### [澳大利亚人在接种阿斯利康中共病毒疫苗后的第11例死亡](/content/gnews/2553155.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -53,14 +74,8 @@
 #### [俄罗斯入侵者摧毁了马里乌波尔的犹太教堂](/content/gnews/2553135.md)
  `波士顿五月花农场金融部`
 
-#### [有声｜黑匣子数据初估：东航坠机俯冲是人为造成](/content/gnews/2553132.md)
+#### [秘翻新闻｜泄漏文件曝中共涉疆种族灭绝新罪证](/content/gnews/2553010.md)
  `秘密翻译组-即时新闻播报组`
-
-#### [美国及世界疫情简报（05-18-2022）](/content/gnews/2553044.md)
- `波士顿五月花农场`
-
-#### [大直播后记：七哥的迷茫以及对战友的殷切期望](/content/gnews/2553030.md)
- `雅典娜GNotes`
 
 #### [秘翻在线：加密货币Luna、Terra发行公司法务组纷纷辞职](/content/gnews/2552996.md)
  `秘密翻譯組G-Translators`
@@ -80,9 +95,6 @@
 #### [【大白怎么不算密接者(三)】](/content/gnews/2552879.md)
  `SpicyWorld`
 
-#### [2022年5月18日，全球中共病毒疫情情况汇总](/content/gnews/2552872.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [秘翻在线：疫苗后遗症引发的次生灾害，你还没意识到吗？](/content/gnews/2552870.md)
  `秘密翻譯組G-Translators`
 
@@ -95,23 +107,20 @@
 #### [文明与科技的关系](/content/gnews/2552837.md)
  `喜马拉雅农场新西兰站`
 
+#### [2022.5.18大直播 中共内斗让世界警醒 中共必将被自己消灭](/content/gnews/2552818.md)
+ `秘密翻译组-原创组`
+
 #### [爆料革命特大喜讯——遣返郭先生的主谋Steve Wynn被美司法部起诉](/content/gnews/2552801.md)
  `MilesGuoLivePPT`
 
 #### [文贵先生直播重点大纲2022/05/17](/content/gnews/2552796.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [芬兰和瑞典正式申请加入北约](/content/gnews/2552772.md)
- `墨尔本雅典娜农场`
-
 #### [SEC七次摘牌明细表 LUNA 榜上有名，中共金融超限战遭受灭顶之灾](/content/gnews/2552759.md)
  `喜马拉雅农场新西兰站`
 
 #### [樱花深度报道┃逃离莫斯科（一）](/content/gnews/2552697.md)
  `东京樱花团Tokyo Sakura Group`
-
-#### [5/18/2022银河快讯：贸易赤字扩大，资源价格高涨和日元疲软或长期化；Omicron毒株的后遗症 &#8220;可能长期化&#8221;及&#8221;病毒排出率 &#8220;极低](/content/gnews/2552609.md)
- `日本银河系农场-阿尔法星球`
 
 #### [樱花时政┃中共遭全球合围 欧洲议会提碳税法规](/content/gnews/2552608.md)
  `东京樱花团Tokyo Sakura Group`
@@ -133,9 +142,6 @@
 
 #### [美国食品和药物管理局授权为5-11岁的儿童接种COVID-19强化疫苗](/content/gnews/2552265.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [秘翻在线：平安集团深耕区块链技术领域 野心勃勃欲掌控金融世界](/content/gnews/2552246.md)
- `秘密翻譯組G-Translators`
 
 #### [秘翻在线：中共加紧扩张，全力颠覆基于规则的国际秩序](/content/gnews/2552196.md)
  `秘密翻譯組G-Translators`
@@ -160,12 +166,6 @@
 
 #### [爆料革命重塑中国人的追求、尊严和生活方式](/content/gnews/2549583.md)
  `NFSC News`
-
-#### [乌克兰志愿者对新中国联邦救援表示感谢](/content/gnews/2549537.md)
- `NFSC News`
-
-#### [樱花时政┃普京：芬兰瑞典加入北约会“引发”反应](/content/gnews/2544685.md)
- `东京樱花团Tokyo Sakura Group`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
