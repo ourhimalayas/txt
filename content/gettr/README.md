@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/18/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1a8mjs02aa.md)
+
+2022.05.17  晚 新中国联邦⎪新闻访谈
+
+<img src="https://media.gettr.com/group18/origin/2022/05/18/00/69407735-cc20-d191-3eb7-2e4180680727/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1a7qcc3f3b.md)
 
 5/17/2022 Miles Guo’s GETTR: The CCP is afraid of GETTR! Almost all the CCP pawns that smeared me before have come to GETTR to attack me. Those fake democracy activists and the ABC in Australia are slandering GETTR at the same time...
@@ -38,19 +46,19 @@
 
 ---
 
-[@miles 5/17/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p1a84ra5cbf.md)
-
-5/15/2022 Miles Guo: The CCP spent 20 billion USD in attacking the Whistleblowers' Movement and myself, including hacking and altering data on YouTube and Getter, buying off former senior official of FBI, intimidating and bribing B...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/17/23/e1d971c4-372b-e890-e342-7c855590e261/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/17/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1a7o1k5f08.md)
 
 5/15/2022 Miles Guo: GETTR's DM will adopt the blockchain end-to-end encryption technology which terrified the Chinese Communist Party. The number of views of the live broadcasts of the Whistleblowers' Movement is even more powerfu...
 
 <img src="https://media.gettr.com/group3/getter/2022/05/17/23/5b1bb646-c0d5-fce4-3493-012ccf2f60d2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/17/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p1a84ra5cbf.md)
+
+5/15/2022 Miles Guo: The CCP spent 20 billion USD in attacking the Whistleblowers' Movement and myself, including hacking and altering data on YouTube and Getter, buying off former senior official of FBI, intimidating and bribing B...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/17/23/e1d971c4-372b-e890-e342-7c855590e261/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,16 +195,6 @@ For English: gettr.com/streaming/p1a7mv6953e
 【Ukraine Rescue】 05/16/2022 A university professor from Poland discloses the Confucius Institute of the Chinese Communist Party in Poland, calling its head the 'Communistic Queen'. He is very interested in the New Federal State of ...
 
 <img src="https://media.gettr.com/group45/getter/2022/05/17/15/9ca283e9-dfea-bf0b-07cb-4a41d75a047e/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 2:18 PM UTC ](/content/gettr/p1a5ujfc704.md)
-
-05/17/2022 on the 29th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
-
-No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 29 Consecutive Days
-
-No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 29 Consecutive Days...
 
 ---
 
