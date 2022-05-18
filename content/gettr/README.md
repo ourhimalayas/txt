@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1aa8mn5f20.md)
+
+2022.05.18 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group18/origin/2022/05/18/17/110350d3-07eb-6957-4176-aab361d04617/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 2:26 PM UTC  - :tv:直播](/content/gettr/p1aa8u0fa7b.md)
 
 2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
@@ -132,11 +140,11 @@ Day 73 - Date: M...
 
 ---
 
-[@miles 5/18/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1aa8mn5f20.md)
+[@miles 5/18/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1acd5v7617.md)
 
-2022.05.18 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022.05.18  新中国联邦 | 喜健康    普京为何要在中国注射血清？——干细胞技术的现在与未来
 
-<img src="https://media.gettr.com/group18/origin/2022/05/18/17/110350d3-07eb-6957-4176-aab361d04617/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/18/20/1394f18e-0fca-abbc-fd31-9737ed80d486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Day 73 - Date: M...
 5/15/2022 Miles Guo: GETTR's DM will adopt the blockchain end-to-end encryption technology which terrified the Chinese Communist Party. The number of views of the live broadcasts of the Whistleblowers' Movement is even more powerfu...
 
 <img src="https://media.gettr.com/group3/getter/2022/05/17/23/5b1bb646-c0d5-fce4-3493-012ccf2f60d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p1a84ra5cbf.md)
-
-5/15/2022 Miles Guo: The CCP spent 20 billion USD in attacking the Whistleblowers' Movement and myself, including hacking and altering data on YouTube and Getter, buying off former senior official of FBI, intimidating and bribing B...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/17/23/e1d971c4-372b-e890-e342-7c855590e261/out.jpg" width="506" height="284">
 
 ---
 
