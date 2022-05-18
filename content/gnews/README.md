@@ -2,8 +2,38 @@
 ---
 
 
+#### [有声｜中共资金培育台湾“网红” 欲打认知战](/content/gnews/2553947.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [塔利班政权宣布解散阿富汗人权委员会和其他主要机构](/content/gnews/2553919.md)
+ `澳喜特战旅Gnews`
+
+#### [樱花FM┃中共国消费疲软 丹麦服装品牌将全面闭店](/content/gnews/2553908.md)
+ `樱花FM`
+
+#### [美日将联手慑阻中共国在印太地区的行动](/content/gnews/2553898.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [随着芬兰和瑞典要求加入北约美国媒体要求赶出土耳其](/content/gnews/2553897.md)
+ `秘密翻譯組G-Translators`
+
+#### [樱花FM┃马斯克表示对Twitter的收购因虚假账户数据而被搁置](/content/gnews/2553875.md)
+ `樱花FM`
+
+#### [美司法部起诉赌场大亨Steve Wynn与中共有染](/content/gnews/2553858.md)
+ `秘密翻譯組G-Translators`
+
+#### [中共一直在悄悄搭建基于区块链的网络服务平台BSN](/content/gnews/2553839.md)
+ `波士顿五月花农场金融部`
+
+#### [有声｜ 纽约市进入中共病毒COVID-19 的 “高度”警戒级别](/content/gnews/2553834.md)
+ `秘密翻译组-即时新闻播报组`
+
 #### [樱花FM┃经济下行钢材需求低迷 多地钢企严重减产](/content/gnews/2553829.md)
  `樱花FM`
+
+#### [自身免疫疾病和排毒禁食](/content/gnews/2553809.md)
+ `东京樱花团Tokyo Sakura Group`
 
 #### [樱花FM┃世界粮食危机加剧 印度禁止小麦出口](/content/gnews/2553781.md)
  `樱花FM`
@@ -11,17 +41,14 @@
 #### [一位逃离上海的人讲述逃离封锁中的上海](/content/gnews/2553777.md)
  `澳喜特战旅Gnews`
 
-#### [一连串针对中共国人和中共国投资的袭击事件表明巴基斯坦的反共情绪正在抬头](/content/gnews/2553738.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [有声&#124;习近平的反人类性格决定中共国现状](/content/gnews/2553774.md)
+ `MOSREC`
 
-#### [樱花FM┃拜登签署法案 支持台湾重获世卫观察员身份](/content/gnews/2553726.md)
- `樱花FM`
+#### [乌军单日击落11个俄军空中目标](/content/gnews/2553725.md)
+ `GTV News Talk`
 
 #### [中共国经济因上海及多地严厉的封锁措施严重下滑](/content/gnews/2553724.md)
  `澳喜特战旅Gnews`
-
-#### [有声&#124;外媒报道：仰光大主教抨击中共当局](/content/gnews/2553720.md)
- `MOSREC`
 
 #### [美国与盟友寻求建立新型全球贸易以降低对中俄的依赖](/content/gnews/2553705.md)
  `喜马拉雅德国纽伦堡正义农场`
@@ -29,26 +56,8 @@
 #### [美国指控赌场大亨永利充当中共代理人](/content/gnews/2553704.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [美国司法部起诉要求Stephen A.Wynn注册为中共国外国代理人](/content/gnews/2553690.md)
- `温哥华扬帆农场`
-
-#### [研究：日本虎杖提取物或有助于降低亚硝酸钠相关的癌症风险](/content/gnews/2553652.md)
- `东京樱花团Tokyo Sakura Group`
-
-#### [樱花FM┃支持乌克兰西欧与英美分歧加深](/content/gnews/2553632.md)
- `樱花FM`
-
-#### [接种了中共病毒疫苗的飞行员着陆后心脏骤停，无法再飞](/content/gnews/2553618.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [有声&#124;爆料革命、喜币、G系列成为顶级富豪游戏F1现场绝对最热话题](/content/gnews/2553602.md)
- `MOSREC`
-
 #### [【全文字幕】2021年12月6号继文贵北京盘古家人再次被抄家后的直播](/content/gnews/2553595.md)
  `文贵视频字幕全集`
-
-#### [中共国4月房地产销售创2006年以来最大跌幅](/content/gnews/2553586.md)
- `澳喜特战旅Gnews`
 
 #### [北朝鲜动员军队应对中共病毒爆发](/content/gnews/2553318.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -71,9 +80,6 @@
 #### [秘翻在线：加密货币Luna、Terra发行公司法务组纷纷辞职](/content/gnews/2552996.md)
  `秘密翻譯組G-Translators`
 
-#### [秘翻在线：保罗·克鲁格曼专栏：加密货币除了投机交易之外无经济效用](/content/gnews/2552965.md)
- `秘密翻譯組G-Translators`
-
 #### [中共长期对民众洗脑酿成的又一起人间惨剧](/content/gnews/2552960.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -89,14 +95,8 @@
 #### [秘翻在线：疫苗后遗症引发的次生灾害，你还没意识到吗？](/content/gnews/2552870.md)
  `秘密翻譯組G-Translators`
 
-#### [有声｜中共鼓动学生举报并且连坐](/content/gnews/2552843.md)
- `秘密翻译组-即时新闻播报组`
-
 #### [秘翻在线：国际刑事法院向乌克兰派遣大规模调查组](/content/gnews/2552842.md)
  `秘密翻譯組G-Translators`
-
-#### [文明与科技的关系](/content/gnews/2552837.md)
- `喜马拉雅农场新西兰站`
 
 #### [2022.5.18大直播 中共内斗让世界警醒 中共必将被自己消灭](/content/gnews/2552818.md)
  `秘密翻译组-原创组`
