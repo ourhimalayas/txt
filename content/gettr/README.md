@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1a9cn1f685.md)
+
+2022.05.18 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group42/origin/2022/05/18/08/f11d4384-0048-39a8-cc0b-c9ec88bd52a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1a9weff2a4.md)
 
 【Ukraine Rescue】05/17/2022 A former Ukrainian Azov veteran, who is helping the Ukrainian army deliver supplies, thanks the NFSC for its humanitarian assistance to the Ukrainian people in this war, and sincerely wishes the new Chine...
@@ -68,11 +76,35 @@
 
 ---
 
-[@miles 5/18/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1a9cn1f685.md)
+[@miles 5/18/2022 9:04 AM UTC ](/content/gettr/p1aa34m5dcb.md)
 
-2022.05.18 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group42/origin/2022/05/18/08/f11d4384-0048-39a8-cc0b-c9ec88bd52a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月16日第73天当日救援统计：
+
+Medyka救援站接待：约393人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约21210人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 73 - Date: M...
+
+<img src="https://media.gettr.com/group5/getter/2022/05/18/09/068dbe83-8bc8-9ea8-9a34-b279f760e0f2/d72b80f775be2f2b9e2f441ba55823f6.jpg" width="506" height="284">
 
 ---
 
@@ -147,22 +179,6 @@
 
 
 https://www.reuters.com/world/us/us-sues-compel-former-casino-magnate-wynn-register-agent-china-2022-05-17/
-
----
-
-[@cornfieldsis 5/17/2022 9:47 PM UTC  - 4圖](/content/gettr/p1a82107f7c.md)
-
-如何绑定您的GClub 会员卡到GFashion 的账户 ？ 
-
-
-
-请看下图 👇： 
-
-
-
-@gfashion @ddnyc
-
-<img src="https://media.gettr.com/group42/origin/2022/05/17/21/a6588a1d-4892-0946-5f01-5037db167a4b/db3fcd1b6cb7c5dccf166225a56eb69c.png" width="506" height="284">
 
 ---
 
