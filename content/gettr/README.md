@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1a968j98ef.md)
+
+2022-5-17《鸡血王喜币大作战》 第一百九十八集 嘉宾：无双柳薇薇、文空
+
+<img src="https://media.gettr.com/group19/origin/2022/05/18/03/323fd27c-dd83-7122-9483-f4148d4531c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1a8vty9143.md)
 
 2022-5-17《鸡血王喜币大作战》 第一百九十八集 嘉宾：无双柳薇薇、文空
@@ -44,11 +52,11 @@
 
 ---
 
-[@miles 5/18/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1a968j98ef.md)
+[@miles 5/18/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1a9cmn9f17.md)
 
-2022-5-17《鸡血王喜币大作战》 第一百九十八集 嘉宾：无双柳薇薇、文空
+2022.05.18 新中国联邦法治基金乌克兰人道救援行动--俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group19/origin/2022/05/18/03/323fd27c-dd83-7122-9483-f4148d4531c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/05/18/04/0e76a75f-2c92-c3cc-095f-9ed77fb28588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ For English: gettr.com/streaming/p1a7mv6953e
 
 
 <img src="https://media.gettr.com/group29/origin/2022/05/17/19/bba36827-c562-2a10-53ec-323b5ef8de2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1a4ctx644b.md)
-
-2022.05.17  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group15/origin/2022/05/17/17/9c6cae02-9236-043c-3e3e-3ad5657072e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
