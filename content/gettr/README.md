@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1acd5v7617.md)
+
+2022.05.18  新中国联邦 | 喜健康    普京为何要在中国注射血清？——干细胞技术的现在与未来
+
+<img src="https://media.gettr.com/group29/origin/2022/05/18/20/1394f18e-0fca-abbc-fd31-9737ed80d486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1aa8mn5f20.md)
 
 2022.05.18 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -140,11 +148,11 @@ Day 73 - Date: M...
 
 ---
 
-[@miles 5/18/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1acd5v7617.md)
+[@miles 5/18/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1acqxm1132.md)
 
-2022.05.18  新中国联邦 | 喜健康    普京为何要在中国注射血清？——干细胞技术的现在与未来
+5/18/2022 Miles Guo: Europe's move of strengthening ties with the US and further decoupling from Communist China is of profound significance! A couple of years ago when I first mentioned the word "decoupling", the kleptocrats in Zh...
 
-<img src="https://media.gettr.com/group29/origin/2022/05/18/20/1394f18e-0fca-abbc-fd31-9737ed80d486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/05/18/21/045eb6ac-5cbc-6073-2990-f43ac3a0895b/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Day 73 - Date: M...
 5/15/2022 Miles Guo: GETTR's DM will adopt the blockchain end-to-end encryption technology which terrified the Chinese Communist Party. The number of views of the live broadcasts of the Whistleblowers' Movement is even more powerfu...
 
 <img src="https://media.gettr.com/group3/getter/2022/05/17/23/5b1bb646-c0d5-fce4-3493-012ccf2f60d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 11:29 PM UTC  - :tv:直播](/content/gettr/p1a7oo4b1e9.md)
-
-5/15/2022 Miles Guo: Since the start of the Whistleblowers' Movement in 2017, the CCP has been wielding the power of the whole country to attack us and alter our viewer data. This means the Whistleblowers' Movement has hit the nub ...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/17/23/49cba630-4083-966c-ca45-c69eb1cf4e28/out.jpg" width="506" height="284">
 
 ---
 
