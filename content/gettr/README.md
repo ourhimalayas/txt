@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1a8k1a3a30.md)
+
+2022.05.17  新中国联邦 | 喜财经   期股市汇市外汇黄金石油行情;  国内疫情及经济走势和新进展
+
+<img src="https://media.gettr.com/group43/origin/2022/05/18/02/5cf4efa5-41f5-52dd-1e65-30ed95b5ee30/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 1:05 AM UTC ](/content/gettr/p1a8axoa1a4.md)
 
 美东时间5月17日，有关永利赌场大亨史蒂夫·永利（Steve Wynn）被起诉的事件被《路透社》、《华尔街日报》等多家媒体报道。美国司法部指控永利度假村前首席执行官永利在2017年曾充当共产主义北京政府的说客，游说当时在任的川普总统，要求他取消郭文贵（Miles Guo）先生的签证协助中共将其遣返回中共国。
@@ -28,11 +36,11 @@
 
 ---
 
-[@miles 5/18/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1a8k1a3a30.md)
+[@miles 5/18/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1a8vty9143.md)
 
-2022.05.17  新中国联邦 | 喜财经   期股市汇市外汇黄金石油行情;  国内疫情及经济走势和新进展
+2022-5-17《鸡血王喜币大作战》 第一百九十八集 嘉宾：无双柳薇薇、文空
 
-<img src="https://media.gettr.com/group43/origin/2022/05/18/02/5cf4efa5-41f5-52dd-1e65-30ed95b5ee30/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/05/18/03/323fd27c-dd83-7122-9483-f4148d4531c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ For English: gettr.com/streaming/p1a7mv6953e
 5/15/2022 Miles Guo: One of the authors of the Stanford report is the mediator between YouTube and myself, as well as Wang Enge and myself! Under the intimidation of the CCP, YouTube dared not to show the real viewing data of my li...
 
 <img src="https://media.gettr.com/group19/getter/2022/05/17/16/67c39279-6588-c164-8bcb-d9351181cfd3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 3:26 PM UTC  - :tv:直播](/content/gettr/p1a6ih467d1.md)
-
-【Ukraine Rescue】 05/16/2022 A university professor from Poland discloses the Confucius Institute of the Chinese Communist Party in Poland, calling its head the 'Communistic Queen'. He is very interested in the New Federal State of ...
-
-<img src="https://media.gettr.com/group45/getter/2022/05/17/15/9ca283e9-dfea-bf0b-07cb-4a41d75a047e/out.jpg" width="506" height="284">
 
 ---
 
