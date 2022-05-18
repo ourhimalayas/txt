@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/17/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p1a8brfde76.md)
+
+5/15/2022 Miles Guo: The Shanghai gang is no more, but there is an anti-Xi gang, which must ally with the US and me to take out Xi. Wang Qishan leaked the information that Xi has health issues
+
+
+
+5/15/2022 文贵直播：上海帮已不复存在，但有反习帮，它必须拉拢...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/17/23/e830bdf2-9774-d48d-dd8f-3f21b5f416a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1ad32o49bf.md)
 
 5/18/2022 Miles Guo: During a recent forum in Europe, Janet Yellen, who used to speak for the CCP, started to say that the biggest threat to the world is Xi Jinping, followed by the CCP. She also firmly believes that Xi has health ...
@@ -15,18 +27,6 @@
 2022年5月18日 七哥乱聊吃播
 
 <img src="https://media.gettr.com/group26/liveorigin/2022/05/18/21/80187cba-8397-fbb9-ab6c-b286463ea427/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@cornfieldsis 5/18/2022 11:00 PM UTC  - 5圖](/content/gettr/p1ad0dsdcbb.md)
-
-2022年5月18日郭先生试穿的这个是G| Fashion 新款， Loro Pina 的料子， 双层拉链，超级有弹性～ 
-
-
-
-@gfashion @miles
-
-<img src="https://media.gettr.com/group32/origin/2022/05/18/23/68718306-97c1-1c1f-7c54-089009cce093/45ce651771b94c56e82600d430958744.jpeg" width="506" height="284">
 
 ---
 
