@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/18/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1ad32o49bf.md)
+
+5/18/2022 Miles Guo: During a recent forum in Europe, Janet Yellen, who used to speak for the CCP, started to say that the biggest threat to the world is Xi Jinping, followed by the CCP. She also firmly believes that Xi has health ...
+
+<img src="https://media.gettr.com/group45/getter/2022/05/18/22/c796d61b-d74e-ebdd-5fd0-77a8555cc36e/out.jpg" width="506" height="284">
+
+---
+
+[@himalayaathena 5/18/2022 11:42 AM UTC ](/content/gettr/p1aahop3c44.md)
+
+早在2019年，澳洲战略研究所ASPI就发现与中共政府有关的推特帐户对郭文贵先生进行了铺天盖地的网络攻击，时间最早可以追溯到2017年的4月，即美国之音“断播门”事件发生之后。APSI的研究分析显示，所有这些与中共有联系的推特账户最持久的攻击目标就是郭文贵先生，远远大于2019年针对香港抗议活动的网络攻击。
+
+https://gnews.org/zh-hans/2539595/
+
+---
+
 [@miles 5/18/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1acqxm1132.md)
 
 5/18/2022 Miles Guo: Europe's move of strengthening ties with the US and further decoupling from Communist China is of profound significance! A couple of years ago when I first mentioned the word "decoupling", the kleptocrats in Zh...
@@ -153,22 +169,6 @@ Day 73 - Date: M...
 2022.05.17  晚 新中国联邦⎪新闻访谈
 
 <img src="https://media.gettr.com/group18/origin/2022/05/18/00/69407735-cc20-d191-3eb7-2e4180680727/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayaathena 5/18/2022 11:42 AM UTC ](/content/gettr/p1aahop3c44.md)
-
-早在2019年，澳洲战略研究所ASPI就发现与中共政府有关的推特帐户对郭文贵先生进行了铺天盖地的网络攻击，时间最早可以追溯到2017年的4月，即美国之音“断播门”事件发生之后。APSI的研究分析显示，所有这些与中共有联系的推特账户最持久的攻击目标就是郭文贵先生，远远大于2019年针对香港抗议活动的网络攻击。
-
-https://gnews.org/zh-hans/2539595/
-
----
-
-[@miles 5/17/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1a8e234d15.md)
-
-5/15/2022 Miles Guo: Russia has been divided between several oligarchs. It's the people around Putin that turned him into a demon. Xi's anti-corruption campaign gave rise to the new oligarchs in Communist China, and Wang Qishan, wh...
-
-<img src="https://media.gettr.com/group21/getter/2022/05/17/23/cff832a8-3326-d293-204e-5974c97d7028/out.jpg" width="506" height="284">
 
 ---
 
