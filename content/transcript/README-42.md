@@ -3,6 +3,8 @@
 
 ## 頁面 42/42 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [查看全部](/content/transcript/README-all.md)
 
+[（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/content/transcript/2018/04/20180418-8084565878058568507.md)
+
 [（二）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！ （二）](/content/transcript/2018/04/20180418-8227695732169623360.md)
 
 [（三）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（三）](/content/transcript/2018/04/20180418-132220289355262532.md)

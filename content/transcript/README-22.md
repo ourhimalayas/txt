@@ -3,6 +3,8 @@
 
 ## 頁面 22/42 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年12月3日郭先生报平安](/content/transcript/2019/12/20191204-1258843651620864623.md)
+
 [文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/content/transcript/2019/12/20191203-2918612896973787175.md)
 
 [文字版：2019年12月1日郭先生报平安直播](/content/transcript/2019/12/20191203-2633135332131965317.md)
@@ -50,8 +52,6 @@
 [文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/content/transcript/2019/11/20191111-8774490754599223874.md)
 
 [文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/content/transcript/2019/11/20191110-4503525737047042543.md)
-
-[文字版：2019年11月6日文贵与路德直播](/content/transcript/2019/11/20191108-3252264516615100238.md)
 
 
 ## 頁面 22/42 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)

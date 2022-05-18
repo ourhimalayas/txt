@@ -3,6 +3,8 @@
 
 ## 頁面 40/42 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
+[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/content/transcript/2018/04/20180418-732290735735777378.md)
+
 [文字版：2017年11月2号郭文贵先生在Livestream 直播！](/content/transcript/2018/04/20180418-6405859290507553352.md)
 
 [文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/transcript/2018/04/20180418-1878969109929374456.md)
@@ -50,8 +52,6 @@
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-6751902581957520102.md)
 
 [（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-3181090078770141211.md)
-
-[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/transcript/2018/04/20180418-1360693815157442184.md)
 
 
 ## 頁面 40/42 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 36/42 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/content/transcript/2018/04/20180421-3038856326236637866.md)
+
 [文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/content/transcript/2018/04/20180421-8336686313989639143.md)
 
 [文字版4月14号文贵报平安视频：文贵乱谈美国及盟国导袭叙利亚！是否是中国的第二次战略机会！还是盗国贼盗国的最大机会！我们应该怎么看！一切都是刚刚开始！](/content/transcript/2018/04/20180418-263041945712607182.md)
@@ -50,8 +52,6 @@
 [文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/content/transcript/2018/04/20180418-8337465493911865893.md)
 
 [文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/content/transcript/2018/04/20180418-39810748690895167.md)
-
-[文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？](/content/transcript/2018/04/20180418-8884654215311993874.md)
 
 
 ## 頁面 36/42 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)

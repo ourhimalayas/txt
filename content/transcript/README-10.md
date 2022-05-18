@@ -3,6 +3,8 @@
 
 ## 頁面 10/42 [**<**](/content/transcript/README-9.md) [1](/content/transcript/README.md) ... [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) **10** [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-11.md) [查看全部](/content/transcript/README-all.md)
 
+[2021年8月15日郭文贵先生健腹轮健身盖特全文字版](/content/transcript/2021/08/20210815-1569771.md)
+
 [全文字版2021年8月14日郭文贵先生G-TV直播](/content/transcript/2021/08/20210814-1469199.md)
 
 [全文字版2021年8月13日郭文贵先生G-TV直播](/content/transcript/2021/08/20210813-1469006.md)
@@ -50,8 +52,6 @@
 [全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/content/transcript/2021/07/20210704-1376105.md)
 
 [全文字版2021年6月30日郭文贵先生G-TV直播](/content/transcript/2021/06/20210630-1364325.md)
-
-[全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播](/content/transcript/2021/06/20210628-1356870.md)
 
 
 ## 頁面 10/42 [**<**](/content/transcript/README-9.md) [1](/content/transcript/README.md) ... [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) **10** [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-11.md) [查看全部](/content/transcript/README-all.md)

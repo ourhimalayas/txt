@@ -3,6 +3,8 @@
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/content/transcript/2019/04/20190419-6305900525322511967.md)
+
 [文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/content/transcript/2019/04/20190417-8226491175604297051.md)
 
 [文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/content/transcript/2019/04/20190416-1716208713998494644.md)
@@ -50,8 +52,6 @@
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/transcript/2019/02/20190224-3447840307197696435.md)
 
 [文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/content/transcript/2019/02/20190222-1257758446657176479.md)
-
-[文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/content/transcript/2019/02/20190220-7271469985429924299.md)
 
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)

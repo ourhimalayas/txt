@@ -3,6 +3,8 @@
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/content/transcript/2018/11/20181122-149600174493022230.md)
+
 [文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/content/transcript/2018/11/20181117-9134684520600037722.md)
 
 [翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/content/transcript/2018/11/20181117-5688974428760501004.md)
@@ -50,8 +52,6 @@
 [文字版：20181012 郭文贵直播1700家中资公司 150家中资银行 等待正义惩罚 向大家公布美国财政部海外资产控制办公室合规制栽措施！！](/content/transcript/2018/10/20181013-4266410200280515458.md)
 
 [文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点](/content/transcript/2018/10/20181012-1934130956992732839.md)
-
-[文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018](/content/transcript/2018/10/20181012-2308330179087964490.md)
 
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/content/transcript/2019/05/20190526-2377635576100864352.md)
+
 [文字版：2019年5月20日凌晨4点 直播](/content/transcript/2019/05/20190520-5140210759327330200.md)
 
 [文字版：2019年5月19日文貴船上直播](/content/transcript/2019/05/20190520-8156245383371433216.md)
@@ -50,8 +52,6 @@
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/transcript/2019/04/20190422-2917569343036844190.md)
 
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/transcript/2019/04/20190421-3663457252526137440.md)
-
-[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/content/transcript/2019/04/20190419-6305900525322511967.md)
 
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
