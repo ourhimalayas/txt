@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/18/2022 9:50 PM UTC  - :tv:直播](/content/gettr/p1acxn4d321.md)
+
+2022年5月18日 七哥乱聊吃播
+
+<img src="https://media.gettr.com/group26/liveorigin/2022/05/18/21/80187cba-8397-fbb9-ab6c-b286463ea427/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
+[@miles 5/18/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1acqxm1132.md)
+
+5/18/2022 Miles Guo: Europe's move of strengthening ties with the US and further decoupling from Communist China is of profound significance! A couple of years ago when I first mentioned the word "decoupling", the kleptocrats in Zh...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/18/21/045eb6ac-5cbc-6073-2990-f43ac3a0895b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1acd5v7617.md)
 
 2022.05.18  新中国联邦 | 喜健康    普京为何要在中国注射血清？——干细胞技术的现在与未来
@@ -140,27 +156,11 @@ Day 73 - Date: M...
 
 ---
 
-[@miles 5/17/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1a7rhyefea.md)
+[@himalayaathena 5/18/2022 11:42 AM UTC ](/content/gettr/p1aahop3c44.md)
 
-5/17/2022 Miles Guo’s GETTR: Europe will initiate a series of major actions towards the Chinese Communist Party which may not be made public though; the U.S. will speed up in purging those U.S. passport holders but work for the CCP...
+早在2019年，澳洲战略研究所ASPI就发现与中共政府有关的推特帐户对郭文贵先生进行了铺天盖地的网络攻击，时间最早可以追溯到2017年的4月，即美国之音“断播门”事件发生之后。APSI的研究分析显示，所有这些与中共有联系的推特账户最持久的攻击目标就是郭文贵先生，远远大于2019年针对香港抗议活动的网络攻击。
 
-<img src="https://media.gettr.com/group19/getter/2022/05/17/23/4038e0e7-23e7-760e-1315-61ba95f22d34/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1acqxm1132.md)
-
-5/18/2022 Miles Guo: Europe's move of strengthening ties with the US and further decoupling from Communist China is of profound significance! A couple of years ago when I first mentioned the word "decoupling", the kleptocrats in Zh...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/18/21/045eb6ac-5cbc-6073-2990-f43ac3a0895b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1a7qcc3f3b.md)
-
-5/17/2022 Miles Guo’s GETTR: The CCP is afraid of GETTR! Almost all the CCP pawns that smeared me before have come to GETTR to attack me. Those fake democracy activists and the ABC in Australia are slandering GETTR at the same time...
-
-<img src="https://media.gettr.com/group12/getter/2022/05/17/23/49b95975-b777-90dd-4658-011e031f7e01/out.jpg" width="506" height="284">
+https://gnews.org/zh-hans/2539595/
 
 ---
 
