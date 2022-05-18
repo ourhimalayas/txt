@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aa8q5672a.md)
+
+2022.05.18  新中国联邦 | 军情室 中共海军南下与美军在亚太的排兵布阵
+
+<img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 9:04 AM UTC ](/content/gettr/p1aa34m5dcb.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -108,11 +116,11 @@ Day 73 - Date: M...
 
 ---
 
-[@miles 5/18/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aa8q5672a.md)
+[@miles 5/18/2022 12:23 PM UTC  - :tv:直播](/content/gettr/p1aa8qo827d.md)
 
-2022.05.18  新中国联邦 | 军情室 中共海军南下与美军在亚太的排兵布阵
+2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
 
-<img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/05/18/12/c13190ed-1676-050e-fb53-02a87e2b2993/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,16 +195,6 @@ Day 73 - Date: M...
 
 
 https://www.reuters.com/world/us/us-sues-compel-former-casino-magnate-wynn-register-agent-china-2022-05-17/
-
----
-
-[@miles 5/17/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1a82nm21b9.md)
-
-“天王盖地虎 小鸡炖蘑菇” 飞飞秀救援快报  2022-05-17
-
-For English: gettr.com/streaming/p1a7mv6953e
-
-<img src="https://media.gettr.com/group7/origin/2022/05/17/22/0fef3d21-62f6-b970-54d1-c15b25bdbed7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
