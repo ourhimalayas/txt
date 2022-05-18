@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1a8mjs02aa.md)
+
+2022.05.17  晚 新中国联邦⎪新闻访谈
+
+<img src="https://media.gettr.com/group18/origin/2022/05/18/00/69407735-cc20-d191-3eb7-2e4180680727/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/17/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1a7rhyefea.md)
 
 5/17/2022 Miles Guo’s GETTR: Europe will initiate a series of major actions towards the Chinese Communist Party which may not be made public though; the U.S. will speed up in purging those U.S. passport holders but work for the CCP...
@@ -10,11 +18,13 @@
 
 ---
 
-[@miles 5/18/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1a8mjs02aa.md)
+[@miles 5/18/2022 1:05 AM UTC ](/content/gettr/p1a8axoa1a4.md)
 
-2022.05.17  晚 新中国联邦⎪新闻访谈
+美东时间5月17日，有关永利赌场大亨史蒂夫·永利（Steve Wynn）被起诉的事件被《路透社》、《华尔街日报》等多家媒体报道。美国司法部指控永利度假村前首席执行官永利在2017年曾充当共产主义北京政府的说客，游说当时在任的川普总统，要求他取消郭文贵（Miles Guo）先生的签证协助中共将其遣返回中共国。
 
-<img src="https://media.gettr.com/group18/origin/2022/05/18/00/69407735-cc20-d191-3eb7-2e4180680727/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+永利并没有根据《外国代理人登记法》(FARA)进行注册。司法部的民事诉讼称，它曾在2018年、2021年和2022年4月建议永利根据FARA注册为...
 
 ---
 
@@ -195,14 +205,6 @@ For English: gettr.com/streaming/p1a7mv6953e
 【Ukraine Rescue】 05/16/2022 A university professor from Poland discloses the Confucius Institute of the Chinese Communist Party in Poland, calling its head the 'Communistic Queen'. He is very interested in the New Federal State of ...
 
 <img src="https://media.gettr.com/group45/getter/2022/05/17/15/9ca283e9-dfea-bf0b-07cb-4a41d75a047e/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 2:23 PM UTC  - :tv:直播](/content/gettr/p1a59v1b9e5.md)
-
-5/15/2022 Miles Guo: A very influential figure in the financial sector from Europe said that he is investing in who we will be in ten years. More than 20 bigwigs at the Monaco Historic Grand Prix yesterday were all fellow fighters,...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/17/14/8e362d0e-54e8-c424-ac6f-c48a70063c76/out.jpg" width="506" height="284">
 
 ---
 
