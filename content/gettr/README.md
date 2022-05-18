@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1a9cmn9f17.md)
+
+2022.05.18 新中国联邦法治基金乌克兰人道救援行动--俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group35/origin/2022/05/18/04/0e76a75f-2c92-c3cc-095f-9ed77fb28588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1a968j98ef.md)
 
 2022-5-17《鸡血王喜币大作战》 第一百九十八集 嘉宾：无双柳薇薇、文空
@@ -52,11 +60,11 @@
 
 ---
 
-[@miles 5/18/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1a9cmn9f17.md)
+[@miles 5/18/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1a9weff2a4.md)
 
-2022.05.18 新中国联邦法治基金乌克兰人道救援行动--俄乌战争最新战况播报
+【Ukraine Rescue】05/17/2022 A former Ukrainian Azov veteran, who is helping the Ukrainian army deliver supplies, thanks the NFSC for its humanitarian assistance to the Ukrainian people in this war, and sincerely wishes the new Chine...
 
-<img src="https://media.gettr.com/group35/origin/2022/05/18/04/0e76a75f-2c92-c3cc-095f-9ed77fb28588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/05/18/07/f08e8e92-8289-1ac7-6769-852673b34338/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,16 +199,6 @@ For English: gettr.com/streaming/p1a7mv6953e
 
 
 <img src="https://media.gettr.com/group34/origin/2022/05/17/20/2abc3e65-ee55-5f71-c8a5-a3a015cec976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1a7gna4d12.md)
-
-2022-5-17 《避风港》（48）制药商全方位控制医疗体系
-
-
-
-<img src="https://media.gettr.com/group29/origin/2022/05/17/19/bba36827-c562-2a10-53ec-323b5ef8de2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
