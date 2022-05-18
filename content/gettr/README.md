@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/18/2022 2:26 PM UTC  - :tv:直播](/content/gettr/p1aa8u0fa7b.md)
+
+2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
+
+<img src="https://media.gettr.com/group45/origin/2022/05/18/12/c13190ed-1676-050e-fb53-02a87e2b2993/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 12:23 PM UTC  - :tv:直播](/content/gettr/p1aa8qo827d.md)
 
 2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
@@ -124,11 +132,11 @@ Day 73 - Date: M...
 
 ---
 
-[@miles 5/18/2022 2:26 PM UTC  - :tv:直播](/content/gettr/p1aa8u0fa7b.md)
+[@miles 5/18/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1aa8mn5f20.md)
 
-2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
+2022.05.18 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group45/origin/2022/05/18/12/c13190ed-1676-050e-fb53-02a87e2b2993/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/05/18/17/110350d3-07eb-6957-4176-aab361d04617/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Day 73 - Date: M...
 5/15/2022 Miles Guo: Since the start of the Whistleblowers' Movement in 2017, the CCP has been wielding the power of the whole country to attack us and alter our viewer data. This means the Whistleblowers' Movement has hit the nub ...
 
 <img src="https://media.gettr.com/group35/getter/2022/05/17/23/49cba630-4083-966c-ca45-c69eb1cf4e28/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1a7g7f081f.md)
-
-2022年5月17日 七哥直播乱聊 
-
-<img src="https://media.gettr.com/group24/origin/2022/05/17/22/bf96af6f-9141-587a-337d-6437cded9bd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
