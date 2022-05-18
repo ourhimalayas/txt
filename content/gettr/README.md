@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/18/2022 9:04 AM UTC ](/content/gettr/p1aa34m5dcb.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月16日第73天当日救援统计：
+
+Medyka救援站接待：约393人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约21210人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 73 - Date: M...
+
+<img src="https://media.gettr.com/group5/getter/2022/05/18/09/068dbe83-8bc8-9ea8-9a34-b279f760e0f2/d72b80f775be2f2b9e2f441ba55823f6.jpg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1a9cn1f685.md)
 
 2022.05.18 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -76,35 +108,11 @@
 
 ---
 
-[@miles 5/18/2022 9:04 AM UTC ](/content/gettr/p1aa34m5dcb.md)
+[@miles 5/18/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aa8q5672a.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+2022.05.18  新中国联邦 | 军情室 中共海军南下与美军在亚太的排兵布阵
 
-
-
-2022年5月16日第73天当日救援统计：
-
-Medyka救援站接待：约393人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21210人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 73 - Date: M...
-
-<img src="https://media.gettr.com/group5/getter/2022/05/18/09/068dbe83-8bc8-9ea8-9a34-b279f760e0f2/d72b80f775be2f2b9e2f441ba55823f6.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,30 +187,6 @@ Day 73 - Date: M...
 
 
 https://www.reuters.com/world/us/us-sues-compel-former-casino-magnate-wynn-register-agent-china-2022-05-17/
-
----
-
-[@miles 5/17/2022 9:49 PM UTC  - :tv:直播](/content/gettr/p1a7sxwb06a.md)
-
-Miles Guo Music：Chained Dream
-
-many, many Chinese
-
-Actually when we face disaster
-
-They all chose to give up
-
-cowardly and give up
-
-This instinct to face the truth
-
-So we Chinese
-
-The best excuse is to be on the side of evil
-
-we ar...
-
-<img src="https://media.gettr.com/group35/origin/2022/05/17/21/308aed29-bae8-b09a-b97c-35c69240b294/out.jpg" width="506" height="284">
 
 ---
 
