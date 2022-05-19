@@ -11,8 +11,29 @@
 
 ---
 
-#### [七哥谈怀疑文化与信仰](/content/gnews/2557238.md)
+#### [政清提问：台湾农场台海危机当中应该扮演怎样的角色？](/content/gnews/2557303.md)
  `雅典娜GNotes`
+
+#### [习利用金融超限赌西方不会在中共攻打台湾时与中国发生战争](/content/gnews/2557302.md)
+ `雅典娜GNotes`
+
+#### [世界经济崩塌，共产党最高兴，随时趁机打台湾](/content/gnews/2557300.md)
+ `雅典娜GNotes`
+
+#### [世界的钱去哪了？](/content/gnews/2557297.md)
+ `雅典娜GNotes`
+
+#### [热点｜“赌场大亨”永利拒绝登记为中共代理人遭起诉 曾游说美国遣返郭文贵](/content/gnews/2557285.md)
+ `關注組`
+
+#### [传统货币、股票市场、数字货币市场跌的原因](/content/gnews/2557284.md)
+ `雅典娜GNotes`
+
+#### [泽连斯基电影节致辞 呼吁对抗独裁者](/content/gnews/2557255.md)
+ `NFSC News`
+
+#### [美国大使：美国和日本不是盟友，是朋友！](/content/gnews/2557254.md)
+ `东京樱花团Tokyo Sakura Group`
 
 #### [Steve Wynn被司法部刑事调查将会开启美国两党内部最高前所未有的一场挖共产党利益链的斗争](/content/gnews/2557237.md)
  `雅典娜GNotes`
@@ -23,13 +44,7 @@
 #### [新中国联邦必将100%的将真相在西方展示出来](/content/gnews/2557232.md)
  `雅典娜GNotes`
 
-#### [连线前线战友](/content/gnews/2557227.md)
- `雅典娜GNotes`
-
 #### [国会立案调查找到所有参与砸郭的背后原因和金钱政治关系](/content/gnews/2557226.md)
- `雅典娜GNotes`
-
-#### [病毒及疫苗灾难](/content/gnews/2557225.md)
  `雅典娜GNotes`
 
 #### [今年共和党赢得中期选举后将会在国会立案调查所有砸郭的人与共产党的关系](/content/gnews/2557218.md)
@@ -47,11 +62,11 @@
 #### [巴西最后还是美国的后花园](/content/gnews/2557203.md)
  `雅典娜GNotes`
 
-#### [疫苗传播病毒](/content/gnews/2557201.md)
- `雅典娜GNotes`
-
 #### [全世界都会站队乌克兰，只有中国共产党绑着中国人民站队俄罗斯](/content/gnews/2557200.md)
  `雅典娜GNotes`
+
+#### [美国驻基辅大使馆再开，时隔三个月再升星条旗](/content/gnews/2557196.md)
+ `东京樱花团Tokyo Sakura Group`
 
 #### [中日财经爆┃中共药品管理法实施条例征求意见 药品电商或将出局](/content/gnews/2557195.md)
  `东京樱花团Tokyo Sakura Group`
@@ -61,9 +76,6 @@
 
 #### [参与迫害郭文贵先生的刘乐国接受调查](/content/gnews/2557190.md)
  `NFSC News`
-
-#### [人与神的沟通就是生物电脑，未来会有更多的神人出来](/content/gnews/2557188.md)
- `雅典娜GNotes`
 
 #### [南澳拟新法，违反防疫规定者刑期可达2年](/content/gnews/2557175.md)
  `墨尔本雅典娜农场`
@@ -79,9 +91,6 @@
 
 #### [芬兰预备役军人紧急备战应对可能的侵略](/content/gnews/2556865.md)
  `澳喜农场`
-
-#### [TERRA放售30亿比特币救市失败 稳定币UST市值蒸发九成](/content/gnews/2556823.md)
- `NFSC News`
 
 #### [英国志愿者对被中共毁灭的香港感觉到惋惜](/content/gnews/2556724.md)
  `墨尔本雅典娜农场`
@@ -156,15 +165,6 @@
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [樱花时政┃戛纳电影节开幕式 泽连斯基呼吁不要沉默面对战争](/content/gnews/2552380.md)
- `东京樱花团Tokyo Sakura Group`
-
-#### [中共国与所罗门群岛达成协议后澳美日防务演习预计将增加](/content/gnews/2551343.md)
- `墨尔本雅典娜农场`
-
-#### [秘翻在线：司法部起诉斯蒂芬•永利代表中共游说遣返郭文贵先生](/content/gnews/2551296.md)
- `秘密翻譯組G-Translators`
-
-#### [樱花时政&#124;为善用资金 英国宣布终止经济援助中国](/content/gnews/2550218.md)
  `东京樱花团Tokyo Sakura Group`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
