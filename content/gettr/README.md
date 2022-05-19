@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 5/19/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1aco91d97f.md)
-
-2022.05.18  新中国联邦 | 喜财经   这场加密行业的金融超限战是如何进行的？
-
-<img src="https://media.gettr.com/group32/origin/2022/05/19/02/d2551edb-5c23-6558-9150-a6e381efaf08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 5/19/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1adzra549c.md)
 
 路透社：美国司法部本周二起诉永利度假村前首席执行官史蒂夫·永利，指控他在2017年应北京的要求充当中共国代理人并游说时任总统唐纳德·川普，遣返郭文贵先生 
@@ -19,6 +11,22 @@
 Reuters: The U.S. Justice Department on this Tuesday sued Steve Wynn, the former CEO of Wynn Resorts, accusing him of acting as a Chinese agent and lo...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/19/02/17a48d48-7d8e-b0df-aaea-cbf60a44eec8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1aco91d97f.md)
+
+2022.05.18  新中国联邦 | 喜财经   这场加密行业的金融超限战是如何进行的？
+
+<img src="https://media.gettr.com/group32/origin/2022/05/19/02/d2551edb-5c23-6558-9150-a6e381efaf08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1ad9qtbe11.md)
+
+【Ukraine Rescue】 05/17/2022 Adam, a volunteer from the US, says: The Chinese Communist regime has blood on its hands, but too many American politicians are kowtowing to the CCP, and we should all stand up to it; I truly support wha...
+
+<img src="https://media.gettr.com/group16/getter/2022/05/19/02/2f889b38-58d7-869b-5445-8597506cec3f/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ https://gnews.org/zh-hans/2539595/
 ---
 
 [@miles 5/18/2022 2:26 PM UTC  - :tv:直播](/content/gettr/p1aa8u0fa7b.md)
-
-2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
-
-<img src="https://media.gettr.com/group45/origin/2022/05/18/12/c13190ed-1676-050e-fb53-02a87e2b2993/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 12:23 PM UTC  - :tv:直播](/content/gettr/p1aa8qo827d.md)
 
 2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
 
