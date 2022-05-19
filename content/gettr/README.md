@@ -14,6 +14,22 @@
 
 ---
 
+[@miles 5/19/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1ae8y12e0c.md)
+
+2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group30/origin/2022/05/19/04/aed1c6c8-5144-6354-7614-2a8937cdcf34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1acq6geda7.md)
+
+2022-5-18《鸡血王喜币大作战》 第一百九十九集 嘉宾：Nick、封神榜
+
+<img src="https://media.gettr.com/group10/origin/2022/04/23/03/44756be8-3069-d5fa-a3b2-3e40ed1c813d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1ad9qtbe11.md)
 
 【Ukraine Rescue】 05/17/2022 Adam, a volunteer from the US, says: The Chinese Communist regime has blood on its hands, but too many American politicians are kowtowing to the CCP, and we should all stand up to it; I truly support wha...
@@ -39,14 +55,6 @@ Reuters: The U.S. Justice Department on this Tuesday sued Steve Wynn, the former
 2022.05.18  新中国联邦 | 喜财经   这场加密行业的金融超限战是如何进行的？
 
 <img src="https://media.gettr.com/group32/origin/2022/05/19/02/d2551edb-5c23-6558-9150-a6e381efaf08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/19/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1acq6geda7.md)
-
-2022-5-18《鸡血王喜币大作战》 第一百九十九集 嘉宾：Nick、封神榜
-
-<img src="https://media.gettr.com/group10/origin/2022/04/23/03/44756be8-3069-d5fa-a3b2-3e40ed1c813d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ https://gnews.org/zh-hans/2539595/
 5/18/2022 Miles Guo: Europe's move of strengthening ties with the US and further decoupling from Communist China is of profound significance! A couple of years ago when I first mentioned the word "decoupling", the kleptocrats in Zh...
 
 <img src="https://media.gettr.com/group39/getter/2022/05/18/21/045eb6ac-5cbc-6073-2990-f43ac3a0895b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1acd5v7617.md)
-
-2022.05.18  新中国联邦 | 喜健康    普京为何要在中国注射血清？——干细胞技术的现在与未来
-
-<img src="https://media.gettr.com/group29/origin/2022/05/18/20/1394f18e-0fca-abbc-fd31-9737ed80d486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
