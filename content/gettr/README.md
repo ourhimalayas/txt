@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1adedxd7aa.md)
+[@miles 5/19/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1acsgr6a37.md)
 
-5/18/2022 Miles Guo: Tether is controlled by Wang Qishan, the people behind Lufax like Peter Ma Mingzhe, and the Wall Street guys. Tether's purpose is to push the internationalization of the digital RMB. Tether is the CCP's risk he...
+5/18/2022  Miles Guo: The future blockchain competition will not only focus on technology, but also on who is less restrictive and more decentralized; the Himalaya Reserve is aiming to establish the most reliable and secure platfor...
 
-<img src="https://media.gettr.com/group47/getter/2022/05/19/00/6fae374e-d120-d123-cbb1-70c3f893cf5f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/05/19/01/f81af327-ef39-aa3d-a5c0-7e78edda8231/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 2022.05.18 晚 新中国联邦⎪新闻访谈 中共号称北京物资供应充足，百姓仍然抢购囤货
 
 <img src="https://media.gettr.com/group25/origin/2022/05/19/01/6c190815-80cf-4902-8e53-4447b6c42d8e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1adedxd7aa.md)
+
+5/18/2022 Miles Guo: Tether is controlled by Wang Qishan, the people behind Lufax like Peter Ma Mingzhe, and the Wall Street guys. Tether's purpose is to push the internationalization of the digital RMB. Tether is the CCP's risk he...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/19/00/6fae374e-d120-d123-cbb1-70c3f893cf5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ Day 73 - Date: M...
 2022.05.18 新中国联邦法治基金乌克兰人道救援行动--俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group35/origin/2022/05/18/04/0e76a75f-2c92-c3cc-095f-9ed77fb28588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1a968j98ef.md)
-
-2022-5-17《鸡血王喜币大作战》 第一百九十八集 嘉宾：无双柳薇薇、文空
-
-<img src="https://media.gettr.com/group19/origin/2022/05/18/03/323fd27c-dd83-7122-9483-f4148d4531c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
