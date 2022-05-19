@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1adnsnccc4.md)
+
+5/18/2022 Miles Guo: Steve Wynn's case will expose all those who have been colluding with the CCP in the US and the CCP's pawns and spies lurking in the US. Wynn's case involves both President Trump and President Biden, and there w...
+
+<img src="https://media.gettr.com/group16/getter/2022/05/19/01/993afdb5-e0dc-c784-a104-7425572400ff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1adedxd7aa.md)
 
 5/18/2022 Miles Guo: Tether is controlled by Wang Qishan, the people behind Lufax like Peter Ma Mingzhe, and the Wall Street guys. Tether's purpose is to push the internationalization of the digital RMB. Tether is the CCP's risk he...
@@ -10,19 +18,19 @@
 
 ---
 
+[@miles 5/19/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1acobsbc7f.md)
+
+2022.05.18 晚 新中国联邦⎪新闻访谈 中共号称北京物资供应充足，百姓仍然抢购囤货
+
+<img src="https://media.gettr.com/group25/origin/2022/05/19/01/6c190815-80cf-4902-8e53-4447b6c42d8e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1ad8gwda42.md)
 
 5/18/2022 Miles Guo: The economic conference recently held in Europe was about tracking the assets of Putin, Russian oligarchs, Xi Jinping, and the CCP cadres to prepare for the following extreme sanctions on them. A NATO intellige...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/19/00/7040f344-e1d2-7658-9a23-140ee16a1b0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ack4ra768.md)
-
-5月18号：尊敬的战友们好……谢谢木兰妹妺制作的美好的时光……视频！
-
-<img src="https://media.gettr.com/group34/getter/2022/05/18/23/4267a5f7-73f9-1b13-3c7d-678551c698bd/out.jpg" width="506" height="284">
 
 ---
 
@@ -55,6 +63,14 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 74 - Date: Ma...
 
 <img src="https://media.gettr.com/group21/getter/2022/05/19/00/dd68bc3a-f409-be01-3092-40f3c47cfe2c/369b6679a8d3c74e7911817d94ebd2bd.jpg" width="506" height="284">
+
+---
+
+[@miles 5/18/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ack4ra768.md)
+
+5月18号：尊敬的战友们好……谢谢木兰妹妺制作的美好的时光……视频！
+
+<img src="https://media.gettr.com/group34/getter/2022/05/18/23/4267a5f7-73f9-1b13-3c7d-678551c698bd/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,22 +207,6 @@ Day 73 - Date: M...
 2022-5-17《鸡血王喜币大作战》 第一百九十八集 嘉宾：无双柳薇薇、文空
 
 <img src="https://media.gettr.com/group19/origin/2022/05/18/03/323fd27c-dd83-7122-9483-f4148d4531c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1a8vty9143.md)
-
-2022-5-17《鸡血王喜币大作战》 第一百九十八集 嘉宾：无双柳薇薇、文空
-
-<img src="https://media.gettr.com/group19/origin/2022/05/18/03/323fd27c-dd83-7122-9483-f4148d4531c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1a8k1a3a30.md)
-
-2022.05.17  新中国联邦 | 喜财经   期股市汇市外汇黄金石油行情;  国内疫情及经济走势和新进展
-
-<img src="https://media.gettr.com/group43/origin/2022/05/18/02/5cf4efa5-41f5-52dd-1e65-30ed95b5ee30/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
