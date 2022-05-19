@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1ahe0n06f7.md)
+
+2022.05.19  新中国联邦 | 喜健康    小心“毒”从口入
+
+<img src="https://media.gettr.com/group44/origin/2022/05/19/20/058add17-0a2b-09d2-33ab-af08de87b49b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 6:59 PM UTC  - :tv:直播](/content/gettr/p1ah3100686.md)
 
 2022-5-19 《避风港》（49）新冠疫苗公司犯有欺诈罪
@@ -110,11 +118,11 @@
 
 ---
 
-[@miles 5/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1ahe0n06f7.md)
+[@miles 5/19/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1ahex75774.md)
 
-2022.05.19  新中国联邦 | 喜健康    小心“毒”从口入
+2022年5月19日 七哥吃播乱聊
 
-<img src="https://media.gettr.com/group44/origin/2022/05/19/20/058add17-0a2b-09d2-33ab-af08de87b49b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/05/19/22/56e835e2-0b04-dbce-a910-35d47a8c7353/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ May 18, 2022 Rule of Law Foundation and Society donors messages collection
 The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/19/02/16055f14-94c1-11be-2a71-24a8862d8188/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p1ad2hh6419.md)
-
-5/18/2022 Miles Guo: Binance and Tether are like the nuclear bombs of the CCP against the US dollar. The CCP will plunder the small investors when the US decouples from it. The New Federal State of China is now collecting the evide...
-
-<img src="https://media.gettr.com/group37/getter/2022/05/19/01/5f361e15-e606-6112-05a6-6b6754d93fae/out.jpg" width="506" height="284">
 
 ---
 
