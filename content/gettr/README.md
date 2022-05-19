@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 2:59 PM UTC  - :tv:直播](/content/gettr/p1agenc903c.md)
+
+ 5月19号：尊敬的战友们好，刚刚在全球房地产．股票．各个领域的抛售……，再次震撼到了我．共产党的盗国财富．比我们想象的要大的多得多，一切都已经开始！
+
+<img src="https://media.gettr.com/group39/getter/2022/05/19/14/2f03a4df-fd74-bf5f-1993-88ec3eceb73b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1afktba1a8.md)
 
 2022.05.19  早 新中国联邦 | 新闻访谈   拜登亚洲行前夕，气氛紧张，各方角力频繁；再谈史蒂夫韦恩受到司法部起诉；twitter假账号比例惊人，twitter交易恐怕永远完不成。
@@ -86,11 +94,11 @@
 
 ---
 
-[@miles 5/19/2022 2:59 PM UTC  - :tv:直播](/content/gettr/p1agenc903c.md)
+[@miles 5/19/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1af6c472bc.md)
 
- 5月19号：尊敬的战友们好，刚刚在全球房地产．股票．各个领域的抛售……，再次震撼到了我．共产党的盗国财富．比我们想象的要大的多得多，一切都已经开始！
+2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group39/getter/2022/05/19/14/2f03a4df-fd74-bf5f-1993-88ec3eceb73b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/19/17/6f83a8a4-820e-2d03-7458-6609d874d83b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed t
 5/18/2022  Miles Guo: The future blockchain competition will not only focus on technology, but also on who is less restrictive and more decentralized; the Himalaya Reserve is aiming to establish the most reliable and secure platfor...
 
 <img src="https://media.gettr.com/group8/getter/2022/05/19/01/f81af327-ef39-aa3d-a5c0-7e78edda8231/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1acobsbc7f.md)
-
-2022.05.18 晚 新中国联邦⎪新闻访谈 中共号称北京物资供应充足，百姓仍然抢购囤货
-
-<img src="https://media.gettr.com/group25/origin/2022/05/19/01/6c190815-80cf-4902-8e53-4447b6c42d8e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
