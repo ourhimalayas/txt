@@ -2,29 +2,44 @@
 ---
 
 
-#### [七哥金句：教育标准化是人类的灾难](/content/gnews/2556851.md)
+#### [马斯克收购推特是盖特的最大机遇](/content/gnews/2557156.md)
+ `NFSC News`
+
+#### [美国起诉赌场大亨史蒂夫·永利，迫使他注册为中共国的代理人](/content/gnews/2557154.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [【樱话】数十家香港公司为避免停牌，要求延期提交年报](/content/gnews/2557117.md)
+ `TokyoSakuraDesignGroup`
+
+#### [危机将至 郭文贵先生呼吁大家准备好面对考验](/content/gnews/2557009.md)
+ `NFSC News`
+
+#### [【樱话】黑帮寿宴被警方突袭开百万罚单](/content/gnews/2556974.md)
+ `TokyoSakuraDesignGroup`
+
+#### [七哥金句：什么是标准化教育？](/content/gnews/2556918.md)
  `雅典娜GNotes`
+
+#### [【乌克兰救援】英国志愿者支持新中国联邦消灭邪恶的中共](/content/gnews/2556866.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [芬兰预备役军人紧急备战应对可能的侵略](/content/gnews/2556865.md)
+ `澳喜农场`
+
+#### [【樱话】加拿大三剂疫苗接种者死亡率最高](/content/gnews/2556849.md)
+ `TokyoSakuraDesignGroup`
 
 #### [面对中共的军事恐吓，七哥给台湾战友的建议](/content/gnews/2556842.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [七哥金句：教育个性化环境的重要性](/content/gnews/2556824.md)
- `雅典娜GNotes`
-
-#### [【樱话】日三井住友财团旗下飞机租赁公司收购一欧洲公司，成为世界第二大航空机队](/content/gnews/2556822.md)
- `TokyoSakuraDesignGroup`
+#### [TERRA放售30亿比特币救市失败 稳定币UST市值蒸发九成](/content/gnews/2556823.md)
+ `NFSC News`
 
 #### [美国志愿者亚当：中共政权的手上沾满鲜血，但太多美国政治家却向中共叩头，我们都应站出来予以反抗](/content/gnews/2556820.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [七哥金句：教育标准化是人类的灾难](/content/gnews/2556809.md)
- `雅典娜GNotes`
-
 #### [美国指控史蒂夫·永利充当中共国代理人](/content/gnews/2556785.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【樱话】卢比奥警告中共国将盈利作为武器极大影响美国公司](/content/gnews/2556763.md)
- `TokyoSakuraDesignGroup`
 
 #### [七哥爆料故事5之孟建柱（1）](/content/gnews/2556762.md)
  `澳喜农场`
@@ -34,9 +49,6 @@
 
 #### [斯里兰卡经济危机进一步恶化，油库仅剩一天的用量](/content/gnews/2556757.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [数十家香港上市公司申请延期提交年报](/content/gnews/2556746.md)
- `NFSC News`
 
 #### [重申国内战友加入农场的重要性](/content/gnews/2556728.md)
  `喜马拉雅-华盛顿DC农场`
@@ -68,9 +80,6 @@
 #### [加拿大萨省的燃油盗窃案大幅上升](/content/gnews/2556488.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [【上海今年有何不同】](/content/gnews/2556486.md)
- `SpicyWorld`
-
 #### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年5月16日早](/content/gnews/2556484.md)
  `MOSREC`
 
@@ -84,9 +93,6 @@
  `波士顿五月花农场金融部`
 
 #### [樱花时政┃美国指控王书君等五名中共国安从事间谍活动](/content/gnews/2556445.md)
- `东京樱花团Tokyo Sakura Group`
-
-#### [中日财经爆┃纽约市场一度暴跌1200美元，收盘价两年来最大幅下跌！](/content/gnews/2556440.md)
  `东京樱花团Tokyo Sakura Group`
 
 #### [中日财经爆&#124;纽约道指下跌1164美元 为近两年最大跌幅](/content/gnews/2556412.md)
@@ -116,9 +122,6 @@
 #### [英国智库对英国过度依赖中共国的医疗物资提出警告](/content/gnews/2556055.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [得数据者得天下，盖特将建数据中心](/content/gnews/2555998.md)
- `蓝莲花农场`
-
 #### [国际航空运输协会表示，航空旅行正在强劲复苏，但亚洲却落在后面](/content/gnews/2555970.md)
  `喜马拉雅-华盛顿DC农场`
 
@@ -130,6 +133,9 @@
 
 #### [卑诗省最高法院审理针对疫苗护照的法律挑战](/content/gnews/2555785.md)
  `加拿大温哥华扬帆农场视频组`
+
+#### [美参议院外交委员会支持布林克担任下一届驻乌大使](/content/gnews/2555771.md)
+ `thedawn`
 
 #### [Steve Wynn案将推动灭共事业在2022年取得巨大进展](/content/gnews/2554689.md)
  `银河歌舞厅`
@@ -151,12 +157,6 @@
 
 #### [海军上将警告:中国共产党正在加紧颠覆自由世界秩序](/content/gnews/2549882.md)
  `美国政要直译推`
-
-#### [13国邀请台湾参加世界卫生大会](/content/gnews/2549682.md)
- `NFSC News`
-
-#### [郭先生揭示数字货币暴跌原因](/content/gnews/2549636.md)
- `NFSC News`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
