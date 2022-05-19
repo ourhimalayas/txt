@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1aezvv19e1.md)
+
+2022.05.19 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group38/origin/2022/05/19/07/a6932666-11c9-3fae-7172-b6f2d4da49ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 5:21 AM UTC  - :tv:直播](/content/gettr/p1aekin3994.md)
 
 5/18/2022 Miles Guo: The creation of digital currency is to challenge the US dollar and eliminate fiat currency. Any digital currency under the long-arm statute of the US dollar can't replace Bitcoin. Although ETH will get stronger...
@@ -30,11 +38,11 @@
 
 ---
 
-[@miles 5/19/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1aezvv19e1.md)
+[@miles 5/19/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p1aef264341.md)
 
-2022.05.19 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+5/18/2022 Miles Guo: The Now TV's coverage of Steve Wynn's case demonstrates the conflicts between Li Ka-shing and Xi Jinping. The coverage by 45 major media outlets around the world on Steve Wynn’s case has made the New Federal St...
 
-<img src="https://media.gettr.com/group38/origin/2022/05/19/07/a6932666-11c9-3fae-7172-b6f2d4da49ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/05/19/08/2d896c5d-6d9a-95ff-3d84-06cc23334027/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ Day 74 - Date: Ma...
 5/18/2022 Miles Guo: During a recent forum in Europe, Janet Yellen, who used to speak for the CCP, started to say that the biggest threat to the world is Xi Jinping, followed by the CCP. She also firmly believes that Xi has health ...
 
 <img src="https://media.gettr.com/group45/getter/2022/05/18/22/c796d61b-d74e-ebdd-5fd0-77a8555cc36e/out.jpg" width="506" height="284">
-
----
-
-[@himalayaathena 5/18/2022 11:42 AM UTC ](/content/gettr/p1aahop3c44.md)
-
-早在2019年，澳洲战略研究所ASPI就发现与中共政府有关的推特帐户对郭文贵先生进行了铺天盖地的网络攻击，时间最早可以追溯到2017年的4月，即美国之音“断播门”事件发生之后。APSI的研究分析显示，所有这些与中共有联系的推特账户最持久的攻击目标就是郭文贵先生，远远大于2019年针对香港抗议活动的网络攻击。
-
-https://gnews.org/zh-hans/2539595/
 
 ---
 
