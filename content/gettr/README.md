@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 8:38 AM UTC  - :tv:直播](/content/gettr/p1ae8yjc59b.md)
+
+2022.05.18 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group11/origin/2022/05/19/08/ed3b9321-3e41-5143-493b-d51ca608d238/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p1aef264341.md)
 
 5/18/2022 Miles Guo: The Now TV's coverage of Steve Wynn's case demonstrates the conflicts between Li Ka-shing and Xi Jinping. The coverage by 45 major media outlets around the world on Steve Wynn’s case has made the New Federal St...
@@ -46,11 +54,11 @@
 
 ---
 
-[@miles 5/19/2022 8:38 AM UTC  - :tv:直播](/content/gettr/p1ae8yjc59b.md)
+[@miles 5/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1afuo089bd.md)
 
-2022.05.18 文贵大直播（精华版）
+5/18/2022 Miles Guo: BSN, the new blockchain platform launched by Wang Qishan, is based upon the technologies of DNA computers, biological computers, and quantum computers in an attempt to control all the blockchains of humanity by...
 
-<img src="https://media.gettr.com/group11/origin/2022/05/19/08/ed3b9321-3e41-5143-493b-d51ca608d238/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/05/19/11/3df512d9-9361-61c1-df53-5508e17bac46/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 74 - Date: Ma...
 
 <img src="https://media.gettr.com/group21/getter/2022/05/19/00/dd68bc3a-f409-be01-3092-40f3c47cfe2c/369b6679a8d3c74e7911817d94ebd2bd.jpg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ack4ra768.md)
-
-5月18号：尊敬的战友们好……谢谢木兰妹妺制作的美好的时光……视频！
-
-<img src="https://media.gettr.com/group34/getter/2022/05/18/23/4267a5f7-73f9-1b13-3c7d-678551c698bd/out.jpg" width="506" height="284">
 
 ---
 
