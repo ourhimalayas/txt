@@ -11,13 +11,43 @@
 
 ---
 
+#### [七哥谈怀疑文化与信仰](/content/gnews/2557238.md)
+ `雅典娜GNotes`
+
+#### [Steve Wynn被司法部刑事调查将会开启美国两党内部最高前所未有的一场挖共产党利益链的斗争](/content/gnews/2557237.md)
+ `雅典娜GNotes`
+
+#### [惨遭俄军枪决活埋的乌克兰平民讲述逃生经历](/content/gnews/2557233.md)
+ `NFSC News`
+
+#### [新中国联邦必将100%的将真相在西方展示出来](/content/gnews/2557232.md)
+ `雅典娜GNotes`
+
+#### [连线前线战友](/content/gnews/2557227.md)
+ `雅典娜GNotes`
+
+#### [国会立案调查找到所有参与砸郭的背后原因和金钱政治关系](/content/gnews/2557226.md)
+ `雅典娜GNotes`
+
+#### [病毒及疫苗灾难](/content/gnews/2557225.md)
+ `雅典娜GNotes`
+
+#### [今年共和党赢得中期选举后将会在国会立案调查所有砸郭的人与共产党的关系](/content/gnews/2557218.md)
+ `雅典娜GNotes`
+
 #### [全球45家主流媒体报道Steve Wynn被美国司法部刑事调查，揭开了共产党对美国司法渗透新的一页](/content/gnews/2557209.md)
  `雅典娜GNotes`
 
 #### [李嘉诚控制的香港媒体报道Steve Wynn被美国司法部控告](/content/gnews/2557208.md)
  `雅典娜GNotes`
 
+#### [王公公表演流氓外交… 恫吓日本外相林芳正](/content/gnews/2557204.md)
+ `东京樱花团Tokyo Sakura Group`
+
 #### [巴西最后还是美国的后花园](/content/gnews/2557203.md)
+ `雅典娜GNotes`
+
+#### [疫苗传播病毒](/content/gnews/2557201.md)
  `雅典娜GNotes`
 
 #### [全世界都会站队乌克兰，只有中国共产党绑着中国人民站队俄罗斯](/content/gnews/2557200.md)
@@ -29,13 +59,10 @@
 #### [习近平会继续与普京狼狈为奸挑战美国走向不归路](/content/gnews/2557194.md)
  `雅典娜GNotes`
 
+#### [参与迫害郭文贵先生的刘乐国接受调查](/content/gnews/2557190.md)
+ `NFSC News`
+
 #### [人与神的沟通就是生物电脑，未来会有更多的神人出来](/content/gnews/2557188.md)
- `雅典娜GNotes`
-
-#### [要建造一个信仰的王国，看到人类的基因排序后感到震撼](/content/gnews/2557187.md)
- `雅典娜GNotes`
-
-#### [未来两年会开发出商用量子电脑](/content/gnews/2557186.md)
  `雅典娜GNotes`
 
 #### [南澳拟新法，违反防疫规定者刑期可达2年](/content/gnews/2557175.md)
@@ -47,34 +74,13 @@
 #### [美国起诉赌场大亨史蒂夫·永利，迫使他注册为中共国的代理人](/content/gnews/2557154.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [【樱话】数十家香港公司为避免停牌，要求延期提交年报](/content/gnews/2557117.md)
- `TokyoSakuraDesignGroup`
-
 #### [危机将至 郭文贵先生呼吁大家准备好面对考验](/content/gnews/2557009.md)
  `NFSC News`
-
-#### [【樱话】黑帮寿宴被警方突袭开百万罚单](/content/gnews/2556974.md)
- `TokyoSakuraDesignGroup`
-
-#### [七哥金句：什么是标准化教育？](/content/gnews/2556918.md)
- `雅典娜GNotes`
-
-#### [【乌克兰救援】英国志愿者支持新中国联邦消灭邪恶的中共](/content/gnews/2556866.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [芬兰预备役军人紧急备战应对可能的侵略](/content/gnews/2556865.md)
  `澳喜农场`
 
-#### [【樱话】加拿大三剂疫苗接种者死亡率最高](/content/gnews/2556849.md)
- `TokyoSakuraDesignGroup`
-
-#### [面对中共的军事恐吓，七哥给台湾战友的建议](/content/gnews/2556842.md)
- `喜马拉雅-华盛顿DC农场`
-
 #### [TERRA放售30亿比特币救市失败 稳定币UST市值蒸发九成](/content/gnews/2556823.md)
- `NFSC News`
-
-#### [北大学生深夜抗议中共恶行防疫政策](/content/gnews/2556758.md)
  `NFSC News`
 
 #### [英国志愿者对被中共毁灭的香港感觉到惋惜](/content/gnews/2556724.md)
@@ -85,9 +91,6 @@
 
 #### [加州教堂枪击案嫌犯与中共在美国的前线组织有关](/content/gnews/2556684.md)
  `美国政要直译推`
-
-#### [摩根士丹利看淡市场 警告美股上涨仅是“熊反弹”](/content/gnews/2556682.md)
- `NFSC News`
 
 #### [中日财经爆&#124;耶伦: 正在向拜登施压，要求降低对华关税](/content/gnews/2556659.md)
  `东京樱花团Tokyo Sakura Group`
@@ -163,9 +166,6 @@
 
 #### [樱花时政&#124;为善用资金 英国宣布终止经济援助中国](/content/gnews/2550218.md)
  `东京樱花团Tokyo Sakura Group`
-
-#### [海军上将警告:中国共产党正在加紧颠覆自由世界秩序](/content/gnews/2549882.md)
- `美国政要直译推`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
