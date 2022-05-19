@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p1aef264341.md)
+
+5/18/2022 Miles Guo: The Now TV's coverage of Steve Wynn's case demonstrates the conflicts between Li Ka-shing and Xi Jinping. The coverage by 45 major media outlets around the world on Steve Wynn’s case has made the New Federal St...
+
+<img src="https://media.gettr.com/group45/getter/2022/05/19/08/2d896c5d-6d9a-95ff-3d84-06cc23334027/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1aezvv19e1.md)
 
 2022.05.19 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -38,11 +46,11 @@
 
 ---
 
-[@miles 5/19/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p1aef264341.md)
+[@miles 5/19/2022 8:38 AM UTC  - :tv:直播](/content/gettr/p1ae8yjc59b.md)
 
-5/18/2022 Miles Guo: The Now TV's coverage of Steve Wynn's case demonstrates the conflicts between Li Ka-shing and Xi Jinping. The coverage by 45 major media outlets around the world on Steve Wynn’s case has made the New Federal St...
+2022.05.18 文贵大直播（精华版）
 
-<img src="https://media.gettr.com/group45/getter/2022/05/19/08/2d896c5d-6d9a-95ff-3d84-06cc23334027/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/05/19/08/ed3b9321-3e41-5143-493b-d51ca608d238/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ Day 74 - Date: Ma...
 5月18号：尊敬的战友们好……谢谢木兰妹妺制作的美好的时光……视频！
 
 <img src="https://media.gettr.com/group34/getter/2022/05/18/23/4267a5f7-73f9-1b13-3c7d-678551c698bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1ad32o49bf.md)
-
-5/18/2022 Miles Guo: During a recent forum in Europe, Janet Yellen, who used to speak for the CCP, started to say that the biggest threat to the world is Xi Jinping, followed by the CCP. She also firmly believes that Xi has health ...
-
-<img src="https://media.gettr.com/group45/getter/2022/05/18/22/c796d61b-d74e-ebdd-5fd0-77a8555cc36e/out.jpg" width="506" height="284">
 
 ---
 
