@@ -11,17 +11,20 @@
 
 ---
 
-#### [七哥金句：给孩子一个稳定的教育](/content/gnews/2562080.md)
+#### [七哥金句：GEDU 接下来的发展](/content/gnews/2562129.md)
  `雅典娜GNotes`
 
-#### [七哥金句：经济灾难谁都避免不了](/content/gnews/2562070.md)
+#### [七哥金句：母亲节我们最重要学到什么？](/content/gnews/2562120.md)
  `雅典娜GNotes`
 
-#### [七哥金句：我们是灭共的人](/content/gnews/2562061.md)
+#### [七哥金句：把爱和自由都给孩子](/content/gnews/2562108.md)
  `雅典娜GNotes`
 
-#### [七哥金句：长臂法的核心](/content/gnews/2562048.md)
+#### [七哥金句：最好的教育是让孩子多体验社会](/content/gnews/2562099.md)
  `雅典娜GNotes`
+
+#### [有声&#124;乌军单日击落11个俄军空中目标](/content/gnews/2562065.md)
+ `MOSREC`
 
 #### [有声&#124;习近平反腐重蹈俄罗斯寡头崛起之路](/content/gnews/2562047.md)
  `MOSREC`
@@ -52,9 +55,6 @@
 
 #### [秘翻在线: 中共国开始抛售海外资产为制裁做准备](/content/gnews/2561778.md)
  `秘密翻譯組G-Translators`
-
-#### [【蓝枫法律】全球医疗事故的关键事实](/content/gnews/2561739.md)
- `加拿大温哥华扬帆农场蓝枫法律`
 
 #### [无论 埃隆-马斯克 是否成功收购Twitter Twitter极可能最终消亡](/content/gnews/2561356.md)
  `焦點20分`
