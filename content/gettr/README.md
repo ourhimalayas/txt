@@ -2,11 +2,59 @@
 ---
 
 
+[@miles 5/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1adedxd7aa.md)
+
+5/18/2022 Miles Guo: Tether is controlled by Wang Qishan, the people behind Lufax like Peter Ma Mingzhe, and the Wall Street guys. Tether's purpose is to push the internationalization of the digital RMB. Tether is the CCP's risk he...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/19/00/6fae374e-d120-d123-cbb1-70c3f893cf5f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1ad8gwda42.md)
+
+5/18/2022 Miles Guo: The economic conference recently held in Europe was about tracking the assets of Putin, Russian oligarchs, Xi Jinping, and the CCP cadres to prepare for the following extreme sanctions on them. A NATO intellige...
+
+<img src="https://media.gettr.com/group38/getter/2022/05/19/00/7040f344-e1d2-7658-9a23-140ee16a1b0e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ack4ra768.md)
 
 5月18号：尊敬的战友们好……谢谢木兰妹妺制作的美好的时光……视频！
 
 <img src="https://media.gettr.com/group34/getter/2022/05/18/23/4267a5f7-73f9-1b13-3c7d-678551c698bd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 12:09 AM UTC ](/content/gettr/p1acz2t5d7a.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月17日第74天当日救援统计：
+
+Medyka救援站接待：约64人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约21274人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 74 - Date: Ma...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/19/00/dd68bc3a-f409-be01-3092-40f3c47cfe2c/369b6679a8d3c74e7911817d94ebd2bd.jpg" width="506" height="284">
 
 ---
 
@@ -159,32 +207,6 @@ Day 73 - Date: M...
 2022.05.17  新中国联邦 | 喜财经   期股市汇市外汇黄金石油行情;  国内疫情及经济走势和新进展
 
 <img src="https://media.gettr.com/group43/origin/2022/05/18/02/5cf4efa5-41f5-52dd-1e65-30ed95b5ee30/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/18/2022 1:05 AM UTC ](/content/gettr/p1a8axoa1a4.md)
-
-美东时间5月17日，有关永利赌场大亨史蒂夫·永利（Steve Wynn）被起诉的事件被《路透社》、《华尔街日报》等多家媒体报道。美国司法部指控永利度假村前首席执行官永利在2017年曾充当共产主义北京政府的说客，游说当时在任的川普总统，要求他取消郭文贵（Miles Guo）先生的签证协助中共将其遣返回中共国。
-
-
-
-永利并没有根据《外国代理人登记法》(FARA)进行注册。司法部的民事诉讼称，它曾在2018年、2021年和2022年4月建议永利根据FARA注册为...
-
----
-
-[@miles 5/18/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1a8mjs02aa.md)
-
-2022.05.17  晚 新中国联邦⎪新闻访谈
-
-<img src="https://media.gettr.com/group18/origin/2022/05/18/00/69407735-cc20-d191-3eb7-2e4180680727/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1a7o1k5f08.md)
-
-5/15/2022 Miles Guo: GETTR's DM will adopt the blockchain end-to-end encryption technology which terrified the Chinese Communist Party. The number of views of the live broadcasts of the Whistleblowers' Movement is even more powerfu...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/17/23/5b1bb646-c0d5-fce4-3493-012ccf2f60d2/out.jpg" width="506" height="284">
 
 ---
 
