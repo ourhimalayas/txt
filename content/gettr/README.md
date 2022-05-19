@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1ae8y12e0c.md)
+
+2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group30/origin/2022/05/19/04/aed1c6c8-5144-6354-7614-2a8937cdcf34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1ae1e07946.md)
 
 【Ukraine Rescue】 05/17/2022 A British volunteer says he wants to help the Ukrainian people and support the NFSC to eliminate the evil CCP. He says this modern time needs freedom and democracy, not communism.
@@ -14,11 +22,11 @@
 
 ---
 
-[@miles 5/19/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1ae8y12e0c.md)
+[@miles 5/19/2022 5:21 AM UTC  - :tv:直播](/content/gettr/p1aekin3994.md)
 
-2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+5/18/2022 Miles Guo: The creation of digital currency is to challenge the US dollar and eliminate fiat currency. Any digital currency under the long-arm statute of the US dollar can't replace Bitcoin. Although ETH will get stronger...
 
-<img src="https://media.gettr.com/group30/origin/2022/05/19/04/aed1c6c8-5144-6354-7614-2a8937cdcf34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/05/19/05/a037cc59-dac0-8512-2d53-7f7a185d040a/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ Day 74 - Date: Ma...
 早在2019年，澳洲战略研究所ASPI就发现与中共政府有关的推特帐户对郭文贵先生进行了铺天盖地的网络攻击，时间最早可以追溯到2017年的4月，即美国之音“断播门”事件发生之后。APSI的研究分析显示，所有这些与中共有联系的推特账户最持久的攻击目标就是郭文贵先生，远远大于2019年针对香港抗议活动的网络攻击。
 
 https://gnews.org/zh-hans/2539595/
-
----
-
-[@miles 5/18/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1acqxm1132.md)
-
-5/18/2022 Miles Guo: Europe's move of strengthening ties with the US and further decoupling from Communist China is of profound significance! A couple of years ago when I first mentioned the word "decoupling", the kleptocrats in Zh...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/18/21/045eb6ac-5cbc-6073-2990-f43ac3a0895b/out.jpg" width="506" height="284">
 
 ---
 
