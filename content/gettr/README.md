@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1afktba1a8.md)
+
+2022.05.19  早 新中国联邦 | 新闻访谈   拜登亚洲行前夕，气氛紧张，各方角力频繁；再谈史蒂夫韦恩受到司法部起诉；twitter假账号比例惊人，twitter交易恐怕永远完不成。
+
+<img src="https://media.gettr.com/group11/origin/2022/05/19/12/e69ea842-5480-6568-b257-7f6f32b59f68/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1af6avd6cf.md)
 
 2022.05.19 早 新中国联邦 | 新闻  救援前线战友温馨庆祝生日；中共对盖特的攻击源于它的恐惧
@@ -78,11 +86,11 @@
 
 ---
 
-[@miles 5/19/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1afktba1a8.md)
+[@miles 5/19/2022 2:59 PM UTC  - :tv:直播](/content/gettr/p1agenc903c.md)
 
-2022.05.19  早 新中国联邦 | 新闻访谈   拜登亚洲行前夕，气氛紧张，各方角力频繁；再谈史蒂夫韦恩受到司法部起诉；twitter假账号比例惊人，twitter交易恐怕永远完不成。
+ 5月19号：尊敬的战友们好，刚刚在全球房地产．股票．各个领域的抛售……，再次震撼到了我．共产党的盗国财富．比我们想象的要大的多得多，一切都已经开始！
 
-<img src="https://media.gettr.com/group11/origin/2022/05/19/12/e69ea842-5480-6568-b257-7f6f32b59f68/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/05/19/14/2f03a4df-fd74-bf5f-1993-88ec3eceb73b/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed t
 5/18/2022  Miles Guo: The future blockchain competition will not only focus on technology, but also on who is less restrictive and more decentralized; the Himalaya Reserve is aiming to establish the most reliable and secure platfor...
 
 <img src="https://media.gettr.com/group8/getter/2022/05/19/01/f81af327-ef39-aa3d-a5c0-7e78edda8231/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1adnsnccc4.md)
-
-5/18/2022 Miles Guo: Steve Wynn's case will expose all those who have been colluding with the CCP in the US and the CCP's pawns and spies lurking in the US. Wynn's case involves both President Trump and President Biden, and there w...
-
-<img src="https://media.gettr.com/group16/getter/2022/05/19/01/993afdb5-e0dc-c784-a104-7425572400ff/out.jpg" width="506" height="284">
 
 ---
 
