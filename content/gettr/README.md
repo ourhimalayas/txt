@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1af6avd6cf.md)
+
+2022.05.19 早 新中国联邦 | 新闻  救援前线战友温馨庆祝生日；中共对盖特的攻击源于它的恐惧
+
+<img src="https://media.gettr.com/group49/origin/2022/04/14/12/d9b235fd-5acd-b483-b07c-413f393541fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1aft4k5f1a.md)
 
 2022.05.19 AM NFSC news  Ukrainian Volunteers Express Their Gratitude To The NFSC’s Rescue Operation
@@ -70,11 +78,11 @@
 
 ---
 
-[@miles 5/19/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1af6avd6cf.md)
+[@miles 5/19/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1afktba1a8.md)
 
-2022.05.19 早 新中国联邦 | 新闻  救援前线战友温馨庆祝生日；中共对盖特的攻击源于它的恐惧
+2022.05.19  早 新中国联邦 | 新闻访谈   拜登亚洲行前夕，气氛紧张，各方角力频繁；再谈史蒂夫韦恩受到司法部起诉；twitter假账号比例惊人，twitter交易恐怕永远完不成。
 
-<img src="https://media.gettr.com/group49/origin/2022/04/14/12/d9b235fd-5acd-b483-b07c-413f393541fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/05/19/12/e69ea842-5480-6568-b257-7f6f32b59f68/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -169,38 +177,6 @@ On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed t
 2022.05.18 晚 新中国联邦⎪新闻访谈 中共号称北京物资供应充足，百姓仍然抢购囤货
 
 <img src="https://media.gettr.com/group25/origin/2022/05/19/01/6c190815-80cf-4902-8e53-4447b6c42d8e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/19/2022 12:09 AM UTC ](/content/gettr/p1acz2t5d7a.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月17日第74天当日救援统计：
-
-Medyka救援站接待：约64人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21274人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 74 - Date: Ma...
-
-<img src="https://media.gettr.com/group21/getter/2022/05/19/00/dd68bc3a-f409-be01-3092-40f3c47cfe2c/369b6679a8d3c74e7911817d94ebd2bd.jpg" width="506" height="284">
 
 ---
 
