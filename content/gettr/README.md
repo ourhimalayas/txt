@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 5:21 AM UTC  - :tv:直播](/content/gettr/p1aekin3994.md)
+
+5/18/2022 Miles Guo: The creation of digital currency is to challenge the US dollar and eliminate fiat currency. Any digital currency under the long-arm statute of the US dollar can't replace Bitcoin. Although ETH will get stronger...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/19/05/a037cc59-dac0-8512-2d53-7f7a185d040a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1ae8y12e0c.md)
 
 2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 5/19/2022 5:21 AM UTC  - :tv:直播](/content/gettr/p1aekin3994.md)
+[@miles 5/19/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1aezvv19e1.md)
 
-5/18/2022 Miles Guo: The creation of digital currency is to challenge the US dollar and eliminate fiat currency. Any digital currency under the long-arm statute of the US dollar can't replace Bitcoin. Although ETH will get stronger...
+2022.05.19 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group17/getter/2022/05/19/05/a037cc59-dac0-8512-2d53-7f7a185d040a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/05/19/07/a6932666-11c9-3fae-7172-b6f2d4da49ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Day 74 - Date: Ma...
 5/18/2022 Miles Guo: During a recent forum in Europe, Janet Yellen, who used to speak for the CCP, started to say that the biggest threat to the world is Xi Jinping, followed by the CCP. She also firmly believes that Xi has health ...
 
 <img src="https://media.gettr.com/group45/getter/2022/05/18/22/c796d61b-d74e-ebdd-5fd0-77a8555cc36e/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 9:50 PM UTC  - :tv:直播](/content/gettr/p1acxn4d321.md)
-
-2022年5月18日 七哥乱聊吃播
-
-<img src="https://media.gettr.com/group26/liveorigin/2022/05/18/21/80187cba-8397-fbb9-ab6c-b286463ea427/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
