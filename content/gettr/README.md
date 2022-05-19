@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1af6c472bc.md)
+
+2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group43/origin/2022/05/19/17/6f83a8a4-820e-2d03-7458-6609d874d83b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 2:59 PM UTC  - :tv:直播](/content/gettr/p1agenc903c.md)
 
  5月19号：尊敬的战友们好，刚刚在全球房地产．股票．各个领域的抛售……，再次震撼到了我．共产党的盗国财富．比我们想象的要大的多得多，一切都已经开始！
@@ -94,11 +102,11 @@
 
 ---
 
-[@miles 5/19/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1af6c472bc.md)
+[@miles 5/19/2022 6:59 PM UTC  - :tv:直播](/content/gettr/p1ah3100686.md)
 
-2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022-5-19 《避风港》（49）新冠疫苗公司犯有欺诈罪
 
-<img src="https://media.gettr.com/group43/origin/2022/05/19/17/6f83a8a4-820e-2d03-7458-6609d874d83b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ U.S. is lining up to fight China and internally purging the running dogs working
 On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed troops around the Communist  China a...
 
 <img src="https://media.gettr.com/group27/origin/2022/05/19/01/2495554a-f35b-54ad-685b-8be0765782ce/8c36fab3e84300a7f4e4d4af0e5b60f6.png" width="506" height="284">
-
----
-
-[@miles 5/19/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1acsgr6a37.md)
-
-5/18/2022  Miles Guo: The future blockchain competition will not only focus on technology, but also on who is less restrictive and more decentralized; the Himalaya Reserve is aiming to establish the most reliable and secure platfor...
-
-<img src="https://media.gettr.com/group8/getter/2022/05/19/01/f81af327-ef39-aa3d-a5c0-7e78edda8231/out.jpg" width="506" height="284">
 
 ---
 
