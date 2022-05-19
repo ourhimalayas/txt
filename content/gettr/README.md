@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/19/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1aco91d97f.md)
+
+2022.05.18  新中国联邦 | 喜财经   这场加密行业的金融超限战是如何进行的？
+
+<img src="https://media.gettr.com/group32/origin/2022/05/19/02/d2551edb-5c23-6558-9150-a6e381efaf08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p1ad2hh6419.md)
+
+5/18/2022 Miles Guo: Binance and Tether are like the nuclear bombs of the CCP against the US dollar. The CCP will plunder the small investors when the US decouples from it. The New Federal State of China is now collecting the evide...
+
+<img src="https://media.gettr.com/group37/getter/2022/05/19/01/5f361e15-e606-6112-05a6-6b6754d93fae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 1:41 AM UTC ](/content/gettr/p1adnvn4e1a.md)
 
 U.S. is lining up to fight China and internally purging the running dogs working for the Chinese  Communist  Party
@@ -28,11 +44,19 @@ On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed t
 
 ---
 
-[@miles 5/19/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p1ad2hh6419.md)
+[@miles 5/19/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1ad43n134a.md)
 
-5/18/2022 Miles Guo: Binance and Tether are like the nuclear bombs of the CCP against the US dollar. The CCP will plunder the small investors when the US decouples from it. The New Federal State of China is now collecting the evide...
+2022年5月18日: 法治基金,法治社会捐款留言精选集
 
-<img src="https://media.gettr.com/group37/getter/2022/05/19/01/5f361e15-e606-6112-05a6-6b6754d93fae/out.jpg" width="506" height="284">
+法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！
+
+
+
+May 18, 2022 Rule of Law Foundation and Society donors messages collection 
+
+The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors...
+
+<img src="https://media.gettr.com/group48/getter/2022/05/19/02/16055f14-94c1-11be-2a71-24a8862d8188/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,46 +193,6 @@ https://gnews.org/zh-hans/2539595/
 2022.05.18  新中国联邦 | 军情室 中共海军南下与美军在亚太的排兵布阵
 
 <img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 9:04 AM UTC ](/content/gettr/p1aa34m5dcb.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月16日第73天当日救援统计：
-
-Medyka救援站接待：约393人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21210人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 73 - Date: M...
-
-<img src="https://media.gettr.com/group5/getter/2022/05/18/09/068dbe83-8bc8-9ea8-9a34-b279f760e0f2/d72b80f775be2f2b9e2f441ba55823f6.jpg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1a9cn1f685.md)
-
-2022.05.18 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group42/origin/2022/05/18/08/f11d4384-0048-39a8-cc0b-c9ec88bd52a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
