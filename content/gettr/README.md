@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 6:59 PM UTC  - :tv:直播](/content/gettr/p1ah3100686.md)
+
+2022-5-19 《避风港》（49）新冠疫苗公司犯有欺诈罪
+
+<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1af6c472bc.md)
 
 2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -102,11 +110,11 @@
 
 ---
 
-[@miles 5/19/2022 6:59 PM UTC  - :tv:直播](/content/gettr/p1ah3100686.md)
+[@miles 5/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1ahe0n06f7.md)
 
-2022-5-19 《避风港》（49）新冠疫苗公司犯有欺诈罪
+2022.05.19  新中国联邦 | 喜健康    小心“毒”从口入
 
-<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/05/19/20/058add17-0a2b-09d2-33ab-af08de87b49b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ The Rule of Law Foundation and Society team heartfully thank all of our supporte
 5/18/2022 Miles Guo: Binance and Tether are like the nuclear bombs of the CCP against the US dollar. The CCP will plunder the small investors when the US decouples from it. The New Federal State of China is now collecting the evide...
 
 <img src="https://media.gettr.com/group37/getter/2022/05/19/01/5f361e15-e606-6112-05a6-6b6754d93fae/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 1:41 AM UTC ](/content/gettr/p1adnvn4e1a.md)
-
-U.S. is lining up to fight China and internally purging the running dogs working for the Chinese  Communist  Party
-
-On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed troops around the Communist  China a...
-
-<img src="https://media.gettr.com/group27/origin/2022/05/19/01/2495554a-f35b-54ad-685b-8be0765782ce/8c36fab3e84300a7f4e4d4af0e5b60f6.png" width="506" height="284">
 
 ---
 
