@@ -2,8 +2,26 @@
 ---
 
 
+#### [中日财经爆┃华盛顿掌握着俄罗斯主权违约的关键](/content/gnews/2559385.md)
+ `东京樱花团Tokyo Sakura Group`
+
+#### [中日财经爆┃香港，新股挂牌量跌至九年新低](/content/gnews/2559380.md)
+ `东京樱花团Tokyo Sakura Group`
+
+#### [【全文字幕】2022年5月13号 七哥与战友们连线吃播](/content/gnews/2559367.md)
+ `文贵视频字幕全集`
+
+#### [美国参议院确认拜登提名驻乌克兰大使](/content/gnews/2559362.md)
+ `Shuizhuyu`
+
+#### [2022/05/18文贵先生大直播精要](/content/gnews/2559348.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [樱花FM┃北约向乌克兰无限提供军援，俄将走入穷途末路](/content/gnews/2559289.md)
  `樱花FM`
+
+#### [美国执政党的中期之战](/content/gnews/2559285.md)
+ `Shuizhuyu`
 
 #### [德国经济受到中共国的封城影响](/content/gnews/2559265.md)
  `澳喜特战旅Gnews`
@@ -23,6 +41,9 @@
 #### [樱花FM┃日本通胀加剧CGPI飙升10%创历史新高](/content/gnews/2559222.md)
  `樱花FM`
 
+#### [秘翻新闻 ｜美国总统拜登女儿再次确诊中共病毒](/content/gnews/2559212.md)
+ `秘密翻译组-即时新闻播报组`
+
 #### [樱花FM┃中共防疫滥权 居委会截击团购物资遭投篮式突破](/content/gnews/2559190.md)
  `樱花FM`
 
@@ -41,11 +62,8 @@
 #### [樱花FM┃数字货币遭遇挤兑风潮 市值4万亿的Luna一夜之间崩盘](/content/gnews/2559154.md)
  `樱花FM`
 
-#### [樱花FM┃新冠后引发精神抑郁症患者增多](/content/gnews/2559107.md)
- `樱花FM`
-
-#### [樱花FM┃印度商务部长表示：7月之前小麦出口合同继续履行](/content/gnews/2559103.md)
- `樱花FM`
+#### [【秘翻新视野】赌场大亨Steve Wynn被美国司法部起诉(第1期）](/content/gnews/2559065.md)
+ `秘密翻译组-即时新闻播报组`
 
 #### [被俘俄军透露：普京的指挥官正在屠杀自己的受伤士兵](/content/gnews/2559029.md)
  `澳喜特战旅Gnews`
@@ -77,9 +95,6 @@
 #### [樱花时政&#124;美国强烈支持恢复台湾世卫观察员席位](/content/gnews/2558751.md)
  `东京樱花团Tokyo Sakura Group`
 
-#### [樱花时政&#124;认罪！乌国审判首名「战犯」 21岁俄士兵坦承枪杀平民](/content/gnews/2558723.md)
- `东京樱花团Tokyo Sakura Group`
-
 #### [樱花时政&#124;伦敦警务学院被指收取英国政府资金 为新疆公安提供培训](/content/gnews/2558707.md)
  `东京樱花团Tokyo Sakura Group`
 
@@ -95,9 +110,6 @@
 #### [中日财经爆┃中共国民航局：去年全行业亏损842.5亿元](/content/gnews/2558619.md)
  `东京樱花团Tokyo Sakura Group`
 
-#### [大直播后记：什么是天下第一币？](/content/gnews/2558573.md)
- `雅典娜GNotes`
-
 #### [视频&#124;李大钊实为勾结境外反动势力第一人](/content/gnews/2558541.md)
  `MOSVIDEO`
 
@@ -110,16 +122,10 @@
 #### [全球良心医生及科学家COVID峰会 —马龙博士结束语](/content/gnews/2558308.md)
  `喜马拉雅纽约磐石农场`
 
-#### [樱花时政&#124;中国山寨耗材7折卖 BMW原厂跨海提告](/content/gnews/2558204.md)
- `东京樱花团Tokyo Sakura Group`
-
 #### [朝鲜加强药品和医疗用品的生产以对抗爆发的新冠疫情](/content/gnews/2557746.md)
  `澳喜农场`
 
 #### [文•贵天成——文贵先生谈“ Steve Wynn”（三）](/content/gnews/2557459.md)
- `墨尔本雅典娜农场`
-
-#### [美国东盟升级双边关系，台湾供应链将从中受益](/content/gnews/2557437.md)
  `墨尔本雅典娜农场`
 
 #### [中共利用BSN区块链统领全球数字货币的梦想会落空](/content/gnews/2557392.md)
@@ -151,12 +157,6 @@
 
 #### [南澳拟新法，违反防疫规定者刑期可达2年](/content/gnews/2557175.md)
  `墨尔本雅典娜农场`
-
-#### [Steve Wynn案将推动灭共事业在2022年取得巨大进展](/content/gnews/2554689.md)
- `银河歌舞厅`
-
-#### [大直播后记：七哥与乌克兰前线新的一批战友连线](/content/gnews/2529912.md)
- `雅典娜GNotes`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
