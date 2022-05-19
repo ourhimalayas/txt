@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1aft4k5f1a.md)
+
+2022.05.19 AM NFSC news  Ukrainian Volunteers Express Their Gratitude To The NFSC’s Rescue Operation
+
+<img src="https://media.gettr.com/group37/origin/2022/05/19/11/ba4c802e-ceb2-ba78-fe94-6654a0409d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1afuo089bd.md)
 
 5/18/2022 Miles Guo: BSN, the new blockchain platform launched by Wang Qishan, is based upon the technologies of DNA computers, biological computers, and quantum computers in an attempt to control all the blockchains of humanity by...
@@ -62,11 +70,11 @@
 
 ---
 
-[@miles 5/19/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1aft4k5f1a.md)
+[@miles 5/19/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1af6avd6cf.md)
 
-2022.05.19 AM NFSC news  Ukrainian Volunteers Express Their Gratitude To The NFSC’s Rescue Operation
+2022.05.19 早 新中国联邦 | 新闻  救援前线战友温馨庆祝生日；中共对盖特的攻击源于它的恐惧
 
-<img src="https://media.gettr.com/group37/origin/2022/05/19/11/ba4c802e-ceb2-ba78-fe94-6654a0409d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/04/14/12/d9b235fd-5acd-b483-b07c-413f393541fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed t
 2022.05.18 晚 新中国联邦⎪新闻访谈 中共号称北京物资供应充足，百姓仍然抢购囤货
 
 <img src="https://media.gettr.com/group25/origin/2022/05/19/01/6c190815-80cf-4902-8e53-4447b6c42d8e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/19/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1ad8gwda42.md)
-
-5/18/2022 Miles Guo: The economic conference recently held in Europe was about tracking the assets of Putin, Russian oligarchs, Xi Jinping, and the CCP cadres to prepare for the following extreme sanctions on them. A NATO intellige...
-
-<img src="https://media.gettr.com/group38/getter/2022/05/19/00/7040f344-e1d2-7658-9a23-140ee16a1b0e/out.jpg" width="506" height="284">
 
 ---
 
