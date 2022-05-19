@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1afuo089bd.md)
+
+5/18/2022 Miles Guo: BSN, the new blockchain platform launched by Wang Qishan, is based upon the technologies of DNA computers, biological computers, and quantum computers in an attempt to control all the blockchains of humanity by...
+
+<img src="https://media.gettr.com/group25/getter/2022/05/19/11/3df512d9-9361-61c1-df53-5508e17bac46/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 8:38 AM UTC  - :tv:直播](/content/gettr/p1ae8yjc59b.md)
 
 2022.05.18 文贵大直播（精华版）
@@ -54,11 +62,11 @@
 
 ---
 
-[@miles 5/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1afuo089bd.md)
+[@miles 5/19/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1aft4k5f1a.md)
 
-5/18/2022 Miles Guo: BSN, the new blockchain platform launched by Wang Qishan, is based upon the technologies of DNA computers, biological computers, and quantum computers in an attempt to control all the blockchains of humanity by...
+2022.05.19 AM NFSC news  Ukrainian Volunteers Express Their Gratitude To The NFSC’s Rescue Operation
 
-<img src="https://media.gettr.com/group25/getter/2022/05/19/11/3df512d9-9361-61c1-df53-5508e17bac46/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/05/19/11/ba4c802e-ceb2-ba78-fe94-6654a0409d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed t
 2022.05.18 晚 新中国联邦⎪新闻访谈 中共号称北京物资供应充足，百姓仍然抢购囤货
 
 <img src="https://media.gettr.com/group25/origin/2022/05/19/01/6c190815-80cf-4902-8e53-4447b6c42d8e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1adedxd7aa.md)
-
-5/18/2022 Miles Guo: Tether is controlled by Wang Qishan, the people behind Lufax like Peter Ma Mingzhe, and the Wall Street guys. Tether's purpose is to push the internationalization of the digital RMB. Tether is the CCP's risk he...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/19/00/6fae374e-d120-d123-cbb1-70c3f893cf5f/out.jpg" width="506" height="284">
 
 ---
 
