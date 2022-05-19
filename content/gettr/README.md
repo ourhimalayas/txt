@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/19/2022 1:41 AM UTC ](/content/gettr/p1adnvn4e1a.md)
+
+U.S. is lining up to fight China and internally purging the running dogs working for the Chinese  Communist  Party
+
+On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed troops around the Communist  China a...
+
+<img src="https://media.gettr.com/group27/origin/2022/05/19/01/2495554a-f35b-54ad-685b-8be0765782ce/8c36fab3e84300a7f4e4d4af0e5b60f6.png" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1acsgr6a37.md)
 
 5/18/2022  Miles Guo: The future blockchain competition will not only focus on technology, but also on who is less restrictive and more decentralized; the Himalaya Reserve is aiming to establish the most reliable and secure platfor...
@@ -18,13 +28,11 @@
 
 ---
 
-[@miles 5/19/2022 1:41 AM UTC ](/content/gettr/p1adnvn4e1a.md)
+[@miles 5/19/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p1ad2hh6419.md)
 
-U.S. is lining up to fight China and internally purging the running dogs working for the Chinese  Communist  Party
+5/18/2022 Miles Guo: Binance and Tether are like the nuclear bombs of the CCP against the US dollar. The CCP will plunder the small investors when the US decouples from it. The New Federal State of China is now collecting the evide...
 
-On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed troops around the Communist  China a...
-
-<img src="https://media.gettr.com/group27/origin/2022/05/19/01/2495554a-f35b-54ad-685b-8be0765782ce/8c36fab3e84300a7f4e4d4af0e5b60f6.png" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/05/19/01/5f361e15-e606-6112-05a6-6b6754d93fae/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ Day 73 - Date: M...
 2022.05.18 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
 <img src="https://media.gettr.com/group42/origin/2022/05/18/08/f11d4384-0048-39a8-cc0b-c9ec88bd52a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1a9weff2a4.md)
-
-【Ukraine Rescue】05/17/2022 A former Ukrainian Azov veteran, who is helping the Ukrainian army deliver supplies, thanks the NFSC for its humanitarian assistance to the Ukrainian people in this war, and sincerely wishes the new Chine...
-
-<img src="https://media.gettr.com/group31/getter/2022/05/18/07/f08e8e92-8289-1ac7-6769-852673b34338/out.jpg" width="506" height="284">
 
 ---
 
