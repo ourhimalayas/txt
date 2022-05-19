@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 5/19/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1ae1e07946.md)
+
+【Ukraine Rescue】 05/17/2022 A British volunteer says he wants to help the Ukrainian people and support the NFSC to eliminate the evil CCP. He says this modern time needs freedom and democracy, not communism.
+
+
+
+【乌克兰救援】 05/17/2022 一...
+
+<img src="https://media.gettr.com/group26/getter/2022/05/19/03/060bef6c-861c-be43-be57-f8f2a84011cb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1ad9qtbe11.md)
+
+【Ukraine Rescue】 05/17/2022 Adam, a volunteer from the US, says: The Chinese Communist regime has blood on its hands, but too many American politicians are kowtowing to the CCP, and we should all stand up to it; I truly support wha...
+
+<img src="https://media.gettr.com/group16/getter/2022/05/19/02/2f889b38-58d7-869b-5445-8597506cec3f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1adzra549c.md)
 
 路透社：美国司法部本周二起诉永利度假村前首席执行官史蒂夫·永利，指控他在2017年应北京的要求充当中共国代理人并游说时任总统唐纳德·川普，遣返郭文贵先生 
@@ -22,11 +42,11 @@ Reuters: The U.S. Justice Department on this Tuesday sued Steve Wynn, the former
 
 ---
 
-[@miles 5/19/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1ad9qtbe11.md)
+[@miles 5/19/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1acq6geda7.md)
 
-【Ukraine Rescue】 05/17/2022 Adam, a volunteer from the US, says: The Chinese Communist regime has blood on its hands, but too many American politicians are kowtowing to the CCP, and we should all stand up to it; I truly support wha...
+2022-5-18《鸡血王喜币大作战》 第一百九十九集 嘉宾：Nick、封神榜
 
-<img src="https://media.gettr.com/group16/getter/2022/05/19/02/2f889b38-58d7-869b-5445-8597506cec3f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/04/23/03/44756be8-3069-d5fa-a3b2-3e40ed1c813d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,22 +201,6 @@ https://gnews.org/zh-hans/2539595/
 2022.05.18  新中国联邦 | 喜健康    普京为何要在中国注射血清？——干细胞技术的现在与未来
 
 <img src="https://media.gettr.com/group29/origin/2022/05/18/20/1394f18e-0fca-abbc-fd31-9737ed80d486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1aa8mn5f20.md)
-
-2022.05.18 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group18/origin/2022/05/18/17/110350d3-07eb-6957-4176-aab361d04617/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/18/2022 2:26 PM UTC  - :tv:直播](/content/gettr/p1aa8u0fa7b.md)
-
-2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
-
-<img src="https://media.gettr.com/group45/origin/2022/05/18/12/c13190ed-1676-050e-fb53-02a87e2b2993/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
