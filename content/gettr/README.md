@@ -2,15 +2,11 @@
 ---
 
 
-[@miles 5/17/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p1a8brfde76.md)
+[@miles 5/18/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ack4ra768.md)
 
-5/15/2022 Miles Guo: The Shanghai gang is no more, but there is an anti-Xi gang, which must ally with the US and me to take out Xi. Wang Qishan leaked the information that Xi has health issues
+5月18号：尊敬的战友们好……谢谢木兰妹妺制作的美好的时光……视频！
 
-
-
-5/15/2022 文贵直播：上海帮已不复存在，但有反习帮，它必须拉拢...
-
-<img src="https://media.gettr.com/group50/getter/2022/05/17/23/e830bdf2-9774-d48d-dd8f-3f21b5f416a2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/05/18/23/4267a5f7-73f9-1b13-3c7d-678551c698bd/out.jpg" width="506" height="284">
 
 ---
 
