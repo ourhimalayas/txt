@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1ahex75774.md)
+
+2022年5月19日 七哥吃播乱聊
+
+<img src="https://media.gettr.com/group47/origin/2022/05/19/22/56e835e2-0b04-dbce-a910-35d47a8c7353/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1ahe0n06f7.md)
 
 2022.05.19  新中国联邦 | 喜健康    小心“毒”从口入
@@ -118,11 +126,11 @@
 
 ---
 
-[@miles 5/19/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1ahex75774.md)
+[@miles 5/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1ahwr79dfc.md)
 
-2022年5月19日 七哥吃播乱聊
+Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism destroyed human will and creativity. It's basically rewarded the lack of creativity in people and rewarded people to just follow orders. He said if we don...
 
-<img src="https://media.gettr.com/group47/origin/2022/05/19/22/56e835e2-0b04-dbce-a910-35d47a8c7353/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/05/19/23/000fa032-b579-daa0-277f-b270007a657f/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@
 Reuters: The U.S. Justice Department on this Tuesday sued Steve Wynn, the former CEO of Wynn Resorts, accusing him of acting as a Chinese agent and lo...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/19/02/17a48d48-7d8e-b0df-aaea-cbf60a44eec8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1aco91d97f.md)
-
-2022.05.18  新中国联邦 | 喜财经   这场加密行业的金融超限战是如何进行的？
-
-<img src="https://media.gettr.com/group32/origin/2022/05/19/02/d2551edb-5c23-6558-9150-a6e381efaf08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
