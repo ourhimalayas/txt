@@ -10,6 +10,34 @@
 
 ---
 
+[@miles 5/19/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1adzra549c.md)
+
+路透社：美国司法部本周二起诉永利度假村前首席执行官史蒂夫·永利，指控他在2017年应北京的要求充当中共国代理人并游说时任总统唐纳德·川普，遣返郭文贵先生 
+
+
+
+Reuters: The U.S. Justice Department on this Tuesday sued Steve Wynn, the former CEO of Wynn Resorts, accusing him of acting as a Chinese agent and lo...
+
+<img src="https://media.gettr.com/group38/getter/2022/05/19/02/17a48d48-7d8e-b0df-aaea-cbf60a44eec8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/19/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1ad43n134a.md)
+
+2022年5月18日: 法治基金,法治社会捐款留言精选集
+
+法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！
+
+
+
+May 18, 2022 Rule of Law Foundation and Society donors messages collection 
+
+The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors...
+
+<img src="https://media.gettr.com/group48/getter/2022/05/19/02/16055f14-94c1-11be-2a71-24a8862d8188/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 1:56 AM UTC  - :tv:直播](/content/gettr/p1ad2hh6419.md)
 
 5/18/2022 Miles Guo: Binance and Tether are like the nuclear bombs of the CCP against the US dollar. The CCP will plunder the small investors when the US decouples from it. The New Federal State of China is now collecting the evide...
@@ -41,22 +69,6 @@ On May 17, Mr. Guo Wengui blew the whistle on Gettr that the U.S. has deployed t
 5/18/2022 Miles Guo: Steve Wynn's case will expose all those who have been colluding with the CCP in the US and the CCP's pawns and spies lurking in the US. Wynn's case involves both President Trump and President Biden, and there w...
 
 <img src="https://media.gettr.com/group16/getter/2022/05/19/01/993afdb5-e0dc-c784-a104-7425572400ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1ad43n134a.md)
-
-2022年5月18日: 法治基金,法治社会捐款留言精选集
-
-法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！
-
-
-
-May 18, 2022 Rule of Law Foundation and Society donors messages collection 
-
-The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/19/02/16055f14-94c1-11be-2a71-24a8862d8188/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +197,6 @@ https://gnews.org/zh-hans/2539595/
 2022年5月18日 文贵大直播：俄乌战争形势及其对全球经济的影响；数字货币大崩溃与中共大数据的关系
 
 <img src="https://media.gettr.com/group45/origin/2022/05/18/12/c13190ed-1676-050e-fb53-02a87e2b2993/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/18/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aa8q5672a.md)
-
-2022.05.18  新中国联邦 | 军情室 中共海军南下与美军在亚太的排兵布阵
-
-<img src="https://media.gettr.com/group45/origin/2022/05/04/10/d5de846b-c6aa-9701-ba23-0f0ede777491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
