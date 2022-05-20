@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1ak5ag720d.md)
+
+2022.05.20  新中国联邦 | 军情室  美国援助乌克兰反舰导弹，扒皮中共鹰击-12的真身
+
+<img src="https://media.gettr.com/group34/origin/2022/05/06/10/4db31f29-4901-0c8e-a475-3554d81c12df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 8:26 AM UTC  - :tv:直播](/content/gettr/p1aju1q24ea.md)
 
 5/18/2022 What is BSN, the new blockchain platform launched by Wang Qishan?
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/20/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1ak5ag720d.md)
+[@miles 5/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1akikz1b81.md)
 
-2022.05.20  新中国联邦 | 军情室  美国援助乌克兰反舰导弹，扒皮中共鹰击-12的真身
+首届《联邦杯》诗歌朗诵大赛 自选组半决赛 澳喜农场主办
 
-<img src="https://media.gettr.com/group34/origin/2022/05/06/10/4db31f29-4901-0c8e-a475-3554d81c12df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/05/20/11/5db11969-e257-c7e9-f5eb-f2c0c8f14760/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part III) @gfashion @DDNYC @cornfieldsis
 
 <img src="https://media.gettr.com/group21/getter/2022/05/20/00/1775042c-cc6e-2217-9b63-b2360821103c/bab7364dde97c7b1f1aef483702c3ab9.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 12:21 AM UTC  - :tv:直播](/content/gettr/p1ahqzj15c8.md)
-
-5/18/2022 Miles Guo: The CCP purposely deprived Hong Kong of its status as the center of global finance, trade and a primary world port, which has led to talent exit and the collapse of its real estate and service industries. It wi...
-
-<img src="https://media.gettr.com/group7/getter/2022/05/20/00/9a0df3e8-2757-943e-b43a-785a5de1c13d/out.jpg" width="506" height="284">
 
 ---
 
