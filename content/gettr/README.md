@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 5/20/2022 8:26 AM UTC  - :tv:直播](/content/gettr/p1aju1q24ea.md)
+
+5/18/2022 What is BSN, the new blockchain platform launched by Wang Qishan?
+
+
+
+5/18/2022 文贵直播：王岐山搞的新区块链平台BSN是什么？
+
+
+
+
+
+<img src="https://media.gettr.com/group48/getter/2022/05/20/08/a9e33ecb-002b-8a95-1f75-ae577bd11458/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1ajdoo2551.md)
+
+2022.05.20 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+
+<img src="https://media.gettr.com/group6/origin/2022/05/20/07/6e6126fb-0565-64d8-6e67-63440b9e9d97/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p1ajb799348.md)
 
 2022.05.20  新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -70,11 +94,35 @@
 
 ---
 
-[@miles 5/20/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1ajdoo2551.md)
+[@miles 5/20/2022 8:29 AM UTC ](/content/gettr/p1ajoyj52c0.md)
 
-2022.05.20 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group6/origin/2022/05/20/07/6e6126fb-0565-64d8-6e67-63440b9e9d97/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月18日第75天当日救援统计：
+
+Medyka救援站接待：约81人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约21355人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 75 - Date: Ma...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/20/08/02df7a76-b13a-c010-812c-3b133bdadea6/14e07340b43862f766776cd6a5c7c882.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +211,6 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 05/18/2022 Miles Guo: The Republican Party will surely win the midterm elections this November! The U.S. Congress will definitely find out the motives behind all the lawsuits against me. It will be the time to show the truth of our...
 
 <img src="https://media.gettr.com/group12/getter/2022/05/20/00/ebf9c098-91e0-a25a-f7f0-11fd1a83d568/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ahox8140a.md)
-
-5/18/2022 Miles Guo: Himalaya Exchange issues one Himalaya Dollar only if there is one dollar in the bank account. So, the Himalaya Dollar's value is always 1-to-1 to the US dollar under any circumstances. 20% of the investors' mon...
-
-<img src="https://media.gettr.com/group10/getter/2022/05/19/23/36778f1c-21e6-4add-d7a0-2e6eb59fe72a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1ahwr79dfc.md)
-
-Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism destroyed human will and creativity. It's basically rewarded the lack of creativity in people and rewarded people to just follow orders. He said if we don...
-
-<img src="https://media.gettr.com/group34/origin/2022/05/19/23/000fa032-b579-daa0-277f-b270007a657f/out.jpg" width="506" height="284">
 
 ---
 
