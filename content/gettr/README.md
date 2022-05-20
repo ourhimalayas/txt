@@ -18,6 +18,46 @@
 
 ---
 
+[@miles 5/20/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1ak5ag720d.md)
+
+2022.05.20  新中国联邦 | 军情室  美国援助乌克兰反舰导弹，扒皮中共鹰击-12的真身
+
+<img src="https://media.gettr.com/group34/origin/2022/05/06/10/4db31f29-4901-0c8e-a475-3554d81c12df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 8:29 AM UTC ](/content/gettr/p1ajoyj52c0.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月18日第75天当日救援统计：
+
+Medyka救援站接待：约81人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约21355人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 75 - Date: Ma...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/20/08/02df7a76-b13a-c010-812c-3b133bdadea6/14e07340b43862f766776cd6a5c7c882.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1ajdoo2551.md)
 
 2022.05.20 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -91,38 +131,6 @@
 2022.05.19  新中国联邦 | 喜财经      中共国的上市公司在海内外就是个诈骗集团和敛财工具
 
 <img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/20/2022 8:29 AM UTC ](/content/gettr/p1ajoyj52c0.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月18日第75天当日救援统计：
-
-Medyka救援站接待：约81人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21355人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 75 - Date: Ma...
-
-<img src="https://media.gettr.com/group12/getter/2022/05/20/08/02df7a76-b13a-c010-812c-3b133bdadea6/14e07340b43862f766776cd6a5c7c882.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 5/18/2022 Miles Guo: The CCP purposely deprived Hong Kong of its status as the center of global finance, trade and a primary world port, which has led to talent exit and the collapse of its real estate and service industries. It wi...
 
 <img src="https://media.gettr.com/group7/getter/2022/05/20/00/9a0df3e8-2757-943e-b43a-785a5de1c13d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1ahtjo9baf.md)
-
-05/18/2022 Miles Guo: The Republican Party will surely win the midterm elections this November! The U.S. Congress will definitely find out the motives behind all the lawsuits against me. It will be the time to show the truth of our...
-
-<img src="https://media.gettr.com/group12/getter/2022/05/20/00/ebf9c098-91e0-a25a-f7f0-11fd1a83d568/out.jpg" width="506" height="284">
 
 ---
 
