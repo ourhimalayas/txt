@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 5/20/2022 11:32 PM UTC  - :tv:直播](/content/gettr/p1amezabde6.md)
+
+5/20/2022 Miles Guo’s GETTR: The world is changing dramatically. The Chinese Communist Party is threatening the West by weaponizing its domestic economic and financial crises. On one hand, the US will reduce tariffs for the CCP, on...
+
+<img src="https://media.gettr.com/group16/getter/2022/05/20/23/4ea809e6-3f38-ec66-2457-c0a11e394e4d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1an46c174b.md)
 
 5/19/2022 Miles Guo: Meng Jianzhu and Wang Qishan had filed reports to Xi Jinping since 2015, making the latter believe that Miles Guo was Ling Wancheng's accomplice and held the private videos and financial information of Xi and h...
 
 <img src="https://media.gettr.com/group27/getter/2022/05/20/23/113777da-4aad-aa01-a479-b2e6c08f987d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1amm3a102f.md)
+
+5/19/2022 Miles Guo: Hu Jintao and Zeng Qinghong suggested that Xi could keep being the President of PRC, but he would have to step down from his position as the General Secretary of the CCP, with Li Keqing and Wang Yang being prop...
+
+<img src="https://media.gettr.com/group22/getter/2022/05/20/23/599888ba-0052-d2ca-204c-d554a4e7e02b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1amp00fbc2.md)
+
+5/19/2022 Miles Guo: Xi Jinping realized he was fooled by Meng Jianzhu, Wang Qishan, Fu Zhenghua and Sun Lijun in 2019, and started investigations into these people; Meng, Wang and Fu took advantage of Xi to get rid of their own en...
+
+<img src="https://media.gettr.com/group16/getter/2022/05/20/23/c08f6780-8b42-482d-65ac-58386ffe9111/out.jpg" width="506" height="284">
 
 ---
 
@@ -87,14 +111,6 @@
 
 
 <img src="https://media.gettr.com/group48/getter/2022/05/20/08/a9e33ecb-002b-8a95-1f75-ae577bd11458/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1amp00fbc2.md)
-
-5/19/2022 Miles Guo: Xi Jinping realized he was fooled by Meng Jianzhu, Wang Qishan, Fu Zhenghua and Sun Lijun in 2019, and started investigations into these people; Meng, Wang and Fu took advantage of Xi to get rid of their own en...
-
-<img src="https://media.gettr.com/group16/getter/2022/05/20/23/c08f6780-8b42-482d-65ac-58386ffe9111/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,26 +211,6 @@ Day 75 - Date: Ma...
 
 
 <img src="https://media.gettr.com/group24/getter/2022/05/20/02/da94bef1-bca6-6994-59b8-3f44ac4fdd5f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1airlm9acc.md)
-
-2022.05.19  新中国联邦 | 喜财经      中共国的上市公司在海内外就是个诈骗集团和敛财工具
-
-<img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/20/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1aixzt6c3d.md)
-
-5/18/2022 Miles Guo: Why did Janet Yellen, who used to be pro-CCP, start to say the biggest threat to the world is Xi Jinping?
-
-
-
-5/18/2022 文贵直播：为什么亲共的耶伦改口说世界最大的威胁是习近平？
-
-<img src="https://media.gettr.com/group35/getter/2022/05/20/02/5215922b-af5d-4952-ac29-18dcea03ad5d/out.jpg" width="506" height="284">
 
 ---
 
