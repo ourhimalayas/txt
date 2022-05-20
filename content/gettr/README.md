@@ -10,6 +10,20 @@
 
 ---
 
+[@miles 5/20/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1aicfp39e4.md)
+
+5/18/2022 Miles Guo: Besieging but not attacking is now the first choice for the CCP to invade Taiwan
+
+
+
+5/18/2022 文贵直播：目前围而不打是中共攻台的首选方案
+
+
+
+<img src="https://media.gettr.com/group24/getter/2022/05/20/02/da94bef1-bca6-6994-59b8-3f44ac4fdd5f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1aixzt6c3d.md)
 
 5/18/2022 Miles Guo: Why did Janet Yellen, who used to be pro-CCP, start to say the biggest threat to the world is Xi Jinping?
@@ -47,12 +61,6 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 👏👏👏💕💕💕🎉🎉🎉
 
 <img src="https://media.gettr.com/group39/getter/2022/05/20/01/86e38aaf-5e08-b862-8cb3-d108b1f9b6e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 2:14 AM UTC ](/content/gettr/p1aiwaz0cc9.md)
-
-https://youtu.be/3IImOBY331U
 
 ---
 
