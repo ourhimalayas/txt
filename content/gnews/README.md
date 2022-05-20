@@ -2,20 +2,35 @@
 ---
 
 
+#### [5/20/2022 银河快讯：拜登总统将首次访问日韩两国；40%的日本企业暂停了在俄罗斯的业务](/content/gnews/2563348.md)
+ `日本银河系农场-阿尔法星球`
+
+#### [七哥金句：“普大帝”和“习太阳”干得越猛，死得越惨](/content/gnews/2563320.md)
+ `雅典娜GNotes`
+
+#### [中日财经爆&#124;加拿大禁止华为及中兴参与5G网络建设](/content/gnews/2563298.md)
+ `东京樱花团Tokyo Sakura Group`
+
+#### [参议员玛莎·布莱克本：习近平正在寻求使中共高级官员免受西方制裁](/content/gnews/2563297.md)
+ `美国政要直译推`
+
+#### [拜登支持瑞典芬兰申请加入北约](/content/gnews/2563288.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [七哥金句：国家政权更迭，打破了所有传统的认知](/content/gnews/2563266.md)
+ `雅典娜GNotes`
+
 #### [【就地封锁】](/content/gnews/2563248.md)
  `SpicyWorld`
 
 #### [【文貴大直播 期期有话说】](/content/gnews/2563245.md)
  `SpicyWorld`
 
+#### [【文貴大直播 期期有话说】](/content/gnews/2563227.md)
+ `SpicyWorld`
+
 #### [【提现难】](/content/gnews/2563215.md)
  `SpicyWorld`
-
-#### [【无耻之徒】](/content/gnews/2563210.md)
- `SpicyWorld`
-
-#### [美国国会证实UFO存在](/content/gnews/2563198.md)
- `GTV News Talk`
 
 #### [5/19/2022 文贵盖特：当全世界股市数字货币狂跌之时，中共国已经把年初购买的储备粮消耗殆尽](/content/gnews/2563133.md)
  `秘密翻译组-北美组`
@@ -29,26 +44,14 @@
 #### [5/19/2022文贵直播：就在过去24小时，中共在全球贱卖股票，把高质量资产换成了港币、瑞郎、日元和某些中东币，这是中共在其海外资产被查封前所做的准备](/content/gnews/2563071.md)
  `秘密翻译组-北美组`
 
+#### [加拿大禁止华为和中兴进入其5G网络](/content/gnews/2563066.md)
+ `温哥华扬帆农场`
+
 #### [哈德逊研究所成立新中国中心](/content/gnews/2563058.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [中日财经爆&#124;日本4月消费者物价创下7年来最大涨幅](/content/gnews/2563020.md)
- `东京樱花团Tokyo Sakura Group`
-
-#### [东帝汶新总统承诺加强与中国的关系](/content/gnews/2563018.md)
- `波士顿五月花农场金融部`
-
-#### [中日财经爆&#124;欧盟探索利用俄罗斯寡头冻结资产重建乌克兰的方法](/content/gnews/2562994.md)
- `东京樱花团Tokyo Sakura Group`
-
-#### [中日财经爆&#124;李在镕因拜登参观韩国三星芯片厂而免于审判听证会](/content/gnews/2562992.md)
- `东京樱花团Tokyo Sakura Group`
-
 #### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月19日晚](/content/gnews/2562966.md)
  `纽约香草山MOS01`
-
-#### [波兰大学教授称波兰孔子学院负责人是“共产主义女王”](/content/gnews/2562929.md)
- `墨尔本雅典娜农场`
 
 #### [中日财经爆&#124;受中共国经济放缓影响，香港新股挂牌量跌至九年新低](/content/gnews/2562919.md)
  `东京樱花团Tokyo Sakura Group`
@@ -91,9 +94,6 @@
 
 #### [中共病毒疫苗在妊娠期和哺乳期的数据](/content/gnews/2562667.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [5月19日，上海复工复产的现状；上海一小伙体验「复工复产」第一天](/content/gnews/2562555.md)
- `Tokyo Sakura Video Group`
 
 #### [【G时新闻】中共针对郭文贵先生的遣返(4) 赌场大亨Steve Wynn](/content/gnews/2562554.md)
  `G-时新闻`
@@ -146,6 +146,9 @@
 #### [美国大使：美国和日本不是盟友，是朋友！](/content/gnews/2557254.md)
  `东京樱花团Tokyo Sakura Group`
 
+#### [新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2557245.md)
+ `NFSC News`
+
 #### [美国驻基辅大使馆再开，时隔三个月再升星条旗](/content/gnews/2557196.md)
  `东京樱花团Tokyo Sakura Group`
 
@@ -153,9 +156,6 @@
  `NFSC News`
 
 #### [中共对盖特的攻击源于它的恐惧](/content/gnews/2556647.md)
- `NFSC News`
-
-#### [救援前线战友温馨庆祝生日](/content/gnews/2556601.md)
  `NFSC News`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
