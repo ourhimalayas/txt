@@ -2,6 +2,34 @@
 ---
 
 
+[@miles 5/20/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1airlm9acc.md)
+
+2022.05.19  新中国联邦 | 喜财经      中共国的上市公司在海内外就是个诈骗集团和敛财工具
+
+<img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1aixzt6c3d.md)
+
+5/18/2022 Miles Guo: Why did Janet Yellen, who used to be pro-CCP, start to say the biggest threat to the world is Xi Jinping?
+
+
+
+5/18/2022 文贵直播：为什么亲共的耶伦改口说世界最大的威胁是习近平？
+
+<img src="https://media.gettr.com/group35/getter/2022/05/20/02/5215922b-af5d-4952-ac29-18dcea03ad5d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1aimffdea2.md)
+
+5/19/2022 Miles Guo’s GETTR: As the global stock market and digital currencies are taking a dive, Communist China has used up almost all its grain reserves purchased early this year! Will the CCP be able to get more grains? Does it...
+
+<img src="https://media.gettr.com/group24/getter/2022/05/20/01/2e4cab2b-29eb-1c1a-45a3-35e1155cbb1d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1ai9z7f03f.md)
 
 5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
@@ -22,11 +50,9 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 
 ---
 
-[@miles 5/20/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1aimffdea2.md)
+[@miles 5/20/2022 2:14 AM UTC ](/content/gettr/p1aiwaz0cc9.md)
 
-5/19/2022 Miles Guo’s GETTR: As the global stock market and digital currencies are taking a dive, Communist China has used up almost all its grain reserves purchased early this year! Will the CCP be able to get more grains? Does it...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/20/01/2e4cab2b-29eb-1c1a-45a3-35e1155cbb1d/out.jpg" width="506" height="284">
+https://youtu.be/3IImOBY331U
 
 ---
 
@@ -139,30 +165,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
  5月19号：尊敬的战友们好，刚刚在全球房地产．股票．各个领域的抛售……，再次震撼到了我．共产党的盗国财富．比我们想象的要大的多得多，一切都已经开始！
 
 <img src="https://media.gettr.com/group39/getter/2022/05/19/14/2f03a4df-fd74-bf5f-1993-88ec3eceb73b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1afktba1a8.md)
-
-2022.05.19  早 新中国联邦 | 新闻访谈   拜登亚洲行前夕，气氛紧张，各方角力频繁；再谈史蒂夫韦恩受到司法部起诉；twitter假账号比例惊人，twitter交易恐怕永远完不成。
-
-<img src="https://media.gettr.com/group11/origin/2022/05/19/12/e69ea842-5480-6568-b257-7f6f32b59f68/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/19/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1af6avd6cf.md)
-
-2022.05.19 早 新中国联邦 | 新闻  救援前线战友温馨庆祝生日；中共对盖特的攻击源于它的恐惧
-
-<img src="https://media.gettr.com/group49/origin/2022/04/14/12/d9b235fd-5acd-b483-b07c-413f393541fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1aft4k5f1a.md)
-
-2022.05.19 AM NFSC news  Ukrainian Volunteers Express Their Gratitude To The NFSC’s Rescue Operation
-
-<img src="https://media.gettr.com/group37/origin/2022/05/19/11/ba4c802e-ceb2-ba78-fe94-6654a0409d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
