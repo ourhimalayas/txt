@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1ahwr79dfc.md)
+
+Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism destroyed human will and creativity. It's basically rewarded the lack of creativity in people and rewarded people to just follow orders. He said if we don...
+
+<img src="https://media.gettr.com/group34/origin/2022/05/19/23/000fa032-b579-daa0-277f-b270007a657f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1ahex75774.md)
 
 2022年5月19日 七哥吃播乱聊
@@ -126,11 +134,11 @@
 
 ---
 
-[@miles 5/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1ahwr79dfc.md)
+[@miles 5/19/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ahox8140a.md)
 
-Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism destroyed human will and creativity. It's basically rewarded the lack of creativity in people and rewarded people to just follow orders. He said if we don...
+5/18/2022 Miles Guo: Himalaya Exchange issues one Himalaya Dollar only if there is one dollar in the bank account. So, the Himalaya Dollar's value is always 1-to-1 to the US dollar under any circumstances. 20% of the investors' mon...
 
-<img src="https://media.gettr.com/group34/origin/2022/05/19/23/000fa032-b579-daa0-277f-b270007a657f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/05/19/23/36778f1c-21e6-4add-d7a0-2e6eb59fe72a/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +167,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 Reuters: The U.S. Justice Department on this Tuesday sued Steve Wynn, the former CEO of Wynn Resorts, accusing him of acting as a Chinese agent and lo...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/19/02/17a48d48-7d8e-b0df-aaea-cbf60a44eec8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1ad43n134a.md)
-
-2022年5月18日: 法治基金,法治社会捐款留言精选集
-
-法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！
-
-
-
-May 18, 2022 Rule of Law Foundation and Society donors messages collection 
-
-The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/19/02/16055f14-94c1-11be-2a71-24a8862d8188/out.jpg" width="506" height="284">
 
 ---
 
