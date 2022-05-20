@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/20/2022 3:26 AM UTC  - :tv:直播](/content/gettr/p1ainayfb26.md)
+
+5/18/2022 文贵直播：我们会通过币安和泰达币找出中共对西方的经济和法律超限战的证据
+
+
+
+5/18/2022 We will find the evidence about the CCP's economic unrestricted warfare and unrestricted lawfare against the West via Binance and Tether.
+
+
+
+<img src="https://media.gettr.com/group48/getter/2022/05/20/03/b10f7ec2-d02e-5441-6d50-922f49129c32/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1aisgu2d4b.md)
 
 2022-5-19《喜币大作战》——狂赌之渊 （第200期特别版） 嘉宾：青藤、Nick
@@ -40,17 +54,11 @@
 
 ---
 
-[@miles 5/20/2022 3:26 AM UTC  - :tv:直播](/content/gettr/p1ainayfb26.md)
+[@miles 5/20/2022 4:14 AM UTC  - :tv:直播](/content/gettr/p1aj1ev4e10.md)
 
-5/18/2022 文贵直播：我们会通过币安和泰达币找出中共对西方的经济和法律超限战的证据
+5/19/2022 Miles Guo: Steve Wynn DOJ case caused huge impact in the CCP political circular and there are various of explanations; did Xi Jinping really order Meng Jianzhu, Wang Qishan and Sun Lijun to have Steve Wynn convinced Presi...
 
-
-
-5/18/2022 We will find the evidence about the CCP's economic unrestricted warfare and unrestricted lawfare against the West via Binance and Tether.
-
-
-
-<img src="https://media.gettr.com/group48/getter/2022/05/20/03/b10f7ec2-d02e-5441-6d50-922f49129c32/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/05/20/04/0d74d8a3-f658-8475-b05e-89b3febed66b/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 2022.05.19  新中国联邦 | 喜健康    小心“毒”从口入
 
 <img src="https://media.gettr.com/group44/origin/2022/05/19/20/058add17-0a2b-09d2-33ab-af08de87b49b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 6:59 PM UTC  - :tv:直播](/content/gettr/p1ah3100686.md)
-
-2022-5-19 《避风港》（49）新冠疫苗公司犯有欺诈罪
-
-<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
