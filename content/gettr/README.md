@@ -2,6 +2,22 @@
 ---
 
 
+[@cornfieldsis 5/20/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p1algkyde6e.md)
+
+亲爱的战友们好，好消息！ 🤩🤩🥰🥰Hpay 已经升级成功，现在可以在G|Fashion 网页上使用。 谢谢 
+
+
+
+具体如何操作请看以下视频👇
+
+
+
+@gfashion @miles @ddnyc
+
+<img src="https://media.gettr.com/group46/origin/2022/05/20/14/bcb74467-5b13-0abd-eb88-ff27d796856c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 1:59 PM UTC  - :tv:直播](/content/gettr/p1ak3kxec15.md)
 
  5月20号：尊敬的战友们好．全世界的政治经济正在巨变中，共产党．正试图用中国内部的经济炸弹和脱钩来威胁西方社会．最终会导致加速共产党的灭亡！
@@ -42,19 +58,11 @@
 
 ---
 
-[@cornfieldsis 5/20/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p1algkyde6e.md)
+[@miles 5/20/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p1als6g20d7.md)
 
-亲爱的战友们好，好消息！ 🤩🤩🥰🥰Hpay 已经升级成功，现在可以在G|Fashion 网页上使用。 谢谢 
+2022年5月20日  俄乌战争战况播报
 
-
-
-具体如何操作请看以下视频👇
-
-
-
-@gfashion @miles @ddnyc
-
-<img src="https://media.gettr.com/group46/origin/2022/05/20/14/bcb74467-5b13-0abd-eb88-ff27d796856c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/05/20/17/64333d05-fe0d-6379-37ce-00ccd394629e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -211,14 +219,6 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 5/19/2022 Miles Guo’s GETTR: Lufax and Ping An Group have been dumping assets in New Zealand; recently many mysterious Chinese rich people returned to CCP China out of the blue; luxury properties from 10 to 100 million dollars are ...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/20/01/ae3519a3-f092-f610-543e-b7a97c730084/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 12:34 AM UTC  - 6圖](/content/gettr/p1aifhf36c8.md)
-
-2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part III) @gfashion @DDNYC @cornfieldsis
-
-<img src="https://media.gettr.com/group21/getter/2022/05/20/00/1775042c-cc6e-2217-9b63-b2360821103c/bab7364dde97c7b1f1aef483702c3ab9.jpg" width="506" height="284">
 
 ---
 
