@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/20/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1an46c174b.md)
+
+5/19/2022 Miles Guo: Meng Jianzhu and Wang Qishan had filed reports to Xi Jinping since 2015, making the latter believe that Miles Guo was Ling Wancheng's accomplice and held the private videos and financial information of Xi and h...
+
+<img src="https://media.gettr.com/group27/getter/2022/05/20/23/113777da-4aad-aa01-a479-b2e6c08f987d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1amxo93624.md)
+
+2022年05月19日 七哥吃播乱聊
+
+<img src="https://media.gettr.com/group43/origin/2022/05/20/22/9d55ccd7-0fc9-9a36-3636-5d9ef975b7dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1alsx54ead.md)
 
 2022.05.20  新中国联邦 | 喜健康    八九六四 —— 中国人的集体创伤后遗症 （上）
@@ -74,11 +90,11 @@
 
 ---
 
-[@miles 5/20/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1amxo93624.md)
+[@miles 5/20/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1amp00fbc2.md)
 
-2022年05月19日 七哥吃播乱聊
+5/19/2022 Miles Guo: Xi Jinping realized he was fooled by Meng Jianzhu, Wang Qishan, Fu Zhenghua and Sun Lijun in 2019, and started investigations into these people; Meng, Wang and Fu took advantage of Xi to get rid of their own en...
 
-<img src="https://media.gettr.com/group43/origin/2022/05/20/22/9d55ccd7-0fc9-9a36-3636-5d9ef975b7dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/05/20/23/c08f6780-8b42-482d-65ac-58386ffe9111/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,22 +215,6 @@ Day 75 - Date: Ma...
 5/18/2022 文贵直播：为什么亲共的耶伦改口说世界最大的威胁是习近平？
 
 <img src="https://media.gettr.com/group35/getter/2022/05/20/02/5215922b-af5d-4952-ac29-18dcea03ad5d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1aimffdea2.md)
-
-5/19/2022 Miles Guo’s GETTR: As the global stock market and digital currencies are taking a dive, Communist China has used up almost all its grain reserves purchased early this year! Will the CCP be able to get more grains? Does it...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/20/01/2e4cab2b-29eb-1c1a-45a3-35e1155cbb1d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 1:12 AM UTC  - :tv:直播](/content/gettr/p1aih6n162a.md)
-
-5/19/2022 Miles Guo’s GETTR: Lufax and Ping An Group have been dumping assets in New Zealand; recently many mysterious Chinese rich people returned to CCP China out of the blue; luxury properties from 10 to 100 million dollars are ...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/20/01/ae3519a3-f092-f610-543e-b7a97c730084/out.jpg" width="506" height="284">
 
 ---
 
