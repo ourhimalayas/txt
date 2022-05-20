@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 5/20/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1aifsnb0af.md)
+
+G|FASHION 新款即将上线
+
+G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
+
+👏👏👏💕💕💕🎉🎉🎉
+
+<img src="https://media.gettr.com/group39/getter/2022/05/20/01/86e38aaf-5e08-b862-8cb3-d108b1f9b6e3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1ah32df52a.md)
+
+2022.05.19 晚 新中国联邦 ⎮ 新闻访谈
+
+<img src="https://media.gettr.com/group15/origin/2022/05/20/01/a11120e5-8fcf-288b-dcd2-2512e5dac235/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 12:30 AM UTC  - 6圖](/content/gettr/p1ai70y1c60.md)
 
 2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part I) @gfashion @DDNYC @cornfieldsis 
@@ -10,15 +30,11 @@
 
 ---
 
-[@miles 5/20/2022 12:56 AM UTC  - :tv:直播](/content/gettr/p1ahglgcc84.md)
+[@miles 5/20/2022 1:12 AM UTC  - :tv:直播](/content/gettr/p1aih6n162a.md)
 
-G|FASHION 新款即将上线
+5/19/2022 Miles Guo’s GETTR: Lufax and Ping An Group have been dumping assets in New Zealand; recently many mysterious Chinese rich people returned to CCP China out of the blue; luxury properties from 10 to 100 million dollars are ...
 
-G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
-
-👏👏👏💕💕💕🎉🎉🎉
-
-<img src="https://media.gettr.com/group30/getter/2022/05/20/00/34773244-ab3b-815f-66f6-c7df702d87f4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/05/20/01/ae3519a3-f092-f610-543e-b7a97c730084/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,22 +163,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 2022.05.18 文贵大直播（精华版）
 
 <img src="https://media.gettr.com/group11/origin/2022/05/19/08/ed3b9321-3e41-5143-493b-d51ca608d238/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p1aef264341.md)
-
-5/18/2022 Miles Guo: The Now TV's coverage of Steve Wynn's case demonstrates the conflicts between Li Ka-shing and Xi Jinping. The coverage by 45 major media outlets around the world on Steve Wynn’s case has made the New Federal St...
-
-<img src="https://media.gettr.com/group45/getter/2022/05/19/08/2d896c5d-6d9a-95ff-3d84-06cc23334027/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1aezvv19e1.md)
-
-2022.05.19 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group38/origin/2022/05/19/07/a6932666-11c9-3fae-7172-b6f2d4da49ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
