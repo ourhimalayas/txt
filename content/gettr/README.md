@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1ai9z7f03f.md)
+
+5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
+
+<img src="https://media.gettr.com/group8/getter/2022/05/20/01/a1669a62-df48-be58-9297-9517d39de0e3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1aifsnb0af.md)
 
 G|FASHION 新款即将上线
@@ -14,11 +22,11 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 
 ---
 
-[@miles 5/20/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1ai9z7f03f.md)
+[@miles 5/20/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1aimffdea2.md)
 
-5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
+5/19/2022 Miles Guo’s GETTR: As the global stock market and digital currencies are taking a dive, Communist China has used up almost all its grain reserves purchased early this year! Will the CCP be able to get more grains? Does it...
 
-<img src="https://media.gettr.com/group8/getter/2022/05/20/01/a1669a62-df48-be58-9297-9517d39de0e3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/05/20/01/2e4cab2b-29eb-1c1a-45a3-35e1155cbb1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 2022.05.19 AM NFSC news  Ukrainian Volunteers Express Their Gratitude To The NFSC’s Rescue Operation
 
 <img src="https://media.gettr.com/group37/origin/2022/05/19/11/ba4c802e-ceb2-ba78-fe94-6654a0409d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1afuo089bd.md)
-
-5/18/2022 Miles Guo: BSN, the new blockchain platform launched by Wang Qishan, is based upon the technologies of DNA computers, biological computers, and quantum computers in an attempt to control all the blockchains of humanity by...
-
-<img src="https://media.gettr.com/group25/getter/2022/05/19/11/3df512d9-9361-61c1-df53-5508e17bac46/out.jpg" width="506" height="284">
 
 ---
 
