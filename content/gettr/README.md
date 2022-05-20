@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p1als6g20d7.md)
+
+2022年5月20日  俄乌战争战况播报
+
+<img src="https://media.gettr.com/group3/origin/2022/05/20/17/64333d05-fe0d-6379-37ce-00ccd394629e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@cornfieldsis 5/20/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p1algkyde6e.md)
 
 亲爱的战友们好，好消息！ 🤩🤩🥰🥰Hpay 已经升级成功，现在可以在G|Fashion 网页上使用。 谢谢 
@@ -58,11 +66,11 @@
 
 ---
 
-[@miles 5/20/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p1als6g20d7.md)
+[@miles 5/20/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1alsx54ead.md)
 
-2022年5月20日  俄乌战争战况播报
+2022.05.20  新中国联邦 | 喜健康    八九六四 —— 中国人的集体创伤后遗症 （上）
 
-<img src="https://media.gettr.com/group3/origin/2022/05/20/17/64333d05-fe0d-6379-37ce-00ccd394629e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/05/20/20/f8520a25-36a8-e0bc-0b86-465672dfbc47/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,18 +199,6 @@ Day 75 - Date: Ma...
 5/19/2022 Miles Guo’s GETTR: As the global stock market and digital currencies are taking a dive, Communist China has used up almost all its grain reserves purchased early this year! Will the CCP be able to get more grains? Does it...
 
 <img src="https://media.gettr.com/group24/getter/2022/05/20/01/2e4cab2b-29eb-1c1a-45a3-35e1155cbb1d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1aifsnb0af.md)
-
-G|FASHION 新款即将上线
-
-G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
-
-👏👏👏💕💕💕🎉🎉🎉
-
-<img src="https://media.gettr.com/group39/getter/2022/05/20/01/86e38aaf-5e08-b862-8cb3-d108b1f9b6e3/out.jpg" width="506" height="284">
 
 ---
 
