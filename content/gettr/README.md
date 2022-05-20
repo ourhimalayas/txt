@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 5/20/2022 12:30 AM UTC  - 6圖](/content/gettr/p1ai70y1c60.md)
+
+2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part I) @gfashion @DDNYC @cornfieldsis 
+
+<img src="https://media.gettr.com/group9/getter/2022/05/20/00/06bfaeb5-2fea-134e-67e4-480e028ae225/9e1dc864b9beb132465203dc4c21e865.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 12:32 AM UTC  - 6圖](/content/gettr/p1aiasi63dc.md)
+
+2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part II) @gfashion @DDNYC @cornfieldsis
+
+<img src="https://media.gettr.com/group32/getter/2022/05/20/00/1e2153cb-ef54-ddf9-8cc8-6ecf9286c0fd/feafd8b7352d0fa01cc9fc303d538d6d.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 12:21 AM UTC  - :tv:直播](/content/gettr/p1ahqzj15c8.md)
+
+5/18/2022 Miles Guo: The CCP purposely deprived Hong Kong of its status as the center of global finance, trade and a primary world port, which has led to talent exit and the collapse of its real estate and service industries. It wi...
+
+<img src="https://media.gettr.com/group7/getter/2022/05/20/00/9a0df3e8-2757-943e-b43a-785a5de1c13d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1ahtjo9baf.md)
 
 05/18/2022 Miles Guo: The Republican Party will surely win the midterm elections this November! The U.S. Congress will definitely find out the motives behind all the lawsuits against me. It will be the time to show the truth of our...
@@ -130,39 +154,11 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 
 ---
 
-[@miles 5/19/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1ae8y12e0c.md)
+[@miles 5/20/2022 12:34 AM UTC  - 6圖](/content/gettr/p1aifhf36c8.md)
 
-2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part III) @gfashion @DDNYC @cornfieldsis
 
-<img src="https://media.gettr.com/group30/origin/2022/05/19/04/aed1c6c8-5144-6354-7614-2a8937cdcf34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1ae1e07946.md)
-
-【Ukraine Rescue】 05/17/2022 A British volunteer says he wants to help the Ukrainian people and support the NFSC to eliminate the evil CCP. He says this modern time needs freedom and democracy, not communism.
-
-
-
-【乌克兰救援】 05/17/2022 一...
-
-<img src="https://media.gettr.com/group26/getter/2022/05/19/03/060bef6c-861c-be43-be57-f8f2a84011cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 12:21 AM UTC  - :tv:直播](/content/gettr/p1ahqzj15c8.md)
-
-5/18/2022 Miles Guo: The CCP purposely deprived Hong Kong of its status as the center of global finance, trade and a primary world port, which has led to talent exit and the collapse of its real estate and service industries. It wi...
-
-<img src="https://media.gettr.com/group7/getter/2022/05/20/00/9a0df3e8-2757-943e-b43a-785a5de1c13d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1acq6geda7.md)
-
-2022-5-18《鸡血王喜币大作战》 第一百九十九集 嘉宾：Nick、封神榜
-
-<img src="https://media.gettr.com/group10/origin/2022/04/23/03/44756be8-3069-d5fa-a3b2-3e40ed1c813d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/05/20/00/1775042c-cc6e-2217-9b63-b2360821103c/bab7364dde97c7b1f1aef483702c3ab9.jpg" width="506" height="284">
 
 ---
 
