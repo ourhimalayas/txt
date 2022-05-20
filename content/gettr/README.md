@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 2:43 AM UTC  - :tv:直播](/content/gettr/p1aic7ef546.md)
+
+5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
+
+<img src="https://media.gettr.com/group28/getter/2022/05/20/02/6e048ec1-f937-ecd2-0180-09aeb5baea94/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1aicfp39e4.md)
 
 5/18/2022 Miles Guo: Besieging but not attacking is now the first choice for the CCP to invade Taiwan
@@ -24,11 +32,11 @@
 
 ---
 
-[@miles 5/20/2022 2:43 AM UTC  - :tv:直播](/content/gettr/p1aic7ef546.md)
+[@miles 5/20/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1aisgu2d4b.md)
 
-5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
+2022-5-19《喜币大作战》——狂赌之渊 （第200期特别版） 嘉宾：青藤、Nick
 
-<img src="https://media.gettr.com/group28/getter/2022/05/20/02/6e048ec1-f937-ecd2-0180-09aeb5baea94/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/05/20/03/c999ae88-aef2-e553-4ae9-9359bc771a59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group43/origin/2022/05/19/17/6f83a8a4-820e-2d03-7458-6609d874d83b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/19/2022 2:59 PM UTC  - :tv:直播](/content/gettr/p1agenc903c.md)
-
- 5月19号：尊敬的战友们好，刚刚在全球房地产．股票．各个领域的抛售……，再次震撼到了我．共产党的盗国财富．比我们想象的要大的多得多，一切都已经开始！
-
-<img src="https://media.gettr.com/group39/getter/2022/05/19/14/2f03a4df-fd74-bf5f-1993-88ec3eceb73b/out.jpg" width="506" height="284">
 
 ---
 
