@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1akikz1b81.md)
+
+首届《联邦杯》诗歌朗诵大赛 自选组半决赛 澳喜农场主办
+
+<img src="https://media.gettr.com/group40/origin/2022/05/20/11/5db11969-e257-c7e9-f5eb-f2c0c8f14760/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1ak5ag720d.md)
 
 2022.05.20  新中国联邦 | 军情室  美国援助乌克兰反舰导弹，扒皮中共鹰击-12的真身
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1akikz1b81.md)
+[@miles 5/20/2022 1:59 PM UTC  - :tv:直播](/content/gettr/p1ak3kxec15.md)
 
-首届《联邦杯》诗歌朗诵大赛 自选组半决赛 澳喜农场主办
+ 5月20号：尊敬的战友们好．全世界的政治经济正在巨变中，共产党．正试图用中国内部的经济炸弹和脱钩来威胁西方社会．最终会导致加速共产党的灭亡！
 
-<img src="https://media.gettr.com/group40/origin/2022/05/20/11/5db11969-e257-c7e9-f5eb-f2c0c8f14760/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/05/20/13/da0b883e-5c27-da0f-5cc5-91924c2df959/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 5/19/2022 Miles Guo’s GETTR: Lufax and Ping An Group have been dumping assets in New Zealand; recently many mysterious Chinese rich people returned to CCP China out of the blue; luxury properties from 10 to 100 million dollars are ...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/20/01/ae3519a3-f092-f610-543e-b7a97c730084/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 12:30 AM UTC  - 6圖](/content/gettr/p1ai70y1c60.md)
-
-2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part I) @gfashion @DDNYC @cornfieldsis 
-
-<img src="https://media.gettr.com/group9/getter/2022/05/20/00/06bfaeb5-2fea-134e-67e4-480e028ae225/9e1dc864b9beb132465203dc4c21e865.jpg" width="506" height="284">
 
 ---
 
