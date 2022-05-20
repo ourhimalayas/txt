@@ -11,8 +11,35 @@
 
 ---
 
+#### [【樱话】清零政策背后，中共防疫产业链利益巨大](/content/gnews/2566927.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】最近世界多国突然出现猴痘病毒确诊病例](/content/gnews/2566893.md)
+ `TokyoSakuraDesignGroup`
+
+#### [有声&#124;TERRA放售30亿比特币救市失败 稳定币UST市值蒸发九成](/content/gnews/2566886.md)
+ `MOSREC`
+
+#### [【樱话】香港批复首例中共病毒疫苗死亡赔偿金200万](/content/gnews/2566871.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】美国总统拜登女儿确诊中共病毒](/content/gnews/2566850.md)
+ `TokyoSakuraDesignGroup`
+
+#### [习近平加强对内政治控制力 禁止中共高官家属持有海外资产](/content/gnews/2566832.md)
+ `日本东京方舟农场`
+
+#### [【樱话】钴-60脏弹与mRNA疫苗将掀起癌症死亡浪潮](/content/gnews/2566831.md)
+ `TokyoSakuraDesignGroup`
+
 #### [加拿大与其它五眼联盟成员国一起禁止华为和中兴参与5G网络建设](/content/gnews/2566811.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [美国及世界疫情简报（05-20-2022）](/content/gnews/2566810.md)
+ `波士顿五月花农场`
+
+#### [艾伯塔省长辞去其保守党领袖职务](/content/gnews/2566805.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [俄罗斯关停加拿大广播公司在俄分社，并取消记者的签证](/content/gnews/2566800.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -20,20 +47,20 @@
 #### [喜联储是最安全的存放财富之处](/content/gnews/2566799.md)
  `焦點20分`
 
+#### [有声｜上海“解封”仍无望 跳楼事件不断](/content/gnews/2566731.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [有声&#124;美日4艘航母进驻西太平洋震慑中共](/content/gnews/2566625.md)
+ `MOSREC`
+
 #### [李克强大将吴汉圣重返中办，全面接替习近平亲信丁薛祥](/content/gnews/2566547.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [有声&#124;《铁锁梦》MV荣登iTunes德国榜首29天](/content/gnews/2566501.md)
- `MOSREC`
+#### [【 蓝枫法律 】遗嘱案例之遗产信托和生前信托的不同](/content/gnews/2566500.md)
+ `加拿大温哥华扬帆农场蓝枫法律`
 
 #### [5/20/2022国际财经快讯：世界政策制定者计划如何消除滞胀；金融领导人必须为更多的通胀冲击做好准备](/content/gnews/2566469.md)
  `秘密翻译组金融团队`
-
-#### [灭共原创诗歌系列（13）：当炊烟不再升起](/content/gnews/2566461.md)
- `澳喜农场`
-
-#### [李克强大将吴汉圣重返中办，全面接替习近平亲信丁薛祥](/content/gnews/2566459.md)
- `东京樱花团Tokyo Sakura Group`
 
 #### [中日财经爆&#124;经济崩溃时 南京取消房子限购让百姓接盘](/content/gnews/2566401.md)
  `东京樱花团Tokyo Sakura Group`
@@ -45,15 +72,6 @@
  `东京樱花团Tokyo Sakura Group`
 
 #### [【核酸检测】](/content/gnews/2566297.md)
- `SpicyWorld`
-
-#### [有声｜中共国正处于俄罗斯石油制裁的甜蜜地带](/content/gnews/2566240.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [越来越“润”不了的墙国](/content/gnews/2566232.md)
- `澳喜农场`
-
-#### [【文贵大直播 期期有话说】](/content/gnews/2566176.md)
  `SpicyWorld`
 
 #### [【全文字幕】2022年5月13日 文贵大直播：最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用](/content/gnews/2566108.md)
@@ -83,12 +101,6 @@
 #### [印度SEBI提议禁止名人数字货币代言](/content/gnews/2565940.md)
  `墨尔本雅典娜农场`
 
-#### [G7财长在公报中重申外汇承诺](/content/gnews/2565924.md)
- `Shuizhuyu`
-
-#### [台军将在45处部署反无人机防御系统](/content/gnews/2565915.md)
- `墨尔本雅典娜农场`
-
 #### [秘翻在线：乌克兰军方称已成功反击俄罗斯](/content/gnews/2565722.md)
  `秘密翻譯組G-Translators`
 
@@ -104,20 +116,11 @@
 #### [2022年5月20日，全球中共病毒疫情情况汇总](/content/gnews/2565630.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [秘翻在线：疫情下被虐的高考考生](/content/gnews/2565184.md)
- `秘密翻譯組G-Translators`
-
 #### [中日财经爆 ┃ CPI目标2% 日银是否坚持宽松货币政策](/content/gnews/2565176.md)
  `东京樱花团Tokyo Sakura Group`
 
-#### [世卫组织：意大利新冠死亡人数上周排名欧洲第一](/content/gnews/2565125.md)
- `xiaobaige`
-
 #### [秘翻新闻｜中共债务陷阱 加国禁用华为和中兴](/content/gnews/2565108.md)
  `秘密翻译组-即时新闻播报组`
-
-#### [秘翻在线：北汽董事长任职仅一年就离开 曾是抢走盘古龙头的金隅集团董事长](/content/gnews/2565021.md)
- `秘密翻譯組G-Translators`
 
 #### [乌克兰法院批准逮捕前总统亚努科维奇](/content/gnews/2563905.md)
  `波士顿五月花农场金融部`
@@ -133,9 +136,6 @@
 
 #### [韩国决定加入印太经济框架](/content/gnews/2563445.md)
  `日本东京方舟农场`
-
-#### [【每日聚焦】俄乌战事5月20日简要](/content/gnews/2562761.md)
- `蓝莲花农场`
 
 #### [新中国联邦驻梅迪卡营地的多面手鬼五战友](/content/gnews/2562396.md)
  `墨尔本雅典娜农场`
