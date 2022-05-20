@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 5/20/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1airlm9acc.md)
-
-2022.05.19  新中国联邦 | 喜财经      中共国的上市公司在海内外就是个诈骗集团和敛财工具
-
-<img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 5/20/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1aicfp39e4.md)
 
 5/18/2022 Miles Guo: Besieging but not attacking is now the first choice for the CCP to invade Taiwan
@@ -21,6 +13,22 @@
 
 
 <img src="https://media.gettr.com/group24/getter/2022/05/20/02/da94bef1-bca6-6994-59b8-3f44ac4fdd5f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1airlm9acc.md)
+
+2022.05.19  新中国联邦 | 喜财经      中共国的上市公司在海内外就是个诈骗集团和敛财工具
+
+<img src="https://media.gettr.com/group25/origin/2022/05/06/01/ab941a60-ebdc-17bd-b209-3db49ebca835/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 2:43 AM UTC  - :tv:直播](/content/gettr/p1aic7ef546.md)
+
+5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
+
+<img src="https://media.gettr.com/group28/getter/2022/05/20/02/6e048ec1-f937-ecd2-0180-09aeb5baea94/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +49,6 @@
 5/19/2022 Miles Guo’s GETTR: As the global stock market and digital currencies are taking a dive, Communist China has used up almost all its grain reserves purchased early this year! Will the CCP be able to get more grains? Does it...
 
 <img src="https://media.gettr.com/group24/getter/2022/05/20/01/2e4cab2b-29eb-1c1a-45a3-35e1155cbb1d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1ai9z7f03f.md)
-
-5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
-
-<img src="https://media.gettr.com/group8/getter/2022/05/20/01/a1669a62-df48-be58-9297-9517d39de0e3/out.jpg" width="506" height="284">
 
 ---
 
