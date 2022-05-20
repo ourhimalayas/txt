@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 4:14 AM UTC  - :tv:直播](/content/gettr/p1aj1ev4e10.md)
+
+5/19/2022 Miles Guo: Steve Wynn DOJ case caused huge impact in the CCP political circular and there are various of explanations; did Xi Jinping really order Meng Jianzhu, Wang Qishan and Sun Lijun to have Steve Wynn convinced Presi...
+
+<img src="https://media.gettr.com/group35/getter/2022/05/20/04/0d74d8a3-f658-8475-b05e-89b3febed66b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 3:26 AM UTC  - :tv:直播](/content/gettr/p1ainayfb26.md)
 
 5/18/2022 文贵直播：我们会通过币安和泰达币找出中共对西方的经济和法律超限战的证据
@@ -54,11 +62,11 @@
 
 ---
 
-[@miles 5/20/2022 4:14 AM UTC  - :tv:直播](/content/gettr/p1aj1ev4e10.md)
+[@miles 5/20/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p1ajb799348.md)
 
-5/19/2022 Miles Guo: Steve Wynn DOJ case caused huge impact in the CCP political circular and there are various of explanations; did Xi Jinping really order Meng Jianzhu, Wang Qishan and Sun Lijun to have Steve Wynn convinced Presi...
+2022.05.20  新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group35/getter/2022/05/20/04/0d74d8a3-f658-8475-b05e-89b3febed66b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/05/20/04/4d24f6dc-8d98-b0c7-388b-db6ec9186dbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 2022年5月19日 七哥吃播乱聊
 
 <img src="https://media.gettr.com/group47/origin/2022/05/19/22/56e835e2-0b04-dbce-a910-35d47a8c7353/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1ahe0n06f7.md)
-
-2022.05.19  新中国联邦 | 喜健康    小心“毒”从口入
-
-<img src="https://media.gettr.com/group44/origin/2022/05/19/20/058add17-0a2b-09d2-33ab-af08de87b49b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
