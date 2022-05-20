@@ -2,6 +2,15 @@
 ---
 
 
+#### [维吾尔讲师因未签署效忠中共而被拘留](/content/gnews/2562741.md)
+ `墨尔本雅典娜农场`
+
+#### [美参院以压倒多数批准400亿美元新援乌案](/content/gnews/2562727.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [美国参议院批准了400亿美元的乌克兰援助](/content/gnews/2562705.md)
+ `蓝莲花农场`
+
 #### [美国CDC支持为5至11岁儿童接种加强针](/content/gnews/2562693.md)
  `澳喜农场`
 
@@ -68,12 +77,6 @@
 #### [对全球经济增长的担忧上升，亚洲股市下跌](/content/gnews/2562226.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [访日期间拜登总统将与岸田首相共同宣布启动IPEF](/content/gnews/2562209.md)
- `温哥华圆成农场🇨🇦`
-
-#### [五月花简报（2022/05/19）](/content/gnews/2562166.md)
- `mayflowertranslate`
-
 #### [观察：中共异常加大俄罗斯原油进口发出不祥信号](/content/gnews/2562162.md)
  `蓝莲花农场`
 
@@ -101,6 +104,9 @@
 #### [疫情封控下的“大白”再现文革红卫兵恶行](/content/gnews/2560800.md)
  `NFSC News`
 
+#### [DEI价格暴跌新闻：UST之后另一个加密稳定币崩盘](/content/gnews/2560784.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [樱花时政┃哈德逊研究所成立新中国中心 美国坚定推进灭共战略](/content/gnews/2560675.md)
  `东京樱花团Tokyo Sakura Group`
 
@@ -121,9 +127,6 @@
 
 #### [清零政策背后，中共防疫产业链利益巨大](/content/gnews/2560338.md)
  `墨尔本雅典娜农场`
-
-#### [大直播后记：量子电脑和生物电脑改变人类](/content/gnews/2560193.md)
- `雅典娜GNotes`
 
 #### [中日财经爆┃华盛顿掌握着俄罗斯主权违约的关键](/content/gnews/2559385.md)
  `东京樱花团Tokyo Sakura Group`
@@ -154,9 +157,6 @@
 
 #### [救援前线战友温馨庆祝生日](/content/gnews/2556601.md)
  `NFSC News`
-
-#### [伪类噩梦开启&#8212;-中共间谍与国安在美被起诉](/content/gnews/2556526.md)
- `新西兰伊甸农场听写编辑组`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
