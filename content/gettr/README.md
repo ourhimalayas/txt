@@ -10,11 +10,31 @@
 
 ---
 
+[@miles 5/20/2022 12:56 AM UTC  - :tv:直播](/content/gettr/p1ahglgcc84.md)
+
+G|FASHION 新款即将上线
+
+G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
+
+👏👏👏💕💕💕🎉🎉🎉
+
+<img src="https://media.gettr.com/group30/getter/2022/05/20/00/34773244-ab3b-815f-66f6-c7df702d87f4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 12:32 AM UTC  - 6圖](/content/gettr/p1aiasi63dc.md)
 
 2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part II) @gfashion @DDNYC @cornfieldsis
 
 <img src="https://media.gettr.com/group32/getter/2022/05/20/00/1e2153cb-ef54-ddf9-8cc8-6ecf9286c0fd/feafd8b7352d0fa01cc9fc303d538d6d.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 12:34 AM UTC  - 6圖](/content/gettr/p1aifhf36c8.md)
+
+2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part III) @gfashion @DDNYC @cornfieldsis
+
+<img src="https://media.gettr.com/group21/getter/2022/05/20/00/1775042c-cc6e-2217-9b63-b2360821103c/bab7364dde97c7b1f1aef483702c3ab9.jpg" width="506" height="284">
 
 ---
 
@@ -143,22 +163,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 2022.05.19 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
 <img src="https://media.gettr.com/group38/origin/2022/05/19/07/a6932666-11c9-3fae-7172-b6f2d4da49ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 5:21 AM UTC  - :tv:直播](/content/gettr/p1aekin3994.md)
-
-5/18/2022 Miles Guo: The creation of digital currency is to challenge the US dollar and eliminate fiat currency. Any digital currency under the long-arm statute of the US dollar can't replace Bitcoin. Although ETH will get stronger...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/19/05/a037cc59-dac0-8512-2d53-7f7a185d040a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 12:34 AM UTC  - 6圖](/content/gettr/p1aifhf36c8.md)
-
-2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part III) @gfashion @DDNYC @cornfieldsis
-
-<img src="https://media.gettr.com/group21/getter/2022/05/20/00/1775042c-cc6e-2217-9b63-b2360821103c/bab7364dde97c7b1f1aef483702c3ab9.jpg" width="506" height="284">
 
 ---
 
