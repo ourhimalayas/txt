@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p1ajb799348.md)
+
+2022.05.20  新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group27/origin/2022/05/20/04/4d24f6dc-8d98-b0c7-388b-db6ec9186dbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 4:14 AM UTC  - :tv:直播](/content/gettr/p1aj1ev4e10.md)
 
 5/19/2022 Miles Guo: Steve Wynn DOJ case caused huge impact in the CCP political circular and there are various of explanations; did Xi Jinping really order Meng Jianzhu, Wang Qishan and Sun Lijun to have Steve Wynn convinced Presi...
@@ -62,11 +70,11 @@
 
 ---
 
-[@miles 5/20/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p1ajb799348.md)
+[@miles 5/20/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1ajdoo2551.md)
 
-2022.05.20  新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+2022.05.20 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group27/origin/2022/05/20/04/4d24f6dc-8d98-b0c7-388b-db6ec9186dbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/05/20/07/6e6126fb-0565-64d8-6e67-63440b9e9d97/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism destroyed human will and creativity. It's basically rewarded the lack of creativity in people and rewarded people to just follow orders. He said if we don...
 
 <img src="https://media.gettr.com/group34/origin/2022/05/19/23/000fa032-b579-daa0-277f-b270007a657f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1ahex75774.md)
-
-2022年5月19日 七哥吃播乱聊
-
-<img src="https://media.gettr.com/group47/origin/2022/05/19/22/56e835e2-0b04-dbce-a910-35d47a8c7353/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
