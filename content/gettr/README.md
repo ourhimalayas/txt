@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/19/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ahox8140a.md)
+
+5/18/2022 Miles Guo: Himalaya Exchange issues one Himalaya Dollar only if there is one dollar in the bank account. So, the Himalaya Dollar's value is always 1-to-1 to the US dollar under any circumstances. 20% of the investors' mon...
+
+<img src="https://media.gettr.com/group10/getter/2022/05/19/23/36778f1c-21e6-4add-d7a0-2e6eb59fe72a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1ahwr79dfc.md)
 
 Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism destroyed human will and creativity. It's basically rewarded the lack of creativity in people and rewarded people to just follow orders. He said if we don...
@@ -134,11 +142,11 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 
 ---
 
-[@miles 5/19/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ahox8140a.md)
+[@miles 5/20/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1ahtjo9baf.md)
 
-5/18/2022 Miles Guo: Himalaya Exchange issues one Himalaya Dollar only if there is one dollar in the bank account. So, the Himalaya Dollar's value is always 1-to-1 to the US dollar under any circumstances. 20% of the investors' mon...
+05/18/2022 Miles Guo: The Republican Party will surely win the midterm elections this November! The U.S. Congress will definitely find out the motives behind all the lawsuits against me. It will be the time to show the truth of our...
 
-<img src="https://media.gettr.com/group10/getter/2022/05/19/23/36778f1c-21e6-4add-d7a0-2e6eb59fe72a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/05/20/00/ebf9c098-91e0-a25a-f7f0-11fd1a83d568/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,18 +163,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 【Ukraine Rescue】 05/17/2022 Adam, a volunteer from the US, says: The Chinese Communist regime has blood on its hands, but too many American politicians are kowtowing to the CCP, and we should all stand up to it; I truly support wha...
 
 <img src="https://media.gettr.com/group16/getter/2022/05/19/02/2f889b38-58d7-869b-5445-8597506cec3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1adzra549c.md)
-
-路透社：美国司法部本周二起诉永利度假村前首席执行官史蒂夫·永利，指控他在2017年应北京的要求充当中共国代理人并游说时任总统唐纳德·川普，遣返郭文贵先生 
-
-
-
-Reuters: The U.S. Justice Department on this Tuesday sued Steve Wynn, the former CEO of Wynn Resorts, accusing him of acting as a Chinese agent and lo...
-
-<img src="https://media.gettr.com/group38/getter/2022/05/19/02/17a48d48-7d8e-b0df-aaea-cbf60a44eec8/out.jpg" width="506" height="284">
 
 ---
 
