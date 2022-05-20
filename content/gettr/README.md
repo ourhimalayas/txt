@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1ahtjo9baf.md)
+
+05/18/2022 Miles Guo: The Republican Party will surely win the midterm elections this November! The U.S. Congress will definitely find out the motives behind all the lawsuits against me. It will be the time to show the truth of our...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/20/00/ebf9c098-91e0-a25a-f7f0-11fd1a83d568/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/19/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1ahox8140a.md)
 
 5/18/2022 Miles Guo: Himalaya Exchange issues one Himalaya Dollar only if there is one dollar in the bank account. So, the Himalaya Dollar's value is always 1-to-1 to the US dollar under any circumstances. 20% of the investors' mon...
@@ -142,11 +150,11 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 
 ---
 
-[@miles 5/20/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1ahtjo9baf.md)
+[@miles 5/20/2022 12:21 AM UTC  - :tv:直播](/content/gettr/p1ahqzj15c8.md)
 
-05/18/2022 Miles Guo: The Republican Party will surely win the midterm elections this November! The U.S. Congress will definitely find out the motives behind all the lawsuits against me. It will be the time to show the truth of our...
+5/18/2022 Miles Guo: The CCP purposely deprived Hong Kong of its status as the center of global finance, trade and a primary world port, which has led to talent exit and the collapse of its real estate and service industries. It wi...
 
-<img src="https://media.gettr.com/group12/getter/2022/05/20/00/ebf9c098-91e0-a25a-f7f0-11fd1a83d568/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/05/20/00/9a0df3e8-2757-943e-b43a-785a5de1c13d/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 2022-5-18《鸡血王喜币大作战》 第一百九十九集 嘉宾：Nick、封神榜
 
 <img src="https://media.gettr.com/group10/origin/2022/04/23/03/44756be8-3069-d5fa-a3b2-3e40ed1c813d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1ad9qtbe11.md)
-
-【Ukraine Rescue】 05/17/2022 Adam, a volunteer from the US, says: The Chinese Communist regime has blood on its hands, but too many American politicians are kowtowing to the CCP, and we should all stand up to it; I truly support wha...
-
-<img src="https://media.gettr.com/group16/getter/2022/05/19/02/2f889b38-58d7-869b-5445-8597506cec3f/out.jpg" width="506" height="284">
 
 ---
 
