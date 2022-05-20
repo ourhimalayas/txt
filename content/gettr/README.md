@@ -14,6 +14,14 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 
 ---
 
+[@miles 5/20/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1ai9z7f03f.md)
+
+5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
+
+<img src="https://media.gettr.com/group8/getter/2022/05/20/01/a1669a62-df48-be58-9297-9517d39de0e3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1ah32df52a.md)
 
 2022.05.19 晚 新中国联邦 ⎮ 新闻访谈
@@ -22,19 +30,19 @@ G| FASHION 样品将以最优惠的价格只对战友和GClubs会员开放销售
 
 ---
 
-[@miles 5/20/2022 12:30 AM UTC  - 6圖](/content/gettr/p1ai70y1c60.md)
-
-2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part I) @gfashion @DDNYC @cornfieldsis 
-
-<img src="https://media.gettr.com/group9/getter/2022/05/20/00/06bfaeb5-2fea-134e-67e4-480e028ae225/9e1dc864b9beb132465203dc4c21e865.jpg" width="506" height="284">
-
----
-
 [@miles 5/20/2022 1:12 AM UTC  - :tv:直播](/content/gettr/p1aih6n162a.md)
 
 5/19/2022 Miles Guo’s GETTR: Lufax and Ping An Group have been dumping assets in New Zealand; recently many mysterious Chinese rich people returned to CCP China out of the blue; luxury properties from 10 to 100 million dollars are ...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/20/01/ae3519a3-f092-f610-543e-b7a97c730084/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 12:30 AM UTC  - 6圖](/content/gettr/p1ai70y1c60.md)
+
+2022年5月19日 郭先生在直播中试穿G｜Fashion 新款佛教系列产品  （ Part I) @gfashion @DDNYC @cornfieldsis 
+
+<img src="https://media.gettr.com/group9/getter/2022/05/20/00/06bfaeb5-2fea-134e-67e4-480e028ae225/9e1dc864b9beb132465203dc4c21e865.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 5/18/2022 Miles Guo: BSN, the new blockchain platform launched by Wang Qishan, is based upon the technologies of DNA computers, biological computers, and quantum computers in an attempt to control all the blockchains of humanity by...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/19/11/3df512d9-9361-61c1-df53-5508e17bac46/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 8:38 AM UTC  - :tv:直播](/content/gettr/p1ae8yjc59b.md)
-
-2022.05.18 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group11/origin/2022/05/19/08/ed3b9321-3e41-5143-493b-d51ca608d238/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
