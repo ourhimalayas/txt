@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/20/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1aisgu2d4b.md)
+
+2022-5-19《喜币大作战》——狂赌之渊 （第200期特别版） 嘉宾：青藤、Nick
+
+<img src="https://media.gettr.com/group50/origin/2022/05/20/03/c999ae88-aef2-e553-4ae9-9359bc771a59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 2:43 AM UTC  - :tv:直播](/content/gettr/p1aic7ef546.md)
 
 5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
@@ -32,11 +40,17 @@
 
 ---
 
-[@miles 5/20/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1aisgu2d4b.md)
+[@miles 5/20/2022 3:26 AM UTC  - :tv:直播](/content/gettr/p1ainayfb26.md)
 
-2022-5-19《喜币大作战》——狂赌之渊 （第200期特别版） 嘉宾：青藤、Nick
+5/18/2022 文贵直播：我们会通过币安和泰达币找出中共对西方的经济和法律超限战的证据
 
-<img src="https://media.gettr.com/group50/origin/2022/05/20/03/c999ae88-aef2-e553-4ae9-9359bc771a59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+5/18/2022 We will find the evidence about the CCP's economic unrestricted warfare and unrestricted lawfare against the West via Binance and Tether.
+
+
+
+<img src="https://media.gettr.com/group48/getter/2022/05/20/03/b10f7ec2-d02e-5441-6d50-922f49129c32/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +179,6 @@ Nicole is interviewing Adam, a volunteer from the US. Adam agreed: communism des
 2022-5-19 《避风港》（49）新冠疫苗公司犯有欺诈罪
 
 <img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/19/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1af6c472bc.md)
-
-2022.05.19 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group43/origin/2022/05/19/17/6f83a8a4-820e-2d03-7458-6609d874d83b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
