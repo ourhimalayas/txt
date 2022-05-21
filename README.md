@@ -11,7 +11,25 @@
 
 ---
 
+#### [加州允许12岁儿童不经父母同意接种疫苗的法案在州参议院获得通过](/content/gnews/2571519.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [美国指责俄将粮食武器化挟全球供应为“人质”](/content/gnews/2571517.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [COVID-19疫苗副作用集萃（2022.5.21E）打完康希诺疫苗后续](/content/gnews/2571516.md)
+ `墨尔本雅典娜农场`
+
+#### [巴西，总统贾尔·博尔索纳罗说他不会签署任何世卫组织的大流行病条约](/content/gnews/2571482.md)
+ `Tokyo Sakura Video Group`
+
 #### [领导就是法律](/content/gnews/2571472.md)
+ `Tokyo Sakura Video Group`
+
+#### [报道称，中共国领导人习近平患有脑动脉瘤](/content/gnews/2571451.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [武汉面积最大的烂尾楼，烂尾14年没人敢接手](/content/gnews/2571450.md)
  `Tokyo Sakura Video Group`
 
 #### [马里乌波尔保卫战之英雄的亚速钢铁厂（上）](/content/gnews/2571426.md)
@@ -19,6 +37,9 @@
 
 #### [5月20日上海网传一个区爆600例，复工遥遥无期](/content/gnews/2571419.md)
  `Tokyo Sakura Video Group`
+
+#### [秘翻新闻｜中共国阻人钱外流 为闭关锁国](/content/gnews/2571401.md)
+ `秘密翻译组-即时新闻播报组`
 
 #### [5月16日起，天津当局将北辰区市民拉走隔离](/content/gnews/2571397.md)
  `Tokyo Sakura Video Group`
@@ -41,11 +62,20 @@
 #### [俄关闭加拿大广播公司莫斯科分社](/content/gnews/2571298.md)
  `扬帆枫叶快讯`
 
-#### [美国首例猴痘病患者最近曾到加拿大旅游](/content/gnews/2571297.md)
- `扬帆枫叶快讯`
+#### [英央行警告：全球粮食短缺 “世界末日”将至](/content/gnews/2571196.md)
+ `NFSC News`
 
-#### [加拿大计划派船运输乌克兰小麦](/content/gnews/2571295.md)
- `扬帆枫叶快讯`
+#### [布林肯宣布向乌克兰提供2.15亿美元紧急粮食援助](/content/gnews/2571195.md)
+ `NFSC News`
+
+#### [美参议院通过400亿美元援乌法案 并计划援助反舰导弹](/content/gnews/2571194.md)
+ `NFSC News`
+
+#### [美国总统拜登出访韩国、日本 警告中共](/content/gnews/2571193.md)
+ `NFSC News`
+
+#### [日媒记者亲身感受被中共逐步剥夺自由](/content/gnews/2571192.md)
+ `NFSC News`
 
 #### [乌克兰泽连斯基提议就俄罗斯赔偿问题达成正式协议](/content/gnews/2571187.md)
  `墨尔本雅典娜农场`
@@ -71,35 +101,20 @@
 #### [秘翻在线：将中国共产党从美国大学中踢出去](/content/gnews/2570931.md)
  `秘密翻譯組G-Translators`
 
-#### [乌军上演敌后奇袭 临敌仅100公尺偷走俄军装甲车](/content/gnews/2570904.md)
- `TokyoSakura Politics/樱花时政`
-
 #### [美国经济增速可能自1976年以来首次超过中共国](/content/gnews/2570843.md)
  `墨尔本雅典娜农场`
 
 #### [世界卫生组织周五召开紧急会议讨论欧洲猴痘病例](/content/gnews/2570766.md)
  `秘密翻译组-原创组`
 
-#### [欧洲猴痘感染超百人 WHO召开紧急会议](/content/gnews/2570526.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [德国拳击手在拳击比赛中因心梗死亡](/content/gnews/2570525.md)
- `mayflowertranslate`
-
 #### [樱花时政&#124;乌克兰难民撤离日本超1000人，挑战如何长期应对](/content/gnews/2570509.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [COVID-19疫苗副作用集萃（2022.5.21D）科兴疫苗副作用](/content/gnews/2570470.md)
- `墨尔本雅典娜农场`
 
 #### [有意退出与中合作 捷克外长：承诺10年都未达成](/content/gnews/2570465.md)
  `东京樱花团`
 
 #### [美国担心中共国新疆的访问受限制 批评联合国人权专员的保持沉默](/content/gnews/2570464.md)
  `东京樱花团`
-
-#### [美国参议院以压倒性优势批准了400 亿美元的乌克兰援助](/content/gnews/2570442.md)
- `墨尔本雅典娜农场`
 
 #### [中日财经爆&#124;中共国4月进口沙特石油增长38%，而俄罗斯天然气暴增80%](/content/gnews/2569966.md)
  `东京樱花团`
@@ -131,9 +146,6 @@
 #### [上海解封后人们疯狂逃离，不再相信政府](/content/gnews/2569235.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [“放我出去！”——上海封城期间一豪华饭店住客被困近2个月](/content/gnews/2569216.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [双重加倍&#8212;-美驻乌大使馆重启同日参议院确认新大使](/content/gnews/2569042.md)
  `新西兰伊甸农场听写编辑组`
 
@@ -142,18 +154,6 @@
 
 #### [美议员们要求拜登将俄罗斯列为支持恐怖主义国家](/content/gnews/2569035.md)
  `日本东京方舟农场`
-
-#### [【秘翻在线】道琼斯指数连续8周收盘下跌—自1923年以来从未发生过](/content/gnews/2568941.md)
- `秘密翻譯組G-Translators`
-
-#### [泽连斯基称俄罗斯启用激光武器 败局已定](/content/gnews/2568554.md)
- `NFSC News`
-
-#### [联合国秘书长警告大规模饥荒迫在眉睫](/content/gnews/2568522.md)
- `NFSC News`
-
-#### [杭州金沙湖地铁站突现大水漫灌](/content/gnews/2568499.md)
- `NFSC News`
 
 #### [拜登亚洲行 团结盟友应对中共](/content/gnews/2567358.md)
  `TokyoSakura Politics/樱花时政`
