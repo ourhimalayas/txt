@@ -11,6 +11,27 @@
 
 ---
 
+#### [每日快报：中共国悄悄地增加购买廉价的俄罗斯石油](/content/gnews/2570050.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [视频&#124;美国总统拜登出访韩国、日本 警告中共](/content/gnews/2570045.md)
+ `MOSVIDEO`
+
+#### [拜登政府预定了1.19亿美元的猴痘疫苗](/content/gnews/2570025.md)
+ `秘密翻譯組G-Translators`
+
+#### [【樱话】泰达币和币安是共产党用来促进数字人民币国际化的金融工具](/content/gnews/2570008.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;美参议院通过400亿美元援乌法案 并计划援助反舰导弹](/content/gnews/2569987.md)
+ `MOSVIDEO`
+
+#### [【樱话】胡锦涛和曾庆红联手推举李克强和汪洋上中共总书记之位](/content/gnews/2569974.md)
+ `TokyoSakuraDesignGroup`
+
+#### [欧洲猴痘感染超百人 WHO召开紧急会议](/content/gnews/2569973.md)
+ `东京樱花团`
+
 #### [中日财经爆&#124;中共国4月进口沙特石油增长38%，而俄罗斯天然气暴增80%](/content/gnews/2569966.md)
  `东京樱花团`
 
@@ -26,20 +47,8 @@
 #### [2022年5月20日郭先生盖特 — 视频1「4分37秒」](/content/gnews/2569941.md)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-#### [【樱话】美国将用先进反舰导弹武装乌克兰以对抗俄罗斯的海上封锁](/content/gnews/2569929.md)
- `TokyoSakuraDesignGroup`
-
 #### [2022/05/20 英喜时事速递](/content/gnews/2569909.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [币圈新闻动态：喜币（HCN）价格目前在44.332 HDO](/content/gnews/2569899.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [G7宣布向乌克兰提供近200亿美元财政援助](/content/gnews/2569787.md)
- `秘密翻譯組G-Translators`
-
-#### [加拿大禁止华为进入5G网络](/content/gnews/2569776.md)
- `澳喜农场`
 
 #### [WHO召开紧急会议讨论非洲之外出现的百例猴痘病例](/content/gnews/2569755.md)
  `澳喜农场`
@@ -59,14 +68,11 @@
 #### [视频&#124;郭文贵先生揭露斯蒂夫·永利牵出中共深层内幕](/content/gnews/2569713.md)
  `MOSVIDEO`
 
-#### [视频&#124;新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2569712.md)
- `MOSVIDEO`
-
 #### [2018年10月28日 郭文贵先生直播 全文字版](/content/gnews/2569708.md)
  `温哥华扬帆农场《文贵大直播》全文听写组`
 
-#### [视频&#124;布林肯宣布向乌克兰提供2.15亿美元紧急粮食援助](/content/gnews/2569701.md)
- `MOSVIDEO`
+#### [首访韩国的拜登总统直奔三星半导体工厂](/content/gnews/2569598.md)
+ `东京樱花团`
 
 #### [美国对联合国人权高专受限访问新疆深表关切](/content/gnews/2569561.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -91,9 +97,6 @@
 
 #### [加州台湾教会枪击案不到一周，中共就开始继续威胁台湾](/content/gnews/2569397.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [美国志愿者鼓励新中国联邦人保持坚强，继续和平地战斗](/content/gnews/2569393.md)
- `墨尔本雅典娜农场`
 
 #### [【秘翻在线】俄罗斯将允许40岁以上的俄罗斯人报名参军](/content/gnews/2569377.md)
  `秘密翻譯組G-Translators`
@@ -130,9 +133,6 @@
 
 #### [樱花时政&#124;上海一居委會書記被割喉](/content/gnews/2568878.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [COVID-19疫苗副作用集萃（2022.5.21B）安徽智飞第三针胳膊肿](/content/gnews/2568718.md)
- `墨尔本雅典娜农场`
 
 #### [泽连斯基称俄罗斯启用激光武器 败局已定](/content/gnews/2568554.md)
  `NFSC News`
