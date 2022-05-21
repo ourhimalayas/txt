@@ -2,8 +2,17 @@
 ---
 
 
+#### [拜登亚洲之行是加强亚洲军事盟友的大好机会](/content/gnews/2569125.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [斯里兰卡经济危机恶化，央行宣布债务违约](/content/gnews/2569099.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
 #### [5月19日七哥乱聊（图片1-5）](/content/gnews/2569064.md)
  `波士顿五月花农场`
+
+#### [【 蓝枫法律 】遗嘱案例之心愿](/content/gnews/2569053.md)
+ `加拿大温哥华扬帆农场蓝枫法律`
 
 #### [双重加倍&#8212;-美驻乌大使馆重启同日参议院确认新大使](/content/gnews/2569042.md)
  `新西兰伊甸农场听写编辑组`
@@ -38,20 +47,11 @@
 #### [乔·拜登宣布：美国全面、彻底、完全支持瑞典和芬兰加入北约](/content/gnews/2568939.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [乔·拜登称，今天的世界局势从未让北约变得如此重要](/content/gnews/2568930.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [【G时新闻】加拿大批准瑞典和芬兰加入北约](/content/gnews/2568929.md)
  `G-时新闻`
 
 #### [儿童严重肝炎可能与冠状病毒有关](/content/gnews/2568928.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [有声&#124;美国机长因接种毒疫苗引发心脏骤停](/content/gnews/2568918.md)
- `MOSREC`
-
-#### [有声&#124;中共是港币与美元脱钩的罪魁祸首](/content/gnews/2568917.md)
- `MOSREC`
 
 #### [樱花时政&#124;上海一居委會書記被割喉](/content/gnews/2568878.md)
  `TokyoSakura Politics/樱花时政`
