@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/21/2022 2:47 PM UTC  - :tv:直播](/content/gettr/p1ap82ad66e.md)
+
+新中国联邦｜真人真事 第54期   新西兰伊甸农场  Tex       For English: https://gettr.com/streaming/p1apj0m828e
+
+<img src="https://media.gettr.com/group18/origin/2022/05/21/14/588b853b-25eb-e51a-39f4-bebb1308e99e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 2:39 PM UTC  - :tv:直播](/content/gettr/p1apmbfc4a2.md)
 
 5月21号：尊敬的战友们好……共产党在中国搞得政治清零运动💪是有史以来对人权．人性．的一次巨大的灾难性的考验，震惊了世界中国人的忍耐．和懦弱．和无知．将刷新全世界对中国人民的认知．中国人将从东亚病夫……改为东亚懦夫……
@@ -110,11 +118,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 2:47 PM UTC  - :tv:直播](/content/gettr/p1ap82ad66e.md)
+[@miles 5/21/2022 5:43 PM UTC  - :tv:直播](/content/gettr/p1aqmhha05f.md)
 
-新中国联邦｜真人真事 第54期   新西兰伊甸农场  Tex       For English: https://gettr.com/streaming/p1apj0m828e
+2022.05.21 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group18/origin/2022/05/21/14/588b853b-25eb-e51a-39f4-bebb1308e99e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/05/21/17/7276041a-1479-73f6-8d01-c4021284e270/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
 5/20/2022 Miles Guo’s GETTR: Those who are unvaccinated against COVID and own the Himalaya Coin are marvelous! It’s said that the World Health Organization may categorize those who didn’t take the COVID jabs as a special healthy gr...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/20/23/aad84b10-4ae4-5e62-3e4d-0960a13d6d75/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1amm3a102f.md)
-
-5/19/2022 Miles Guo: Hu Jintao and Zeng Qinghong suggested that Xi could keep being the President of PRC, but he would have to step down from his position as the General Secretary of the CCP, with Li Keqing and Wang Yang being prop...
-
-<img src="https://media.gettr.com/group22/getter/2022/05/20/23/599888ba-0052-d2ca-204c-d554a4e7e02b/out.jpg" width="506" height="284">
 
 ---
 
