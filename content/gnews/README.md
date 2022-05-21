@@ -2,6 +2,27 @@
 ---
 
 
+#### [【G时新闻】加拿大禁止华为和中兴通讯进入5G网络领域](/content/gnews/2568967.md)
+ `G-时新闻`
+
+#### [埃隆·马斯克继续爆光推特90%为假账号](/content/gnews/2568966.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【秘翻在线】道琼斯指数连续8周收盘下跌—自1923年以来从未发生过](/content/gnews/2568941.md)
+ `秘密翻譯組G-Translators`
+
+#### [乔·拜登宣布：美国全面、彻底、完全支持瑞典和芬兰加入北约](/content/gnews/2568939.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [乔·拜登称，今天的世界局势从未让北约变得如此重要](/content/gnews/2568930.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【G时新闻】加拿大批准瑞典和芬兰加入北约](/content/gnews/2568929.md)
+ `G-时新闻`
+
+#### [儿童严重肝炎可能与冠状病毒有关](/content/gnews/2568928.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [有声&#124;斯蒂芬·永利案开启爆料革命新篇章](/content/gnews/2568919.md)
  `MOSREC`
 
@@ -32,23 +53,17 @@
 #### [加拿大保守党调查党内种族主义邮件](/content/gnews/2568794.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [有声&#124;新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月18日晚](/content/gnews/2568736.md)
- `MOSREC`
-
 #### [COVID-19疫苗副作用集萃（2022.5.21B）安徽智飞第三针胳膊肿](/content/gnews/2568718.md)
  `墨尔本雅典娜农场`
-
-#### [班农先生表示：只有中国人民才能解放中国，但是我们会提供任何可能的帮助](/content/gnews/2568707.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [有声&#124;郭先生灭共的心路历程—老照片篇（四）](/content/gnews/2568691.md)
- `MOSREC`
 
 #### [当其他国家远离俄罗斯的石油时，中共国囤积廉价石油](/content/gnews/2568624.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [COVID-19疫苗副作用集萃（2022.5.21）辉瑞第三针副作用](/content/gnews/2568616.md)
  `墨尔本雅典娜农场`
+
+#### [俄罗斯将于周六停止向芬兰输送天然气](/content/gnews/2568614.md)
+ `蓝莲花农场`
 
 #### [泽连斯基称俄罗斯启用激光武器 败局已定](/content/gnews/2568554.md)
  `NFSC News`
@@ -62,14 +77,8 @@
 #### [杭州金沙湖地铁站突现大水漫灌](/content/gnews/2568499.md)
  `NFSC News`
 
-#### [以色列爆料：中共向铁哥们暗中下狠手](/content/gnews/2568486.md)
- `TokyoSakura Politics/樱花时政`
-
 #### [谈古论今 ┃ 疫苗灾难——Dr. Tenpenny博士如是说](/content/gnews/2568441.md)
  `WJ77`
-
-#### [拜登总统：作为总统的第一次亚洲之行](/content/gnews/2568403.md)
- `美国政要直译推`
 
 #### [五月花简报（2022/05/20）](/content/gnews/2568170.md)
  `mayflowertranslate`
@@ -125,9 +134,6 @@
 #### [中共为规避欧美制裁疯狂抛售海外资产](/content/gnews/2563240.md)
  `NFSC News`
 
-#### [量子电脑和生物科技将改变人类的一切](/content/gnews/2563226.md)
- `NFSC News`
-
 #### [文编&#124;好人的标准：诚实、善良、勇敢、无私](/content/gnews/2559767.md)
  `KarmaLabs`
 
@@ -135,12 +141,6 @@
  `KarmaLabs`
 
 #### [文编&#124;俄罗斯解体宿命已经注定，普京将或死或废](/content/gnews/2559671.md)
- `KarmaLabs`
-
-#### [文编&#124;人类历史上极少出现股债双杀，数字货币时代一定会到来](/content/gnews/2559640.md)
- `KarmaLabs`
-
-#### [文编&#124;G-CLUBS是诺亚方舟相互认定的密码和钥匙](/content/gnews/2559550.md)
  `KarmaLabs`
 
 #### [中日财经爆┃华盛顿掌握着俄罗斯主权违约的关键](/content/gnews/2559385.md)
