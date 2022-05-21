@@ -2,11 +2,29 @@
 ---
 
 
+#### [【福州防控演习】](/content/gnews/2570159.md)
+ `SpicyWorld`
+
+#### [视频&#124;泽连斯基称俄罗斯启用激光武器 败局已定](/content/gnews/2570158.md)
+ `MOSVIDEO`
+
+#### [视频&#124;联合国秘书长警告大规模饥荒迫在眉睫](/content/gnews/2570152.md)
+ `MOSVIDEO`
+
+#### [视频&#124;杭州金沙湖地铁站突现大水漫灌](/content/gnews/2570145.md)
+ `MOSVIDEO`
+
+#### [视频&#124;继往开来 珍惜当下](/content/gnews/2570139.md)
+ `MOSVIDEO`
+
 #### [视频&#124;中共掌控的数字货币将成为灭共的证据和工具](/content/gnews/2570127.md)
  `MOSVIDEO`
 
 #### [视频&#124;中共为规避欧美制裁疯狂抛售海外资产](/content/gnews/2570116.md)
  `MOSVIDEO`
+
+#### [【疫核团 7】](/content/gnews/2570113.md)
+ `SpicyWorld`
 
 #### [【离谱】](/content/gnews/2570112.md)
  `SpicyWorld`
@@ -17,25 +35,7 @@
 #### [俄罗斯声称已经完全控制了马里乌波尔](/content/gnews/2570087.md)
  `墨尔本雅典娜农场`
 
-#### [视频&#124;日媒记者亲身感受被中共逐步剥夺自由](/content/gnews/2570085.md)
- `MOSVIDEO`
-
 #### [视频&#124;量子电脑和生物科技将改变人类的一切](/content/gnews/2570080.md)
- `MOSVIDEO`
-
-#### [每日快报：中共国悄悄地增加购买廉价的俄罗斯石油](/content/gnews/2570050.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [视频&#124;美国总统拜登出访韩国、日本 警告中共](/content/gnews/2570045.md)
- `MOSVIDEO`
-
-#### [拜登政府预定了1.19亿美元的猴痘疫苗](/content/gnews/2570025.md)
- `秘密翻譯組G-Translators`
-
-#### [【樱话】泰达币和币安是共产党用来促进数字人民币国际化的金融工具](/content/gnews/2570008.md)
- `TokyoSakuraDesignGroup`
-
-#### [视频&#124;美参议院通过400亿美元援乌法案 并计划援助反舰导弹](/content/gnews/2569987.md)
  `MOSVIDEO`
 
 #### [欧洲猴痘感染超百人 WHO召开紧急会议](/content/gnews/2569973.md)
