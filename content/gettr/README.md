@@ -10,6 +10,24 @@
 
 ---
 
+[@miles 5/21/2022 12:34 AM UTC ](/content/gettr/p1amorx5ccd.md)
+
+05/20/2022 on the 32nd day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+
+No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 32 Consecutive Days
+
+No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
+
+---
+
+[@miles 5/21/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1anay4a73d.md)
+
+【Ukraine Rescue】 05/19/2022 Steve Bannon: Every day, you're showing people something, a new China and a new Chinese. And it's so powerful. And the Chinese Communist Party is coming apart because of the relentless Miles and the peop...
+
+<img src="https://media.gettr.com/group20/getter/2022/05/21/00/5a507d1d-7579-1e2a-aaa5-cec65299d241/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/20/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1amqc17ef3.md)
 
 5/20/2022 Miles Guo’s GETTR: Those who are unvaccinated against COVID and own the Himalaya Coin are marvelous! It’s said that the World Health Organization may categorize those who didn’t take the COVID jabs as a special healthy gr...
@@ -23,14 +41,6 @@
 5/20/2022 Miles Guo’s GETTR: The world is changing dramatically. The Chinese Communist Party is threatening the West by weaponizing its domestic economic and financial crises. On one hand, the US will reduce tariffs for the CCP, on...
 
 <img src="https://media.gettr.com/group16/getter/2022/05/20/23/4ea809e6-3f38-ec66-2457-c0a11e394e4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1anay4a73d.md)
-
-【Ukraine Rescue】 05/19/2022 Steve Bannon: Every day, you're showing people something, a new China and a new Chinese. And it's so powerful. And the Chinese Communist Party is coming apart because of the relentless Miles and the peop...
-
-<img src="https://media.gettr.com/group20/getter/2022/05/21/00/5a507d1d-7579-1e2a-aaa5-cec65299d241/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ Day 75 - Date: Ma...
 
 
 <img src="https://media.gettr.com/group48/getter/2022/05/20/03/b10f7ec2-d02e-5441-6d50-922f49129c32/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1aisgu2d4b.md)
-
-2022-5-19《喜币大作战》——狂赌之渊 （第200期特别版） 嘉宾：青藤、Nick
-
-<img src="https://media.gettr.com/group50/origin/2022/05/20/03/c999ae88-aef2-e553-4ae9-9359bc771a59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
