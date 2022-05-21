@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/21/2022 1:01 PM UTC  - :tv:直播](/content/gettr/p1apumx8631.md)
+
+20.15 22.05.21 早  新中国联邦 | 新闻访谈
+
+<img src="https://media.gettr.com/group43/origin/2022/05/21/12/4e1388ee-7075-4793-62ce-85379dccae18/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1aplof5503.md)
 
 2022.05.21 早  新中国联邦 | 新闻
@@ -94,11 +102,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 1:01 PM UTC  - :tv:直播](/content/gettr/p1apumx8631.md)
+[@miles 5/21/2022 2:39 PM UTC  - :tv:直播](/content/gettr/p1apmbfc4a2.md)
 
-20.15 22.05.21 早  新中国联邦 | 新闻访谈
+5月21号：尊敬的战友们好……共产党在中国搞得政治清零运动💪是有史以来对人权．人性．的一次巨大的灾难性的考验，震惊了世界中国人的忍耐．和懦弱．和无知．将刷新全世界对中国人民的认知．中国人将从东亚病夫……改为东亚懦夫……
 
-<img src="https://media.gettr.com/group43/origin/2022/05/21/12/4e1388ee-7075-4793-62ce-85379dccae18/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/05/21/14/c162b1a8-90a5-8902-af7b-9d9c1384c4d3/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
 5/19/2022 Miles Guo: Hu Jintao and Zeng Qinghong suggested that Xi could keep being the President of PRC, but he would have to step down from his position as the General Secretary of the CCP, with Li Keqing and Wang Yang being prop...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/20/23/599888ba-0052-d2ca-204c-d554a4e7e02b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1amp00fbc2.md)
-
-5/19/2022 Miles Guo: Xi Jinping realized he was fooled by Meng Jianzhu, Wang Qishan, Fu Zhenghua and Sun Lijun in 2019, and started investigations into these people; Meng, Wang and Fu took advantage of Xi to get rid of their own en...
-
-<img src="https://media.gettr.com/group16/getter/2022/05/20/23/c08f6780-8b42-482d-65ac-58386ffe9111/out.jpg" width="506" height="284">
 
 ---
 
