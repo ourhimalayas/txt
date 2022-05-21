@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/21/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1anpdk6871.md)
+
+ 5月20日：今天的中国人．我国社会和中国人的思想境界，文明程度．比这个视频中还惨……
+
+<img src="https://media.gettr.com/group38/getter/2022/05/21/02/e3b90483-1d4d-b9f3-c4a8-bdbf560bdca3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/21/2022 1:54 AM UTC ](/content/gettr/p1an5on0485.md)
+
+5月20日：真好听……
+
+---
+
 [@miles 5/21/2022 1:15 AM UTC  - :tv:直播](/content/gettr/p1anfqud1a7.md)
 
 【Ukrainian Rescue】05/19/2022 Our fellow fighters Nina and King come across Kateryna, an Ukrainian woman who’s returning to her home country. She expresses that war brings sorrow to humans, families and countries, forcing her to sep...
@@ -10,9 +24,11 @@
 
 ---
 
-[@miles 5/21/2022 1:54 AM UTC ](/content/gettr/p1an5on0485.md)
+[@miles 5/21/2022 2:07 AM UTC  - :tv:直播](/content/gettr/p1anl56574f.md)
 
-5月20日：真好听……
+2022.05.20  新中国联邦 | 喜财经 
+
+<img src="https://media.gettr.com/group25/origin/2022/05/21/01/462b238d-66f9-0fca-5e01-58860a060ef7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -138,22 +154,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
 
 ---
 
-[@miles 5/20/2022 8:26 AM UTC  - :tv:直播](/content/gettr/p1aju1q24ea.md)
-
-5/18/2022 What is BSN, the new blockchain platform launched by Wang Qishan?
-
-
-
-5/18/2022 文贵直播：王岐山搞的新区块链平台BSN是什么？
-
-
-
-
-
-<img src="https://media.gettr.com/group48/getter/2022/05/20/08/a9e33ecb-002b-8a95-1f75-ae577bd11458/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/20/2022 8:29 AM UTC ](/content/gettr/p1ajoyj52c0.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -183,14 +183,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 75 - Date: Ma...
 
 <img src="https://media.gettr.com/group12/getter/2022/05/20/08/02df7a76-b13a-c010-812c-3b133bdadea6/14e07340b43862f766776cd6a5c7c882.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1ajdoo2551.md)
-
-2022.05.20 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group6/origin/2022/05/20/07/6e6126fb-0565-64d8-6e67-63440b9e9d97/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
