@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/21/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p1ar2iofa2f.md)
+
+2022-5-21 《避风港》（50）疫苗接种儿童死亡风险增高300多倍
+
+<img src="https://media.gettr.com/group24/origin/2022/05/21/18/f2f401ec-48ee-558a-a102-e65ebe152331/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 5:43 PM UTC  - :tv:直播](/content/gettr/p1aqmhha05f.md)
 
 2022.05.21 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -126,11 +134,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p1ar2iofa2f.md)
+[@miles 5/21/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1arfmlf4a7.md)
 
-2022-5-21 《避风港》（50）疫苗接种儿童死亡风险增高300多倍
+2022.05.21  新中国联邦 | 喜健康   文曦医生专访
 
-<img src="https://media.gettr.com/group24/origin/2022/05/21/18/f2f401ec-48ee-558a-a102-e65ebe152331/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/05/21/20/1e208af3-a03b-ee98-82e5-ff7c5967ca54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ He said what he wanted was to drive the evil o...
 No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 32 Consecutive Days
 
 No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
-
----
-
-[@miles 5/21/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1amok1f746.md)
-
-【Ukraine Rescue】 05/19/2022 Mr. Bannon states: Only the Chinese people can free China, but we will help in any possible way; progress is done by literacy, and all you are doing is adding to that goal. Nicole calls on certain Wester...
-
-<img src="https://media.gettr.com/group50/getter/2022/05/21/00/ea8898ba-b388-94b7-a2a4-90b3a72ff6a4/out.jpg" width="506" height="284">
 
 ---
 
