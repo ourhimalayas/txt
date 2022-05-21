@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/20/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1an46c174b.md)
+[@miles 5/20/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1amqc17ef3.md)
 
-5/19/2022 Miles Guo: Meng Jianzhu and Wang Qishan had filed reports to Xi Jinping since 2015, making the latter believe that Miles Guo was Ling Wancheng's accomplice and held the private videos and financial information of Xi and h...
+5/20/2022 Miles Guo’s GETTR: Those who are unvaccinated against COVID and own the Himalaya Coin are marvelous! It’s said that the World Health Organization may categorize those who didn’t take the COVID jabs as a special healthy gr...
 
-<img src="https://media.gettr.com/group27/getter/2022/05/20/23/113777da-4aad-aa01-a479-b2e6c08f987d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/05/20/23/aad84b10-4ae4-5e62-3e4d-0960a13d6d75/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 5/19/2022 Miles Guo: Hu Jintao and Zeng Qinghong suggested that Xi could keep being the President of PRC, but he would have to step down from his position as the General Secretary of the CCP, with Li Keqing and Wang Yang being prop...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/20/23/599888ba-0052-d2ca-204c-d554a4e7e02b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1an46c174b.md)
+
+5/19/2022 Miles Guo: Meng Jianzhu and Wang Qishan had filed reports to Xi Jinping since 2015, making the latter believe that Miles Guo was Ling Wancheng's accomplice and held the private videos and financial information of Xi and h...
+
+<img src="https://media.gettr.com/group27/getter/2022/05/20/23/113777da-4aad-aa01-a479-b2e6c08f987d/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,20 +205,6 @@ Day 75 - Date: Ma...
 5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
 
 <img src="https://media.gettr.com/group28/getter/2022/05/20/02/6e048ec1-f937-ecd2-0180-09aeb5baea94/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1aicfp39e4.md)
-
-5/18/2022 Miles Guo: Besieging but not attacking is now the first choice for the CCP to invade Taiwan
-
-
-
-5/18/2022 文贵直播：目前围而不打是中共攻台的首选方案
-
-
-
-<img src="https://media.gettr.com/group24/getter/2022/05/20/02/da94bef1-bca6-6994-59b8-3f44ac4fdd5f/out.jpg" width="506" height="284">
 
 ---
 
