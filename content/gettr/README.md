@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/21/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1armqr3f68.md)
+
+2022.05.21 PM NFSC NEWS  Food Crisis in Communist China is Imminent
+
+<img src="https://media.gettr.com/group10/origin/2022/05/21/22/2353ff66-6020-bbe4-d19e-0cdaf281e325/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1arfmlf4a7.md)
 
 2022.05.21  新中国联邦 | 喜健康   文曦医生专访
@@ -142,11 +150,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1armqr3f68.md)
+[@miles 5/21/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1aqzvr701f.md)
 
-2022.05.21 PM NFSC NEWS  Food Crisis in Communist China is Imminent
+2022.05.21 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
-<img src="https://media.gettr.com/group10/origin/2022/05/21/22/2353ff66-6020-bbe4-d19e-0cdaf281e325/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/21/23/c1c8a75e-ec15-8857-c90c-bf1439f3623e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,16 +185,6 @@ He said what he wanted was to drive the evil o...
 2022.05.20  新中國聯邦｜新聞   郭文貴先生揭露斯蒂夫·永利牽出中共深層內幕；新中國聯邦的目的是消滅中共的體制
 
 <img src="https://media.gettr.com/group40/origin/2022/05/21/01/7feb1c43-7b2b-019a-b93e-b8f24fb94d4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 12:34 AM UTC ](/content/gettr/p1amorx5ccd.md)
-
-05/20/2022 on the 32nd day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
-
-No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 32 Consecutive Days
-
-No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
 
 ---
 
