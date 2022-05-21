@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/20/2022 11:32 PM UTC  - :tv:直播](/content/gettr/p1amezabde6.md)
+[@miles 5/21/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1amok1f746.md)
 
-5/20/2022 Miles Guo’s GETTR: The world is changing dramatically. The Chinese Communist Party is threatening the West by weaponizing its domestic economic and financial crises. On one hand, the US will reduce tariffs for the CCP, on...
+【Ukraine Rescue】 05/19/2022 Mr. Bannon states: Only the Chinese people can free China, but we will help in any possible way; progress is done by literacy, and all you are doing is adding to that goal. Nicole calls on certain Wester...
 
-<img src="https://media.gettr.com/group16/getter/2022/05/20/23/4ea809e6-3f38-ec66-2457-c0a11e394e4d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/05/21/00/ea8898ba-b388-94b7-a2a4-90b3a72ff6a4/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 5/20/2022 Miles Guo’s GETTR: Those who are unvaccinated against COVID and own the Himalaya Coin are marvelous! It’s said that the World Health Organization may categorize those who didn’t take the COVID jabs as a special healthy gr...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/20/23/aad84b10-4ae4-5e62-3e4d-0960a13d6d75/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/20/2022 11:32 PM UTC  - :tv:直播](/content/gettr/p1amezabde6.md)
+
+5/20/2022 Miles Guo’s GETTR: The world is changing dramatically. The Chinese Communist Party is threatening the West by weaponizing its domestic economic and financial crises. On one hand, the US will reduce tariffs for the CCP, on...
+
+<img src="https://media.gettr.com/group16/getter/2022/05/20/23/4ea809e6-3f38-ec66-2457-c0a11e394e4d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/21/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1anay4a73d.md)
+
+【Ukraine Rescue】 05/19/2022 Steve Bannon: Every day, you're showing people something, a new China and a new Chinese. And it's so powerful. And the Chinese Communist Party is coming apart because of the relentless Miles and the peop...
+
+<img src="https://media.gettr.com/group20/getter/2022/05/21/00/5a507d1d-7579-1e2a-aaa5-cec65299d241/out.jpg" width="506" height="284">
 
 ---
 
@@ -63,22 +79,6 @@
 2022年5月20日  俄乌战争战况播报
 
 <img src="https://media.gettr.com/group3/origin/2022/05/20/17/64333d05-fe0d-6379-37ce-00ccd394629e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@cornfieldsis 5/20/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p1algkyde6e.md)
-
-亲爱的战友们好，好消息！ 🤩🤩🥰🥰Hpay 已经升级成功，现在可以在G|Fashion 网页上使用。 谢谢 
-
-
-
-具体如何操作请看以下视频👇
-
-
-
-@gfashion @miles @ddnyc
-
-<img src="https://media.gettr.com/group46/origin/2022/05/20/14/bcb74467-5b13-0abd-eb88-ff27d796856c/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +197,6 @@ Day 75 - Date: Ma...
 2022-5-19《喜币大作战》——狂赌之渊 （第200期特别版） 嘉宾：青藤、Nick
 
 <img src="https://media.gettr.com/group50/origin/2022/05/20/03/c999ae88-aef2-e553-4ae9-9359bc771a59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 2:43 AM UTC  - :tv:直播](/content/gettr/p1aic7ef546.md)
-
-5/19/2022 Miles Guo: In the past 24 hours, the Chinese Communist Party has been dumping stocks in the world and exchanging high-quality assets for the Hong Kong dollar, Swiss Franc, Japanese Yen, and certain currencies in the Middl...
-
-<img src="https://media.gettr.com/group28/getter/2022/05/20/02/6e048ec1-f937-ecd2-0180-09aeb5baea94/out.jpg" width="506" height="284">
 
 ---
 
