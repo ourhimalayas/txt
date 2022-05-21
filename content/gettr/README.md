@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/21/2022 5:06 AM UTC  - :tv:直播](/content/gettr/p1aonpq3ac3.md)
+
+ 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group19/origin/2022/05/21/05/4e998550-775b-ed01-f48a-c0ea3b9a87a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1anh617689.md)
 
 2022-5-20《喜币大作战》——狂赌之渊 （第201期特别版） 嘉宾：青藤、Nick
@@ -30,11 +38,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 5:06 AM UTC  - :tv:直播](/content/gettr/p1aonpq3ac3.md)
+[@miles 5/21/2022 7:51 AM UTC  - :tv:直播](/content/gettr/p1aogxw9298.md)
 
- 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group19/origin/2022/05/21/05/4e998550-775b-ed01-f48a-c0ea3b9a87a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/05/21/07/9b3664bd-87c6-4662-5d8e-ccbc32b5783f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
 2022年5月20日  俄乌战争战况播报
 
 <img src="https://media.gettr.com/group3/origin/2022/05/20/17/64333d05-fe0d-6379-37ce-00ccd394629e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/20/2022 1:59 PM UTC  - :tv:直播](/content/gettr/p1ak3kxec15.md)
-
- 5月20号：尊敬的战友们好．全世界的政治经济正在巨变中，共产党．正试图用中国内部的经济炸弹和脱钩来威胁西方社会．最终会导致加速共产党的灭亡！
-
-<img src="https://media.gettr.com/group37/getter/2022/05/20/13/da0b883e-5c27-da0f-5cc5-91924c2df959/out.jpg" width="506" height="284">
 
 ---
 
