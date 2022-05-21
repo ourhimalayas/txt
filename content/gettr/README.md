@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/21/2022 2:39 PM UTC  - :tv:直播](/content/gettr/p1apmbfc4a2.md)
+
+5月21号：尊敬的战友们好……共产党在中国搞得政治清零运动💪是有史以来对人权．人性．的一次巨大的灾难性的考验，震惊了世界中国人的忍耐．和懦弱．和无知．将刷新全世界对中国人民的认知．中国人将从东亚病夫……改为东亚懦夫……
+
+<img src="https://media.gettr.com/group6/getter/2022/05/21/14/c162b1a8-90a5-8902-af7b-9d9c1384c4d3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 1:01 PM UTC  - :tv:直播](/content/gettr/p1apumx8631.md)
 
 20.15 22.05.21 早  新中国联邦 | 新闻访谈
@@ -102,11 +110,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 2:39 PM UTC  - :tv:直播](/content/gettr/p1apmbfc4a2.md)
+[@miles 5/21/2022 2:47 PM UTC  - :tv:直播](/content/gettr/p1ap82ad66e.md)
 
-5月21号：尊敬的战友们好……共产党在中国搞得政治清零运动💪是有史以来对人权．人性．的一次巨大的灾难性的考验，震惊了世界中国人的忍耐．和懦弱．和无知．将刷新全世界对中国人民的认知．中国人将从东亚病夫……改为东亚懦夫……
+新中国联邦｜真人真事 第54期   新西兰伊甸农场  Tex       For English: https://gettr.com/streaming/p1apj0m828e
 
-<img src="https://media.gettr.com/group6/getter/2022/05/21/14/c162b1a8-90a5-8902-af7b-9d9c1384c4d3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/05/21/14/588b853b-25eb-e51a-39f4-bebb1308e99e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
 5/20/2022 Miles Guo’s GETTR: Those who are unvaccinated against COVID and own the Himalaya Coin are marvelous! It’s said that the World Health Organization may categorize those who didn’t take the COVID jabs as a special healthy gr...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/20/23/aad84b10-4ae4-5e62-3e4d-0960a13d6d75/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 11:32 PM UTC  - :tv:直播](/content/gettr/p1amezabde6.md)
-
-5/20/2022 Miles Guo’s GETTR: The world is changing dramatically. The Chinese Communist Party is threatening the West by weaponizing its domestic economic and financial crises. On one hand, the US will reduce tariffs for the CCP, on...
-
-<img src="https://media.gettr.com/group16/getter/2022/05/20/23/4ea809e6-3f38-ec66-2457-c0a11e394e4d/out.jpg" width="506" height="284">
 
 ---
 
