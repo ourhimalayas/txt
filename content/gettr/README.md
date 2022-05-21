@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/21/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1amok1f746.md)
+[@miles 5/21/2022 1:15 AM UTC  - :tv:直播](/content/gettr/p1anfqud1a7.md)
 
-【Ukraine Rescue】 05/19/2022 Mr. Bannon states: Only the Chinese people can free China, but we will help in any possible way; progress is done by literacy, and all you are doing is adding to that goal. Nicole calls on certain Wester...
+【Ukrainian Rescue】05/19/2022 Our fellow fighters Nina and King come across Kateryna, an Ukrainian woman who’s returning to her home country. She expresses that war brings sorrow to humans, families and countries, forcing her to sep...
 
-<img src="https://media.gettr.com/group50/getter/2022/05/21/00/ea8898ba-b388-94b7-a2a4-90b3a72ff6a4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/05/21/01/2a028ca1-32cf-1035-344c-d0c31338beee/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +17,22 @@
 No.1🥇 on Germany🇩🇪 Top Music Videos Chart for 32 Consecutive Days
 
 No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
+
+---
+
+[@miles 5/21/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1amok1f746.md)
+
+【Ukraine Rescue】 05/19/2022 Mr. Bannon states: Only the Chinese people can free China, but we will help in any possible way; progress is done by literacy, and all you are doing is adding to that goal. Nicole calls on certain Wester...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/21/00/ea8898ba-b388-94b7-a2a4-90b3a72ff6a4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/21/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1an6eacc05.md)
+
+2022.05.20  新中國聯邦｜新聞   郭文貴先生揭露斯蒂夫·永利牽出中共深層內幕；新中國聯邦的目的是消滅中共的體制
+
+<img src="https://media.gettr.com/group40/origin/2022/05/21/01/7feb1c43-7b2b-019a-b93e-b8f24fb94d4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,28 +193,6 @@ Day 75 - Date: Ma...
 2022.05.20  新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group27/origin/2022/05/20/04/4d24f6dc-8d98-b0c7-388b-db6ec9186dbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 4:14 AM UTC  - :tv:直播](/content/gettr/p1aj1ev4e10.md)
-
-5/19/2022 Miles Guo: Steve Wynn DOJ case caused huge impact in the CCP political circular and there are various of explanations; did Xi Jinping really order Meng Jianzhu, Wang Qishan and Sun Lijun to have Steve Wynn convinced Presi...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/20/04/0d74d8a3-f658-8475-b05e-89b3febed66b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 3:26 AM UTC  - :tv:直播](/content/gettr/p1ainayfb26.md)
-
-5/18/2022 文贵直播：我们会通过币安和泰达币找出中共对西方的经济和法律超限战的证据
-
-
-
-5/18/2022 We will find the evidence about the CCP's economic unrestricted warfare and unrestricted lawfare against the West via Binance and Tether.
-
-
-
-<img src="https://media.gettr.com/group48/getter/2022/05/20/03/b10f7ec2-d02e-5441-6d50-922f49129c32/out.jpg" width="506" height="284">
 
 ---
 
