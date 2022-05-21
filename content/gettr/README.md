@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/21/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1aplof5503.md)
+
+2022.05.21 早  新中国联邦 | 新闻
+
+<img src="https://media.gettr.com/group48/origin/2022/05/21/12/be7ef80f-df3a-a38c-4758-67fa254fb32e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1apwjt7bc8.md)
 
 2022.05.21 AM NFSC NEWS
@@ -86,11 +94,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1aplof5503.md)
+[@miles 5/21/2022 1:01 PM UTC  - :tv:直播](/content/gettr/p1apumx8631.md)
 
-2022.05.21 早  新中国联邦 | 新闻
+20.15 22.05.21 早  新中国联邦 | 新闻访谈
 
-<img src="https://media.gettr.com/group48/origin/2022/05/21/12/be7ef80f-df3a-a38c-4758-67fa254fb32e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/21/12/4e1388ee-7075-4793-62ce-85379dccae18/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
 5/19/2022 Miles Guo: Hu Jintao and Zeng Qinghong suggested that Xi could keep being the President of PRC, but he would have to step down from his position as the General Secretary of the CCP, with Li Keqing and Wang Yang being prop...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/20/23/599888ba-0052-d2ca-204c-d554a4e7e02b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1an46c174b.md)
-
-5/19/2022 Miles Guo: Meng Jianzhu and Wang Qishan had filed reports to Xi Jinping since 2015, making the latter believe that Miles Guo was Ling Wancheng's accomplice and held the private videos and financial information of Xi and h...
-
-<img src="https://media.gettr.com/group27/getter/2022/05/20/23/113777da-4aad-aa01-a479-b2e6c08f987d/out.jpg" width="506" height="284">
 
 ---
 
