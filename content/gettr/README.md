@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/21/2022 11:18 AM UTC ](/content/gettr/p1apq7s0c93.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月19日第76天当日救援统计：
+
+Medyka救援站接待：约86人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约21441人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 76 - Date: Ma...
+
+<img src="https://media.gettr.com/group44/getter/2022/05/21/11/88503d5c-a594-47a1-b8c9-587052600f7c/86209014d58b703f2050422c3660cefc.jpg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 7:51 AM UTC  - :tv:直播](/content/gettr/p1aogxw9298.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -46,35 +78,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 11:18 AM UTC ](/content/gettr/p1apq7s0c93.md)
+[@miles 5/21/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1apwjt7bc8.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+2022.05.21 AM NFSC NEWS
 
-
-
-2022年5月19日第76天当日救援统计：
-
-Medyka救援站接待：约86人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21441人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 76 - Date: Ma...
-
-<img src="https://media.gettr.com/group44/getter/2022/05/21/11/88503d5c-a594-47a1-b8c9-587052600f7c/86209014d58b703f2050422c3660cefc.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/05/21/11/4548937e-fbae-e05d-e0a4-9b76c048d8c1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ No.1🥇 on Germany🇩🇪 Pop Music Videos Chart for 32 Consecutive Days...
 2022年05月19日 七哥吃播乱聊
 
 <img src="https://media.gettr.com/group43/origin/2022/05/20/22/9d55ccd7-0fc9-9a36-3636-5d9ef975b7dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/20/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1alsx54ead.md)
-
-2022.05.20  新中国联邦 | 喜健康    八九六四 —— 中国人的集体创伤后遗症 （上）
-
-<img src="https://media.gettr.com/group17/origin/2022/05/20/20/f8520a25-36a8-e0bc-0b86-465672dfbc47/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
