@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/22/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1aroxeb31d.md)
+
+5/21/2022 Miles Guo’s GETTR: Although the CCP gave the shares of Founder Group held by Beijing Zhengquan Holdings to the National Council for Social Security Fund founded by Dai Xianglong, I don’t care about it at all. Because I ha...
+
+<img src="https://media.gettr.com/group5/getter/2022/05/22/00/cf609624-e4cc-b7eb-f0d5-30cabead0faf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/21/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1ardw7b5db.md)
+
+5/21/2022 Miles Guo’s GETTR: The CCP officials who had just been arrested in Beijing confessed the two things they regretted the most. First, they regretted following the CCP. Second, they regretted not taking stronger actions soon...
+
+<img src="https://media.gettr.com/group33/getter/2022/05/21/23/2cc03a53-6633-0712-3965-2508f596c67e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1aqzvr701f.md)
 
 2022.05.21 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -166,25 +182,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1ardw7b5db.md)
-
-5/21/2022 Miles Guo’s GETTR: The CCP officials who had just been arrested in Beijing confessed the two things they regretted the most. First, they regretted following the CCP. Second, they regretted not taking stronger actions soon...
-
-<img src="https://media.gettr.com/group33/getter/2022/05/21/23/2cc03a53-6633-0712-3965-2508f596c67e/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/21/2022 2:07 AM UTC  - :tv:直播](/content/gettr/p1anl56574f.md)
 
 2022.05.20  新中国联邦 | 喜财经 
 
 <img src="https://media.gettr.com/group25/origin/2022/05/21/01/462b238d-66f9-0fca-5e01-58860a060ef7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/21/2022 1:54 AM UTC ](/content/gettr/p1an5on0485.md)
-
-5月20日：真好听……
 
 ---
 
