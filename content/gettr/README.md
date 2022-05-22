@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/22/2022 10:33 PM UTC  - :tv:直播](/content/gettr/p1avh7k81d9.md)
+
+5/22/2022 Miles Guo: Upon illegitimately seizing the power, the CCP started internal political struggles, and what happened to Liu Shaoqi and others reflected how cruel the CCP is. Mao Zedong's Anti-Rightist Campaign pushed the Gre...
+
+<img src="https://media.gettr.com/group29/getter/2022/05/22/22/4213e9c9-04bf-f0ca-e4e6-03f1aac7506d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/22/2022 10:25 PM UTC ](/content/gettr/p1aw0rp771a.md)
 
 Steve  Wynn, an Unregistered Agent of the People’s Republic of China
@@ -138,11 +146,11 @@ Day 77 - Date: M...
 
 ---
 
-[@miles 5/22/2022 10:33 PM UTC  - :tv:直播](/content/gettr/p1avh7k81d9.md)
+[@miles 5/22/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1avvxm6bca.md)
 
-5/22/2022 Miles Guo: Upon illegitimately seizing the power, the CCP started internal political struggles, and what happened to Liu Shaoqi and others reflected how cruel the CCP is. Mao Zedong's Anti-Rightist Campaign pushed the Gre...
+2022.05.22 PM NFSC news   "Chained Dream" MV Topping iTunes Germany for 32 days
 
-<img src="https://media.gettr.com/group29/getter/2022/05/22/22/4213e9c9-04bf-f0ca-e4e6-03f1aac7506d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/05/22/22/d93680d1-4fab-9da1-6a85-10c86b1967e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Day 77 - Date: M...
 5/21/2022 Miles Guo’s GETTR: The CCP officials who had just been arrested in Beijing confessed the two things they regretted the most. First, they regretted following the CCP. Second, they regretted not taking stronger actions soon...
 
 <img src="https://media.gettr.com/group33/getter/2022/05/21/23/2cc03a53-6633-0712-3965-2508f596c67e/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1aqzvr701f.md)
-
-2022.05.21 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-
-<img src="https://media.gettr.com/group43/origin/2022/05/21/23/c1c8a75e-ec15-8857-c90c-bf1439f3623e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
