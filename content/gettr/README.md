@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/22/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p1avl7ce30a.md)
+
+2022.05.21  新中国联邦 | 喜健康   张文宏到底爆了什么料
+
+<img src="https://media.gettr.com/group32/origin/2022/05/22/20/10f13754-bd5e-81b1-24c8-e9f44485a79a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/22/2022 6:55 PM UTC  - :tv:直播](/content/gettr/p1autgc03e6.md)
 
 2022-5-22 ，「将心比心♥️，善良让世界更美好💐」？#小小尼莫音乐会 🎼第十二期，将心比心，换位思考☂️，善良和爱也需要有勇气🌼，有智慧🌷
@@ -90,11 +98,15 @@ Day 77 - Date: M...
 
 ---
 
-[@miles 5/22/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p1avl7ce30a.md)
+[@miles 5/22/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1avt4z4610.md)
 
-2022.05.21  新中国联邦 | 喜健康   张文宏到底爆了什么料
+Mr. Miles Guo talked about the song "Dear Mamma, I Am Ending the CCP" and its significance to the destruction of the CCP on the Mother's Day program "Miles Guo Grand Live " on May 8, 2022.
 
-<img src="https://media.gettr.com/group32/origin/2022/05/22/20/10f13754-bd5e-81b1-24c8-e9f44485a79a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+郭文贵先生在2022年5月8日母亲节《文贵大直播》节目中谈到《Dear Mam...
+
+<img src="https://media.gettr.com/group6/origin/2022/05/22/21/8a086d8b-813b-e87a-f0b5-f82537f66f76/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +187,6 @@ Day 77 - Date: M...
 2022-5-21 《避风港》（50）疫苗接种儿童死亡风险增高300多倍
 
 <img src="https://media.gettr.com/group24/origin/2022/05/21/18/f2f401ec-48ee-558a-a102-e65ebe152331/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 5:43 PM UTC  - :tv:直播](/content/gettr/p1aqmhha05f.md)
-
-2022.05.21 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group9/origin/2022/05/21/17/7276041a-1479-73f6-8d01-c4021284e270/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
