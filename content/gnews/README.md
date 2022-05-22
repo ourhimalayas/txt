@@ -2,6 +2,9 @@
 ---
 
 
+#### [美日澳印四国将启动监视中国非法捕鱼的追踪系统](/content/gnews/2575615.md)
+ `TokyoSakura Politics/樱花时政`
+
 #### [【中共崩盘】](/content/gnews/2575598.md)
  `SpicyWorld`
 
@@ -21,9 +24,6 @@
  `波士顿五月花农场金融部`
 
 #### [七哥如何克服巨大诱惑 坚持长久 战友要互相尊重](/content/gnews/2575529.md)
- `雅典娜GNotes`
-
-#### [喜币的稳定安全性和HDO永不会被挤兑垮](/content/gnews/2575524.md)
  `雅典娜GNotes`
 
 #### [2022年5月21日郭先生盖特 — 视频1「9分47秒」](/content/gnews/2575501.md)
