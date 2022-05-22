@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/21/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1arnu801c8.md)
+
+5/21/2022 Miles Guo’s GETTR: Communist China's zero COVID policy shocked the world, and the people around the world can’t understand why the Chinese people could bear it. My experience in the Qingfeng Detention Center indicates tha...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/21/23/5d600e41-083d-b2c9-1efe-129ce2582dff/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/21/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1aqzvr701f.md)
+
+2022.05.21 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group43/origin/2022/05/21/23/c1c8a75e-ec15-8857-c90c-bf1439f3623e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1armqr3f68.md)
 
 2022.05.21 PM NFSC NEWS  Food Crisis in Communist China is Imminent
@@ -150,11 +166,11 @@ He said what he wanted was to drive the evil o...
 
 ---
 
-[@miles 5/21/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1aqzvr701f.md)
+[@miles 5/21/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1ardw7b5db.md)
 
-2022.05.21 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+5/21/2022 Miles Guo’s GETTR: The CCP officials who had just been arrested in Beijing confessed the two things they regretted the most. First, they regretted following the CCP. Second, they regretted not taking stronger actions soon...
 
-<img src="https://media.gettr.com/group43/origin/2022/05/21/23/c1c8a75e-ec15-8857-c90c-bf1439f3623e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/05/21/23/2cc03a53-6633-0712-3965-2508f596c67e/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,22 +185,6 @@ He said what he wanted was to drive the evil o...
 [@miles 5/21/2022 1:54 AM UTC ](/content/gettr/p1an5on0485.md)
 
 5月20日：真好听……
-
----
-
-[@miles 5/21/2022 1:15 AM UTC  - :tv:直播](/content/gettr/p1anfqud1a7.md)
-
-【Ukrainian Rescue】05/19/2022 Our fellow fighters Nina and King come across Kateryna, an Ukrainian woman who’s returning to her home country. She expresses that war brings sorrow to humans, families and countries, forcing her to sep...
-
-<img src="https://media.gettr.com/group29/getter/2022/05/21/01/2a028ca1-32cf-1035-344c-d0c31338beee/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1an6eacc05.md)
-
-2022.05.20  新中國聯邦｜新聞   郭文貴先生揭露斯蒂夫·永利牽出中共深層內幕；新中國聯邦的目的是消滅中共的體制
-
-<img src="https://media.gettr.com/group40/origin/2022/05/21/01/7feb1c43-7b2b-019a-b93e-b8f24fb94d4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
