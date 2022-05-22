@@ -11,40 +11,40 @@
 
 ---
 
+#### [20220522郭文贵大直播 ：现在上海流行的就是特权](/content/gnews/2578596.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：在中国的老外看中共都不顺眼，灭共了世界就有救了](/content/gnews/2578593.md)
+ `Tokyo Sakura Video Group`
+
+#### [泽连斯基承诺乌克兰波兰人享有互惠权利](/content/gnews/2578591.md)
+ `Shuizhuyu`
+
+#### [【樱话】中日财经爆&#124;中共国爆发外教逃亡潮！40%外籍教师今年将离开](/content/gnews/2578488.md)
+ `TokyoSakuraDesignGroup`
+
 #### [【樱话】班农警告全球供应链正在崩溃而且短期内不会好转](/content/gnews/2578467.md)
  `TokyoSakuraDesignGroup`
 
 #### [【樱话】拜登访韩之际，中共在南中国海举行军演](/content/gnews/2578442.md)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】高盛预计2022年三分之一的中国房地产公司将违约](/content/gnews/2578412.md)
- `TokyoSakuraDesignGroup`
+#### [有声&#124;泽连斯基谴责俄摧毁顿巴斯地区](/content/gnews/2578405.md)
+ `MOSREC`
+
+#### [中共毁了几代人的教育制度](/content/gnews/2578403.md)
+ `历史组`
 
 #### [2022/05/22 英喜时事速递](/content/gnews/2578389.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [【樱话】美国抨击中共和联合国掩盖新疆人权问题](/content/gnews/2578385.md)
- `TokyoSakuraDesignGroup`
+#### [有声&#124;谷歌俄罗斯子公司申请破产](/content/gnews/2578378.md)
+ `MOSREC`
 
 #### [全球小麦库存仅剩 10 周](/content/gnews/2578377.md)
  `墨尔本雅典娜农场`
 
-#### [【樱话】清零政策代价惨重 高盛等多家投行下调中国经济增长预期](/content/gnews/2578347.md)
- `TokyoSakuraDesignGroup`
-
 #### [视频&#124;班农鼓励中国人灭共 战友呼吁西方团体不要再助纣为虐](/content/gnews/2578338.md)
- `MOSVIDEO`
-
-#### [视频&#124;郭先生解析身处强权之下该如何应对](/content/gnews/2578332.md)
- `MOSVIDEO`
-
-#### [视频&#124;美国志愿者亚当：共产主义摧毁创造力 只奖励服从](/content/gnews/2578328.md)
- `MOSVIDEO`
-
-#### [视频&#124;摇滚巨星郭文贵先生最新灭共歌曲的iTunes打榜情况](/content/gnews/2578320.md)
- `MOSVIDEO`
-
-#### [视频&#124;新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2578315.md)
  `MOSVIDEO`
 
 #### [樱花时政┃日美协商拜登访日期间 与被朝鲜绑架被害者家属会面](/content/gnews/2578265.md)
@@ -101,11 +101,11 @@
 #### [罗姆尼和马基呼吁中共国为联合国官员提供不受限制和监督的调查](/content/gnews/2577816.md)
  `温哥华扬帆农场`
 
-#### [俄公布禁止入境美国人名单 俄棋王被列入“外国代理人”](/content/gnews/2577789.md)
- `墨尔本雅典娜农场`
-
 #### [苹果公司希望在中共国以外的印度和东南亚地区进行更多生产](/content/gnews/2577639.md)
  `西班牙巴塞罗那喜悦农场`
+
+#### [辉瑞总裁艾伯乐的想法：药片中的生物芯片](/content/gnews/2577566.md)
+ `xiaobaige`
 
 #### [经济危机愈演愈烈 计划经济全面回归](/content/gnews/2577526.md)
  `MilesGuoLivePPT`
