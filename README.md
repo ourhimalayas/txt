@@ -11,6 +11,9 @@
 
 ---
 
+#### [富国银行顾问公司因反洗钱失误被SEC罚款 700 万美元](/content/gnews/2577449.md)
+ `Shuizhuyu`
+
 #### [德国退休年龄推迟到 70岁 ？](/content/gnews/2577399.md)
  `澳喜特战旅Gnews`
 
@@ -70,9 +73,6 @@
 
 #### [俄罗斯可能面临无人驾驶飞行器短缺](/content/gnews/2576894.md)
  `墨尔本雅典娜农场`
-
-#### [秘翻在线:GDP是一个愚蠢的经济指标](/content/gnews/2576872.md)
- `秘密翻譯組G-Translators`
 
 #### [世界卫生组织有可能将猴痘列为世界卫生紧急事件](/content/gnews/2576821.md)
  `xiaobaige`
