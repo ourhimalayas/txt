@@ -3,6 +3,8 @@
 
 ## 頁面 38/43 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/transcript/2018/04/20180418-8441280757870399817.md)
+
 [文字版：2018年2月7日郭先生郭媒体2个视频演讲](/content/transcript/2018/04/20180418-2002995963017552937.md)
 
 [文字版：郭文贵先生2018年2月4日郭媒体直播](/content/transcript/2018/04/20180418-7184160832028927540.md)
@@ -50,8 +52,6 @@
 [曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/content/transcript/2018/04/20180418-6784868507419879908.md)
 
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/content/transcript/2018/04/20180418-1652882263538149002.md)
-
-[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/transcript/2018/04/20180418-8750105287106833411.md)
 
 
 ## 頁面 38/43 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

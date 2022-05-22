@@ -3,6 +3,8 @@
 
 ## 頁面 18/43 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版:2020年4月10日郭先生直播](/content/transcript/2020/04/20200415-6756741546928314849.md)
+
 [文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式](/content/transcript/2020/04/20200413-4060291104151405554.md)
 
 [文字版:2020年4月8日郭先生GTV直播谈国内疫情](/content/transcript/2020/04/20200413-3302995427300860720.md)
@@ -50,8 +52,6 @@
 [文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/content/transcript/2020/03/20200314-8958776205330396975.md)
 
 [文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/content/transcript/2020/03/20200311-6040433872108549534.md)
-
-[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/transcript/2020/03/20200311-4043567072040877942.md)
 
 
 ## 頁面 18/43 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

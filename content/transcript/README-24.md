@@ -3,6 +3,8 @@
 
 ## 頁面 24/43 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来](/content/transcript/2019/10/20191014-1580303253011226173.md)
+
 [文字版：2019年10月12日直播，中美达成的初步协议对爆料革命无影响，香港同胞最受影响，灭共要靠我们自己！](/content/transcript/2019/10/20191014-3517209154004585431.md)
 
 [文字版：2019年10月10日报平安直播：台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/transcript/2019/10/20191011-1512379949091228539.md)
@@ -50,8 +52,6 @@
 [文字版：2019年9月9日 路德访谈文贵，班农先生](/content/transcript/2019/09/20190911-4067565485172047887.md)
 
 [文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！](/content/transcript/2019/09/20190910-2862056043397167369.md)
-
-[文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！](/content/transcript/2019/09/20190909-1380855058008823233.md)
 
 
 ## 頁面 24/43 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)

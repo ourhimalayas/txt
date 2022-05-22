@@ -3,6 +3,8 @@
 
 ## 頁面 19/43 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/transcript/2020/03/20200311-4043567072040877942.md)
+
 [文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/transcript/2020/03/20200306-1461257140477457088.md)
 
 [文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/transcript/2020/03/20200305-4413506880481638032.md)
@@ -50,8 +52,6 @@
 [文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/content/transcript/2020/02/20200203-308153761485477225.md)
 
 [文字版：2020年1月30日文贵谈中南坑政治局常委有人会死，不死不会发生大事](/content/transcript/2020/02/20200201-4702863158571733458.md)
-
-[文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/content/transcript/2020/02/20200201-2569965414035506727.md)
 
 
 ## 頁面 19/43 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

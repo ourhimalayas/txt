@@ -3,6 +3,8 @@
 
 ## 頁面 21/43 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/content/transcript/2020/01/20200106-5803835959397002894.md)
+
 [文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/content/transcript/2020/01/20200105-5702641725419467150.md)
 
 [文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/content/transcript/2020/01/20200104-2138537406331428619.md)
@@ -50,8 +52,6 @@
 [文字版：2019年12月9日上午郭文贵报平安直播](/content/transcript/2019/12/20191211-5104769377059048027.md)
 
 [文字版：2019年12月8日文贵报平安](/content/transcript/2019/12/20191210-8975996201411180459.md)
-
-[文字版：2019年12月7日郭先生对话钢铁侠](/content/transcript/2019/12/20191209-6749356903573144336.md)
 
 
 ## 頁面 21/43 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)

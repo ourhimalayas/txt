@@ -3,6 +3,8 @@
 
 ## 頁面 25/43 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！](/content/transcript/2019/09/20190909-1380855058008823233.md)
+
 [文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/content/transcript/2019/09/20190908-7629841718868230274.md)
 
 [文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/transcript/2019/09/20190906-2846090461215125304.md)
@@ -50,8 +52,6 @@
 [文字版：8月9日 郭文贵先生船上报平安直播](/content/transcript/2019/08/20190811-3314587443288819358.md)
 
 [文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/content/transcript/2019/08/20190809-1309289777403280615.md)
-
-[文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/content/transcript/2019/08/20190808-3378844936967794316.md)
 
 
 ## 頁面 25/43 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

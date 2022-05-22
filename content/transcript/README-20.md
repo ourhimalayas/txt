@@ -3,6 +3,8 @@
 
 ## 頁面 20/43 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/content/transcript/2020/02/20200201-2569965414035506727.md)
+
 [文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/content/transcript/2020/01/20200130-8782739626371859630.md)
 
 [文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/content/transcript/2020/01/20200130-1699829441084097385.md)
@@ -50,8 +52,6 @@
 [文字版：2020年1月6日文贵报平安第一次直播-谈灭爆小组网络占山头插红旗全线失败](/content/transcript/2020/01/20200108-9198356254528115677.md)
 
 [文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！](/content/transcript/2020/01/20200107-1241924630704189229.md)
-
-[文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/content/transcript/2020/01/20200106-5803835959397002894.md)
 
 
 ## 頁面 20/43 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
