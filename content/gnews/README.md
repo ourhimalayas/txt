@@ -2,59 +2,68 @@
 ---
 
 
-#### [拜登访问韩日，强化亚洲反共联盟](/content/gnews/2578270.md)
- `波士顿五月花农场`
+#### [2022/05/22 英喜时事速递](/content/gnews/2578389.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [【樱话】习近平为背水一战 不惜代价逃避西方制裁](/content/gnews/2578241.md)
+#### [【樱话】美国抨击中共和联合国掩盖新疆人权问题](/content/gnews/2578385.md)
  `TokyoSakuraDesignGroup`
+
+#### [全球小麦库存仅剩 10 周](/content/gnews/2578377.md)
+ `墨尔本雅典娜农场`
+
+#### [【奔驰树】](/content/gnews/2578359.md)
+ `SpicyWorld`
+
+#### [【樱话】清零政策代价惨重 高盛等多家投行下调中国经济增长预期](/content/gnews/2578347.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;班农鼓励中国人灭共 战友呼吁西方团体不要再助纣为虐](/content/gnews/2578338.md)
+ `MOSVIDEO`
+
+#### [有声&#124;盗国贼财富惊人，世界危在旦夕](/content/gnews/2578336.md)
+ `MOSREC`
+
+#### [视频&#124;郭先生解析身处强权之下该如何应对](/content/gnews/2578332.md)
+ `MOSVIDEO`
+
+#### [视频&#124;美国志愿者亚当：共产主义摧毁创造力 只奖励服从](/content/gnews/2578328.md)
+ `MOSVIDEO`
+
+#### [【樱话】中共对高中生宣扬“为革命杀妻” 舆论震惊](/content/gnews/2578321.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;摇滚巨星郭文贵先生最新灭共歌曲的iTunes打榜情况](/content/gnews/2578320.md)
+ `MOSVIDEO`
+
+#### [罗姆尼建议向中共国和其他俄罗斯盟国发出最后通牒](/content/gnews/2578316.md)
+ `温哥华扬帆农场`
+
+#### [视频&#124;新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2578315.md)
+ `MOSVIDEO`
+
+#### [樱花时政┃日美协商拜登访日期间 与被朝鲜绑架被害者家属会面](/content/gnews/2578265.md)
+ `TokyoSakura Politics/樱花时政`
 
 #### [樱花时政&#124;接种超出全市三倍人口，毒疫苗即将北京爆发](/content/gnews/2578227.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [有声&#124;布林肯宣布向乌克兰提供2.15亿美元紧急粮食援助](/content/gnews/2578215.md)
- `MOSREC`
-
 #### [樱花时政&#124;为防止新冠感染，封锁首都中心区域](/content/gnews/2578208.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [有声&#124;美参议院通过400亿美元援乌法案 并计划援助反舰导弹](/content/gnews/2578186.md)
- `MOSREC`
-
-#### [樱花时政&#124;世界上最高的输电塔，中国横跨长江的高架线建成](/content/gnews/2578184.md)
  `TokyoSakura Politics/樱花时政`
 
 #### [郭先生解析身处强权之下该如何应对](/content/gnews/2578182.md)
  `NFSC News`
 
-#### [樱花时政&#124;美国总统拜登将访问日本 宣布首脑会谈和新经济区构想](/content/gnews/2578156.md)
- `TokyoSakura Politics/樱花时政`
-
 #### [文贵大直播 5/22 新中国联邦乌克兰救援即将撤离 国际行动刚刚开始](/content/gnews/2578061.md)
  `秘密翻译组-原创组`
 
-#### [中共文革式防疫—社会面清零](/content/gnews/2578025.md)
- `【🌹玫瑰新闻】`
-
-#### [【樱话】中日财经爆┃总投资148.4亿元！青藏铁路将启动电气化改造](/content/gnews/2578015.md)
- `TokyoSakuraDesignGroup`
-
 #### [美国志愿者亚当：共产主义摧毁创造力 只奖励服从](/content/gnews/2577992.md)
  `NFSC News`
-
-#### [有声&#124;美国总统拜登出访韩国、日本 警告中共](/content/gnews/2577991.md)
- `MOSREC`
 
 #### [日本首相称中共国在东海的发展是不可接受的](/content/gnews/2577956.md)
  `墨尔本雅典娜农场`
 
 #### [樱花时政┃中共管控升级 安徽芜湖启用“核酸检测证”](/content/gnews/2577941.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [聚焦新中国联邦丨法拉利级新中国联邦咖啡，连接新世界的桥梁](/content/gnews/2577933.md)
- `NFSCFocus`
-
-#### [【文贵大直播 期期有话说】](/content/gnews/2577922.md)
- `SpicyWorld`
 
 #### [德国九欧元交通月票来了，但是争论并没有结束](/content/gnews/2577906.md)
  `澳喜特战旅Gnews`
@@ -98,14 +107,8 @@
 #### [共产党欺负的就是家人](/content/gnews/2577513.md)
  `骄子`
 
-#### [拜登说“每个人”都应该关注猴痘爆发](/content/gnews/2577503.md)
- `Shuizhuyu`
-
 #### [富国银行顾问公司因反洗钱失误被SEC罚款 700 万美元](/content/gnews/2577449.md)
  `Shuizhuyu`
-
-#### [澳洲大选：工党夺取政权后，安东尼-阿尔巴内斯发誓要团结一致](/content/gnews/2577448.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [2022.5.22大直播 梅迪卡撤离是新中国联邦法制基金救援行动新的开始](/content/gnews/2577443.md)
  `秘密翻译组-原创组`
@@ -132,9 +135,6 @@
  `西班牙巴塞罗那喜悦农场`
 
 #### [5/22/2022国内经济财经周报：中共降息救楼市；腾讯阿里忙裁员](/content/gnews/2576109.md)
- `秘密翻译组金融团队`
-
-#### [5/21/2022国际财经快讯：英国零售业销售意外跳升，但大环境暗淡；苹果公司寻求提高中国以外的产量](/content/gnews/2575823.md)
  `秘密翻译组金融团队`
 
 #### [岸田称不可接受中共单方面开发东海](/content/gnews/2575040.md)
