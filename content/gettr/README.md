@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/22/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1av8ji085e.md)
+
+2022.05.22 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group42/origin/2022/05/22/17/3d57fd09-6703-38d8-b568-1668a63f7671/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/22/2022 12:13 PM UTC  - :tv:直播](/content/gettr/p1aucw331db.md)
 
 2022年5月22日 文贵大直播：从孙傅看孟王李习党内斗争鹿死谁手：谈经济粮食银行房地产倒塌防患未然
@@ -66,11 +74,11 @@ Day 77 - Date: M...
 
 ---
 
-[@miles 5/22/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1av8ji085e.md)
+[@miles 5/22/2022 6:33 PM UTC  - :tv:直播](/content/gettr/p1avcji72db.md)
 
-2022.05.22 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022-5-22 ，「将心比心♥️，善良让世界更美好💐」？#小小尼莫音乐会 🎼第十二期，将心比心，换位思考☂️，善良和爱也需要有勇气🌼，有智慧🌷
 
-<img src="https://media.gettr.com/group42/origin/2022/05/22/17/3d57fd09-6703-38d8-b568-1668a63f7671/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/03/20/18/a40f2283-3a8a-09a0-3f27-54783933d12d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Day 77 - Date: M...
 5月21号：尊敬的战友们好……共产党在中国搞得政治清零运动💪是有史以来对人权．人性．的一次巨大的灾难性的考验，震惊了世界中国人的忍耐．和懦弱．和无知．将刷新全世界对中国人民的认知．中国人将从东亚病夫……改为东亚懦夫……
 
 <img src="https://media.gettr.com/group6/getter/2022/05/21/14/c162b1a8-90a5-8902-af7b-9d9c1384c4d3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 1:01 PM UTC  - :tv:直播](/content/gettr/p1apumx8631.md)
-
-20.15 22.05.21 早  新中国联邦 | 新闻访谈
-
-<img src="https://media.gettr.com/group43/origin/2022/05/21/12/4e1388ee-7075-4793-62ce-85379dccae18/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
