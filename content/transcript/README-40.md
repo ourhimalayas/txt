@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 40/42 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 40/43 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
+
+[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/transcript/2018/04/20180418-7772488713239018228.md)
 
 [翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/content/transcript/2018/04/20180418-732290735735777378.md)
 
@@ -51,7 +53,5 @@
 
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-6751902581957520102.md)
 
-[（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/transcript/2018/04/20180418-3181090078770141211.md)
 
-
-## 頁面 40/42 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 40/43 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 26/43 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
+
+[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义](/content/transcript/2019/08/20190807-3983824498310525116.md)
 
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/transcript/2019/08/20190807-8437960932132112238.md)
 
@@ -51,7 +53,5 @@
 
 [文字版：2019年7月5日文贵船上直播](/content/transcript/2019/07/20190706-5106022506023396161.md)
 
-[文字版：2019年7月3日文贵在华盛顿的车上直播](/content/transcript/2019/07/20190705-1736534558045793332.md)
 
-
-## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 26/43 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

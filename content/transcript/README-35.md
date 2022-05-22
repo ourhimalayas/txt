@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 35/42 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 35/43 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
+
+[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/content/transcript/2018/07/20180703-4076992664553898674.md)
 
 [文字版6/27/18郭媒体直播](/content/transcript/2018/06/20180630-1675811568156911003.md)
 
@@ -51,7 +53,5 @@
 
 [文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/transcript/2018/04/20180421-5848429127591941015.md)
 
-[文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/content/transcript/2018/04/20180421-8587540103403110873.md)
 
-
-## 頁面 35/42 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 35/43 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)

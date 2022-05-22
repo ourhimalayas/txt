@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 5/42 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 5/43 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
+
+[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](/content/transcript/2022/01/20220101-1816030.md)
 
 [2021年12月29日郭文贵先生直播全文字版](/content/transcript/2021/12/20211229-1805851.md)
 
@@ -51,7 +53,5 @@
 
 [2021年12月3日郭文贵先生直播全文字版](/content/transcript/2021/12/20211203-1720736.md)
 
-[2021年12月1日郭文贵先生直播全文字版](/content/transcript/2021/12/20211201-1714674.md)
 
-
-## 頁面 5/42 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 5/43 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)

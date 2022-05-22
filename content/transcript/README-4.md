@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 4/42 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 4/43 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵先生2022年2月8日早上盖特视频（2分41秒）全文字版](/content/transcript/2022/02/20220208-1977473.md)
 
 [樱花FM┃郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版](/content/transcript/2022/02/20220206-2018683.md)
 
@@ -51,7 +53,5 @@
 
 [2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（三）](/content/transcript/2022/01/20220101-1817244.md)
 
-[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](/content/transcript/2022/01/20220101-1816030.md)
 
-
-## 頁面 4/42 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 4/43 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)

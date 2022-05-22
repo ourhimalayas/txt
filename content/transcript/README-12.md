@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 12/42 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 12/43 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
+
+[全文字版2021年4月23日郭文贵先生G-TV直播](/content/transcript/2021/04/20210423-1136241.md)
 
 [全文字版2021年4月19日419断播四周年郭文贵先生G-TV直播](/content/transcript/2021/04/20210419-1125087.md)
 
@@ -51,7 +53,5 @@
 
 [文字版2020年12月11日郭先生GTV直播](/content/transcript/2020/12/20201211-672238.md)
 
-[文字版：2020年11月26日文贵先生直播视频](/content/transcript/2020/12/20201209-7200582879299785978.md)
 
-
-## 頁面 12/42 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 12/43 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)

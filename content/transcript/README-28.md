@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 28/43 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
+
+[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/transcript/2019/05/20190526-773797126638093114.md)
 
 [文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/content/transcript/2019/05/20190526-2377635576100864352.md)
 
@@ -51,7 +53,5 @@
 
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/transcript/2019/04/20190422-2917569343036844190.md)
 
-[文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/transcript/2019/04/20190421-3663457252526137440.md)
 
-
-## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 28/43 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 39/43 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
+
+[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/transcript/2018/04/20180418-3363832914523693020.md)
 
 [2017年11月26日文贵健身报平安和Livestream 试播](/content/transcript/2018/04/20180418-3536740810604337739.md)
 
@@ -51,7 +53,5 @@
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/content/transcript/2018/04/20180418-5547948456904349057.md)
 
-[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/transcript/2018/04/20180418-7772488713239018228.md)
 
-
-## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 39/43 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

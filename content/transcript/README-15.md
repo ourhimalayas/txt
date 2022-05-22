@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 15/42 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 15/43 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
+
+[文字版：2020年8月9日文贵先生连线硅谷战友](/content/transcript/2020/08/20200823-4152243607808954101.md)
 
 [【文字版】2020年8月8日郭先生GTV连线日本樱花团](/content/transcript/2020/08/20200814-3147962922303992326.md)
 
@@ -51,7 +53,5 @@
 
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/transcript/2020/06/20200629-4613228362412011055.md)
 
-[文字版: 郭先生2020年6月20日GTV直播](/content/transcript/2020/06/20200623-1544322677967966575.md)
 
-
-## 頁面 15/42 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 15/43 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

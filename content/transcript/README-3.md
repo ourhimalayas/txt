@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 3/42 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 3/43 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
+
+[2022年3月6日《文贵大直播》全文字版](/content/transcript/2022/03/20220306-2118742.md)
 
 [郭文贵先生2022年3月4日盖特视频（9分31秒）全文字版](/content/transcript/2022/03/20220304-2108081.md)
 
@@ -51,7 +53,5 @@
 
 [郭文贵先生2022年2月8日下午盖特视频（1分14秒）全文字版](/content/transcript/2022/02/20220208-1977455.md)
 
-[郭文贵先生2022年2月8日早上盖特视频（2分41秒）全文字版](/content/transcript/2022/02/20220208-1977473.md)
 
-
-## 頁面 3/42 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 3/43 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 18/43 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
+
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式](/content/transcript/2020/04/20200413-4060291104151405554.md)
 
 [文字版:2020年4月8日郭先生GTV直播谈国内疫情](/content/transcript/2020/04/20200413-3302995427300860720.md)
 
@@ -51,7 +53,5 @@
 
 [文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/transcript/2020/03/20200311-4043567072040877942.md)
 
-[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/transcript/2020/03/20200306-1461257140477457088.md)
 
-
-## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 18/43 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

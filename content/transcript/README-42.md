@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 42/42 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [查看全部](/content/transcript/README-all.md)
+## 頁面 42/43 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
+
+[（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）](/content/transcript/2018/04/20180418-5802483270047805854.md)
 
 [（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/content/transcript/2018/04/20180418-8084565878058568507.md)
 
@@ -51,7 +53,5 @@
 
 [袁红冰: 郭文贵事件对中国未来的价值&#124;郭宝胜访谈文字版2017-6-24](/content/transcript/2018/04/20180418-8213280584796437424.md)
 
-[&#124;郭文贵9月7号报平安是盗国集团的凶恶促使我决定美国政治庇护直播文字版](/content/transcript/2018/04/20180418-3180317526840992396.md)
 
-
-## 頁面 42/42 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [查看全部](/content/transcript/README-all.md)
+## 頁面 42/43 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)

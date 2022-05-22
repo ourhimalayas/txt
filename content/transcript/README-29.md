@@ -1,7 +1,9 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 29/43 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
+
+[文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/transcript/2019/04/20190421-3663457252526137440.md)
 
 [文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/content/transcript/2019/04/20190419-6305900525322511967.md)
 
@@ -51,7 +53,5 @@
 
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/transcript/2019/02/20190224-3447840307197696435.md)
 
-[文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/content/transcript/2019/02/20190222-1257758446657176479.md)
 
-
-## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 29/43 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
