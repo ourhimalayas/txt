@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/22/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1as2k02f35.md)
+
+2022.05.21 晚  新中国联邦 | 新闻 新中国联邦和法治基金乌克兰救援的最新数据
+
+<img src="https://media.gettr.com/group26/origin/2022/05/22/00/11a3b444-d361-f943-62a1-8f13ee2efc02/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/22/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1aroxeb31d.md)
 
 5/21/2022 Miles Guo’s GETTR: Although the CCP gave the shares of Founder Group held by Beijing Zhengquan Holdings to the National Council for Social Security Fund founded by Dai Xianglong, I don’t care about it at all. Because I ha...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/22/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1as2k02f35.md)
+[@miles 5/22/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1arsm34df1.md)
 
-2022.05.21 晚  新中国联邦 | 新闻 新中国联邦和法治基金乌克兰救援的最新数据
+20.15 22.05.21 晚  新中国联邦 | 新闻访谈 欧洲、北美相继出现“猴痘病”
 
-<img src="https://media.gettr.com/group26/origin/2022/05/22/00/11a3b444-d361-f943-62a1-8f13ee2efc02/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/05/22/00/94743a52-6d71-c5f6-e7ac-e4f552225c8f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Mathew is a Volunteer coming from England to help the Ukrainian people to fight 
 He said what he wanted was to drive the evil o...
 
 <img src="https://media.gettr.com/group20/origin/2022/05/21/02/095b6497-bfd5-6dfc-5236-1c74819a1565/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 2:07 AM UTC  - :tv:直播](/content/gettr/p1anl56574f.md)
-
-2022.05.20  新中国联邦 | 喜财经 
-
-<img src="https://media.gettr.com/group25/origin/2022/05/21/01/462b238d-66f9-0fca-5e01-58860a060ef7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
