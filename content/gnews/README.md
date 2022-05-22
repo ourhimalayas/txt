@@ -2,8 +2,17 @@
 ---
 
 
+#### [拜登总统周五访问韩国，誓言要加强两个民主国家的联系](/content/gnews/2578924.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [班农先生：新中国人将彻底击垮中共](/content/gnews/2578917.md)
+ `NFSC News`
+
 #### [俄罗斯已停止对芬兰的天然气供应](/content/gnews/2578896.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [新中国联邦驻波兰梅迪卡营地将于6月1日前撤离](/content/gnews/2578879.md)
+ `NFSC News`
 
 #### [中共国多地为达到国家对农田面积的要求不惜弄虚作假](/content/gnews/2578867.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -20,6 +29,9 @@
 #### [樱花FM┃欧洲34国议员致函谭德塞 挺台参与世卫大会](/content/gnews/2578841.md)
  `樱花FM`
 
+#### [有声&#124;由于燃料和劳动力成本上升，沃尔玛利润下滑迅速](/content/gnews/2578802.md)
+ `MOSREC`
+
 #### [樱花FM┃欧洲大学研究人员 暗助中国军方](/content/gnews/2578798.md)
  `樱花FM`
 
@@ -29,14 +41,8 @@
 #### [樱花FM┃中国山寨耗材7折卖 BMW原厂跨海提告](/content/gnews/2578785.md)
  `樱花FM`
 
-#### [樱花FM┃政泉控股所持方正证券股份被充公](/content/gnews/2578766.md)
- `樱花FM`
-
 #### [有声&#124;美国国会证实UFO存在](/content/gnews/2578765.md)
  `MOSREC`
-
-#### [樱花FM┃美日将发表共同声明 在军事上威慑中共](/content/gnews/2578743.md)
- `樱花FM`
 
 #### [文贵大直播要点（2022年5月22日）](/content/gnews/2578692.md)
  `波士顿五月花农场`
@@ -46,6 +52,9 @@
 
 #### [2022年5月22日文贵大直播速记](/content/gnews/2578675.md)
  `Mr. Miles Guo's News Briefing`
+
+#### [美国FDA打压廉价有效的”中共病毒“药物干预措施](/content/gnews/2578621.md)
+ `NFSC News`
 
 #### [2022/05/22 英喜时事速递](/content/gnews/2578389.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -80,20 +89,11 @@
 #### [香港的光辉岁月一去不复返](/content/gnews/2577898.md)
  `墨尔本雅典娜农场`
 
-#### [郭文贵先生最新灭共歌曲的iTunes打榜情况](/content/gnews/2577894.md)
- `NFSC News`
-
-#### [聚焦新中国联邦丨中共掉入塔西佗陷阱，病毒失控](/content/gnews/2577882.md)
- `NFSCFocus`
-
 #### [樱花时政&#124;美国将军表示 中俄有意改变现有世界秩序](/content/gnews/2577880.md)
  `TokyoSakura Politics/樱花时政`
 
 #### [美韩峰会，深化合作应对北朝鲜的威慑](/content/gnews/2577843.md)
  `温哥华圆成农场🇨🇦`
-
-#### [新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/2577818.md)
- `NFSC News`
 
 #### [罗姆尼和马基呼吁中共国为联合国官员提供不受限制和监督的调查](/content/gnews/2577816.md)
  `温哥华扬帆农场`
