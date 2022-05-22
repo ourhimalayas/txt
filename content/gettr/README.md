@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/22/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1aroxeb31d.md)
+
+5/21/2022 Miles Guo’s GETTR: Although the CCP gave the shares of Founder Group held by Beijing Zhengquan Holdings to the National Council for Social Security Fund founded by Dai Xianglong, I don’t care about it at all. Because I ha...
+
+<img src="https://media.gettr.com/group5/getter/2022/05/22/00/cf609624-e4cc-b7eb-f0d5-30cabead0faf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/21/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1arnu801c8.md)
 
 5/21/2022 Miles Guo’s GETTR: Communist China's zero COVID policy shocked the world, and the people around the world can’t understand why the Chinese people could bear it. My experience in the Qingfeng Detention Center indicates tha...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/22/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1aroxeb31d.md)
+[@miles 5/22/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1as2k02f35.md)
 
-5/21/2022 Miles Guo’s GETTR: Although the CCP gave the shares of Founder Group held by Beijing Zhengquan Holdings to the National Council for Social Security Fund founded by Dai Xianglong, I don’t care about it at all. Because I ha...
+2022.05.21 晚  新中国联邦 | 新闻 新中国联邦和法治基金乌克兰救援的最新数据
 
-<img src="https://media.gettr.com/group5/getter/2022/05/22/00/cf609624-e4cc-b7eb-f0d5-30cabead0faf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/05/22/00/11a3b444-d361-f943-62a1-8f13ee2efc02/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Mathew is a Volunteer coming from England to help the Ukrainian people to fight 
 He said what he wanted was to drive the evil o...
 
 <img src="https://media.gettr.com/group20/origin/2022/05/21/02/095b6497-bfd5-6dfc-5236-1c74819a1565/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1anpdk6871.md)
-
- 5月20日：今天的中国人．我国社会和中国人的思想境界，文明程度．比这个视频中还惨……
-
-<img src="https://media.gettr.com/group38/getter/2022/05/21/02/e3b90483-1d4d-b9f3-c4a8-bdbf560bdca3/out.jpg" width="506" height="284">
 
 ---
 
