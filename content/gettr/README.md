@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/22/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1as3w001bc.md)
+
+2022.05.21  新中国联邦 | 喜财经 USDT被美国政府调查的历史，如何理解数字货币熊市
+
+<img src="https://media.gettr.com/group25/origin/2022/05/22/01/8bfc46e1-8138-11b8-d257-7fc4f910add8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/22/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1arsm34df1.md)
+
+20.15 22.05.21 晚  新中国联邦 | 新闻访谈 欧洲、北美相继出现“猴痘病”
+
+<img src="https://media.gettr.com/group47/origin/2022/05/22/00/94743a52-6d71-c5f6-e7ac-e4f552225c8f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/22/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1as2k02f35.md)
 
 2022.05.21 晚  新中国联邦 | 新闻 新中国联邦和法治基金乌克兰救援的最新数据
@@ -26,11 +42,11 @@
 
 ---
 
-[@miles 5/22/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1arsm34df1.md)
+[@miles 5/22/2022 2:13 AM UTC  - :tv:直播](/content/gettr/p1arwc97866.md)
 
-20.15 22.05.21 晚  新中国联邦 | 新闻访谈 欧洲、北美相继出现“猴痘病”
+【Ukraine Rescue】 05/21/2022 Tom, a volunteer from the United States, expresses: No one understands "oppression" better than the Chinese people, and it's great that you are speaking out for the freedom of the Chinese people; people ...
 
-<img src="https://media.gettr.com/group47/origin/2022/05/22/00/94743a52-6d71-c5f6-e7ac-e4f552225c8f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/05/22/02/9d7c17a1-6b38-0dc7-b683-b4075228c5ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,26 +183,6 @@ Day 76 - Date: Ma...
  新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group19/origin/2022/05/21/05/4e998550-775b-ed01-f48a-c0ea3b9a87a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1anh617689.md)
-
-2022-5-20《喜币大作战》——狂赌之渊 （第201期特别版） 嘉宾：青藤、Nick
-
-<img src="https://media.gettr.com/group46/origin/2022/05/21/03/91ab0c55-b3b8-5810-9e45-d9afc4f44650/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/21/2022 2:35 AM UTC  - :tv:直播](/content/gettr/p1anbr2d73d.md)
-
-Mathew is a Volunteer coming from England to help the Ukrainian people to fight for their freedom, democracy, and freedom of speech. He was interviewed by Nicole, an NFSC volunteer.
-
-
-
-He said what he wanted was to drive the evil o...
-
-<img src="https://media.gettr.com/group20/origin/2022/05/21/02/095b6497-bfd5-6dfc-5236-1c74819a1565/out.jpg" width="506" height="284">
 
 ---
 
