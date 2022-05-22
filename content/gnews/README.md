@@ -2,6 +2,33 @@
 ---
 
 
+#### [大直播后记：七哥谈喜币、HDO](/content/gnews/2579684.md)
+ `雅典娜GNotes`
+
+#### [20220522郭文贵大直播 ：中共牢牢掌握权力和资源分配权，把中国人的无知推向极致](/content/gnews/2579682.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：就像当初毛让位一样 只要习近平活着就一定是习天下](/content/gnews/2579681.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：发票制度区块链化就叫数字人民币](/content/gnews/2579680.md)
+ `Tokyo Sakura Video Group`
+
+#### [欢迎国际友人波兰老虎加入新中国联邦Medyka救援团队](/content/gnews/2579646.md)
+ `雅典娜GNotes`
+
+#### [丹麦的通货膨胀率达到1984年以来的最高水平](/content/gnews/2579644.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [20220522郭文贵大直播 ：随着经济危机加剧中共会不会出现财政危机和破产状况](/content/gnews/2579643.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：新中国联邦人能做的不是接替政权](/content/gnews/2579641.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：目前能接手的就两人曾庆红和王岐山](/content/gnews/2579639.md)
+ `Tokyo Sakura Video Group`
+
 #### [中国人民头上的新三座大山是什么？马列主义、驭民五术还是自身的心魔？](/content/gnews/2579633.md)
  `mary202064`
 
@@ -20,35 +47,14 @@
 #### [美国智库成立‘中国中心’研拟抗中策略](/content/gnews/2579591.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [文贵先生直播大纲2022/05/22](/content/gnews/2579554.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [有声&#124;中共掌控的数字货币将成为灭共的证据和工具](/content/gnews/2579538.md)
- `MOSREC`
-
-#### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年5月20日早](/content/gnews/2579527.md)
- `MOSREC`
-
 #### [秘翻在线：非洲饥荒、德国能源供应问题 德国总理访问非洲](/content/gnews/2579516.md)
  `秘密翻譯組G-Translators`
-
-#### [【全文字幕】2021月11日26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](/content/gnews/2579504.md)
- `文贵视频字幕全集`
 
 #### [文贵爆料5.22：郭先生对体制内的同胞送大“礼物”](/content/gnews/2579500.md)
  `秘密翻译组-原创组`
 
 #### [亚太经合组织贸易部长会议闭幕 没有发表联合声明](/content/gnews/2579496.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [2022年5月22日文贵大直播摘要及音频—银河系农场](/content/gnews/2579491.md)
- `喜马拉雅日本银河系农场`
-
-#### [有声&#124;郭先生灭共的心路历程—老照片篇（七）](/content/gnews/2579474.md)
- `MOSREC`
-
-#### [视频&#124;中共之恶](/content/gnews/2579466.md)
- `爆料视频`
 
 #### [投资专家警告，美国处于“我们一生中最大的泡沫”中](/content/gnews/2579392.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -85,9 +91,6 @@
 
 #### [文贵爆料 5.22：新的抗争方式让荣光重归香港](/content/gnews/2579020.md)
  `秘密翻译组-原创组`
-
-#### [郭文贵直播摘要和音频 202.05.22](/content/gnews/2578814.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [美韩联合宣言称确保印太地区自由开放](/content/gnews/2578625.md)
  `NFSC News`
@@ -160,9 +163,6 @@
 
 #### [班农警告全球供应链正在崩溃而且短期内不会好转](/content/gnews/2569728.md)
  `澳喜农场`
-
-#### [有声&#124;郭先生灭共的心路历程—老照片篇（六）](/content/gnews/2568839.md)
- `MOSREC`
 
 #### [中国的乔治华盛顿](/content/gnews/2482501.md)
  `PureLotusHeart(莲心不染 or Dawn）`
