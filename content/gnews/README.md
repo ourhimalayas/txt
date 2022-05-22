@@ -2,6 +2,9 @@
 ---
 
 
+#### [2022年5月22日文贵大直播速记](/content/gnews/2578675.md)
+ `Mr. Miles Guo's News Briefing`
+
 #### [乌克兰在达沃斯商业聚会上的领袖](/content/gnews/2578638.md)
  `Shuizhuyu`
 
@@ -26,6 +29,9 @@
 #### [泽连斯基承诺乌克兰波兰人享有互惠权利](/content/gnews/2578591.md)
  `Shuizhuyu`
 
+#### [有声&#124;加拿大正式禁止华为、中兴参与5G网络建设](/content/gnews/2578507.md)
+ `MOSREC`
+
 #### [有声&#124;郭文贵先生为《联盟杯》诗歌朗诵大赛致辞](/content/gnews/2578429.md)
  `MOSREC`
 
@@ -34,9 +40,6 @@
 
 #### [2022/05/22 英喜时事速递](/content/gnews/2578389.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [有声&#124;谷歌俄罗斯子公司申请破产](/content/gnews/2578378.md)
- `MOSREC`
 
 #### [全球小麦库存仅剩 10 周](/content/gnews/2578377.md)
  `墨尔本雅典娜农场`
@@ -97,9 +100,6 @@
 
 #### [辉瑞总裁艾伯乐的想法：药片中的生物芯片](/content/gnews/2577566.md)
  `xiaobaige`
-
-#### [经济危机愈演愈烈 计划经济全面回归](/content/gnews/2577526.md)
- `MilesGuoLivePPT`
 
 #### [共产党欺负的就是家人](/content/gnews/2577513.md)
  `骄子`
