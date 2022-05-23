@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/23/2022 9:03 AM UTC  - :tv:直播](/content/gettr/p1axh0j5ead.md)
+
+5/22/2022 Miles Guo: The Himalaya Dollar is the real and eternal stablecoin. One Himalaya Dollar for one US dollar will never change. Wang Qishan is behind Solana. The Tangping (lying-flat) Coin is coming soon in July for a test ru...
+
+<img src="https://media.gettr.com/group49/getter/2022/05/23/09/d9b67bea-4b40-5ce3-d83a-58c175792586/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 8:58 AM UTC  - :tv:直播](/content/gettr/p1axvj56ff6.md)
+
+5/22/2022 Miles Guo: Fearing the naval soldiers performing the exclusive fishing tasks for the CCP kleptocrats would steal the fish, the CCP sent a spy to check the fishing crew. It turned out that no one stole any fish. To complet...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/23/08/8ccc5d28-ee00-5c76-6587-d236a65474ad/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 8:00 AM UTC  - :tv:直播](/content/gettr/p1axt843422.md)
 
  2022.05.23 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
@@ -23,14 +39,6 @@
 5/22/2022 Miles Guo: The Americans trust Wang Qishan and Zeng Qinghong the most. The CCP will certainly end up being taken down by itself. After the collapse of the CCP, a new group of leaders with an international perspective will...
 
 <img src="https://media.gettr.com/group21/getter/2022/05/23/05/d1f16b44-a2a0-a99e-e05d-aeb8db2a2174/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 8:58 AM UTC  - :tv:直播](/content/gettr/p1axvj56ff6.md)
-
-5/22/2022 Miles Guo: Fearing the naval soldiers performing the exclusive fishing tasks for the CCP kleptocrats would steal the fish, the CCP sent a spy to check the fishing crew. It turned out that no one stole any fish. To complet...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/23/08/8ccc5d28-ee00-5c76-6587-d236a65474ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,18 +195,6 @@ NFSC (New Federal State of China) coffee☕💞
 新中国联邦咖啡 ☕💞
 
 <img src="https://media.gettr.com/group49/origin/2022/05/22/22/edb99f48-8ce3-9c41-950c-36c65bfde6bb/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1avt4z4610.md)
-
-Mr. Miles Guo talked about the song "Dear Mamma, I Am Ending the CCP" and its significance to the destruction of the CCP on the Mother's Day program "Miles Guo Grand Live " on May 8, 2022.
-
-
-
-郭文贵先生在2022年5月8日母亲节《文贵大直播》节目中谈到《Dear Mam...
-
-<img src="https://media.gettr.com/group6/origin/2022/05/22/21/8a086d8b-813b-e87a-f0b5-f82537f66f76/out.jpg" width="506" height="284">
 
 ---
 
