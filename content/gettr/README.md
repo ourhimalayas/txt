@@ -10,19 +10,11 @@
 
 ---
 
-[@miles 5/23/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1axskg7d2f.md)
+[@miles 5/23/2022 8:00 AM UTC  - :tv:直播](/content/gettr/p1axt843422.md)
 
- 2022.05.23新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+ 2022.05.23 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group28/origin/2022/05/23/04/1dd08a0d-2f9e-6941-371f-696b0739405d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 4:01 AM UTC  - :tv:直播](/content/gettr/p1ax3n87596.md)
-
-5/22/2022 Miles Guo: As long as Xi is still alive after the 20th Party Congress, Communist China will be in his control no matter what position he serves. No one can replace Xi, and he has no rival. Once the videos about the CCP's ...
-
-<img src="https://media.gettr.com/group6/getter/2022/05/23/04/f3559e0a-080f-ff46-c87d-ea1361b55cb1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/05/23/07/da7bd8a8-4e90-ec16-87f9-5ba7ef4b1212/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -55,6 +47,22 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 78 - Date: M...
 
 <img src="https://media.gettr.com/group10/getter/2022/05/23/05/5ecf52a2-f4a6-d216-2532-80cd15d3f057/90bfcfb3fb768833b168f070bd350939.jpg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1axskg7d2f.md)
+
+ 2022.05.23新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group28/origin/2022/05/23/04/1dd08a0d-2f9e-6941-371f-696b0739405d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 4:01 AM UTC  - :tv:直播](/content/gettr/p1ax3n87596.md)
+
+5/22/2022 Miles Guo: As long as Xi is still alive after the 20th Party Congress, Communist China will be in his control no matter what position he serves. No one can replace Xi, and he has no rival. Once the videos about the CCP's ...
+
+<img src="https://media.gettr.com/group6/getter/2022/05/23/04/f3559e0a-080f-ff46-c87d-ea1361b55cb1/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Mr. Miles Guo talked about the song "Dear Mamma, I Am Ending the CCP" and its si
 ---
 
 [@miles 5/22/2022 6:55 PM UTC  - :tv:直播](/content/gettr/p1autgc03e6.md)
-
-2022-5-22 ，「将心比心♥️，善良让世界更美好💐」？#小小尼莫音乐会 🎼第十二期，将心比心，换位思考☂️，善良和爱也需要有勇气🌼，有智慧🌷
-
-<img src="https://media.gettr.com/group33/origin/2022/03/20/18/a40f2283-3a8a-09a0-3f27-54783933d12d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 6:33 PM UTC  - :tv:直播](/content/gettr/p1avcji72db.md)
 
 2022-5-22 ，「将心比心♥️，善良让世界更美好💐」？#小小尼莫音乐会 🎼第十二期，将心比心，换位思考☂️，善良和爱也需要有勇气🌼，有智慧🌷
 
