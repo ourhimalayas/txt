@@ -2,6 +2,18 @@
 ---
 
 
+#### [大直播后记：国人饿死的原因&#8211;自私愚昧和无知](/content/gnews/2579716.md)
+ `雅典娜GNotes`
+
+#### [20220522郭文贵大直播 ：人可以在环境改变下拥有善良和慈悲](/content/gnews/2579712.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：solana币是中共设置的骗局](/content/gnews/2579710.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：涉及孙孟王傅案跑出来的体制内人员，联系农场妥善安排](/content/gnews/2579709.md)
+ `Tokyo Sakura Video Group`
+
 #### [大直播后记：七哥谈喜币、HDO](/content/gnews/2579684.md)
  `雅典娜GNotes`
 
@@ -35,15 +47,6 @@
 #### [新中国联邦人与犹太人在俄乌战争救援上碰出来火花和埋下了合作的种子](/content/gnews/2579625.md)
  `雅典娜GNotes`
 
-#### [20220522郭文贵大直播 ：毛发动文革干掉了政治对手，大饥荒产生了特供 共产党官员没有被饿死](/content/gnews/2579600.md)
- `Tokyo Sakura Video Group`
-
-#### [20220522郭文贵大直播 ：中共内斗与大饥荒直接死亡6000万老百姓](/content/gnews/2579599.md)
- `Tokyo Sakura Video Group`
-
-#### [20220522郭文贵大直播 ：新中国联邦和犹太人在乌克兰前线救援中开始合作](/content/gnews/2579596.md)
- `Tokyo Sakura Video Group`
-
 #### [美国智库成立‘中国中心’研拟抗中策略](/content/gnews/2579591.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -55,9 +58,6 @@
 
 #### [亚太经合组织贸易部长会议闭幕 没有发表联合声明](/content/gnews/2579496.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [投资专家警告，美国处于“我们一生中最大的泡沫”中](/content/gnews/2579392.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [拜登抵达东京寻求为经济计划提供支持](/content/gnews/2579286.md)
  `西班牙巴塞罗那喜悦农场`
