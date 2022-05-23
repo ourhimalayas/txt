@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/23/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aylcm9271.md)
+
+2022.05.23  新中国联邦 | 军情室 浅谈无人机反制系统C-UAS
+
+<img src="https://media.gettr.com/group14/origin/2022/05/23/10/562be129-5c78-0562-43fc-d165e7f1d7b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 9:03 AM UTC  - :tv:直播](/content/gettr/p1axh0j5ead.md)
 
 5/22/2022 Miles Guo: The Himalaya Dollar is the real and eternal stablecoin. One Himalaya Dollar for one US dollar will never change. Wang Qishan is behind Solana. The Tangping (lying-flat) Coin is coming soon in July for a test ru...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/23/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aylcm9271.md)
+[@miles 5/23/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1ayu3b15e0.md)
 
-2022.05.23  新中国联邦 | 军情室 浅谈无人机反制系统C-UAS
+22.05.23 AM NFSC News     NFSC Rescue Operation Team to be Evacuated from Medyka by June
 
-<img src="https://media.gettr.com/group14/origin/2022/05/23/10/562be129-5c78-0562-43fc-d165e7f1d7b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/05/23/11/464e82f1-c839-d338-945b-75d974d1bbbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -175,22 +183,6 @@ Day 78 - Date: M...
 5/22/2022 Miles Guo: Upon illegitimately seizing the power, the CCP started internal political struggles, and what happened to Liu Shaoqi and others reflected how cruel the CCP is. Mao Zedong's Anti-Rightist Campaign pushed the Gre...
 
 <img src="https://media.gettr.com/group29/getter/2022/05/22/22/4213e9c9-04bf-f0ca-e4e6-03f1aac7506d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 10:25 PM UTC ](/content/gettr/p1aw0rp771a.md)
-
-Steve  Wynn, an Unregistered Agent of the People’s Republic of China
-
-
-
-This Case Will Completely Destroy the CCP's Connections & Layout In the United States
-
-
-
-Reuters: The U.S. Department of Justice on Tuesday (May 17th) accused ...
-
-<img src="https://media.gettr.com/group24/origin/2022/05/22/22/c18b6227-3b21-fbaf-0e2f-fe4c14898ce8/18c85d245ff8ccbbb6b428dfa965f212.png" width="506" height="284">
 
 ---
 
