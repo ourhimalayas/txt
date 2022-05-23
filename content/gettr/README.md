@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/23/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1b0r4ycde9.md)
+
+A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She and her volunteer friends drink 12 cups of coffee a day.
+
+
+
+一名来自乌克兰的志愿者感谢新中国联邦救援团队提供的帮助。她和她的义工朋友们每天一共喝12杯咖啡。
+
+<img src="https://media.gettr.com/group32/origin/2022/05/23/21/25c1f2da-c622-e0cd-6fcf-5c9299710675/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1b05n7b4f8.md)
 
 2022.05.23  新中国联邦 | 喜健康   勇敢的良心医生-全球冠状病毒峰会17000名医生
@@ -34,15 +46,11 @@
 
 ---
 
-[@miles 5/23/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1b0r4ycde9.md)
+[@miles 5/23/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1b0iop50ae.md)
 
-A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She and her volunteer friends drink 12 cups of coffee a day.
+2022年5月23日 战友测试乱聊
 
-
-
-一名来自乌克兰的志愿者感谢新中国联邦救援团队提供的帮助。她和她的义工朋友们每天一共喝12杯咖啡。
-
-<img src="https://media.gettr.com/group32/origin/2022/05/23/21/25c1f2da-c622-e0cd-6fcf-5c9299710675/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/05/23/21/a65aaf70-864f-dc39-1114-4d2e9d898005/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ Day 78 - Date: M...
  2022.05.23新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group28/origin/2022/05/23/04/1dd08a0d-2f9e-6941-371f-696b0739405d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 4:04 AM UTC  - :tv:直播](/content/gettr/p1ax3vf4e43.md)
-
-5/22/2022 Miles Guo: For Xi Jinping, defeating Li Keqiang is as easy as winking. If Li asked me for advice, I would suggest that he forgot about fighting for the position of General Secretary, publicly showed his support for Xi, an...
-
-<img src="https://media.gettr.com/group29/getter/2022/05/23/04/0db68dd4-ecf4-91a7-7643-53da45a69b1f/out.jpg" width="506" height="284">
 
 ---
 
