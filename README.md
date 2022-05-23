@@ -11,6 +11,33 @@
 
 ---
 
+#### [【粤语配音】2022年5月22日：西方沼泽地开始支持香港](/content/gnews/2579839.md)
+ `MOS香港部`
+
+#### [20220522郭文贵大直播 ：人类历史唯一！喜币定价10美分！](/content/gnews/2579802.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：躺平币只给加入农场的战友，马上可以在HPAY兑现！绝对去中心化！绝对有人负责！](/content/gnews/2579801.md)
+ `Tokyo Sakura Video Group`
+
+#### [大直播后记：共产党的本质就是拿走你的东西再灭口](/content/gnews/2579778.md)
+ `雅典娜GNotes`
+
+#### [20220522郭文贵大直播 ：Luna币开始就是庞氏骗局 锚定的也是不存在的东西](/content/gnews/2579777.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：计划经济就是把人当奴隶](/content/gnews/2579776.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：共产党之所以存在到今天就因为平均一个共产党员能支配一百个奴隶](/content/gnews/2579775.md)
+ `Tokyo Sakura Video Group`
+
+#### [拜登在武器试验紧张之际向朝鲜金正恩打招呼](/content/gnews/2579770.md)
+ `波士顿五月花农场金融部`
+
+#### [俞怀松谈中共间谍活动在美国的威胁](/content/gnews/2579768.md)
+ `加拿大温哥华扬帆农场视频组`
+
 #### [20220522郭文贵大直播 ：躺平币7月试行上线，使用即财富，行动即财富](/content/gnews/2579739.md)
  `Tokyo Sakura Video Group`
 
@@ -23,35 +50,11 @@
 #### [大直播后记：国人饿死的原因&#8211;自私愚昧和无知](/content/gnews/2579716.md)
  `雅典娜GNotes`
 
-#### [20220522郭文贵大直播 ：人可以在环境改变下拥有善良和慈悲](/content/gnews/2579712.md)
- `Tokyo Sakura Video Group`
-
-#### [20220522郭文贵大直播 ：solana币是中共设置的骗局](/content/gnews/2579710.md)
- `Tokyo Sakura Video Group`
-
-#### [20220522郭文贵大直播 ：涉及孙孟王傅案跑出来的体制内人员，联系农场妥善安排](/content/gnews/2579709.md)
- `Tokyo Sakura Video Group`
-
 #### [大直播后记：七哥谈喜币、HDO](/content/gnews/2579684.md)
  `雅典娜GNotes`
 
-#### [20220522郭文贵大直播 ：中共牢牢掌握权力和资源分配权，把中国人的无知推向极致](/content/gnews/2579682.md)
- `Tokyo Sakura Video Group`
-
-#### [20220522郭文贵大直播 ：就像当初毛让位一样 只要习近平活着就一定是习天下](/content/gnews/2579681.md)
- `Tokyo Sakura Video Group`
-
-#### [20220522郭文贵大直播 ：发票制度区块链化就叫数字人民币](/content/gnews/2579680.md)
- `Tokyo Sakura Video Group`
-
-#### [欢迎国际友人波兰老虎加入新中国联邦Medyka救援团队](/content/gnews/2579646.md)
+#### [七哥金句：评估今年的自然灾难是60年一遇，粮食紧缺！](/content/gnews/2579665.md)
  `雅典娜GNotes`
-
-#### [20220522郭文贵大直播 ：随着经济危机加剧中共会不会出现财政危机和破产状况](/content/gnews/2579643.md)
- `Tokyo Sakura Video Group`
-
-#### [20220522郭文贵大直播 ：新中国联邦人能做的不是接替政权](/content/gnews/2579641.md)
- `Tokyo Sakura Video Group`
 
 #### [中国人民头上的新三座大山是什么？马列主义、驭民五术还是自身的心魔？](/content/gnews/2579633.md)
  `mary202064`
@@ -94,9 +97,6 @@
 
 #### [美穆伦上将：普京被乌克兰战争“逼入绝境”](/content/gnews/2579088.md)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [泽伦斯基：乌克兰不会在战场上结束对俄罗斯的战争](/content/gnews/2579080.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [文贵爆料 5.22：新的抗争方式让荣光重归香港](/content/gnews/2579020.md)
  `秘密翻译组-原创组`
