@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/23/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1aweo3013d.md)
+[@miles 5/23/2022 3:46 PM UTC  - :tv:直播](/content/gettr/p1azo8w9f98.md)
 
-5/22/2022 Miles Guo: The CCP is just one of the enemies of the Whistleblowers' Movement. This selfishness, foolishness and ignorance of Chinese people is our biggest challenge; The so-called Monkeypox is actually caused by COVID va...
+5/22/2022 Miles Guo: Solana, the so-called killer of Ethereum, uses its own unique blockchain technology and is actually like another BSN of Wang Qishan. Like Changpeng Zhao of Binance, Solana is also backed by the CCP. The main co...
 
-<img src="https://media.gettr.com/group30/getter/2022/05/23/00/75fc3391-f409-f759-d6ad-dacef9ead2aa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/05/23/15/610a0df1-2a7e-3f4d-9cd5-bd29978503d2/out.jpg" width="506" height="284">
 
 ---
 
