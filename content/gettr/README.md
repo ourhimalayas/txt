@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/23/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1awiav9f1b.md)
+
+2022.05.22 农场联盟工作汇报
+
+<img src="https://media.gettr.com/group16/origin/2022/05/23/01/fda314b0-a11f-ac09-37d7-7bd6e1504365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1awi26dd49.md)
 
 2022.05.22  晚 新中国联邦 | 新闻访谈    教育的意义；何为老师？何谓好老师？；Steve Wynn案件的深渊意义
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/23/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1awiav9f1b.md)
+[@miles 5/23/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1awurva2e9.md)
 
-2022.05.22 农场联盟工作汇报
+2022-5-22《鸡血王喜币大作战》 第二百零三集 嘉宾：齐天二圣、七里香
 
-<img src="https://media.gettr.com/group16/origin/2022/05/23/01/fda314b0-a11f-ac09-37d7-7bd6e1504365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/23/03/fa9dc671-1f63-7268-a7b3-1c369f9ca26b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Day 77 - Date: M...
 2022-5-21《喜币大作战》——狂赌之渊 （第202期特别版） 嘉宾：青藤、Nick
 
 <img src="https://media.gettr.com/group16/origin/2022/05/22/03/d95c47a3-3b79-a9e2-fe67-9372e3047fa7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 2:13 AM UTC  - :tv:直播](/content/gettr/p1arwc97866.md)
-
-【Ukraine Rescue】 05/21/2022 Tom, a volunteer from the United States, expresses: No one understands "oppression" better than the Chinese people, and it's great that you are speaking out for the freedom of the Chinese people; people ...
-
-<img src="https://media.gettr.com/group28/getter/2022/05/22/02/9d7c17a1-6b38-0dc7-b683-b4075228c5ef/out.jpg" width="506" height="284">
 
 ---
 
