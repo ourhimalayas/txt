@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/23/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1b05n7b4f8.md)
+
+2022.05.23  新中国联邦 | 喜健康   勇敢的良心医生-全球冠状病毒峰会17000名医生
+
+<img src="https://media.gettr.com/group15/origin/2022/05/23/20/a42f83a8-0c2e-bf64-3fba-b8570dedce31/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 5:36 PM UTC  - :tv:直播](/content/gettr/p1azf40f775.md)
 
 2022.05.23  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -26,11 +34,15 @@
 
 ---
 
-[@miles 5/23/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1b05n7b4f8.md)
+[@miles 5/23/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1b0r4ycde9.md)
 
-2022.05.23  新中国联邦 | 喜健康   勇敢的良心医生-全球冠状病毒峰会17000名医生
+A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She and her volunteer friends drink 12 cups of coffee a day.
 
-<img src="https://media.gettr.com/group15/origin/2022/05/23/20/a42f83a8-0c2e-bf64-3fba-b8570dedce31/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+一名来自乌克兰的志愿者感谢新中国联邦救援团队提供的帮助。她和她的义工朋友们每天一共喝12杯咖啡。
+
+<img src="https://media.gettr.com/group32/origin/2022/05/23/21/25c1f2da-c622-e0cd-6fcf-5c9299710675/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +189,6 @@ Day 78 - Date: M...
  2022.05.23新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group28/origin/2022/05/23/04/1dd08a0d-2f9e-6941-371f-696b0739405d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 4:01 AM UTC  - :tv:直播](/content/gettr/p1ax3n87596.md)
-
-5/22/2022 Miles Guo: As long as Xi is still alive after the 20th Party Congress, Communist China will be in his control no matter what position he serves. No one can replace Xi, and he has no rival. Once the videos about the CCP's ...
-
-<img src="https://media.gettr.com/group6/getter/2022/05/23/04/f3559e0a-080f-ff46-c87d-ea1361b55cb1/out.jpg" width="506" height="284">
 
 ---
 
