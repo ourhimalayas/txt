@@ -11,6 +11,15 @@
 
 ---
 
+#### [20220522郭文贵大直播 ：躺平币7月试行上线，使用即财富，行动即财富](/content/gnews/2579739.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：HDO永远和美元1：1，刚刚喜联储又拿下一个牌照，未来好消息不断](/content/gnews/2579737.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220522郭文贵大直播 ：今天的数字货币就三股势力在玩，算法稳定币都是骗局](/content/gnews/2579736.md)
+ `Tokyo Sakura Video Group`
+
 #### [大直播后记：国人饿死的原因&#8211;自私愚昧和无知](/content/gnews/2579716.md)
  `雅典娜GNotes`
 
@@ -38,23 +47,14 @@
 #### [欢迎国际友人波兰老虎加入新中国联邦Medyka救援团队](/content/gnews/2579646.md)
  `雅典娜GNotes`
 
-#### [丹麦的通货膨胀率达到1984年以来的最高水平](/content/gnews/2579644.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [20220522郭文贵大直播 ：随着经济危机加剧中共会不会出现财政危机和破产状况](/content/gnews/2579643.md)
  `Tokyo Sakura Video Group`
 
 #### [20220522郭文贵大直播 ：新中国联邦人能做的不是接替政权](/content/gnews/2579641.md)
  `Tokyo Sakura Video Group`
 
-#### [20220522郭文贵大直播 ：目前能接手的就两人曾庆红和王岐山](/content/gnews/2579639.md)
- `Tokyo Sakura Video Group`
-
 #### [中国人民头上的新三座大山是什么？马列主义、驭民五术还是自身的心魔？](/content/gnews/2579633.md)
  `mary202064`
-
-#### [新中国联邦人与犹太人在俄乌战争救援上碰出来火花和埋下了合作的种子](/content/gnews/2579625.md)
- `雅典娜GNotes`
 
 #### [美国智库成立‘中国中心’研拟抗中策略](/content/gnews/2579591.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
