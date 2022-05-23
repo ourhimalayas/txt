@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/23/2022 2:45 PM UTC  - :tv:直播](/content/gettr/p1ayqw8c054.md)
+
+MILES GUO 直播 2022-05-23
+
+<img src="https://media.gettr.com/group2/liveorigin/2022/05/23/14/f74bf18d-3c0c-0696-9a8f-6d0b3fa02442/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 2:03 PM UTC ](/content/gettr/p1ayi2t21ef.md)
 
 5月23号：你若不相信。……【这应该是七哥多次警告后，世界上第一个主权国家的卫生部承认接种疫苗的人更容易感染新冠病毒……日本厚生劳动省即(日本卫生部】)https://tweetsoku.com/2022/05/20/%e3%80%90%e7%89%b9%e5%88%a5%e9%87%8d%e5%a4%a7%e5%a0%b1%e9%81%93%e3%80%91%e3%83%af%e3%82%af%e3%83%81%e3%83%b3%e6%8e%a5%e7%a...
@@ -24,11 +32,9 @@
 
 ---
 
-[@miles 5/23/2022 2:45 PM UTC  - :tv:直播](/content/gettr/p1ayqw8c054.md)
+[@miles 5/23/2022 3:03 PM UTC ](/content/gettr/p1aza7abd50.md)
 
-MILES GUO 直播 2022-05-23
-
-<img src="https://media.gettr.com/group2/liveorigin/2022/05/23/14/f74bf18d-3c0c-0696-9a8f-6d0b3fa02442/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+5月23号：尊敬的战友们好……这个世界在过去的48小时，是人类历史上最重要的重大的军事政治经济重要的历史时刻……明天上午七哥直播详细和大家聊聊，这几天发生的大事？
 
 ---
 
@@ -185,14 +191,6 @@ Day 78 - Date: M...
 2022.05.22  晚 新中国联邦 | 新闻访谈    教育的意义；何为老师？何谓好老师？；Steve Wynn案件的深渊意义
 
 <img src="https://media.gettr.com/group19/origin/2022/05/23/01/2503aaf4-fa33-c962-1ba6-9ee767e226bc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/23/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1aweo3013d.md)
-
-5/22/2022 Miles Guo: The CCP is just one of the enemies of the Whistleblowers' Movement. This selfishness, foolishness and ignorance of Chinese people is our biggest challenge; The so-called Monkeypox is actually caused by COVID va...
-
-<img src="https://media.gettr.com/group30/getter/2022/05/23/00/75fc3391-f409-f759-d6ad-dacef9ead2aa/out.jpg" width="506" height="284">
 
 ---
 
