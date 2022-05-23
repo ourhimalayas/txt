@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/23/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1aympdb709.md)
+
+2022.05.23  早 新中国联邦 | 新闻访谈    拜登称若台湾被攻击美国将军事介入
+
+<img src="https://media.gettr.com/group36/origin/2022/05/23/13/5f92e281-7a0e-389e-9349-1c92307522c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1aye1yf516.md)
 
 2022.05.23  早 新中国联邦 | 新闻   郭文贵先生毕生只有灭共一个目标；中国人没有看清中共清零政策的险恶目的
@@ -10,11 +18,9 @@
 
 ---
 
-[@miles 5/23/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1aympdb709.md)
+[@miles 5/23/2022 2:03 PM UTC ](/content/gettr/p1ayi2t21ef.md)
 
-2022.05.23  早 新中国联邦 | 新闻访谈    拜登称若台湾被攻击美国将军事介入
-
-<img src="https://media.gettr.com/group36/origin/2022/05/23/13/5f92e281-7a0e-389e-9349-1c92307522c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+5月23号：你若不相信。……【这应该是七哥多次警告后，世界上第一个主权国家的卫生部承认接种疫苗的人更容易感染新冠病毒……日本厚生劳动省即(日本卫生部】)https://tweetsoku.com/2022/05/20/%e3%80%90%e7%89%b9%e5%88%a5%e9%87%8d%e5%a4%a7%e5%a0%b1%e9%81%93%e3%80%91%e3%83%af%e3%82%af%e3%83%81%e3%83%b3%e6%8e%a5%e7%a...
 
 ---
 
@@ -187,14 +193,6 @@ Day 78 - Date: M...
 5/22/2022 Miles Guo: The CCP is just one of the enemies of the Whistleblowers' Movement. This selfishness, foolishness and ignorance of Chinese people is our biggest challenge; The so-called Monkeypox is actually caused by COVID va...
 
 <img src="https://media.gettr.com/group30/getter/2022/05/23/00/75fc3391-f409-f759-d6ad-dacef9ead2aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 12:24 AM UTC ](/content/gettr/p1awlif36c3.md)
-
-5月22日：😱😱😱😱😱【《粮食危机》—— ​经济学人杂志，这期封面设计很恐怖，把图片放大】
-
-<img src="https://media.gettr.com/group37/getter/2022/05/23/00/a1fcd251-410c-ec59-8ded-7cf076a91fc8/1acd37106702c2cda11ab0eb7f588104.jpg" width="506" height="284">
 
 ---
 
