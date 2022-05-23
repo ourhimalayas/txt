@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/23/2022 4:01 AM UTC  - :tv:直播](/content/gettr/p1ax3n87596.md)
+
+5/22/2022 Miles Guo: As long as Xi is still alive after the 20th Party Congress, Communist China will be in his control no matter what position he serves. No one can replace Xi, and he has no rival. Once the videos about the CCP's ...
+
+<img src="https://media.gettr.com/group6/getter/2022/05/23/04/f3559e0a-080f-ff46-c87d-ea1361b55cb1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1awurva2e9.md)
+
+2022-5-22《鸡血王喜币大作战》 第二百零三集 嘉宾：齐天二圣、七里香
+
+<img src="https://media.gettr.com/group14/origin/2022/05/23/03/fa9dc671-1f63-7268-a7b3-1c369f9ca26b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1awiav9f1b.md)
 
 2022.05.22 农场联盟工作汇报
@@ -26,11 +42,11 @@
 
 ---
 
-[@miles 5/23/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1awurva2e9.md)
+[@miles 5/23/2022 4:04 AM UTC  - :tv:直播](/content/gettr/p1ax3vf4e43.md)
 
-2022-5-22《鸡血王喜币大作战》 第二百零三集 嘉宾：齐天二圣、七里香
+5/22/2022 Miles Guo: For Xi Jinping, defeating Li Keqiang is as easy as winking. If Li asked me for advice, I would suggest that he forgot about fighting for the position of General Secretary, publicly showed his support for Xi, an...
 
-<img src="https://media.gettr.com/group14/origin/2022/05/23/03/fa9dc671-1f63-7268-a7b3-1c369f9ca26b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/05/23/04/0db68dd4-ecf4-91a7-7643-53da45a69b1f/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,22 +199,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 77 - Date: M...
 
 <img src="https://media.gettr.com/group8/getter/2022/05/22/07/82d3d3a5-dd1e-94c7-96b3-86e25306dcd2/b88cfbe3d917a9210c271fea0d330a7c.jpg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1at06w660e.md)
-
-2022.05.22 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group43/origin/2022/05/22/04/1af78135-f4b3-3347-a277-0dde78e64e59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1arcuh2714.md)
-
-2022-5-21《喜币大作战》——狂赌之渊 （第202期特别版） 嘉宾：青藤、Nick
-
-<img src="https://media.gettr.com/group16/origin/2022/05/22/03/d95c47a3-3b79-a9e2-fe67-9372e3047fa7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
