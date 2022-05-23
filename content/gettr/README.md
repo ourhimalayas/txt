@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 5/23/2022 3:03 PM UTC ](/content/gettr/p1aza7abd50.md)
+
+5月23号：尊敬的战友们好……这个世界在过去的48小时，是人类历史上最重要的重大的军事政治经济重要的历史时刻……明天上午七哥直播详细和大家聊聊，这几天发生的大事？
+
+---
+
 [@miles 5/23/2022 2:45 PM UTC  - :tv:直播](/content/gettr/p1ayqw8c054.md)
 
 MILES GUO 直播 2022-05-23
@@ -32,9 +38,11 @@ MILES GUO 直播 2022-05-23
 
 ---
 
-[@miles 5/23/2022 3:03 PM UTC ](/content/gettr/p1aza7abd50.md)
+[@miles 5/23/2022 3:22 PM UTC  - :tv:直播](/content/gettr/p1az0fe0be1.md)
 
 5月23号：尊敬的战友们好……这个世界在过去的48小时，是人类历史上最重要的重大的军事政治经济重要的历史时刻……明天上午七哥直播详细和大家聊聊，这几天发生的大事？
+
+<img src="https://media.gettr.com/group21/getter/2022/05/23/15/7177117c-8b32-eef5-e879-4fc851445d6b/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Day 78 - Date: M...
 2022.05.22 农场联盟工作汇报
 
 <img src="https://media.gettr.com/group16/origin/2022/05/23/01/fda314b0-a11f-ac09-37d7-7bd6e1504365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1awi26dd49.md)
-
-2022.05.22  晚 新中国联邦 | 新闻访谈    教育的意义；何为老师？何谓好老师？；Steve Wynn案件的深渊意义
-
-<img src="https://media.gettr.com/group19/origin/2022/05/23/01/2503aaf4-fa33-c962-1ba6-9ee767e226bc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
