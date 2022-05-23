@@ -10,6 +10,34 @@
 
 ---
 
+[@miles 5/23/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1aympdb709.md)
+
+2022.05.23  早 新中国联邦 | 新闻访谈    拜登称若台湾被攻击美国将军事介入
+
+<img src="https://media.gettr.com/group36/origin/2022/05/23/13/5f92e281-7a0e-389e-9349-1c92307522c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 12:37 PM UTC ](/content/gettr/p1ayy9m5ec9.md)
+
+5月23号：尊敬的战友们好，日本成为联合国常任理事国……美国明确如果共产党入侵台湾，美国帮助台湾消灭共产党，这是爆料革命几年来说的事情！现在都发生了……在几年前．因此被那些所谓中国民主海外人士……和全球的所谓主流媒体说七哥是骗子……疯子……这些人和这些媒体都应该闭嘴了。
+
+
+
+【标题．拜登称：美国将保卫台湾
+
+【撰稿日期】２０２２.05.23
+
+【署名】撰稿：华盛顿DC农场 自由信仰 
+
+【新闻链接】
+
+https://www.wsj.com/article...
+
+<img src="https://media.gettr.com/group24/getter/2022/05/23/12/5ac752ce-7915-052a-b632-5ed3caa3fc90/d197305a3b5f45a6d29c9dc21213e0e7.jpg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1ayu3b15e0.md)
 
 22.05.23 AM NFSC News     NFSC Rescue Operation Team to be Evacuated from Medyka by June
@@ -39,26 +67,6 @@
 2022.05.22 文贵大直播（精华版）
 
 <img src="https://media.gettr.com/group43/origin/2022/05/23/08/a424de6c-dc11-0332-7ce8-c9fea4d2f9e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 12:37 PM UTC ](/content/gettr/p1ayy9m5ec9.md)
-
-5月23号：尊敬的战友们好，日本成为联合国常任理事国……美国明确如果共产党入侵台湾，美国帮助台湾消灭共产党，这是爆料革命几年来说的事情！现在都发生了……在几年前．因此被那些所谓中国民主海外人士……和全球的所谓主流媒体说七哥是骗子……疯子……这些人和这些媒体都应该闭嘴了。
-
-
-
-【标题．拜登称：美国将保卫台湾
-
-【撰稿日期】２０２２.05.23
-
-【署名】撰稿：华盛顿DC农场 自由信仰 
-
-【新闻链接】
-
-https://www.wsj.com/article...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/23/12/5ac752ce-7915-052a-b632-5ed3caa3fc90/d197305a3b5f45a6d29c9dc21213e0e7.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Day 78 - Date: M...
 5/22/2022 Miles Guo: The CCP is just one of the enemies of the Whistleblowers' Movement. This selfishness, foolishness and ignorance of Chinese people is our biggest challenge; The so-called Monkeypox is actually caused by COVID va...
 
 <img src="https://media.gettr.com/group30/getter/2022/05/23/00/75fc3391-f409-f759-d6ad-dacef9ead2aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1aw8t6cc0d.md)
-
- 5月22号：这位女网红有27,77万粉丝……G FAHSION穿到她身上，实在是太漂亮……
-
-<img src="https://media.gettr.com/group28/getter/2022/05/23/00/83ef7c53-b711-0b94-bd86-a1d4bc65418f/out.jpg" width="506" height="284">
 
 ---
 
