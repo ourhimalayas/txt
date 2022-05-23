@@ -3,6 +3,8 @@
 
 ## 頁面 37/43 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/content/transcript/2018/04/20180418-7259055052246962788.md)
+
 [文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/content/transcript/2018/04/20180418-8337465493911865893.md)
 
 [文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/content/transcript/2018/04/20180418-39810748690895167.md)
@@ -50,8 +52,6 @@
 [文字版：文贵2月11号报平安视频](/content/transcript/2018/04/20180418-7379798999426119015.md)
 
 [文字版：2018年2月8号文贵报平安视频](/content/transcript/2018/04/20180418-4679573221949971590.md)
-
-[文字版：文贵2月9号报平安直播](/content/transcript/2018/04/20180418-5725033153896340679.md)
 
 
 ## 頁面 37/43 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

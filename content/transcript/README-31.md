@@ -3,6 +3,8 @@
 
 ## 頁面 31/43 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/content/transcript/2019/01/20190113-3654521321996198385.md)
+
 [文字版：2019年1月11日“政法伪”高管评崔永元爆料](/content/transcript/2019/01/20190113-1838714476556605024.md)
 
 [文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/transcript/2019/01/20190111-7236434520356507605.md)
@@ -50,8 +52,6 @@
 [翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照](/content/transcript/2018/11/20181124-4765015310552564158.md)
 
 [翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/content/transcript/2018/11/20181124-4394519846774733520.md)
-
-[翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/content/transcript/2018/11/20181124-6313930265884722848.md)
 
 
 ## 頁面 31/43 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)

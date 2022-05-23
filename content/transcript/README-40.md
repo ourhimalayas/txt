@@ -3,6 +3,8 @@
 
 ## 頁面 40/43 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/transcript/2018/04/20180418-343207939646177641.md)
+
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/content/transcript/2018/04/20180418-5547948456904349057.md)
 
 [翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/transcript/2018/04/20180418-7772488713239018228.md)
@@ -50,8 +52,6 @@
 [华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/transcript/2018/04/20180418-3075028168264714407.md)
 
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名](/content/transcript/2018/04/20180418-6592319178525638083.md)
-
-[金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/transcript/2018/04/20180418-2687199289814745562.md)
 
 
 ## 頁面 40/43 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

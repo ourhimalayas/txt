@@ -3,6 +3,8 @@
 
 ## 頁面 27/43 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年7月6日与彭文正先生连线----灭共保台](/content/transcript/2019/07/20190707-3878113483367388120.md)
+
 [文字版：2019年7月5日文贵船上直播](/content/transcript/2019/07/20190706-5106022506023396161.md)
 
 [文字版：2019年7月3日文贵在华盛顿的车上直播](/content/transcript/2019/07/20190705-1736534558045793332.md)
@@ -50,8 +52,6 @@
 [文字版2019年5月31日文貴試直播](/content/transcript/2019/06/20190605-8092628019236727777.md)
 
 [文字版：2019年6月2日，班農與郭文貴談林鄭賣港](/content/transcript/2019/06/20190604-5110748633595841625.md)
-
-[文字版：2019年6月1日文貴報平安直播！無論任何方式的任何人的「偷「都是錯的，都應該感到可恥······我們今天的額爆料革命！就是為了我們中國兒童！有一個美好的健康的國家和未來！](/content/transcript/2019/06/20190601-2272712478111328158.md)
 
 
 ## 頁面 27/43 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

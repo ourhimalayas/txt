@@ -3,6 +3,8 @@
 
 ## 頁面 21/43 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！](/content/transcript/2020/01/20200107-1241924630704189229.md)
+
 [文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/content/transcript/2020/01/20200106-5803835959397002894.md)
 
 [文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/content/transcript/2020/01/20200105-5702641725419467150.md)
@@ -50,8 +52,6 @@
 [文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/content/transcript/2019/12/20191212-297605354411190045.md)
 
 [文字版：2019年12月9日上午郭文贵报平安直播](/content/transcript/2019/12/20191211-5104769377059048027.md)
-
-[文字版：2019年12月8日文贵报平安](/content/transcript/2019/12/20191210-8975996201411180459.md)
 
 
 ## 頁面 21/43 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)

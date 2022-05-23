@@ -3,6 +3,8 @@
 
 ## 頁面 42/43 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
 
+[翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/content/transcript/2018/04/20180418-6992843521807662530.md)
+
 [美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/content/transcript/2018/04/20180418-6931208450020595005.md)
 
 [（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）](/content/transcript/2018/04/20180418-5802483270047805854.md)
@@ -50,8 +52,6 @@
 [袁红冰: 郭文贵事件对中国未来的价值&#124;郭宝胜访谈文字版](/content/transcript/2018/04/20180418-1789482780048338185.md)
 
 [郭宝胜专访曹长青( 郭文贵爆料对中国政局与民主运动的巨大意义（视频文字版）](/content/transcript/2018/04/20180418-8737769596242434513.md)
-
-[郭文贵9月6日报平安：董卿是孙力军的情妇揭秘马航370失踪及雷洋之死&#124;文字版](/content/transcript/2018/04/20180418-6438072051436758841.md)
 
 
 ## 頁面 42/43 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
