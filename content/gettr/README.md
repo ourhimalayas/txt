@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 5/23/2022 5:35 AM UTC  - :tv:直播](/content/gettr/p1axjxs1a27.md)
+[@miles 5/23/2022 8:48 AM UTC  - :tv:直播](/content/gettr/p1axlt2dcd3.md)
 
-5/22/2022 Miles Guo: The Americans trust Wang Qishan and Zeng Qinghong the most. The CCP will certainly end up being taken down by itself. After the collapse of the CCP, a new group of leaders with an international perspective will...
+2022.05.22 文贵大直播（精华版）
 
-<img src="https://media.gettr.com/group21/getter/2022/05/23/05/d1f16b44-a2a0-a99e-e05d-aeb8db2a2174/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/23/08/a424de6c-dc11-0332-7ce8-c9fea4d2f9e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
  2022.05.23 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
 <img src="https://media.gettr.com/group20/origin/2022/05/23/07/da7bd8a8-4e90-ec16-87f9-5ba7ef4b1212/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 5:35 AM UTC  - :tv:直播](/content/gettr/p1axjxs1a27.md)
+
+5/22/2022 Miles Guo: The Americans trust Wang Qishan and Zeng Qinghong the most. The CCP will certainly end up being taken down by itself. After the collapse of the CCP, a new group of leaders with an international perspective will...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/23/05/d1f16b44-a2a0-a99e-e05d-aeb8db2a2174/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 8:58 AM UTC  - :tv:直播](/content/gettr/p1axvj56ff6.md)
+
+5/22/2022 Miles Guo: Fearing the naval soldiers performing the exclusive fishing tasks for the CCP kleptocrats would steal the fish, the CCP sent a spy to check the fishing crew. It turned out that no one stole any fish. To complet...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/23/08/8ccc5d28-ee00-5c76-6587-d236a65474ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,22 +199,6 @@ Mr. Miles Guo talked about the song "Dear Mamma, I Am Ending the CCP" and its si
 郭文贵先生在2022年5月8日母亲节《文贵大直播》节目中谈到《Dear Mam...
 
 <img src="https://media.gettr.com/group6/origin/2022/05/22/21/8a086d8b-813b-e87a-f0b5-f82537f66f76/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p1avl7ce30a.md)
-
-2022.05.21  新中国联邦 | 喜健康   张文宏到底爆了什么料
-
-<img src="https://media.gettr.com/group32/origin/2022/05/22/20/10f13754-bd5e-81b1-24c8-e9f44485a79a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 6:55 PM UTC  - :tv:直播](/content/gettr/p1autgc03e6.md)
-
-2022-5-22 ，「将心比心♥️，善良让世界更美好💐」？#小小尼莫音乐会 🎼第十二期，将心比心，换位思考☂️，善良和爱也需要有勇气🌼，有智慧🌷
-
-<img src="https://media.gettr.com/group33/origin/2022/03/20/18/a40f2283-3a8a-09a0-3f27-54783933d12d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
