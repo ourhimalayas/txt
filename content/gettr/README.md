@@ -2,17 +2,27 @@
 ---
 
 
-[@miles 5/23/2022 3:03 PM UTC ](/content/gettr/p1aza7abd50.md)
+[@miles 5/23/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1aweo3013d.md)
 
-5月23号：尊敬的战友们好……这个世界在过去的48小时，是人类历史上最重要的重大的军事政治经济重要的历史时刻……明天上午七哥直播详细和大家聊聊，这几天发生的大事？
+5/22/2022 Miles Guo: The CCP is just one of the enemies of the Whistleblowers' Movement. This selfishness, foolishness and ignorance of Chinese people is our biggest challenge; The so-called Monkeypox is actually caused by COVID va...
+
+<img src="https://media.gettr.com/group30/getter/2022/05/23/00/75fc3391-f409-f759-d6ad-dacef9ead2aa/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 5/23/2022 2:45 PM UTC  - :tv:直播](/content/gettr/p1ayqw8c054.md)
+[@miles 5/23/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1awi26dd49.md)
 
-MILES GUO 直播 2022-05-23
+2022.05.22  晚 新中国联邦 | 新闻访谈    教育的意义；何为老师？何谓好老师？；Steve Wynn案件的深渊意义
 
-<img src="https://media.gettr.com/group2/liveorigin/2022/05/23/14/f74bf18d-3c0c-0696-9a8f-6d0b3fa02442/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/05/23/01/2503aaf4-fa33-c962-1ba6-9ee767e226bc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 3:22 PM UTC  - :tv:直播](/content/gettr/p1az0fe0be1.md)
+
+5月23号：尊敬的战友们好……这个世界在过去的48小时，是人类历史上最重要的重大的军事政治经济重要的历史时刻……明天上午七哥直播详细和大家聊聊，这几天发生的大事？
+
+<img src="https://media.gettr.com/group21/getter/2022/05/23/15/7177117c-8b32-eef5-e879-4fc851445d6b/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,14 +45,6 @@ MILES GUO 直播 2022-05-23
 2022.05.23  早 新中国联邦 | 新闻   郭文贵先生毕生只有灭共一个目标；中国人没有看清中共清零政策的险恶目的
 
 <img src="https://media.gettr.com/group32/origin/2022/05/23/12/a3dc7705-e180-608c-4ff6-af2ae456d387/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 3:22 PM UTC  - :tv:直播](/content/gettr/p1az0fe0be1.md)
-
-5月23号：尊敬的战友们好……这个世界在过去的48小时，是人类历史上最重要的重大的军事政治经济重要的历史时刻……明天上午七哥直播详细和大家聊聊，这几天发生的大事？
-
-<img src="https://media.gettr.com/group21/getter/2022/05/23/15/7177117c-8b32-eef5-e879-4fc851445d6b/out.jpg" width="506" height="284">
 
 ---
 
