@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/23/2022 9:03 AM UTC  - :tv:直播](/content/gettr/p1axh0j5ead.md)
+
+5/22/2022 Miles Guo: The Himalaya Dollar is the real and eternal stablecoin. One Himalaya Dollar for one US dollar will never change. Wang Qishan is behind Solana. The Tangping (lying-flat) Coin is coming soon in July for a test ru...
+
+<img src="https://media.gettr.com/group49/getter/2022/05/23/09/d9b67bea-4b40-5ce3-d83a-58c175792586/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 8:48 AM UTC  - :tv:直播](/content/gettr/p1axlt2dcd3.md)
 
 2022.05.22 文贵大直播（精华版）
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/23/2022 9:03 AM UTC  - :tv:直播](/content/gettr/p1axh0j5ead.md)
+[@miles 5/23/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aylcm9271.md)
 
-5/22/2022 Miles Guo: The Himalaya Dollar is the real and eternal stablecoin. One Himalaya Dollar for one US dollar will never change. Wang Qishan is behind Solana. The Tangping (lying-flat) Coin is coming soon in July for a test ru...
+2022.05.23  新中国联邦 | 军情室 浅谈无人机反制系统C-UAS
 
-<img src="https://media.gettr.com/group49/getter/2022/05/23/09/d9b67bea-4b40-5ce3-d83a-58c175792586/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/23/10/562be129-5c78-0562-43fc-d165e7f1d7b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,18 +191,6 @@ This Case Will Completely Destroy the CCP's Connections & Layout In the United S
 Reuters: The U.S. Department of Justice on Tuesday (May 17th) accused ...
 
 <img src="https://media.gettr.com/group24/origin/2022/05/22/22/c18b6227-3b21-fbaf-0e2f-fe4c14898ce8/18c85d245ff8ccbbb6b428dfa965f212.png" width="506" height="284">
-
----
-
-[@miles 5/22/2022 10:03 PM UTC  - :tv:直播](/content/gettr/p1avng3703b.md)
-
-NFSC (New Federal State of China) coffee☕💞
-
-
-
-新中国联邦咖啡 ☕💞
-
-<img src="https://media.gettr.com/group49/origin/2022/05/22/22/edb99f48-8ce3-9c41-950c-36c65bfde6bb/out.jpg" width="506" height="284">
 
 ---
 
