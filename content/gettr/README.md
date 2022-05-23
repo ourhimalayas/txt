@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/23/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1aw8t6cc0d.md)
+[@miles 5/23/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1awi26dd49.md)
 
- 5月22号：这位女网红有27,77万粉丝……G FAHSION穿到她身上，实在是太漂亮……
+2022.05.22  晚 新中国联邦 | 新闻访谈    教育的意义；何为老师？何谓好老师？；Steve Wynn案件的深渊意义
 
-<img src="https://media.gettr.com/group28/getter/2022/05/23/00/83ef7c53-b711-0b94-bd86-a1d4bc65418f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/05/23/01/2503aaf4-fa33-c962-1ba6-9ee767e226bc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 5/22/2022 Miles Guo: The CCP is just one of the enemies of the Whistleblowers' Movement. This selfishness, foolishness and ignorance of Chinese people is our biggest challenge; The so-called Monkeypox is actually caused by COVID va...
 
 <img src="https://media.gettr.com/group30/getter/2022/05/23/00/75fc3391-f409-f759-d6ad-dacef9ead2aa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1aw8t6cc0d.md)
+
+ 5月22号：这位女网红有27,77万粉丝……G FAHSION穿到她身上，实在是太漂亮……
+
+<img src="https://media.gettr.com/group28/getter/2022/05/23/00/83ef7c53-b711-0b94-bd86-a1d4bc65418f/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Day 77 - Date: M...
 【Ukraine Rescue】 05/21/2022 Tom, a volunteer from the United States, expresses: No one understands "oppression" better than the Chinese people, and it's great that you are speaking out for the freedom of the Chinese people; people ...
 
 <img src="https://media.gettr.com/group28/getter/2022/05/22/02/9d7c17a1-6b38-0dc7-b683-b4075228c5ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1arsm34df1.md)
-
-20.15 22.05.21 晚  新中国联邦 | 新闻访谈 欧洲、北美相继出现“猴痘病”
-
-<img src="https://media.gettr.com/group47/origin/2022/05/22/00/94743a52-6d71-c5f6-e7ac-e4f552225c8f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
