@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/23/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1axskg7d2f.md)
+
+ 2022.05.23新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group28/origin/2022/05/23/04/1dd08a0d-2f9e-6941-371f-696b0739405d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 4:04 AM UTC  - :tv:直播](/content/gettr/p1ax3vf4e43.md)
+
+5/22/2022 Miles Guo: For Xi Jinping, defeating Li Keqiang is as easy as winking. If Li asked me for advice, I would suggest that he forgot about fighting for the position of General Secretary, publicly showed his support for Xi, an...
+
+<img src="https://media.gettr.com/group29/getter/2022/05/23/04/0db68dd4-ecf4-91a7-7643-53da45a69b1f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1awurva2e9.md)
 
 2022-5-22《鸡血王喜币大作战》 第二百零三集 嘉宾：齐天二圣、七里香
@@ -39,14 +55,6 @@
 2022.05.22 晚  新中国联邦 | 新闻 新中国联邦和法治基金乌克兰救援的最新数据
 
 <img src="https://media.gettr.com/group44/origin/2022/05/23/00/536a4797-c449-c0d0-e324-2043d5e1a190/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 4:04 AM UTC  - :tv:直播](/content/gettr/p1ax3vf4e43.md)
-
-5/22/2022 Miles Guo: For Xi Jinping, defeating Li Keqiang is as easy as winking. If Li asked me for advice, I would suggest that he forgot about fighting for the position of General Secretary, publicly showed his support for Xi, an...
-
-<img src="https://media.gettr.com/group29/getter/2022/05/23/04/0db68dd4-ecf4-91a7-7643-53da45a69b1f/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,38 +175,6 @@ Mr. Miles Guo talked about the song "Dear Mamma, I Am Ending the CCP" and its si
 2022年5月22日 文贵大直播：从孙傅看孟王李习党内斗争鹿死谁手：谈经济粮食银行房地产倒塌防患未然
 
 <img src="https://media.gettr.com/group10/origin/2022/05/22/11/3a5fd1f4-0d31-a300-a0d9-43acbbe56c19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 7:28 AM UTC ](/content/gettr/p1at9so2214.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月20日第77天当日救援统计：
-
-Medyka救援站接待：约129人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21570人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 77 - Date: M...
-
-<img src="https://media.gettr.com/group8/getter/2022/05/22/07/82d3d3a5-dd1e-94c7-96b3-86e25306dcd2/b88cfbe3d917a9210c271fea0d330a7c.jpg" width="506" height="284">
 
 ---
 
