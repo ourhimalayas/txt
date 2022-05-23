@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/23/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1aye1yf516.md)
+
+2022.05.23  早 新中国联邦 | 新闻   郭文贵先生毕生只有灭共一个目标；中国人没有看清中共清零政策的险恶目的
+
+<img src="https://media.gettr.com/group32/origin/2022/05/23/12/a3dc7705-e180-608c-4ff6-af2ae456d387/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/23/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1ayu3b15e0.md)
+
+22.05.23 AM NFSC News     NFSC Rescue Operation Team to be Evacuated from Medyka by June
+
+<img src="https://media.gettr.com/group50/origin/2022/05/23/11/464e82f1-c839-d338-945b-75d974d1bbbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aylcm9271.md)
 
 2022.05.23  新中国联邦 | 军情室 浅谈无人机反制系统C-UAS
@@ -26,11 +42,23 @@
 
 ---
 
-[@miles 5/23/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1ayu3b15e0.md)
+[@miles 5/23/2022 12:37 PM UTC ](/content/gettr/p1ayy9m5ec9.md)
 
-22.05.23 AM NFSC News     NFSC Rescue Operation Team to be Evacuated from Medyka by June
+5月23号：尊敬的战友们好，日本成为联合国常任理事国……美国明确如果共产党入侵台湾，美国帮助台湾消灭共产党，这是爆料革命几年来说的事情！现在都发生了……在几年前．因此被那些所谓中国民主海外人士……和全球的所谓主流媒体说七哥是骗子……疯子……这些人和这些媒体都应该闭嘴了。
 
-<img src="https://media.gettr.com/group50/origin/2022/05/23/11/464e82f1-c839-d338-945b-75d974d1bbbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+【标题．拜登称：美国将保卫台湾
+
+【撰稿日期】２０２２.05.23
+
+【署名】撰稿：华盛顿DC农场 自由信仰 
+
+【新闻链接】
+
+https://www.wsj.com/article...
+
+<img src="https://media.gettr.com/group24/getter/2022/05/23/12/5ac752ce-7915-052a-b632-5ed3caa3fc90/d197305a3b5f45a6d29c9dc21213e0e7.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +195,6 @@ Day 78 - Date: M...
 5月22日：😱😱😱😱😱【《粮食危机》—— ​经济学人杂志，这期封面设计很恐怖，把图片放大】
 
 <img src="https://media.gettr.com/group37/getter/2022/05/23/00/a1fcd251-410c-ec59-8ded-7cf076a91fc8/1acd37106702c2cda11ab0eb7f588104.jpg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1avvxm6bca.md)
-
-2022.05.22 PM NFSC news   "Chained Dream" MV Topping iTunes Germany for 32 days
-
-<img src="https://media.gettr.com/group18/origin/2022/05/22/22/d93680d1-4fab-9da1-6a85-10c86b1967e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/22/2022 10:33 PM UTC  - :tv:直播](/content/gettr/p1avh7k81d9.md)
-
-5/22/2022 Miles Guo: Upon illegitimately seizing the power, the CCP started internal political struggles, and what happened to Liu Shaoqi and others reflected how cruel the CCP is. Mao Zedong's Anti-Rightist Campaign pushed the Gre...
-
-<img src="https://media.gettr.com/group29/getter/2022/05/22/22/4213e9c9-04bf-f0ca-e4e6-03f1aac7506d/out.jpg" width="506" height="284">
 
 ---
 
