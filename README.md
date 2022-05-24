@@ -11,26 +11,26 @@
 
 ---
 
+#### [新西兰法庭案件:挑战新冠疫苗强制令，获赔4万美元](/content/gnews/2593543.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [美韩承诺扩大合作以加强对朝威慑](/content/gnews/2593533.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [在中共国的压力下，世卫卫生组织会议拒绝接纳台湾](/content/gnews/2593505.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [拜登支持日本加强防卫并成为安理会常任理事国](/content/gnews/2593504.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [从模糊到清晰：中共若犯台美将军事干预](/content/gnews/2593482.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [Airbnb将从7月30日起关闭中共国本地业务](/content/gnews/2593466.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [安东尼·阿尔巴尼斯宣誓就任澳大利亚第31任总理](/content/gnews/2593459.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [星巴克将退出俄罗斯，关闭 130 家门店](/content/gnews/2593442.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [今日盖特大V推荐 — 参议员凯文·克莱默 （Sen. Kevin Cramer）](/content/gnews/2593410.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [四方领导人誓言为自由和开放的印太地区站在一起](/content/gnews/2593409.md)
  `秘密翻譯組G-Translators`
-
-#### [“安提法”力挺中、俄两国](/content/gnews/2593408.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [全球小麦储存现危机 仅有10周库存](/content/gnews/2593403.md)
  `秘密翻譯組G-Translators`
@@ -70,6 +70,9 @@
 
 #### [新疆警方档案泄露：维吾尔人被关押在“再培训中心”遭到了前所未见的虐待](/content/gnews/2593249.md)
  `日本东京方舟农场`
+
+#### [意外长指出欧盟在巴尔干地区的扩张迫在眉捷](/content/gnews/2593210.md)
+ `xiaobaige`
 
 #### [20220522文贵大直播：《时代革命、光复香港》的续篇及其因由和运动方式](/content/gnews/2593189.md)
  `秘密翻译组-原创组`
@@ -136,9 +139,6 @@
 
 #### [消失多年猴痘疾病爆发 疫苗灾难再次被印证](/content/gnews/2591997.md)
  `英国牛津梦想`
-
-#### [美国及世界疫情简报（05-24-2022）](/content/gnews/2591922.md)
- `波士顿五月花农场`
 
 #### [聚焦新中国联邦丨未来货币的定义](/content/gnews/2591861.md)
  `NFSCFocus`
