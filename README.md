@@ -11,14 +11,17 @@
 
 ---
 
+#### [从模糊到清晰：中共若犯台美将军事干预](/content/gnews/2593482.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [Airbnb将从7月30日起关闭中共国本地业务](/content/gnews/2593466.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [安东尼·阿尔巴尼斯宣誓就任澳大利亚第31任总理](/content/gnews/2593459.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [星巴克将退出俄罗斯，关闭 130 家门店](/content/gnews/2593442.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [DC每日热点0524](/content/gnews/2593434.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [今日盖特大V推荐 — 参议员凯文·克莱默 （Sen. Kevin Cramer）](/content/gnews/2593410.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -28,9 +31,6 @@
 
 #### [“安提法”力挺中、俄两国](/content/gnews/2593408.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [中共国警告拜登不要低估台湾问题的决心](/content/gnews/2593404.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [全球小麦储存现危机 仅有10周库存](/content/gnews/2593403.md)
  `秘密翻譯組G-Translators`
