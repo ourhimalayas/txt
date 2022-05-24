@@ -2,6 +2,9 @@
 ---
 
 
+#### [俄外长表示莫斯科将致力于与中共国的关系](/content/gnews/2593561.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [新西兰法庭案件:挑战新冠疫苗强制令，获赔4万美元](/content/gnews/2593543.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -12,9 +15,6 @@
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [拜登支持日本加强防卫并成为安理会常任理事国](/content/gnews/2593504.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [从模糊到清晰：中共若犯台美将军事干预](/content/gnews/2593482.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [今日盖特大V推荐 — 参议员凯文·克莱默 （Sen. Kevin Cramer）](/content/gnews/2593410.md)
@@ -54,9 +54,6 @@
  `MOSVIDEO`
 
 #### [5/24/2022 文贵直播：当被问到美国是否会武力保护台湾时，拜登总统一语中的地回答“是”，彻底改变了以往美国对台湾的模糊政策. 这是给台湾人民最大的礼物](/content/gnews/2593306.md)
- `秘密翻译组-北美组`
-
-#### [5/22/2022 文贵直播：波兰朋友老虎加入我们乌克兰救援团队，象征着西方和新中国联邦在国际救援前线的第一次全面合作](/content/gnews/2593270.md)
  `秘密翻译组-北美组`
 
 #### [新疆警方档案泄露：维吾尔人被关押在“再培训中心”遭到了前所未见的虐待](/content/gnews/2593249.md)
@@ -133,6 +130,9 @@
 
 #### [聚焦新中国联邦丨未来货币的定义](/content/gnews/2591861.md)
  `NFSCFocus`
+
+#### [文编&#124;中共并非美国自身问题的必要条件](/content/gnews/2591563.md)
+ `KarmaLabs`
 
 #### [对俄国侵乌感到羞耻 俄驻联合国外交官公开辞职](/content/gnews/2590968.md)
  `TokyoSakura Politics/樱花时政`
