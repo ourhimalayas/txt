@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 9:16 AM UTC  - :tv:直播](/content/gettr/p1b2yen5ee0.md)
+
+【Ukraine Rescue】 05/21/2022 Constantine, a Ukrainian refugee: The society now is money-first consumerism, where a few people and the media make decisions for everyone. We must use modern technology to build a creative society, dele...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/24/09/4ae7a235-c1c9-cede-7318-c2c3bb856b17/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 9:01 AM UTC ](/content/gettr/p1b2j9s70dd.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -31,6 +39,26 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 79 - Date: M...
 
 <img src="https://media.gettr.com/group27/getter/2022/05/24/09/5d292180-692f-6b16-e4bf-bb9233384f84/e092004daa4f68c1433b5de8cc524dc4.jpg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 9:23 AM UTC  - :tv:直播](/content/gettr/p1b2xem082e.md)
+
+【Ukrainian Rescue】 5/23/2022 Viking Rune, the president of the Norwegian rescue organization A-Team, gives First Aid training to the rescue volunteers in the Medyka camp in the big tent of NFSC and ROLF. He supports the NFSC and ho...
+
+<img src="https://media.gettr.com/group18/getter/2022/05/24/09/59158676-e865-9624-de3e-ad40760beeb7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 9:05 AM UTC  - :tv:直播](/content/gettr/p1b2bsj8ca5.md)
+
+5/22/2022 Miles Guo: The CCP will certainly be taken down. After the collapse of the CCP, a new group of leaders with an international perspective will emerge in Jiangsu and Zhejiang.
+
+
+
+5/22/2022 文贵直播：共产党一定被灭，中共倒台后江浙会涌现一批新的具有国际视野的...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/24/09/10c31d6d-4b22-d87c-ae24-ba1332473c8c/out.jpg" width="506" height="284">
 
 ---
 
@@ -75,18 +103,6 @@ Day 79 - Date: M...
 5/23/2022 Miles Guo’s GETTR: What is the meaning of the wheat sheaf consisting of skulls on a recent cover of The Economist? Food has been turned into a nuclear weapon, and why did the CCP stock up 50% of the world’s food last year...
 
 <img src="https://media.gettr.com/group40/getter/2022/05/24/02/57e553a1-a4c2-d6cf-48f6-e77f31635779/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 9:05 AM UTC  - :tv:直播](/content/gettr/p1b2bsj8ca5.md)
-
-5/22/2022 Miles Guo: The CCP will certainly be taken down. After the collapse of the CCP, a new group of leaders with an international perspective will emerge in Jiangsu and Zhejiang.
-
-
-
-5/22/2022 文贵直播：共产党一定被灭，中共倒台后江浙会涌现一批新的具有国际视野的...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/24/09/10c31d6d-4b22-d87c-ae24-ba1332473c8c/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,22 +203,6 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 一名来自乌克兰的志愿者感谢新中国联邦救援团队提供的帮助。她和她的义工朋友们每天一共喝12杯咖啡。
 
 <img src="https://media.gettr.com/group32/origin/2022/05/23/21/25c1f2da-c622-e0cd-6fcf-5c9299710675/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1b05n7b4f8.md)
-
-2022.05.23  新中国联邦 | 喜健康   勇敢的良心医生-全球冠状病毒峰会17000名医生
-
-<img src="https://media.gettr.com/group15/origin/2022/05/23/20/a42f83a8-0c2e-bf64-3fba-b8570dedce31/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 5:36 PM UTC  - :tv:直播](/content/gettr/p1azf40f775.md)
-
-2022.05.23  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group17/origin/2022/05/23/17/9acddf69-343c-5631-3682-8839d80bae4a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
