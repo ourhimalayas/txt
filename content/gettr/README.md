@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p1b3e7k8191.md)
+
+2022年5月24日 文贵大直播：拜登访韩干掉北朝鲜战略；联合国日本入常展现实力；美对台模糊政策彻底改变；粮食危机击垮缺粮国家
+
+<img src="https://media.gettr.com/group47/origin/2022/05/24/12/db8ce684-c3ca-60f0-94bd-d594c5083d26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 9:16 AM UTC  - :tv:直播](/content/gettr/p1b2yen5ee0.md)
 
 【Ukraine Rescue】 05/21/2022 Constantine, a Ukrainian refugee: The society now is money-first consumerism, where a few people and the media make decisions for everyone. We must use modern technology to build a creative society, dele...
@@ -10,11 +18,15 @@
 
 ---
 
-[@miles 5/24/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p1b3e7k8191.md)
+[@miles 5/24/2022 4:59 PM UTC  - 3圖](/content/gettr/p1b4avl4be5.md)
 
-2022年5月24日 文贵大直播：拜登访韩干掉北朝鲜战略；联合国日本入常展现实力；美对台模糊政策彻底改变；粮食危机击垮缺粮国家
+5月24号：尊敬的战友们好．邪恶的共产党不被消灭……共产党就会消灭全人类……
 
-<img src="https://media.gettr.com/group47/origin/2022/05/24/12/db8ce684-c3ca-60f0-94bd-d594c5083d26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibViOQ&s=08
+
+<img src="https://media.gettr.com/group35/getter/2022/05/24/16/6f051873-6bd8-f7cc-b925-19884dd58cb6/325c31a0f5c4588aecf1a76a674a342b.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +203,6 @@ Tangping (lying-flat) coin will be released in July for trial run
 Mr. Miles Guo Gettr broke the news in Gettr live on May 22 that the truly decentralized and valuable coin, Tangping (lying-flat) coin, will be released for trial ru...
 
 <img src="https://media.gettr.com/group49/origin/2022/05/23/23/3c7fb8f8-4916-bfb3-50ac-d058bcdd6728/df37dbd2c6f45fd8efc161adc8fe6195.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1b0iop50ae.md)
-
-2022年5月23日 战友测试乱聊
-
-<img src="https://media.gettr.com/group8/origin/2022/05/23/21/a65aaf70-864f-dc39-1114-4d2e9d898005/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
