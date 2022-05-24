@@ -11,26 +11,32 @@
 
 ---
 
-#### [量子电脑和生物电脑](/content/gnews/2587777.md)
+#### [七哥聊以色列巴西伪类的结局](/content/gnews/2587809.md)
+ `雅典娜GNotes`
+
+#### [七哥金句：共产党是人间最的大魔鬼](/content/gnews/2587801.md)
+ `雅典娜GNotes`
+
+#### [量子AI高超音速：揭示欧洲如何帮中共准备下一代战争（1/2）](/content/gnews/2587787.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [七哥金句：为别人的灾难叫好会有报应的](/content/gnews/2587778.md)
  `雅典娜GNotes`
 
 #### [公路每公里造价7亿 蒙特内哥罗不爽当“盘子”找中国算帐](/content/gnews/2587776.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [盖特数据中心](/content/gnews/2587775.md)
- `雅典娜GNotes`
-
-#### [20%的黄金储备](/content/gnews/2587771.md)
- `雅典娜GNotes`
-
-#### [港币和美元即将脱钩](/content/gnews/2587762.md)
- `雅典娜GNotes`
 
 #### [滴滴出行向纽交所提交退市通知](/content/gnews/2587746.md)
  `墨尔本雅典娜农场`
 
 #### [约20国向乌提供军援，不放弃制裁普京，示警中共](/content/gnews/2587729.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [习近平牵涉到遣返郭先生案件](/content/gnews/2587706.md)
+ `GTV News Talk`
+
+#### [安大略和魁北克遭致命风暴卷袭](/content/gnews/2587702.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [联合国人权专员访问新疆很难看到真实情况](/content/gnews/2587673.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -89,9 +95,6 @@
 #### [米利将军西点军校演讲：可能与中俄发生战争](/content/gnews/2587010.md)
  `墨尔本雅典娜农场`
 
-#### [拜登访日本 岸田文雄夫妇设宴款待](/content/gnews/2587001.md)
- `加拿大温哥华英里农场`
-
 #### [新神经网络技术让无人机在任何天气下飞行](/content/gnews/2586966.md)
  `NFSC News`
 
@@ -117,9 +120,6 @@
  `NFSC News`
 
 #### [拜登抵达日本 ,“四方会谈”和“印太经济架构”引关注](/content/gnews/2586842.md)
- `GTV News Talk`
-
-#### [梅迪卡撤离是为了下一次更伟大的国际行动](/content/gnews/2586771.md)
  `GTV News Talk`
 
 #### [滴滴股东预计将支持美国退市计划](/content/gnews/2586386.md)
