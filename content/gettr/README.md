@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/24/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1b18tn3a5b.md)
+
+22/5/2022 Miles Guo: This Polish fellow fighter is the first foreigner who joined the frontline rescue of the Russia-Ukraine war. He used to study in Communist China and knew the evil CCP. He supports the New Federal State of China...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/24/00/399cc8fd-b779-e44a-2b2a-45b1d244746b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1b15ise7eb.md)
+
+22/5/2022 Miles Guo: The citizens of the New Federal State of China participated in the rescue of the Russia-Ukraine war, which will become a great history of the world' s cooperation with the NFSC. The international rescue operati...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/24/00/5d92acd1-5e84-f7e2-78da-57259e47ef1d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 11:55 PM UTC ](/content/gettr/p1b18167dd3.md)
 
 Tangping (lying-flat) coin will be released in July for trial run
@@ -64,11 +80,11 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 
 ---
 
-[@miles 5/24/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1b15ise7eb.md)
+[@miles 5/24/2022 12:36 AM UTC  - :tv:直播](/content/gettr/p1b11u8c3b3.md)
 
-22/5/2022 Miles Guo: The citizens of the New Federal State of China participated in the rescue of the Russia-Ukraine war, which will become a great history of the world' s cooperation with the NFSC. The international rescue operati...
+5/23/2022 Miles Guo’s GETTR: President Biden visited South Korea and Japan, what does it mean? No more next generation for the ruling Kim family in North Korea; Japan's joining the U.S. Security Council means Japan will become the ...
 
-<img src="https://media.gettr.com/group23/getter/2022/05/24/00/5d92acd1-5e84-f7e2-78da-57259e47ef1d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/05/24/00/c21f149c-810f-263d-c51c-a1d084c03527/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,46 +175,6 @@ https://www.wsj.com/article...
 5/22/2022 Miles Guo: Fearing the naval soldiers performing the exclusive fishing tasks for the CCP kleptocrats would steal the fish, the CCP sent a spy to check the fishing crew. It turned out that no one stole any fish. To complet...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/23/08/8ccc5d28-ee00-5c76-6587-d236a65474ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 8:00 AM UTC  - :tv:直播](/content/gettr/p1axt843422.md)
-
- 2022.05.23 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
-
-<img src="https://media.gettr.com/group20/origin/2022/05/23/07/da7bd8a8-4e90-ec16-87f9-5ba7ef4b1212/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 5:37 AM UTC ](/content/gettr/p1axnxz53bd.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月21日第78天当日救援统计：
-
-Medyka救援站接待：约106人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21676人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 78 - Date: M...
-
-<img src="https://media.gettr.com/group10/getter/2022/05/23/05/5ecf52a2-f4a6-d216-2532-80cd15d3f057/90bfcfb3fb768833b168f070bd350939.jpg" width="506" height="284">
 
 ---
 
