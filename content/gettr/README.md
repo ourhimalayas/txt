@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 5:07 AM UTC  - :tv:直播](/content/gettr/p1b30u99d77.md)
+
+2022.05.24 新中国联邦法治基金乌克兰人道救援行动-最新战况播报
+
+<img src="https://media.gettr.com/group25/origin/2022/05/24/05/99e8f370-979e-ca5e-0177-3ad9b09c88b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 3:25 AM UTC  - :tv:直播](/content/gettr/p1b165w2670.md)
 
 【Ukraine Rescue】 05/21/2022  We are invited to visit the refugee camps in Lviv, Ukraine, along with other international organizations. The gentleman in charge of a refugee camp in the city center takes pictures of our vest because ...
@@ -26,11 +34,15 @@
 
 ---
 
-[@miles 5/24/2022 5:07 AM UTC  - :tv:直播](/content/gettr/p1b30u99d77.md)
+[@7upgogo 5/24/2022 12:05 AM UTC ](/content/gettr/p1b11f91c6c.md)
 
-2022.05.24 新中国联邦法治基金乌克兰人道救援行动-最新战况播报
+拜登承诺保卫台湾，中共气急败坏播出《珍珠港》
 
-<img src="https://media.gettr.com/group25/origin/2022/05/24/05/99e8f370-979e-ca5e-0177-3ad9b09c88b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+        After Biden made the remark at a joint news conference with Japanese Prime Minister Fumio Kishida in Tokyo, a reporter asked Biden if the United States would defend Taiwan if it were attacked. "Yes...
+
+<img src="https://media.gettr.com/group10/origin/2022/05/24/00/647cd93a-5a3b-06ae-4f0b-3b34a927ea5e/aeec179f3dad4deae0d7fd7bf4dfc90b.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +175,6 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 5/22/2022 Miles Guo: Solana, the so-called killer of Ethereum, uses its own unique blockchain technology and is actually like another BSN of Wang Qishan. Like Changpeng Zhao of Binance, Solana is also backed by the CCP. The main co...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/23/15/610a0df1-2a7e-3f4d-9cd5-bd29978503d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 3:22 PM UTC  - :tv:直播](/content/gettr/p1az0fe0be1.md)
-
-5月23号：尊敬的战友们好……这个世界在过去的48小时，是人类历史上最重要的重大的军事政治经济重要的历史时刻……明天上午七哥直播详细和大家聊聊，这几天发生的大事？
-
-<img src="https://media.gettr.com/group21/getter/2022/05/23/15/7177117c-8b32-eef5-e879-4fc851445d6b/out.jpg" width="506" height="284">
 
 ---
 
