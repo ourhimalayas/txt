@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/23/2022 11:55 PM UTC ](/content/gettr/p1b18167dd3.md)
+
+Tangping (lying-flat) coin will be released in July for trial run
+
+Mr. Miles Guo Gettr broke the news in Gettr live on May 22 that the truly decentralized and valuable coin, Tangping (lying-flat) coin, will be released for trial ru...
+
+<img src="https://media.gettr.com/group49/origin/2022/05/23/23/3c7fb8f8-4916-bfb3-50ac-d058bcdd6728/df37dbd2c6f45fd8efc161adc8fe6195.jpg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1b0iop50ae.md)
 
 2022年5月23日 战友测试乱聊
@@ -54,13 +64,11 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 
 ---
 
-[@miles 5/23/2022 11:55 PM UTC ](/content/gettr/p1b18167dd3.md)
+[@miles 5/24/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1b15ise7eb.md)
 
-Tangping (lying-flat) coin will be released in July for trial run
+22/5/2022 Miles Guo: The citizens of the New Federal State of China participated in the rescue of the Russia-Ukraine war, which will become a great history of the world' s cooperation with the NFSC. The international rescue operati...
 
-Mr. Miles Guo Gettr broke the news in Gettr live on May 22 that the truly decentralized and valuable coin, Tangping (lying-flat) coin, will be released for trial ru...
-
-<img src="https://media.gettr.com/group49/origin/2022/05/23/23/3c7fb8f8-4916-bfb3-50ac-d058bcdd6728/df37dbd2c6f45fd8efc161adc8fe6195.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/05/24/00/5d92acd1-5e84-f7e2-78da-57259e47ef1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ https://www.wsj.com/article...
  2022.05.23 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
 <img src="https://media.gettr.com/group20/origin/2022/05/23/07/da7bd8a8-4e90-ec16-87f9-5ba7ef4b1212/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 5:35 AM UTC  - :tv:直播](/content/gettr/p1axjxs1a27.md)
-
-5/22/2022 Miles Guo: The Americans trust Wang Qishan and Zeng Qinghong the most. The CCP will certainly end up being taken down by itself. After the collapse of the CCP, a new group of leaders with an international perspective will...
-
-<img src="https://media.gettr.com/group21/getter/2022/05/23/05/d1f16b44-a2a0-a99e-e05d-aeb8db2a2174/out.jpg" width="506" height="284">
 
 ---
 
