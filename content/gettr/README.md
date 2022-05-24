@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/24/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1b5rhg6572.md)
+
+5/24/2022 Miles Guo: President Biden's visit to Asia means the US not only has delivered its promise of improving the defense of the US, Japan, South Korea, and the Asia-Pacific region, but also has included Taiwan into this defens...
+
+<img src="https://media.gettr.com/group43/getter/2022/05/24/23/c2b66dcd-7843-c057-8795-d96322376958/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1b621j7ce0.md)
+
+5/24/2022 Miles Guo: When asked whether the US is willing to get militarily involved to defend Taiwan, President Biden answered with a single word "Yes". This means the US has changed its strategic ambiguity towards Taiwan, and it ...
+
+<img src="https://media.gettr.com/group38/getter/2022/05/24/22/195683a3-9903-d0a7-9bfa-c1e11ab5aa17/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1b51czf9fa.md)
 
 2022.05.24  新中国联邦 | 喜健康   民间“张文宏”声音越多，民族背负“沉甸甸”的恶果越少；猴痘是否成为比尔盖茨预言下一个大流行的“开胃菜”？
@@ -54,11 +70,11 @@ https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibVi
 
 ---
 
-[@miles 5/24/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1b621j7ce0.md)
+[@miles 5/24/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1b5vnbd95d.md)
 
-5/24/2022 Miles Guo: When asked whether the US is willing to get militarily involved to defend Taiwan, President Biden answered with a single word "Yes". This means the US has changed its strategic ambiguity towards Taiwan, and it ...
+5/24/2022 Miles Guo: As far as I know, the statement made by President Biden in Asia has gone through thoughtful discussions inside the US; The CCP never anticipated two things could happen: Russia's miserable failure and the US an...
 
-<img src="https://media.gettr.com/group38/getter/2022/05/24/22/195683a3-9903-d0a7-9bfa-c1e11ab5aa17/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/05/24/23/3a86b3a5-a00c-58ab-52c5-a2ee61ce21fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,22 +201,6 @@ Day 79 - Date: M...
 2022.05.23 晚  新中国联邦 | 喜财经  全球金融大崩溃的开端
 
 <img src="https://media.gettr.com/group44/origin/2022/04/14/02/c53636b8-a324-9365-8e9d-eac2fd2b8d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/24/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1b1j7z52b7.md)
-
-2022.05.23 晚 新中国联邦⎪新闻访谈 拜登首次亚洲行，剑指中共，世界格局大变；猴痘病毒大爆发，是病毒还是疫苗灾难？
-
-<img src="https://media.gettr.com/group28/origin/2022/05/24/01/31edd6db-b7e1-f8ac-4392-6e7dd641638a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/24/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1b1h7l8036.md)
-
-5/23/2022 Mile Guo's GETTR: The CCP’s “Zero COVID” policy has turned the image of Chinese people from “Sick Man of East Asia” to “Coward of East Asia”; the speech of President Biden conveyed a clear message to the CCP: if you dare ...
-
-<img src="https://media.gettr.com/group26/getter/2022/05/24/00/4e28e5a5-0a2b-39bd-6114-5016115383f0/out.jpg" width="506" height="284">
 
 ---
 
