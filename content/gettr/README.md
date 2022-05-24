@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1b4masddc6.md)
+
+2022-5-24 《避风港》（51）猴痘？辉瑞疫苗副作用？！
+
+<img src="https://media.gettr.com/group7/origin/2022/05/24/18/14de5338-bfce-95fb-b78b-64c04c909dc3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 5:39 PM UTC  - :tv:直播](/content/gettr/p1b4cqyb27c.md)
 
 2022年5月24日 俄乌战争战况播报
@@ -38,11 +46,11 @@ https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibVi
 
 ---
 
-[@miles 5/24/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1b4masddc6.md)
+[@miles 5/24/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1b51czf9fa.md)
 
-2022-5-24 《避风港》（51）猴痘？辉瑞疫苗副作用？！
+2022.05.24  新中国联邦 | 喜健康   民间“张文宏”声音越多，民族背负“沉甸甸”的恶果越少；猴痘是否成为比尔盖茨预言下一个大流行的“开胃菜”？
 
-<img src="https://media.gettr.com/group7/origin/2022/05/24/18/14de5338-bfce-95fb-b78b-64c04c909dc3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/05/24/20/d8265cf4-f997-5c20-b208-868a3bc04593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Day 79 - Date: M...
 5/23/2022 Mile Guo's GETTR: The CCP’s “Zero COVID” policy has turned the image of Chinese people from “Sick Man of East Asia” to “Coward of East Asia”; the speech of President Biden conveyed a clear message to the CCP: if you dare ...
 
 <img src="https://media.gettr.com/group26/getter/2022/05/24/00/4e28e5a5-0a2b-39bd-6114-5016115383f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1b18tn3a5b.md)
-
-22/5/2022 Miles Guo: This Polish fellow fighter is the first foreigner who joined the frontline rescue of the Russia-Ukraine war. He used to study in Communist China and knew the evil CCP. He supports the New Federal State of China...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/24/00/399cc8fd-b779-e44a-2b2a-45b1d244746b/out.jpg" width="506" height="284">
 
 ---
 
