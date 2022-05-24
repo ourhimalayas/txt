@@ -11,14 +11,35 @@
 
 ---
 
+#### [安东尼·阿尔巴尼斯宣誓就任澳大利亚第31任总理](/content/gnews/2593459.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [星巴克将退出俄罗斯，关闭 130 家门店](/content/gnews/2593442.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [DC每日热点0524](/content/gnews/2593434.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [今日盖特大V推荐 — 参议员凯文·克莱默 （Sen. Kevin Cramer）](/content/gnews/2593410.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [四方领导人誓言为自由和开放的印太地区站在一起](/content/gnews/2593409.md)
+ `秘密翻譯組G-Translators`
+
+#### [“安提法”力挺中、俄两国](/content/gnews/2593408.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [中共国警告拜登不要低估台湾问题的决心](/content/gnews/2593404.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [全球小麦储存现危机 仅有10周库存](/content/gnews/2593403.md)
  `秘密翻譯組G-Translators`
 
-#### [全球粮食危机或即将到来](/content/gnews/2593383.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [米歇尔-巴切莱特在争议中开展对中共国新疆地区的访问](/content/gnews/2593395.md)
+ `西班牙巴塞罗那喜悦农场`
 
-#### [中国共产党要求党内精英舍弃海外资产](/content/gnews/2593382.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
+#### [美联储调查显示，美国人甚至在通胀爆发之前就对经济感到担忧](/content/gnews/2593384.md)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [视频&#124;荷兰摄影记者控诉中共和主流媒体对真相的压制](/content/gnews/2593373.md)
  `MOSVIDEO`
@@ -31,15 +52,6 @@
 
 #### [视频&#124;美国司法部指控赌场大亨Steve Wynn充当中共代理人](/content/gnews/2593347.md)
  `MOSVIDEO`
-
-#### [上海封城结束了吗？（二）](/content/gnews/2593340.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [在爆料革命中修炼信用和无私](/content/gnews/2593338.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [日美领导人联合声明：加强自由和开放的国际秩序](/content/gnews/2593337.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [视频&#124;陆金所](/content/gnews/2593331.md)
  `MOSVIDEO`
@@ -58,9 +70,6 @@
 
 #### [新疆警方档案泄露：维吾尔人被关押在“再培训中心”遭到了前所未见的虐待](/content/gnews/2593249.md)
  `日本东京方舟农场`
-
-#### [即将到来的危机](/content/gnews/2593231.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [20220522文贵大直播：《时代革命、光复香港》的续篇及其因由和运动方式](/content/gnews/2593189.md)
  `秘密翻译组-原创组`
@@ -98,12 +107,6 @@
 #### [【G时新闻】北京9个区实施“提级管控” 全市大面积居家办公](/content/gnews/2592821.md)
  `G-时新闻`
 
-#### [若中共犯台美军会否介入？拜登明确回答“会！”（4/4）](/content/gnews/2592798.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月24日早](/content/gnews/2592797.md)
- `纽约香草山MOS01`
-
 #### [截至5.24 俄乌战事汇总](/content/gnews/2592796.md)
  `秘密翻譯組G-Translators`
 
@@ -139,9 +142,6 @@
 
 #### [聚焦新中国联邦丨未来货币的定义](/content/gnews/2591861.md)
  `NFSCFocus`
-
-#### [5/24/2022国际财经快讯：卢布对美元汇率四年来首次突破57美元；股市下滑，欧洲央行7月加息在即](/content/gnews/2591484.md)
- `秘密翻译组金融团队`
 
 #### [对俄国侵乌感到羞耻 俄驻联合国外交官公开辞职](/content/gnews/2590968.md)
  `TokyoSakura Politics/樱花时政`
