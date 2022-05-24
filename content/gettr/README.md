@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/24/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1b1h7l8036.md)
+
+5/23/2022 Mile Guo's GETTR: The CCP’s “Zero COVID” policy has turned the image of Chinese people from “Sick Man of East Asia” to “Coward of East Asia”; the speech of President Biden conveyed a clear message to the CCP: if you dare ...
+
+<img src="https://media.gettr.com/group26/getter/2022/05/24/00/4e28e5a5-0a2b-39bd-6114-5016115383f0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 12:36 AM UTC  - :tv:直播](/content/gettr/p1b11u8c3b3.md)
+
+5/23/2022 Miles Guo’s GETTR: President Biden visited South Korea and Japan, what does it mean? No more next generation for the ruling Kim family in North Korea; Japan's joining the U.S. Security Council means Japan will become the ...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/24/00/c21f149c-810f-263d-c51c-a1d084c03527/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1b15ise7eb.md)
 
 22/5/2022 Miles Guo: The citizens of the New Federal State of China participated in the rescue of the Russia-Ukraine war, which will become a great history of the world' s cooperation with the NFSC. The international rescue operati...
@@ -77,14 +93,6 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 5/22/2022 Miles Guo: Solana, the so-called killer of Ethereum, uses its own unique blockchain technology and is actually like another BSN of Wang Qishan. Like Changpeng Zhao of Binance, Solana is also backed by the CCP. The main co...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/23/15/610a0df1-2a7e-3f4d-9cd5-bd29978503d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 12:36 AM UTC  - :tv:直播](/content/gettr/p1b11u8c3b3.md)
-
-5/23/2022 Miles Guo’s GETTR: President Biden visited South Korea and Japan, what does it mean? No more next generation for the ruling Kim family in North Korea; Japan's joining the U.S. Security Council means Japan will become the ...
-
-<img src="https://media.gettr.com/group31/getter/2022/05/24/00/c21f149c-810f-263d-c51c-a1d084c03527/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ https://www.wsj.com/article...
 5/22/2022 Miles Guo: The Himalaya Dollar is the real and eternal stablecoin. One Himalaya Dollar for one US dollar will never change. Wang Qishan is behind Solana. The Tangping (lying-flat) Coin is coming soon in July for a test ru...
 
 <img src="https://media.gettr.com/group49/getter/2022/05/23/09/d9b67bea-4b40-5ce3-d83a-58c175792586/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 8:48 AM UTC  - :tv:直播](/content/gettr/p1axlt2dcd3.md)
-
-2022.05.22 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group43/origin/2022/05/23/08/a424de6c-dc11-0332-7ce8-c9fea4d2f9e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
