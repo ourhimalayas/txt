@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1b1j7z52b7.md)
+
+2022.05.23 晚 新中国联邦⎪新闻访谈 拜登首次亚洲行，剑指中共，世界格局大变；猴痘病毒大爆发，是病毒还是疫苗灾难？
+
+<img src="https://media.gettr.com/group28/origin/2022/05/24/01/31edd6db-b7e1-f8ac-4392-6e7dd641638a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1b1h7l8036.md)
 
 5/23/2022 Mile Guo's GETTR: The CCP’s “Zero COVID” policy has turned the image of Chinese people from “Sick Man of East Asia” to “Coward of East Asia”; the speech of President Biden conveyed a clear message to the CCP: if you dare ...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/24/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1b1j7z52b7.md)
+[@miles 5/24/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1b16zv741f.md)
 
-2022.05.23 晚 新中国联邦⎪新闻访谈 拜登首次亚洲行，剑指中共，世界格局大变；猴痘病毒大爆发，是病毒还是疫苗灾难？
+2022.05.23 晚  新中国联邦 | 喜财经  全球金融大崩溃的开端
 
-<img src="https://media.gettr.com/group28/origin/2022/05/24/01/31edd6db-b7e1-f8ac-4392-6e7dd641638a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/04/14/02/c53636b8-a324-9365-8e9d-eac2fd2b8d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ https://www.wsj.com/article...
 2022.05.23  新中国联邦 | 军情室 浅谈无人机反制系统C-UAS
 
 <img src="https://media.gettr.com/group14/origin/2022/05/23/10/562be129-5c78-0562-43fc-d165e7f1d7b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 9:03 AM UTC  - :tv:直播](/content/gettr/p1axh0j5ead.md)
-
-5/22/2022 Miles Guo: The Himalaya Dollar is the real and eternal stablecoin. One Himalaya Dollar for one US dollar will never change. Wang Qishan is behind Solana. The Tangping (lying-flat) Coin is coming soon in July for a test ru...
-
-<img src="https://media.gettr.com/group49/getter/2022/05/23/09/d9b67bea-4b40-5ce3-d83a-58c175792586/out.jpg" width="506" height="284">
 
 ---
 
