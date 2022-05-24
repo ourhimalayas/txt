@@ -11,17 +11,20 @@
 
 ---
 
-#### [【说事儿】郭文贵先生揭示猴痘病毒就是疫苗灾难体现](/content/gnews/2591865.md)
+#### [【说事儿】联合国人权事务高级专员抵华 将访问新疆](/content/gnews/2591919.md)
  `TokyoSakuraDesignGroup`
 
-#### [聚焦新中国联邦丨未来货币的定义](/content/gnews/2591861.md)
- `NFSCFocus`
-
-#### [【说事儿】联合国：全球有超过一亿人流离失所](/content/gnews/2591852.md)
+#### [【说事儿】星巴克关闭130家门店退出俄罗斯](/content/gnews/2591912.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】拜登出访韩国、日本，同时着眼于中共国](/content/gnews/2591833.md)
+#### [【说事儿】拜登承诺武力保护台湾并支持日本成为常任理事国](/content/gnews/2591900.md)
  `TokyoSakuraDesignGroup`
+
+#### [【说事儿】乌克兰戒严令延长三个月 为俄罗斯的入侵长期化做准备](/content/gnews/2591885.md)
+ `TokyoSakuraDesignGroup`
+
+#### [俄罗斯发动全面进攻，在东部包围乌克兰军队](/content/gnews/2591842.md)
+ `波士顿五月花农场金融部`
 
 #### [聚焦新中国联邦丨中共国粮食短缺](/content/gnews/2591830.md)
  `NFSCFocus`
@@ -32,13 +35,13 @@
 #### [有声｜王毅马拉松式访问太平洋岛国](/content/gnews/2591797.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [【樱话】中日财经爆┃韩国召开世界天然气大会 稳定天然气供应](/content/gnews/2591794.md)
- `TokyoSakuraDesignGroup`
-
 #### [聚焦新中国联邦丨SWIFT制裁](/content/gnews/2591793.md)
  `NFSCFocus`
 
 #### [有声&#124;喜马拉雅币一周分析与总结（5月16日-5月22日）](/content/gnews/2591788.md)
+ `MOSREC`
+
+#### [有声&#124;中共执政70年是政治斗争的70年](/content/gnews/2591763.md)
  `MOSREC`
 
 #### [有声｜拜登访日期间 共军再出动3艘军舰](/content/gnews/2591746.md)
@@ -46,9 +49,6 @@
 
 #### [每日快报：世界各地对通货膨胀的担忧正在飙升](/content/gnews/2591693.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [有声&#124;中共国粮食危机将超过三年大饥荒](/content/gnews/2591671.md)
- `MOSREC`
 
 #### [有声｜中共以公务员招聘做诱饵忽悠应届毕业生支农](/content/gnews/2591642.md)
  `秘密翻译组-即时新闻播报组`
@@ -67,6 +67,9 @@
 
 #### [美英法德加澳等10国发声挺台湾参与WHA](/content/gnews/2591444.md)
  `墨尔本雅典娜农场`
+
+#### [拜登总统明确表示 参与台湾防御 不会让其成为第二乌克兰](/content/gnews/2591416.md)
+ `TokyoSakura Politics/樱花时政`
 
 #### [文贵视角: 新中国联邦不容忍共产党在中国搞大屠杀](/content/gnews/2591405.md)
  `秘密翻译组-原创组`
@@ -163,9 +166,6 @@
 
 #### [公路每公里造价7亿 蒙特内哥罗不爽当“盘子”找中国算帐](/content/gnews/2587776.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [2022年5月24日《樱花快报》：拜登明确表示中共若入侵台湾，美国将军事干预](/content/gnews/2587519.md)
- `东京樱花团`
 
 #### [灭共靠自己，与中共勾兑的一些西方团体不要再助纣为虐](/content/gnews/2574666.md)
  `日本东京方舟农场`
