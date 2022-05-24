@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/23/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1b0iop50ae.md)
+
+2022年5月23日 战友测试乱聊
+
+<img src="https://media.gettr.com/group8/origin/2022/05/23/21/a65aaf70-864f-dc39-1114-4d2e9d898005/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/23/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1b0r4ycde9.md)
 
 A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She and her volunteer friends drink 12 cups of coffee a day.
@@ -46,11 +54,13 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 
 ---
 
-[@miles 5/23/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1b0iop50ae.md)
+[@miles 5/23/2022 11:55 PM UTC ](/content/gettr/p1b18167dd3.md)
 
-2022年5月23日 战友测试乱聊
+Tangping (lying-flat) coin will be released in July for trial run
 
-<img src="https://media.gettr.com/group8/origin/2022/05/23/21/a65aaf70-864f-dc39-1114-4d2e9d898005/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+Mr. Miles Guo Gettr broke the news in Gettr live on May 22 that the truly decentralized and valuable coin, Tangping (lying-flat) coin, will be released for trial ru...
+
+<img src="https://media.gettr.com/group49/origin/2022/05/23/23/3c7fb8f8-4916-bfb3-50ac-d058bcdd6728/df37dbd2c6f45fd8efc161adc8fe6195.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 78 - Date: M...
 
 <img src="https://media.gettr.com/group10/getter/2022/05/23/05/5ecf52a2-f4a6-d216-2532-80cd15d3f057/90bfcfb3fb768833b168f070bd350939.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1axskg7d2f.md)
-
- 2022.05.23新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group28/origin/2022/05/23/04/1dd08a0d-2f9e-6941-371f-696b0739405d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
