@@ -26,11 +26,11 @@
 
 ---
 
-[@miles 5/24/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1b2phy5c6e.md)
+[@miles 5/24/2022 5:07 AM UTC  - :tv:直播](/content/gettr/p1b30u99d77.md)
 
-2022.05.24 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
+2022.05.24 新中国联邦法治基金乌克兰人道救援行动-最新战况播报
 
-<img src="https://media.gettr.com/group36/origin/2022/05/24/04/86e193de-5935-d4d6-38ee-2e0082ae9ba9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/05/24/05/99e8f370-979e-ca5e-0177-3ad9b09c88b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
