@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1b51czf9fa.md)
+
+2022.05.24  新中国联邦 | 喜健康   民间“张文宏”声音越多，民族背负“沉甸甸”的恶果越少；猴痘是否成为比尔盖茨预言下一个大流行的“开胃菜”？
+
+<img src="https://media.gettr.com/group46/origin/2022/05/24/20/d8265cf4-f997-5c20-b208-868a3bc04593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1b4masddc6.md)
 
 2022-5-24 《避风港》（51）猴痘？辉瑞疫苗副作用？！
@@ -46,11 +54,11 @@ https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibVi
 
 ---
 
-[@miles 5/24/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1b51czf9fa.md)
+[@miles 5/24/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1b621j7ce0.md)
 
-2022.05.24  新中国联邦 | 喜健康   民间“张文宏”声音越多，民族背负“沉甸甸”的恶果越少；猴痘是否成为比尔盖茨预言下一个大流行的“开胃菜”？
+5/24/2022 Miles Guo: When asked whether the US is willing to get militarily involved to defend Taiwan, President Biden answered with a single word "Yes". This means the US has changed its strategic ambiguity towards Taiwan, and it ...
 
-<img src="https://media.gettr.com/group46/origin/2022/05/24/20/d8265cf4-f997-5c20-b208-868a3bc04593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/05/24/22/195683a3-9903-d0a7-9bfa-c1e11ab5aa17/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ Day 79 - Date: M...
 5/23/2022 Mile Guo's GETTR: The CCP’s “Zero COVID” policy has turned the image of Chinese people from “Sick Man of East Asia” to “Coward of East Asia”; the speech of President Biden conveyed a clear message to the CCP: if you dare ...
 
 <img src="https://media.gettr.com/group26/getter/2022/05/24/00/4e28e5a5-0a2b-39bd-6114-5016115383f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 12:36 AM UTC  - :tv:直播](/content/gettr/p1b11u8c3b3.md)
-
-5/23/2022 Miles Guo’s GETTR: President Biden visited South Korea and Japan, what does it mean? No more next generation for the ruling Kim family in North Korea; Japan's joining the U.S. Security Council means Japan will become the ...
-
-<img src="https://media.gettr.com/group31/getter/2022/05/24/00/c21f149c-810f-263d-c51c-a1d084c03527/out.jpg" width="506" height="284">
 
 ---
 
