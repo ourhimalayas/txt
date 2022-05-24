@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1b1hpnb0d6.md)
+
+2022-5-23《鸡血王喜币大作战》 第二百零四集 嘉宾：青藤、Nick
+
+<img src="https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 2:17 AM UTC  - :tv:直播](/content/gettr/p1b1m679777.md)
 
 5/23/2022 Miles Guo’s GETTR: What is the meaning of the wheat sheaf consisting of skulls on a recent cover of The Economist? Food has been turned into a nuclear weapon, and why did the CCP stock up 50% of the world’s food last year...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/24/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1b1hpnb0d6.md)
+[@miles 5/24/2022 3:25 AM UTC  - :tv:直播](/content/gettr/p1b165w2670.md)
 
-2022-5-23《鸡血王喜币大作战》 第二百零四集 嘉宾：青藤、Nick
+【Ukraine Rescue】 05/21/2022  We are invited to visit the refugee camps in Lviv, Ukraine, along with other international organizations. The gentleman in charge of a refugee camp in the city center takes pictures of our vest because ...
 
-<img src="https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/05/24/02/488308bd-7d6c-edb6-ffb8-f7be31b50860/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 [@miles 5/23/2022 2:03 PM UTC ](/content/gettr/p1ayi2t21ef.md)
 
 5月23号：你若不相信。……【这应该是七哥多次警告后，世界上第一个主权国家的卫生部承认接种疫苗的人更容易感染新冠病毒……日本厚生劳动省即(日本卫生部】)https://tweetsoku.com/2022/05/20/%e3%80%90%e7%89%b9%e5%88%a5%e9%87%8d%e5%a4%a7%e5%a0%b1%e9%81%93%e3%80%91%e3%83%af%e3%82%af%e3%83%81%e3%83%b3%e6%8e%a5%e7%a...
-
----
-
-[@miles 5/23/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1aympdb709.md)
-
-2022.05.23  早 新中国联邦 | 新闻访谈    拜登称若台湾被攻击美国将军事介入
-
-<img src="https://media.gettr.com/group36/origin/2022/05/23/13/5f92e281-7a0e-389e-9349-1c92307522c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
