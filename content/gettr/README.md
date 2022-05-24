@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/24/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p1b3e7k8191.md)
+
+2022年5月24日 文贵大直播：拜登访韩干掉北朝鲜战略；联合国日本入常展现实力；美对台模糊政策彻底改变；粮食危机击垮缺粮国家
+
+<img src="https://media.gettr.com/group47/origin/2022/05/24/12/db8ce684-c3ca-60f0-94bd-d594c5083d26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 9:23 AM UTC  - :tv:直播](/content/gettr/p1b2xem082e.md)
+
+【Ukrainian Rescue】 5/23/2022 Viking Rune, the president of the Norwegian rescue organization A-Team, gives First Aid training to the rescue volunteers in the Medyka camp in the big tent of NFSC and ROLF. He supports the NFSC and ho...
+
+<img src="https://media.gettr.com/group18/getter/2022/05/24/09/59158676-e865-9624-de3e-ad40760beeb7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 9:01 AM UTC ](/content/gettr/p1b2j9s70dd.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -39,14 +55,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 79 - Date: M...
 
 <img src="https://media.gettr.com/group27/getter/2022/05/24/09/5d292180-692f-6b16-e4bf-bb9233384f84/e092004daa4f68c1433b5de8cc524dc4.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 9:23 AM UTC  - :tv:直播](/content/gettr/p1b2xem082e.md)
-
-【Ukrainian Rescue】 5/23/2022 Viking Rune, the president of the Norwegian rescue organization A-Team, gives First Aid training to the rescue volunteers in the Medyka camp in the big tent of NFSC and ROLF. He supports the NFSC and ho...
-
-<img src="https://media.gettr.com/group18/getter/2022/05/24/09/59158676-e865-9624-de3e-ad40760beeb7/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,18 +199,6 @@ Mr. Miles Guo Gettr broke the news in Gettr live on May 22 that the truly decent
 2022年5月23日 战友测试乱聊
 
 <img src="https://media.gettr.com/group8/origin/2022/05/23/21/a65aaf70-864f-dc39-1114-4d2e9d898005/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1b0r4ycde9.md)
-
-A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She and her volunteer friends drink 12 cups of coffee a day.
-
-
-
-一名来自乌克兰的志愿者感谢新中国联邦救援团队提供的帮助。她和她的义工朋友们每天一共喝12杯咖啡。
-
-<img src="https://media.gettr.com/group32/origin/2022/05/23/21/25c1f2da-c622-e0cd-6fcf-5c9299710675/out.jpg" width="506" height="284">
 
 ---
 
