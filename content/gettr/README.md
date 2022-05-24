@@ -10,11 +10,33 @@
 
 ---
 
+[@miles 5/24/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1b1hpnb0d6.md)
+
+2022-5-23《鸡血王喜币大作战》 第二百零四集 嘉宾：青藤、Nick
+
+<img src="https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 2:22 AM UTC  - :tv:直播](/content/gettr/p1b1p9f18ba.md)
 
 5/22/2022 Mile Guo: The top level of the CCP has made the decision that no one who is related to the cases of Sun Lijun, Meng Jiangzhu, Wang Qishan and Fu Zhenghua will be spared; the Himalaya Farms of the New Federal State of Chin...
 
 <img src="https://media.gettr.com/group41/getter/2022/05/24/02/2f121baa-be4e-8d13-c52c-710de59db3c6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1b1dp84cf0.md)
+
+5/22/2022 Miles Guo: The Americans trust Wang Qishan and Zeng Qinghong the most
+
+
+
+5/22/2022 文贵直播：美国人最信任的是王岐山和曾庆红
+
+
+
+<img src="https://media.gettr.com/group43/getter/2022/05/24/02/b84c7e9d-ba0f-1f3e-b16b-09ee3c1f116c/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,20 +69,6 @@
 22/5/2022 Miles Guo: This Polish fellow fighter is the first foreigner who joined the frontline rescue of the Russia-Ukraine war. He used to study in Communist China and knew the evil CCP. He supports the New Federal State of China...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/24/00/399cc8fd-b779-e44a-2b2a-45b1d244746b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1b1dp84cf0.md)
-
-5/22/2022 Miles Guo: The Americans trust Wang Qishan and Zeng Qinghong the most
-
-
-
-5/22/2022 文贵直播：美国人最信任的是王岐山和曾庆红
-
-
-
-<img src="https://media.gettr.com/group43/getter/2022/05/24/02/b84c7e9d-ba0f-1f3e-b16b-09ee3c1f116c/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,26 +169,6 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 2022.05.23  早 新中国联邦 | 新闻访谈    拜登称若台湾被攻击美国将军事介入
 
 <img src="https://media.gettr.com/group36/origin/2022/05/23/13/5f92e281-7a0e-389e-9349-1c92307522c4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/23/2022 12:37 PM UTC ](/content/gettr/p1ayy9m5ec9.md)
-
-5月23号：尊敬的战友们好，日本成为联合国常任理事国……美国明确如果共产党入侵台湾，美国帮助台湾消灭共产党，这是爆料革命几年来说的事情！现在都发生了……在几年前．因此被那些所谓中国民主海外人士……和全球的所谓主流媒体说七哥是骗子……疯子……这些人和这些媒体都应该闭嘴了。
-
-
-
-【标题．拜登称：美国将保卫台湾
-
-【撰稿日期】２０２２.05.23
-
-【署名】撰稿：华盛顿DC农场 自由信仰 
-
-【新闻链接】
-
-https://www.wsj.com/article...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/23/12/5ac752ce-7915-052a-b632-5ed3caa3fc90/d197305a3b5f45a6d29c9dc21213e0e7.jpg" width="506" height="284">
 
 ---
 
