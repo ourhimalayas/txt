@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 5:39 PM UTC  - :tv:直播](/content/gettr/p1b4cqyb27c.md)
+
+2022年5月24日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group34/origin/2022/05/24/17/41323cd7-1a77-0d0d-3d1b-2ff18e04d9d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 4:59 PM UTC  - 3圖](/content/gettr/p1b4avl4be5.md)
 
 5月24号：尊敬的战友们好．邪恶的共产党不被消灭……共产党就会消灭全人类……
@@ -30,11 +38,11 @@ https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibVi
 
 ---
 
-[@miles 5/24/2022 5:39 PM UTC  - :tv:直播](/content/gettr/p1b4cqyb27c.md)
+[@miles 5/24/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1b4masddc6.md)
 
-2022年5月24日 俄乌战争战况播报
+2022-5-24 《避风港》（51）猴痘？辉瑞疫苗副作用？！
 
-<img src="https://media.gettr.com/group34/origin/2022/05/24/17/41323cd7-1a77-0d0d-3d1b-2ff18e04d9d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/05/24/18/14de5338-bfce-95fb-b78b-64c04c909dc3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ Day 79 - Date: M...
 5/23/2022 Miles Guo’s GETTR: President Biden visited South Korea and Japan, what does it mean? No more next generation for the ruling Kim family in North Korea; Japan's joining the U.S. Security Council means Japan will become the ...
 
 <img src="https://media.gettr.com/group31/getter/2022/05/24/00/c21f149c-810f-263d-c51c-a1d084c03527/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1b15ise7eb.md)
-
-22/5/2022 Miles Guo: The citizens of the New Federal State of China participated in the rescue of the Russia-Ukraine war, which will become a great history of the world' s cooperation with the NFSC. The international rescue operati...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/24/00/5d92acd1-5e84-f7e2-78da-57259e47ef1d/out.jpg" width="506" height="284">
 
 ---
 
