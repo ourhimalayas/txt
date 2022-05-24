@@ -2,8 +2,14 @@
 ---
 
 
+#### [视频&#124;中共内部录音曝光，取消疫苗接种刻不容缓](/content/gnews/2593797.md)
+ `KarmaLabs`
+
 #### [英格兰统计局办公室公开承认惊人死亡数据：近18万人在注射新冠疫苗60天内死亡。](/content/gnews/2593733.md)
  `mayflowertranslate`
+
+#### [文贵大直播重点大纲：2022/05/24](/content/gnews/2593716.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [2022年5月24日文贵大直播：七哥手把手教你如何获得更多躺平币](/content/gnews/2593694.md)
  `秘密翻译组-原创组`
@@ -19,6 +25,9 @@
 
 #### [新西兰法庭案件:挑战新冠疫苗强制令，获赔4万美元](/content/gnews/2593543.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [杀害乌克兰平民的俄罗斯士兵被判无期徒刑](/content/gnews/2593485.md)
+ `NFSC News`
 
 #### [乌克兰官员称 已排除与俄停战的可能性](/content/gnews/2593484.md)
  `NFSC News`
@@ -42,12 +51,6 @@
  `MOSVIDEO`
 
 #### [视频&#124;美国司法部指控赌场大亨Steve Wynn充当中共代理人](/content/gnews/2593347.md)
- `MOSVIDEO`
-
-#### [视频&#124;陆金所](/content/gnews/2593331.md)
- `MOSVIDEO`
-
-#### [视频&#124;中共对联合国人权理事会决议投反对票公开支持俄罗斯](/content/gnews/2593320.md)
  `MOSVIDEO`
 
 #### [新疆警方档案泄露：维吾尔人被关押在“再培训中心”遭到了前所未见的虐待](/content/gnews/2593249.md)
@@ -101,6 +104,9 @@
 #### [消失多年猴痘疾病爆发 疫苗灾难再次被印证](/content/gnews/2591997.md)
  `英国牛津梦想`
 
+#### [赌场大亨SteveWynn被美国司法部起诉（第2期）](/content/gnews/2591931.md)
+ `秘密翻译组-即时新闻播报组`
+
 #### [聚焦新中国联邦丨未来货币的定义](/content/gnews/2591861.md)
  `NFSCFocus`
 
@@ -111,9 +117,6 @@
  `KarmaLabs`
 
 #### [文编&#124;资本家把绞索卖给即将绞死他们的人，中共顺势进行超限战](/content/gnews/2591395.md)
- `KarmaLabs`
-
-#### [文编&#124;以美灭共的方略，在于符合美国的利益](/content/gnews/2591324.md)
  `KarmaLabs`
 
 #### [文编&#124;习近平的身体状态千疮百孔](/content/gnews/2591018.md)
@@ -141,9 +144,6 @@
  `NFSC News`
 
 #### [从斯蒂夫·永利被诉看《外国代理人登记法》](/content/gnews/2588496.md)
- `NFSC News`
-
-#### [郭先生指 中共体制绝无可能改善](/content/gnews/2588458.md)
  `NFSC News`
 
 #### [拜登说：如果中共国入侵台湾，美国将做出军事回应](/content/gnews/2588132.md)
