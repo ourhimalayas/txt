@@ -11,22 +11,16 @@
 
 ---
 
+#### [【粤语配音】2022年5月24日：什么情况下才能灭共](/content/gnews/2593645.md)
+ `MOS香港部`
+
+#### [五月花简报](/content/gnews/2593586.md)
+ `mayflowertranslate`
+
 #### [俄外长表示莫斯科将致力于与中共国的关系](/content/gnews/2593561.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [新西兰法庭案件:挑战新冠疫苗强制令，获赔4万美元](/content/gnews/2593543.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [美韩承诺扩大合作以加强对朝威慑](/content/gnews/2593533.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [在中共国的压力下，世卫卫生组织会议拒绝接纳台湾](/content/gnews/2593505.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [拜登支持日本加强防卫并成为安理会常任理事国](/content/gnews/2593504.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [今日盖特大V推荐 — 参议员凯文·克莱默 （Sen. Kevin Cramer）](/content/gnews/2593410.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [四方领导人誓言为自由和开放的印太地区站在一起](/content/gnews/2593409.md)
@@ -59,17 +53,8 @@
 #### [视频&#124;中共对联合国人权理事会决议投反对票公开支持俄罗斯](/content/gnews/2593320.md)
  `MOSVIDEO`
 
-#### [视频&#124;轴心法](/content/gnews/2593315.md)
- `MOSVIDEO`
-
-#### [5/24/2022 文贵直播：当被问到美国是否会武力保护台湾时，拜登总统一语中的地回答“是”，彻底改变了以往美国对台湾的模糊政策. 这是给台湾人民最大的礼物](/content/gnews/2593306.md)
- `秘密翻译组-北美组`
-
 #### [新疆警方档案泄露：维吾尔人被关押在“再培训中心”遭到了前所未见的虐待](/content/gnews/2593249.md)
  `日本东京方舟农场`
-
-#### [意外长指出欧盟在巴尔干地区的扩张迫在眉捷](/content/gnews/2593210.md)
- `xiaobaige`
 
 #### [20220522文贵大直播：《时代革命、光复香港》的续篇及其因由和运动方式](/content/gnews/2593189.md)
  `秘密翻译组-原创组`
@@ -110,9 +95,6 @@
 #### [截至5.24 俄乌战事汇总](/content/gnews/2592796.md)
  `秘密翻譯組G-Translators`
 
-#### [日澳同意加强防务和安全合作以对抗中共](/content/gnews/2592688.md)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [IMF：全球经济在经历连续危机后前景黯淡](/content/gnews/2592544.md)
  `秘密翻譯組G-Translators`
 
@@ -143,6 +125,12 @@
 #### [文编&#124;中共并非美国自身问题的必要条件](/content/gnews/2591563.md)
  `KarmaLabs`
 
+#### [文编&#124;谎言和利益编织的华盛顿特区是沼泽地游说文化的修罗场](/content/gnews/2591539.md)
+ `KarmaLabs`
+
+#### [文编&#124;撼山易，撼喜美元难](/content/gnews/2591500.md)
+ `KarmaLabs`
+
 #### [对俄国侵乌感到羞耻 俄驻联合国外交官公开辞职](/content/gnews/2590968.md)
  `TokyoSakura Politics/樱花时政`
 
@@ -166,6 +154,18 @@
 
 #### [拜登为灭共开启首次亚洲之行](/content/gnews/2588049.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [文编&#124;平爆经费之一](/content/gnews/2584259.md)
+ `KarmaLabs`
+
+#### [文编&#124;当今世界格局：俄乌战争不会动摇美国根基](/content/gnews/2584172.md)
+ `KarmaLabs`
+
+#### [文编&#124;反馈与纠错才能使G-Fashion日趋成熟](/content/gnews/2584080.md)
+ `KarmaLabs`
+
+#### [文编&#124;新中国联邦人应有的新面貌](/content/gnews/2583999.md)
+ `KarmaLabs`
 
 #### [灭共靠自己，与中共勾兑的一些西方团体不要再助纣为虐](/content/gnews/2574666.md)
  `日本东京方舟农场`
