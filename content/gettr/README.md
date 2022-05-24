@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/24/2022 4:59 PM UTC  - 3圖](/content/gettr/p1b4avl4be5.md)
+
+5月24号：尊敬的战友们好．邪恶的共产党不被消灭……共产党就会消灭全人类……
+
+
+
+https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibViOQ&s=08
+
+<img src="https://media.gettr.com/group35/getter/2022/05/24/16/6f051873-6bd8-f7cc-b925-19884dd58cb6/325c31a0f5c4588aecf1a76a674a342b.jpg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p1b3e7k8191.md)
 
 2022年5月24日 文贵大直播：拜登访韩干掉北朝鲜战略；联合国日本入常展现实力；美对台模糊政策彻底改变；粮食危机击垮缺粮国家
@@ -18,15 +30,11 @@
 
 ---
 
-[@miles 5/24/2022 4:59 PM UTC  - 3圖](/content/gettr/p1b4avl4be5.md)
+[@miles 5/24/2022 5:39 PM UTC  - :tv:直播](/content/gettr/p1b4cqyb27c.md)
 
-5月24号：尊敬的战友们好．邪恶的共产党不被消灭……共产党就会消灭全人类……
+2022年5月24日 俄乌战争战况播报
 
-
-
-https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibViOQ&s=08
-
-<img src="https://media.gettr.com/group35/getter/2022/05/24/16/6f051873-6bd8-f7cc-b925-19884dd58cb6/325c31a0f5c4588aecf1a76a674a342b.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/05/24/17/41323cd7-1a77-0d0d-3d1b-2ff18e04d9d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -193,16 +201,6 @@ Day 79 - Date: M...
 22/5/2022 Miles Guo: The citizens of the New Federal State of China participated in the rescue of the Russia-Ukraine war, which will become a great history of the world' s cooperation with the NFSC. The international rescue operati...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/24/00/5d92acd1-5e84-f7e2-78da-57259e47ef1d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 11:55 PM UTC ](/content/gettr/p1b18167dd3.md)
-
-Tangping (lying-flat) coin will be released in July for trial run
-
-Mr. Miles Guo Gettr broke the news in Gettr live on May 22 that the truly decentralized and valuable coin, Tangping (lying-flat) coin, will be released for trial ru...
-
-<img src="https://media.gettr.com/group49/origin/2022/05/23/23/3c7fb8f8-4916-bfb3-50ac-d058bcdd6728/df37dbd2c6f45fd8efc161adc8fe6195.jpg" width="506" height="284">
 
 ---
 
