@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 5/24/2022 2:17 AM UTC  - :tv:直播](/content/gettr/p1b1m679777.md)
+
+5/23/2022 Miles Guo’s GETTR: What is the meaning of the wheat sheaf consisting of skulls on a recent cover of The Economist? Food has been turned into a nuclear weapon, and why did the CCP stock up 50% of the world’s food last year...
+
+<img src="https://media.gettr.com/group40/getter/2022/05/24/02/57e553a1-a4c2-d6cf-48f6-e77f31635779/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 2:22 AM UTC  - :tv:直播](/content/gettr/p1b1p9f18ba.md)
+
+5/22/2022 Mile Guo: The top level of the CCP has made the decision that no one who is related to the cases of Sun Lijun, Meng Jiangzhu, Wang Qishan and Fu Zhenghua will be spared; the Himalaya Farms of the New Federal State of Chin...
+
+<img src="https://media.gettr.com/group41/getter/2022/05/24/02/2f121baa-be4e-8d13-c52c-710de59db3c6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1b16zv741f.md)
+
+2022.05.23 晚  新中国联邦 | 喜财经  全球金融大崩溃的开端
+
+<img src="https://media.gettr.com/group44/origin/2022/04/14/02/c53636b8-a324-9365-8e9d-eac2fd2b8d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1b1j7z52b7.md)
 
 2022.05.23 晚 新中国联邦⎪新闻访谈 拜登首次亚洲行，剑指中共，世界格局大变；猴痘病毒大爆发，是病毒还是疫苗灾难？
@@ -26,11 +50,17 @@
 
 ---
 
-[@miles 5/24/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1b16zv741f.md)
+[@miles 5/24/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1b1dp84cf0.md)
 
-2022.05.23 晚  新中国联邦 | 喜财经  全球金融大崩溃的开端
+5/22/2022 Miles Guo: The Americans trust Wang Qishan and Zeng Qinghong the most
 
-<img src="https://media.gettr.com/group44/origin/2022/04/14/02/c53636b8-a324-9365-8e9d-eac2fd2b8d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+5/22/2022 文贵直播：美国人最信任的是王岐山和曾庆红
+
+
+
+<img src="https://media.gettr.com/group43/getter/2022/05/24/02/b84c7e9d-ba0f-1f3e-b16b-09ee3c1f116c/out.jpg" width="506" height="284">
 
 ---
 
@@ -134,14 +164,6 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 
 ---
 
-[@miles 5/23/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1aye1yf516.md)
-
-2022.05.23  早 新中国联邦 | 新闻   郭文贵先生毕生只有灭共一个目标；中国人没有看清中共清零政策的险恶目的
-
-<img src="https://media.gettr.com/group32/origin/2022/05/23/12/a3dc7705-e180-608c-4ff6-af2ae456d387/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/23/2022 12:37 PM UTC ](/content/gettr/p1ayy9m5ec9.md)
 
 5月23号：尊敬的战友们好，日本成为联合国常任理事国……美国明确如果共产党入侵台湾，美国帮助台湾消灭共产党，这是爆料革命几年来说的事情！现在都发生了……在几年前．因此被那些所谓中国民主海外人士……和全球的所谓主流媒体说七哥是骗子……疯子……这些人和这些媒体都应该闭嘴了。
@@ -159,22 +181,6 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 https://www.wsj.com/article...
 
 <img src="https://media.gettr.com/group24/getter/2022/05/23/12/5ac752ce-7915-052a-b632-5ed3caa3fc90/d197305a3b5f45a6d29c9dc21213e0e7.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1ayu3b15e0.md)
-
-22.05.23 AM NFSC News     NFSC Rescue Operation Team to be Evacuated from Medyka by June
-
-<img src="https://media.gettr.com/group50/origin/2022/05/23/11/464e82f1-c839-d338-945b-75d974d1bbbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/23/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1aylcm9271.md)
-
-2022.05.23  新中国联邦 | 军情室 浅谈无人机反制系统C-UAS
-
-<img src="https://media.gettr.com/group14/origin/2022/05/23/10/562be129-5c78-0562-43fc-d165e7f1d7b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
