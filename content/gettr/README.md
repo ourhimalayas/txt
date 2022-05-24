@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/24/2022 3:25 AM UTC  - :tv:直播](/content/gettr/p1b165w2670.md)
+
+【Ukraine Rescue】 05/21/2022  We are invited to visit the refugee camps in Lviv, Ukraine, along with other international organizations. The gentleman in charge of a refugee camp in the city center takes pictures of our vest because ...
+
+<img src="https://media.gettr.com/group10/origin/2022/05/24/02/488308bd-7d6c-edb6-ffb8-f7be31b50860/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1b1hpnb0d6.md)
 
 2022-5-23《鸡血王喜币大作战》 第二百零四集 嘉宾：青藤、Nick
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/24/2022 3:25 AM UTC  - :tv:直播](/content/gettr/p1b165w2670.md)
+[@miles 5/24/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1b2phy5c6e.md)
 
-【Ukraine Rescue】 05/21/2022  We are invited to visit the refugee camps in Lviv, Ukraine, along with other international organizations. The gentleman in charge of a refugee camp in the city center takes pictures of our vest because ...
+2022.05.24 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group10/origin/2022/05/24/02/488308bd-7d6c-edb6-ffb8-f7be31b50860/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/05/24/04/86e193de-5935-d4d6-38ee-2e0082ae9ba9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,12 +171,6 @@ A Ukrainian volunteer appreciates the help provided by the NFSC rescue team. She
 5月23号：尊敬的战友们好……这个世界在过去的48小时，是人类历史上最重要的重大的军事政治经济重要的历史时刻……明天上午七哥直播详细和大家聊聊，这几天发生的大事？
 
 <img src="https://media.gettr.com/group21/getter/2022/05/23/15/7177117c-8b32-eef5-e879-4fc851445d6b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/23/2022 2:03 PM UTC ](/content/gettr/p1ayi2t21ef.md)
-
-5月23号：你若不相信。……【这应该是七哥多次警告后，世界上第一个主权国家的卫生部承认接种疫苗的人更容易感染新冠病毒……日本厚生劳动省即(日本卫生部】)https://tweetsoku.com/2022/05/20/%e3%80%90%e7%89%b9%e5%88%a5%e9%87%8d%e5%a4%a7%e5%a0%b1%e9%81%93%e3%80%91%e3%83%af%e3%82%af%e3%83%81%e3%83%b3%e6%8e%a5%e7%a...
 
 ---
 
