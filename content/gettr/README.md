@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 5/25/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p1b7d8od557.md)
+
+5/24/2022 Miles Guo: The traitors of Taiwan inside Taiwan government will help carry out the CCP strategy of "encircling but not attacking" against Taiwan; even though Mr. "Yes Biden" has made it clear to the world that the U.S. wi...
+
+<img src="https://media.gettr.com/group46/getter/2022/05/25/04/99808da7-0d22-16e6-2ce4-83f587c8ecef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 4:55 AM UTC  - :tv:直播](/content/gettr/p1b7be58a34.md)
+
+5/24/2022 Miles Guo:  The CCP can only be taken down when it collapses financially, launches war against Taiwan, attempts to conquer the US and Europe, thus causing the US and Japan to deploy the 2nd and 3rd island chains of the CC...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/25/04/7a58cd7a-4ad8-b6cc-7e7c-329e1e5054c4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 4:42 AM UTC  - :tv:直播](/content/gettr/p1b7bba538e.md)
+
+5/24/2022 Milles Guo: There is no single factor that can take down the CCP. The Chinese have ignored the evilness of the CCP and helped strengthen it in the past 70 years due to their cowardice. The Chinese people have not realized...
+
+<img src="https://media.gettr.com/group36/getter/2022/05/25/04/376d48b4-fdd0-23cf-a962-f75ac3480ca4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1b6utg2d37.md)
 
 2022-5-24《鸡血王喜币大作战》 第二百零五集 嘉宾：无双柳薇薇、Pappy
@@ -34,11 +58,11 @@
 
 ---
 
-[@miles 5/25/2022 4:42 AM UTC  - :tv:直播](/content/gettr/p1b7bba538e.md)
+[@miles 5/25/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1b7kf8806f.md)
 
-5/24/2022 Milles Guo: There is no single factor that can take down the CCP. The Chinese have ignored the evilness of the CCP and helped strengthen it in the past 70 years due to their cowardice. The Chinese people have not realized...
+2022.05.25 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group36/getter/2022/05/25/04/376d48b4-fdd0-23cf-a962-f75ac3480ca4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/05/25/04/3221418d-64a1-f691-583d-52f2daa657ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,30 +195,6 @@ Day 79 - Date: M...
         After Biden made the remark at a joint news conference with Japanese Prime Minister Fumio Kishida in Tokyo, a reporter asked Biden if the United States would defend Taiwan if it were attacked. "Yes...
 
 <img src="https://media.gettr.com/group10/origin/2022/05/24/00/647cd93a-5a3b-06ae-4f0b-3b34a927ea5e/aeec179f3dad4deae0d7fd7bf4dfc90b.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 5:07 AM UTC  - :tv:直播](/content/gettr/p1b30u99d77.md)
-
-2022.05.24 新中国联邦法治基金乌克兰人道救援行动-最新战况播报
-
-<img src="https://media.gettr.com/group25/origin/2022/05/24/05/99e8f370-979e-ca5e-0177-3ad9b09c88b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 3:25 AM UTC  - :tv:直播](/content/gettr/p1b165w2670.md)
-
-【Ukraine Rescue】 05/21/2022  We are invited to visit the refugee camps in Lviv, Ukraine, along with other international organizations. The gentleman in charge of a refugee camp in the city center takes pictures of our vest because ...
-
-<img src="https://media.gettr.com/group10/origin/2022/05/24/02/488308bd-7d6c-edb6-ffb8-f7be31b50860/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1b1hpnb0d6.md)
-
-2022-5-23《鸡血王喜币大作战》 第二百零四集 嘉宾：青藤、Nick
-
-<img src="https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
