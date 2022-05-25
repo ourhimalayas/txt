@@ -11,6 +11,9 @@
 
 ---
 
+#### [拜登总统宣示武力保台，台湾国防部坚定自卫决心](/content/gnews/2594193.md)
+ `墨尔本雅典娜农场`
+
 #### [麦当劳确认将退出俄罗斯市场](/content/gnews/2594165.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -88,9 +91,6 @@
 
 #### [美国支持日本联合国入常，开启世界新格局](/content/gnews/2593872.md)
  `KarmaLabs`
-
-#### [着眼与中美的关系，日本大学将审查外国人](/content/gnews/2593836.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [视频&#124;中共内部录音曝光，取消疫苗接种刻不容缓](/content/gnews/2593797.md)
  `KarmaLabs`
