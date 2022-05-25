@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/25/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1b6lb4315f.md)
+
+2022.05.24  新中国联邦 | 新闻访谈
+
+<img src="https://media.gettr.com/group34/origin/2022/05/25/00/74ab6cbd-c172-71da-f6fe-c443326e116a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/24/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1b5vnbd95d.md)
+
+5/24/2022 Miles Guo: As far as I know, the statement made by President Biden in Asia has gone through thoughtful discussions inside the US; The CCP never anticipated two things could happen: Russia's miserable failure and the US an...
+
+<img src="https://media.gettr.com/group26/getter/2022/05/24/23/3a86b3a5-a00c-58ab-52c5-a2ee61ce21fe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1b621j7ce0.md)
 
 5/24/2022 Miles Guo: When asked whether the US is willing to get militarily involved to defend Taiwan, President Biden answered with a single word "Yes". This means the US has changed its strategic ambiguity towards Taiwan, and it ...
@@ -67,14 +83,6 @@ https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibVi
 【Ukraine Rescue】 05/21/2022 Constantine, a Ukrainian refugee: The society now is money-first consumerism, where a few people and the media make decisions for everyone. We must use modern technology to build a creative society, dele...
 
 <img src="https://media.gettr.com/group50/getter/2022/05/24/09/4ae7a235-c1c9-cede-7318-c2c3bb856b17/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1b5vnbd95d.md)
-
-5/24/2022 Miles Guo: As far as I know, the statement made by President Biden in Asia has gone through thoughtful discussions inside the US; The CCP never anticipated two things could happen: Russia's miserable failure and the US an...
-
-<img src="https://media.gettr.com/group26/getter/2022/05/24/23/3a86b3a5-a00c-58ab-52c5-a2ee61ce21fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ Day 79 - Date: M...
 
 
 <img src="https://media.gettr.com/group43/getter/2022/05/24/02/b84c7e9d-ba0f-1f3e-b16b-09ee3c1f116c/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1b16zv741f.md)
-
-2022.05.23 晚  新中国联邦 | 喜财经  全球金融大崩溃的开端
-
-<img src="https://media.gettr.com/group44/origin/2022/04/14/02/c53636b8-a324-9365-8e9d-eac2fd2b8d9a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
