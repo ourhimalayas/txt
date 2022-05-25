@@ -11,6 +11,12 @@
 
 ---
 
+#### [2022/05/25文贵先生盖特直播](/content/gnews/2600698.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [2022/05/24 文贵先生直播精要](/content/gnews/2600649.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [截至5.25 俄乌战事汇总](/content/gnews/2600606.md)
  `秘密翻譯組G-Translators`
 
@@ -76,12 +82,6 @@
 
 #### [亚利桑那州签署了禁止强制接种COVID-19疫苗的法案](/content/gnews/2600235.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [美国在台湾问题上不再是模糊政策 中共该计划为“围而不打”](/content/gnews/2600217.md)
- `焦點20分`
-
-#### [拜登把开战权交给美军基地 美军在朝鲜半岛附近已做好军事部署](/content/gnews/2600189.md)
- `焦點20分`
 
 #### [有声&#124;日本政府加强中共国留学生背景审查](/content/gnews/2600169.md)
  `MOSREC`
