@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1b8ftk8c13.md)
+
+2022.05.25  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的变革（1）
+
+<img src="https://media.gettr.com/group29/origin/2022/05/25/10/414d1627-8ec6-0bc5-f7e7-dc00f760fcde/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 10:20 AM UTC  - :tv:直播](/content/gettr/p1b7j4y4f87.md)
 
 Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, has a typical Ukrainian spirit to fight for the pride of their country. He sometimes had difficulty dancing, as people are losing their lives on the batt...
@@ -18,11 +26,11 @@ Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, ha
 
 ---
 
-[@miles 5/25/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1b8ftk8c13.md)
+[@miles 5/25/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1b8im4bb58.md)
 
-2022.05.25  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的变革（1）
+澳喜深挖爆料 ABC 的 Echo Hui是谁？
 
-<img src="https://media.gettr.com/group29/origin/2022/05/25/10/414d1627-8ec6-0bc5-f7e7-dc00f760fcde/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/05/25/11/55d1679c-3002-1914-5efb-a60427269bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 2022.05.24  新中国联邦 | 喜健康   民间“张文宏”声音越多，民族背负“沉甸甸”的恶果越少；猴痘是否成为比尔盖茨预言下一个大流行的“开胃菜”？
 
 <img src="https://media.gettr.com/group46/origin/2022/05/24/20/d8265cf4-f997-5c20-b208-868a3bc04593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1b4masddc6.md)
-
-2022-5-24 《避风港》（51）猴痘？辉瑞疫苗副作用？！
-
-<img src="https://media.gettr.com/group7/origin/2022/05/24/18/14de5338-bfce-95fb-b78b-64c04c909dc3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
