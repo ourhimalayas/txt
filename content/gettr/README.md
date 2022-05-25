@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1b8zyffc47.md)
+
+ 5月25号：尊敬的战友们好，这次开庭彻底结束了，找钥匙的杨澜老公吴征又出来了……
+
+<img src="https://media.gettr.com/group47/getter/2022/05/25/17/f9ba9893-8739-c231-8896-170c95186d89/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1b8ztz7424.md)
 
 2022.05.25  测试
@@ -27,11 +35,11 @@
 
 ---
 
-[@miles 5/25/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1b8zyffc47.md)
+[@miles 5/25/2022 6:12 PM UTC  - :tv:直播](/content/gettr/p1b9y5e034f.md)
 
- 5月25号：尊敬的战友们好，这次开庭彻底结束了，找钥匙的杨澜老公吴征又出来了……
+2022.05.25 机场接战友
 
-<img src="https://media.gettr.com/group47/getter/2022/05/25/17/f9ba9893-8739-c231-8896-170c95186d89/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/05/25/18/c4edde2b-aef3-85fc-e2c2-77c929c51e59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 5/24/2022 Milles Guo: There is no single factor that can take down the CCP. The Chinese have ignored the evilness of the CCP and helped strengthen it in the past 70 years due to their cowardice. The Chinese people have not realized...
 
 <img src="https://media.gettr.com/group36/getter/2022/05/25/04/376d48b4-fdd0-23cf-a962-f75ac3480ca4/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1b6utg2d37.md)
-
-2022-5-24《鸡血王喜币大作战》 第二百零五集 嘉宾：无双柳薇薇、Pappy
-
-<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
