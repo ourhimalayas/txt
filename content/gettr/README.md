@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1b6exl5aed.md)
+
+2022.05.24  新中国联邦 | 喜财经  世界大变，日本入常，美国为台湾助战，俄罗斯被支解，共匪独裁者，即将成为过去式，走向灭亡
+
+<img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1b6lb4315f.md)
 
 2022.05.24  新中国联邦 | 新闻访谈
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/25/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1b6exl5aed.md)
+[@miles 5/25/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1b6utg2d37.md)
 
-2022.05.24  新中国联邦 | 喜财经  世界大变，日本入常，美国为台湾助战，俄罗斯被支解，共匪独裁者，即将成为过去式，走向灭亡
+2022-5-24《鸡血王喜币大作战》 第二百零五集 嘉宾：无双柳薇薇、Pappy
 
-<img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Day 79 - Date: M...
 2022-5-23《鸡血王喜币大作战》 第二百零四集 嘉宾：青藤、Nick
 
 <img src="https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 2:22 AM UTC  - :tv:直播](/content/gettr/p1b1p9f18ba.md)
-
-5/22/2022 Mile Guo: The top level of the CCP has made the decision that no one who is related to the cases of Sun Lijun, Meng Jiangzhu, Wang Qishan and Fu Zhenghua will be spared; the Himalaya Farms of the New Federal State of Chin...
-
-<img src="https://media.gettr.com/group41/getter/2022/05/24/02/2f121baa-be4e-8d13-c52c-710de59db3c6/out.jpg" width="506" height="284">
 
 ---
 
