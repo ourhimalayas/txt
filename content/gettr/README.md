@@ -2,6 +2,26 @@
 ---
 
 
+[@himalayaathena 5/25/2022 1:33 AM UTC ](/content/gettr/p1b5l9r1897.md)
+
+全球三大疫苗公司 #辉瑞、 #强生 和 #莫德纳，包括后来的 #阿斯利康，它们的大股东都是 #先锋集团 和 #贝莱德，而 #先锋集团 和 #贝莱德 同时也是全球最大数据中心（亚马逊、微软和谷歌）以及社交平台（脸书、油管、推特）和传统媒体（CNN、ABC、NBC、CBS、纽约时报等）的最大机构投资者，这也是为什么#疫苗灾难的声音被各大主流媒体和大科技公司所压制的原因。
+
+ https://gnews.org/zh-hans/2583162/
+
+---
+
+[@miles 5/25/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p1b7l7c1496.md)
+
+【Ukrainian Rescue】 5/24/2022 A Russian girl comes to  our fellow fighters and asks for our vest of “taking down the evil CCP” since it also represents the Russian people’s voice. They hope China will be free.
+
+
+
+【乌克兰救援】 5/24/2022 俄...
+
+<img src="https://media.gettr.com/group6/getter/2022/05/25/06/5e29fd8f-9e93-db67-5bb7-3988f6ed31cd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 5:57 AM UTC ](/content/gettr/p1b7kcva2a8.md)
 
 The biggest blow to the Chinese Communist Party to completely change the pattern of China, U.S. and Taiwan is Yes
@@ -20,15 +40,11 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 
 ---
 
-[@miles 5/25/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p1b7l7c1496.md)
+[@miles 5/25/2022 7:27 AM UTC  - :tv:直播](/content/gettr/p1b7w9179e6.md)
 
-【Ukrainian Rescue】 5/24/2022 A Russian girl comes to  our fellow fighters and asks for our vest of “taking down the evil CCP” since it also represents the Russian people’s voice. They hope China will be free.
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-
-
-【乌克兰救援】 5/24/2022 俄...
-
-<img src="https://media.gettr.com/group6/getter/2022/05/25/06/5e29fd8f-9e93-db67-5bb7-3988f6ed31cd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/05/25/06/11c790d2-8f3b-cc29-b23c-b5b80dc9cf36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -148,31 +164,11 @@ https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibVi
 
 ---
 
-[@miles 5/24/2022 9:16 AM UTC  - :tv:直播](/content/gettr/p1b2yen5ee0.md)
-
-【Ukraine Rescue】 05/21/2022 Constantine, a Ukrainian refugee: The society now is money-first consumerism, where a few people and the media make decisions for everyone. We must use modern technology to build a creative society, dele...
-
-<img src="https://media.gettr.com/group50/getter/2022/05/24/09/4ae7a235-c1c9-cede-7318-c2c3bb856b17/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/24/2022 9:23 AM UTC  - :tv:直播](/content/gettr/p1b2xem082e.md)
 
 【Ukrainian Rescue】 5/23/2022 Viking Rune, the president of the Norwegian rescue organization A-Team, gives First Aid training to the rescue volunteers in the Medyka camp in the big tent of NFSC and ROLF. He supports the NFSC and ho...
 
 <img src="https://media.gettr.com/group18/getter/2022/05/24/09/59158676-e865-9624-de3e-ad40760beeb7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 9:05 AM UTC  - :tv:直播](/content/gettr/p1b2bsj8ca5.md)
-
-5/22/2022 Miles Guo: The CCP will certainly be taken down. After the collapse of the CCP, a new group of leaders with an international perspective will emerge in Jiangsu and Zhejiang.
-
-
-
-5/22/2022 文贵直播：共产党一定被灭，中共倒台后江浙会涌现一批新的具有国际视野的...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/24/09/10c31d6d-4b22-d87c-ae24-ba1332473c8c/out.jpg" width="506" height="284">
 
 ---
 
