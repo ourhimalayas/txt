@@ -10,11 +10,11 @@
 
 ---
 
-[@himalayaathena 5/25/2022 1:33 AM UTC ](/content/gettr/p1b5l9r1897.md)
+[@miles 5/25/2022 10:20 AM UTC  - :tv:直播](/content/gettr/p1b7j4y4f87.md)
 
-全球三大疫苗公司 #辉瑞、 #强生 和 #莫德纳，包括后来的 #阿斯利康，它们的大股东都是 #先锋集团 和 #贝莱德，而 #先锋集团 和 #贝莱德 同时也是全球最大数据中心（亚马逊、微软和谷歌）以及社交平台（脸书、油管、推特）和传统媒体（CNN、ABC、NBC、CBS、纽约时报等）的最大机构投资者，这也是为什么#疫苗灾难的声音被各大主流媒体和大科技公司所压制的原因。
+Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, has a typical Ukrainian spirit to fight for the pride of their country. He sometimes had difficulty dancing, as people are losing their lives on the batt...
 
- https://gnews.org/zh-hans/2583162/
+<img src="https://media.gettr.com/group21/origin/2022/05/25/10/f0af7648-ef99-b92d-c908-f4b0173b2d55/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,6 +47,14 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 80 - Date: M...
 
 <img src="https://media.gettr.com/group31/getter/2022/05/25/08/e593262a-8690-1b8c-abdd-ee41f5a6e81e/5d1d9ec71dc9b7d4bb7868a2f4332423.jpg" width="506" height="284">
+
+---
+
+[@himalayaathena 5/25/2022 1:33 AM UTC ](/content/gettr/p1b5l9r1897.md)
+
+全球三大疫苗公司 #辉瑞、 #强生 和 #莫德纳，包括后来的 #阿斯利康，它们的大股东都是 #先锋集团 和 #贝莱德，而 #先锋集团 和 #贝莱德 同时也是全球最大数据中心（亚马逊、微软和谷歌）以及社交平台（脸书、油管、推特）和传统媒体（CNN、ABC、NBC、CBS、纽约时报等）的最大机构投资者，这也是为什么#疫苗灾难的声音被各大主流媒体和大科技公司所压制的原因。
+
+ https://gnews.org/zh-hans/2583162/
 
 ---
 
@@ -181,18 +189,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 2022年5月24日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group34/origin/2022/05/24/17/41323cd7-1a77-0d0d-3d1b-2ff18e04d9d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/24/2022 4:59 PM UTC  - 3圖](/content/gettr/p1b4avl4be5.md)
-
-5月24号：尊敬的战友们好．邪恶的共产党不被消灭……共产党就会消灭全人类……
-
-
-
-https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibViOQ&s=08
-
-<img src="https://media.gettr.com/group35/getter/2022/05/24/16/6f051873-6bd8-f7cc-b925-19884dd58cb6/325c31a0f5c4588aecf1a76a674a342b.jpg" width="506" height="284">
 
 ---
 
