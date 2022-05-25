@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 3:03 PM UTC  - :tv:直播](/content/gettr/p1b955g3295.md)
+
+5/24/2022 Miles Guo: Japan does not need to worry that it will not be able to become a permanent member of the UN because of the rules of the UN. Both the US and those within the Chinese Communist Party system believe that the CCP'...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/25/15/f2ce6836-f923-8673-efbe-40a8a658a4e3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1b8jio5301.md)
 
 5/24/2022 Miles Guo:  The CCP's actions in Latin America will not pose any threat to the US at all! This only shows that the CCP is at its wits' end; the only countries that can influence the world are the G7, and China and Russia
@@ -11,11 +19,11 @@
 
 ---
 
-[@miles 5/25/2022 3:03 PM UTC  - :tv:直播](/content/gettr/p1b955g3295.md)
+[@miles 5/25/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1b8ztz7424.md)
 
-5/24/2022 Miles Guo: Japan does not need to worry that it will not be able to become a permanent member of the UN because of the rules of the UN. Both the US and those within the Chinese Communist Party system believe that the CCP'...
+2022.05.25  测试
 
-<img src="https://media.gettr.com/group21/getter/2022/05/25/15/f2ce6836-f923-8673-efbe-40a8a658a4e3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/liveorigin/2022/05/25/15/43e3fef6-5b80-13bd-1b21-5fd512a88eda/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 2022.05.24  新中国联邦 | 喜财经  世界大变，日本入常，美国为台湾助战，俄罗斯被支解，共匪独裁者，即将成为过去式，走向灭亡
 
 <img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/25/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1b6lb4315f.md)
-
-2022.05.24  新中国联邦 | 新闻访谈
-
-<img src="https://media.gettr.com/group34/origin/2022/05/25/00/74ab6cbd-c172-71da-f6fe-c443326e116a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
