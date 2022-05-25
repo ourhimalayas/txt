@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 5/25/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1bb5a718ff.md)
+
+5/24/2022 Miles Guo: The world has entered a new era, where the competition among digital currencies will surpass the scale of any war. The total value of the Tangping (Lying-Flat) Coin will reach 100 trillions USD. In our lifetime...
+
+<img src="https://media.gettr.com/group40/getter/2022/05/25/23/4d78498c-b48b-0179-9b67-3f0eca616027/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1bamhrc595.md)
+
+5/25/2022 Miles Guo’s GETTR: Not only is there a shortage of water everywhere in Communist China, but there is less and less clean water available. The Lao Baixing under the CCP's rule can't afford to go to school, can't afford to ...
+
+<img src="https://media.gettr.com/group34/getter/2022/05/25/23/346d8ba7-e19a-3052-61fd-bc2aa2a24f61/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1bakc31fe3.md)
+
+5/24/2022 Miles Guo: When asked whether the US is willing to get militarily involved to defend Taiwan, President Biden answered “Yes”. This is the biggest gift to the Taiwanese!
+
+
+
+5/24/2022 文贵直播：当被问到美国是否会武力保护台湾时，拜登总统回答“是”，这是给台湾人民最...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/25/23/0cd69a54-a2a9-166f-7464-79875ce38470/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1basy0797d.md)
+
+2022.05.25 连线到达纽约战友
+
+<img src="https://media.gettr.com/group36/origin/2022/05/25/20/5b9755b5-20cf-305b-0454-0fb57aa6e129/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 6:12 PM UTC  - :tv:直播](/content/gettr/p1b9y5e034f.md)
 
 2022.05.25 机场接战友
@@ -43,11 +79,11 @@
 
 ---
 
-[@miles 5/25/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1basy0797d.md)
+[@miles 5/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1bb8z97c63.md)
 
-2022.05.25 连线到达纽约战友
+5/25/2022 Miles Guo’s GETTR: The lawyer of the Rui Ma case slandered me in court today for not willing to return to China because of my involvement in kidnapping, rape, and mafia. This must have been directed by Bruno Wu. Even if I...
 
-<img src="https://media.gettr.com/group36/origin/2022/05/25/20/5b9755b5-20cf-305b-0454-0fb57aa6e129/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/05/25/23/096fc267-ca96-7b16-08c7-03c271b19447/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,40 +192,6 @@ Day 80 - Date: M...
 【乌克兰救援】 5/24/2022 俄...
 
 <img src="https://media.gettr.com/group6/getter/2022/05/25/06/5e29fd8f-9e93-db67-5bb7-3988f6ed31cd/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 5:57 AM UTC ](/content/gettr/p1b7kcva2a8.md)
-
-The biggest blow to the Chinese Communist Party to completely change the pattern of China, U.S. and Taiwan is Yes
-
-On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world pattern of China, the United States, ...
-
-<img src="https://media.gettr.com/group14/origin/2022/05/25/05/50999111-ff2a-5dba-4145-2f4f3c5b713e/7aa06fbaf45c4dadf9217f21138f64cd.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p1b7d8od557.md)
-
-5/24/2022 Miles Guo: The traitors of Taiwan inside Taiwan government will help carry out the CCP strategy of "encircling but not attacking" against Taiwan; even though Mr. "Yes Biden" has made it clear to the world that the U.S. wi...
-
-<img src="https://media.gettr.com/group46/getter/2022/05/25/04/99808da7-0d22-16e6-2ce4-83f587c8ecef/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 4:55 AM UTC  - :tv:直播](/content/gettr/p1b7be58a34.md)
-
-5/24/2022 Miles Guo:  The CCP can only be taken down when it collapses financially, launches war against Taiwan, attempts to conquer the US and Europe, thus causing the US and Japan to deploy the 2nd and 3rd island chains of the CC...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/25/04/7a58cd7a-4ad8-b6cc-7e7c-329e1e5054c4/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1b7kf8806f.md)
-
-2022.05.25 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group7/origin/2022/05/25/04/3221418d-64a1-f691-583d-52f2daa657ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
