@@ -11,6 +11,22 @@
 
 ---
 
+[@miles 5/25/2022 3:03 PM UTC  - :tv:直播](/content/gettr/p1b955g3295.md)
+
+5/24/2022 Miles Guo: Japan does not need to worry that it will not be able to become a permanent member of the UN because of the rules of the UN. Both the US and those within the Chinese Communist Party system believe that the CCP'...
+
+<img src="https://media.gettr.com/group21/getter/2022/05/25/15/f2ce6836-f923-8673-efbe-40a8a658a4e3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 1:58 PM UTC  - :tv:直播](/content/gettr/p1b8h725acb.md)
+
+5/24/2022 Miles Guo: The entire world will be jointly ruled by Europe's NATO, the Asian version of NATO, and the African version of NATO rather than by the US and the CCP. IPEF is the same as CPTPP proposed by Abe. Joining the IPEF...
+
+<img src="https://media.gettr.com/group46/getter/2022/05/25/13/f9fd314f-095b-7b9e-d9e6-6ca41b6579f3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 1:24 PM UTC  - :tv:直播](/content/gettr/p1b85og2f98.md)
 
  5月25号：尊敬的战友们好，无论在生活中．还是在灭共这种信仰的追求中！持之以恒．保持绝对的敬畏之心，这是一个有道德的追求成功的人的最基本的基础．和道德，后天星期五．由于安红的澳喜农场．在七哥的盖特帐号直播，灭共诗歌朗诵半决赛。所以我可能星期天再开始直播！
@@ -48,14 +64,6 @@ Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, ha
 2022.05.24 文贵大直播（精华版）
 
 <img src="https://media.gettr.com/group33/origin/2022/05/25/08/ac2d9e02-55e2-e003-5350-a4d60371d97e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 1:58 PM UTC  - :tv:直播](/content/gettr/p1b8h725acb.md)
-
-5/24/2022 Miles Guo: The entire world will be jointly ruled by Europe's NATO, the Asian version of NATO, and the African version of NATO rather than by the US and the CCP. IPEF is the same as CPTPP proposed by Abe. Joining the IPEF...
-
-<img src="https://media.gettr.com/group46/getter/2022/05/25/13/f9fd314f-095b-7b9e-d9e6-6ca41b6579f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 2022.05.24  新中国联邦 | 新闻访谈
 
 <img src="https://media.gettr.com/group34/origin/2022/05/25/00/74ab6cbd-c172-71da-f6fe-c443326e116a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1b5vnbd95d.md)
-
-5/24/2022 Miles Guo: As far as I know, the statement made by President Biden in Asia has gone through thoughtful discussions inside the US; The CCP never anticipated two things could happen: Russia's miserable failure and the US an...
-
-<img src="https://media.gettr.com/group26/getter/2022/05/24/23/3a86b3a5-a00c-58ab-52c5-a2ee61ce21fe/out.jpg" width="506" height="284">
 
 ---
 
