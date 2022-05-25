@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/25/2022 8:39 AM UTC  - :tv:直播](/content/gettr/p1b7ykke1ef.md)
+
+2022.05.24 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group33/origin/2022/05/25/08/ac2d9e02-55e2-e003-5350-a4d60371d97e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 7:27 AM UTC  - :tv:直播](/content/gettr/p1b7w9179e6.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group42/origin/2022/05/25/06/11c790d2-8f3b-cc29-b23c-b5b80dc9cf36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p1b7l7c1496.md)
 
 【Ukrainian Rescue】 5/24/2022 A Russian girl comes to  our fellow fighters and asks for our vest of “taking down the evil CCP” since it also represents the Russian people’s voice. They hope China will be free.
@@ -37,14 +53,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 5/24/2022 Miles Guo: The traitors of Taiwan inside Taiwan government will help carry out the CCP strategy of "encircling but not attacking" against Taiwan; even though Mr. "Yes Biden" has made it clear to the world that the U.S. wi...
 
 <img src="https://media.gettr.com/group46/getter/2022/05/25/04/99808da7-0d22-16e6-2ce4-83f587c8ecef/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 7:27 AM UTC  - :tv:直播](/content/gettr/p1b7w9179e6.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group42/origin/2022/05/25/06/11c790d2-8f3b-cc29-b23c-b5b80dc9cf36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibVi
 2022年5月24日 文贵大直播：拜登访韩干掉北朝鲜战略；联合国日本入常展现实力；美对台模糊政策彻底改变；粮食危机击垮缺粮国家
 
 <img src="https://media.gettr.com/group47/origin/2022/05/24/12/db8ce684-c3ca-60f0-94bd-d594c5083d26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 9:23 AM UTC  - :tv:直播](/content/gettr/p1b2xem082e.md)
-
-【Ukrainian Rescue】 5/23/2022 Viking Rune, the president of the Norwegian rescue organization A-Team, gives First Aid training to the rescue volunteers in the Medyka camp in the big tent of NFSC and ROLF. He supports the NFSC and ho...
-
-<img src="https://media.gettr.com/group18/getter/2022/05/24/09/59158676-e865-9624-de3e-ad40760beeb7/out.jpg" width="506" height="284">
 
 ---
 
