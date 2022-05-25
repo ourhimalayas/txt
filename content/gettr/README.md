@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1b6lb4315f.md)
+
+2022.05.24  新中国联邦 | 新闻访谈
+
+<img src="https://media.gettr.com/group34/origin/2022/05/25/00/74ab6cbd-c172-71da-f6fe-c443326e116a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/24/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1b5rhg6572.md)
 
 5/24/2022 Miles Guo: President Biden's visit to Asia means the US not only has delivered its promise of improving the defense of the US, Japan, South Korea, and the Asia-Pacific region, but also has included Taiwan into this defens...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/25/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1b6lb4315f.md)
+[@miles 5/25/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1b6exl5aed.md)
 
-2022.05.24  新中国联邦 | 新闻访谈
+2022.05.24  新中国联邦 | 喜财经  世界大变，日本入常，美国为台湾助战，俄罗斯被支解，共匪独裁者，即将成为过去式，走向灭亡
 
-<img src="https://media.gettr.com/group34/origin/2022/05/25/00/74ab6cbd-c172-71da-f6fe-c443326e116a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Day 79 - Date: M...
 2022-5-23《鸡血王喜币大作战》 第二百零四集 嘉宾：青藤、Nick
 
 <img src="https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 2:17 AM UTC  - :tv:直播](/content/gettr/p1b1m679777.md)
-
-5/23/2022 Miles Guo’s GETTR: What is the meaning of the wheat sheaf consisting of skulls on a recent cover of The Economist? Food has been turned into a nuclear weapon, and why did the CCP stock up 50% of the world’s food last year...
-
-<img src="https://media.gettr.com/group40/getter/2022/05/24/02/57e553a1-a4c2-d6cf-48f6-e77f31635779/out.jpg" width="506" height="284">
 
 ---
 
