@@ -10,11 +10,29 @@
 
 ---
 
+[@miles 5/25/2022 5:57 AM UTC ](/content/gettr/p1b7kcva2a8.md)
+
+The biggest blow to the Chinese Communist Party to completely change the pattern of China, U.S. and Taiwan is Yes
+
+On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world pattern of China, the United States, ...
+
+<img src="https://media.gettr.com/group14/origin/2022/05/25/05/50999111-ff2a-5dba-4145-2f4f3c5b713e/7aa06fbaf45c4dadf9217f21138f64cd.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 4:55 AM UTC  - :tv:直播](/content/gettr/p1b7be58a34.md)
 
 5/24/2022 Miles Guo:  The CCP can only be taken down when it collapses financially, launches war against Taiwan, attempts to conquer the US and Europe, thus causing the US and Japan to deploy the 2nd and 3rd island chains of the CC...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/25/04/7a58cd7a-4ad8-b6cc-7e7c-329e1e5054c4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1b7kf8806f.md)
+
+2022.05.25 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group7/origin/2022/05/25/04/3221418d-64a1-f691-583d-52f2daa657ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -55,14 +73,6 @@
 5/24/2022 Miles Guo: President Biden's visit to Asia means the US not only has delivered its promise of improving the defense of the US, Japan, South Korea, and the Asia-Pacific region, but also has included Taiwan into this defens...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/24/23/c2b66dcd-7843-c057-8795-d96322376958/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1b7kf8806f.md)
-
-2022.05.25 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group7/origin/2022/05/25/04/3221418d-64a1-f691-583d-52f2daa657ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,18 +193,6 @@ Day 79 - Date: M...
 5/22/2022 文贵直播：共产党一定被灭，中共倒台后江浙会涌现一批新的具有国际视野的...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/24/09/10c31d6d-4b22-d87c-ae24-ba1332473c8c/out.jpg" width="506" height="284">
-
----
-
-[@7upgogo 5/24/2022 12:05 AM UTC ](/content/gettr/p1b11f91c6c.md)
-
-拜登承诺保卫台湾，中共气急败坏播出《珍珠港》
-
-
-
-        After Biden made the remark at a joint news conference with Japanese Prime Minister Fumio Kishida in Tokyo, a reporter asked Biden if the United States would defend Taiwan if it were attacked. "Yes...
-
-<img src="https://media.gettr.com/group10/origin/2022/05/24/00/647cd93a-5a3b-06ae-4f0b-3b34a927ea5e/aeec179f3dad4deae0d7fd7bf4dfc90b.jpg" width="506" height="284">
 
 ---
 
