@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1b8ztz7424.md)
+
+2022.05.25  测试
+
+<img src="https://media.gettr.com/group47/liveorigin/2022/05/25/15/43e3fef6-5b80-13bd-1b21-5fd512a88eda/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 3:03 PM UTC  - :tv:直播](/content/gettr/p1b955g3295.md)
 
 5/24/2022 Miles Guo: Japan does not need to worry that it will not be able to become a permanent member of the UN because of the rules of the UN. Both the US and those within the Chinese Communist Party system believe that the CCP'...
@@ -19,11 +27,11 @@
 
 ---
 
-[@miles 5/25/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1b8ztz7424.md)
+[@miles 5/25/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1b8zyffc47.md)
 
-2022.05.25  测试
+ 5月25号：尊敬的战友们好，这次开庭彻底结束了，找钥匙的杨澜老公吴征又出来了……
 
-<img src="https://media.gettr.com/group47/liveorigin/2022/05/25/15/43e3fef6-5b80-13bd-1b21-5fd512a88eda/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/05/25/17/f9ba9893-8739-c231-8896-170c95186d89/out.jpg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 2022-5-24《鸡血王喜币大作战》 第二百零五集 嘉宾：无双柳薇薇、Pappy
 
 <img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1b6exl5aed.md)
-
-2022.05.24  新中国联邦 | 喜财经  世界大变，日本入常，美国为台湾助战，俄罗斯被支解，共匪独裁者，即将成为过去式，走向灭亡
-
-<img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
