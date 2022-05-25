@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1b8im4bb58.md)
+
+澳喜深挖爆料 ABC 的 Echo Hui是谁？
+
+<img src="https://media.gettr.com/group46/origin/2022/05/25/11/55d1679c-3002-1914-5efb-a60427269bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1b8ftk8c13.md)
 
 2022.05.25  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的变革（1）
@@ -26,11 +34,11 @@ Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, ha
 
 ---
 
-[@miles 5/25/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1b8im4bb58.md)
+[@miles 5/25/2022 1:24 PM UTC  - :tv:直播](/content/gettr/p1b85og2f98.md)
 
-澳喜深挖爆料 ABC 的 Echo Hui是谁？
+ 5月25号：尊敬的战友们好，无论在生活中．还是在灭共这种信仰的追求中！持之以恒．保持绝对的敬畏之心，这是一个有道德的追求成功的人的最基本的基础．和道德，后天星期五．由于安红的澳喜农场．在七哥的盖特帐号直播，灭共诗歌朗诵半决赛。所以我可能星期天再开始直播！
 
-<img src="https://media.gettr.com/group46/origin/2022/05/25/11/55d1679c-3002-1914-5efb-a60427269bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/05/25/13/fb695c66-602c-9018-7923-64f08abfa65d/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 5/24/2022 Miles Guo: When asked whether the US is willing to get militarily involved to defend Taiwan, President Biden answered with a single word "Yes". This means the US has changed its strategic ambiguity towards Taiwan, and it ...
 
 <img src="https://media.gettr.com/group38/getter/2022/05/24/22/195683a3-9903-d0a7-9bfa-c1e11ab5aa17/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1b51czf9fa.md)
-
-2022.05.24  新中国联邦 | 喜健康   民间“张文宏”声音越多，民族背负“沉甸甸”的恶果越少；猴痘是否成为比尔盖茨预言下一个大流行的“开胃菜”？
-
-<img src="https://media.gettr.com/group46/origin/2022/05/24/20/d8265cf4-f997-5c20-b208-868a3bc04593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
