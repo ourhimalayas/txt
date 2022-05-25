@@ -2,6 +2,23 @@
 ---
 
 
+[@miles 5/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1b8jio5301.md)
+
+5/24/2022 Miles Guo:  The CCP's actions in Latin America will not pose any threat to the US at all! This only shows that the CCP is at its wits' end; the only countries that can influence the world are the G7, and China and Russia
+...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/25/13/9b1b1527-cb16-98c9-f061-dac91484b5a6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 1:24 PM UTC  - :tv:直播](/content/gettr/p1b85og2f98.md)
+
+ 5月25号：尊敬的战友们好，无论在生活中．还是在灭共这种信仰的追求中！持之以恒．保持绝对的敬畏之心，这是一个有道德的追求成功的人的最基本的基础．和道德，后天星期五．由于安红的澳喜农场．在七哥的盖特帐号直播，灭共诗歌朗诵半决赛。所以我可能星期天再开始直播！
+
+<img src="https://media.gettr.com/group33/getter/2022/05/25/13/fb695c66-602c-9018-7923-64f08abfa65d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1b8im4bb58.md)
 
 澳喜深挖爆料 ABC 的 Echo Hui是谁？
@@ -34,11 +51,11 @@ Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, ha
 
 ---
 
-[@miles 5/25/2022 1:24 PM UTC  - :tv:直播](/content/gettr/p1b85og2f98.md)
+[@miles 5/25/2022 1:58 PM UTC  - :tv:直播](/content/gettr/p1b8h725acb.md)
 
- 5月25号：尊敬的战友们好，无论在生活中．还是在灭共这种信仰的追求中！持之以恒．保持绝对的敬畏之心，这是一个有道德的追求成功的人的最基本的基础．和道德，后天星期五．由于安红的澳喜农场．在七哥的盖特帐号直播，灭共诗歌朗诵半决赛。所以我可能星期天再开始直播！
+5/24/2022 Miles Guo: The entire world will be jointly ruled by Europe's NATO, the Asian version of NATO, and the African version of NATO rather than by the US and the CCP. IPEF is the same as CPTPP proposed by Abe. Joining the IPEF...
 
-<img src="https://media.gettr.com/group33/getter/2022/05/25/13/fb695c66-602c-9018-7923-64f08abfa65d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/05/25/13/f9fd314f-095b-7b9e-d9e6-6ca41b6579f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,27 +185,11 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 
 ---
 
-[@miles 5/24/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1b5rhg6572.md)
-
-5/24/2022 Miles Guo: President Biden's visit to Asia means the US not only has delivered its promise of improving the defense of the US, Japan, South Korea, and the Asia-Pacific region, but also has included Taiwan into this defens...
-
-<img src="https://media.gettr.com/group43/getter/2022/05/24/23/c2b66dcd-7843-c057-8795-d96322376958/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/24/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1b5vnbd95d.md)
 
 5/24/2022 Miles Guo: As far as I know, the statement made by President Biden in Asia has gone through thoughtful discussions inside the US; The CCP never anticipated two things could happen: Russia's miserable failure and the US an...
 
 <img src="https://media.gettr.com/group26/getter/2022/05/24/23/3a86b3a5-a00c-58ab-52c5-a2ee61ce21fe/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1b621j7ce0.md)
-
-5/24/2022 Miles Guo: When asked whether the US is willing to get militarily involved to defend Taiwan, President Biden answered with a single word "Yes". This means the US has changed its strategic ambiguity towards Taiwan, and it ...
-
-<img src="https://media.gettr.com/group38/getter/2022/05/24/22/195683a3-9903-d0a7-9bfa-c1e11ab5aa17/out.jpg" width="506" height="284">
 
 ---
 
