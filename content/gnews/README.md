@@ -2,20 +2,53 @@
 ---
 
 
-#### [丰田计划在六月减产10万辆车](/content/gnews/2595249.md)
+#### [更多澳大利亚人有资格接种第四针新冠疫苗了](/content/gnews/2595470.md)
  `澳喜农场`
 
-#### [每日快报：联合国特使抵达中共国的敏感时刻， 新疆集中营的证据大量曝光](/content/gnews/2595241.md)
+#### [樱花深度报道┃中国经济正步入危险深渊（上）](/content/gnews/2595465.md)
+ `东京樱花团`
+
+#### [联合国人权官员访问新疆 中共恶人先告状](/content/gnews/2595450.md)
+ `秘密翻譯組G-Translators`
+
+#### [二名伊朗战机飞行员在驾驶中共国制造的战机训练时坠亡](/content/gnews/2595373.md)
+ `秘密翻譯組G-Translators`
+
+#### [俄罗斯外长表示需要加强和中共国的关系](/content/gnews/2595372.md)
+ `澳喜农场`
+
+#### [七哥谈┃七哥讲述什么条件下灭共](/content/gnews/2595312.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [DC大中华时事：中共社论，“四方安全对话”这一招够阴险的](/content/gnews/2595308.md)
  `喜马拉雅-华盛顿DC农场`
+
+#### [5月24日，北京海淀区友谊社区整体强制隔离](/content/gnews/2595307.md)
+ `Tokyo Sakura Video Group`
+
+#### [河南银行储户维稳现场](/content/gnews/2595306.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共建设银行，没房产证不给办更改密码的业务，男子发怒！](/content/gnews/2595304.md)
+ `Tokyo Sakura Video Group`
+
+#### [畜奴社会冰山一角](/content/gnews/2595303.md)
+ `Tokyo Sakura Video Group`
+
+#### [看明白美国主导的IPEF](/content/gnews/2595299.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [注意 北京银行取钱得排一小时 朝阳、丰台、海淀银行关了](/content/gnews/2595240.md)
+ `Tokyo Sakura Video Group`
+
+#### [匈牙利欧尔班总理在Facebook上发布进入战争状态视频](/content/gnews/2595238.md)
+ `Tokyo Sakura Video Group`
 
 #### [北京市民因封路无法接病重父亲去医院做手术并报警以后](/content/gnews/2595230.md)
  `喜马拉雅日本银河系农场`
 
 #### [美韩导弹发射训练 向朝鲜展示打击力量](/content/gnews/2595215.md)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [泽连斯基在达沃斯论坛呼吁对俄罗斯展开极限制裁](/content/gnews/2595210.md)
- `澳喜农场`
 
 #### [躺平币的价值就是广告价值](/content/gnews/2595206.md)
  `雅典娜GNotes`
@@ -32,27 +65,6 @@
 #### [如何获得更多的躺平币](/content/gnews/2595165.md)
  `雅典娜GNotes`
 
-#### [躺平币使用即金钱使用即价值](/content/gnews/2595163.md)
- `雅典娜GNotes`
-
-#### [COVID-19疫苗副作用集萃（2022.5.25A）&#8211;新冠疫苗：一开始怀疑血液病，后来确诊系统性红斑狼疮](/content/gnews/2595161.md)
- `墨尔本雅典娜农场`
-
-#### [HDO锚定美元而且永远不会被挪用](/content/gnews/2595159.md)
- `雅典娜GNotes`
-
-#### [喜币交易量剧增正在向贸易化商业化流通化迅速发展](/content/gnews/2595146.md)
- `雅典娜GNotes`
-
-#### [WHO在全球推动数字极权条约，将数字护照和身份证与个人挂钩](/content/gnews/2595145.md)
- `澳喜农场`
-
-#### [乌克兰将“尽一切努力”营救钢铁厂士兵 俄罗斯对士兵进行讯问（c）](/content/gnews/2595144.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [孟加拉政府同意使用HCOIN作为流通币法币而且十年免税](/content/gnews/2595140.md)
- `雅典娜GNotes`
-
 #### [世卫组织总干事谭德塞成功连任 8月起进入第二任期](/content/gnews/2595139.md)
  `TokyoSakura Politics/樱花时政`
 
@@ -61,6 +73,9 @@
 
 #### [当乌克兰恢复到入侵前的状态时，将重新与俄罗斯进行谈判](/content/gnews/2595083.md)
  `墨尔本雅典娜农场`
+
+#### [【秘翻北美时评】粮食危机击垮缺粮国家](/content/gnews/2595080.md)
+ `秘密翻译组-即时新闻播报组`
 
 #### [新疆警察档案揭露中共镇压维吾尔人的残酷现实](/content/gnews/2595056.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -82,12 +97,6 @@
 
 #### [5月24日大直播速记精萃](/content/gnews/2594979.md)
  `雅典娜GNotes`
-
-#### [莫德纳CEO称大量中共病毒疫苗被废弃](/content/gnews/2594848.md)
- `蓝莲花农场`
-
-#### [从美国支持日本入常，谈中共的穷途末路](/content/gnews/2594846.md)
- `KarmaLabs`
 
 #### [文•贵天成——文贵先生谈“G币、喜币、喜联储”（三十五）](/content/gnews/2594775.md)
  `墨尔本雅典娜农场`
@@ -125,12 +134,6 @@
 #### [瑞士7月初将召开乌克兰重建国际会议](/content/gnews/2594063.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [20220524郭文贵大直播 ：未来全球所有媒体都有可能使用躺平币](/content/gnews/2593921.md)
- `Tokyo Sakura Video Group`
-
-#### [20220524郭文贵大直播 ：今天的躺平币喜币就像当年买比特币一模一样](/content/gnews/2593920.md)
- `Tokyo Sakura Video Group`
-
 #### [疫情、竞争激烈、营收不足1%，爱彼迎关闭中国业务](/content/gnews/2593850.md)
  `加拿大温哥华英里农场`
 
@@ -153,9 +156,6 @@
  `TokyoSakura Politics/樱花时政`
 
 #### [种族灭绝｜外媒公开近3000名被囚维吾尔人大头照 中共驻美使馆称“新疆人民生活幸福”](/content/gnews/2590618.md)
- `關注組`
-
-#### [俄乌战争｜星巴克全面撤出俄罗斯 130间门店被关闭](/content/gnews/2588962.md)
  `關注組`
 
 #### [灭共靠自己，与中共勾兑的一些西方团体不要再助纣为虐](/content/gnews/2574666.md)
