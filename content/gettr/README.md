@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 6:12 PM UTC  - :tv:直播](/content/gettr/p1b9y5e034f.md)
+
+2022.05.25 机场接战友
+
+<img src="https://media.gettr.com/group45/origin/2022/05/25/18/c4edde2b-aef3-85fc-e2c2-77c929c51e59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1b8zyffc47.md)
 
  5月25号：尊敬的战友们好，这次开庭彻底结束了，找钥匙的杨澜老公吴征又出来了……
@@ -35,11 +43,11 @@
 
 ---
 
-[@miles 5/25/2022 6:12 PM UTC  - :tv:直播](/content/gettr/p1b9y5e034f.md)
+[@miles 5/25/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1basy0797d.md)
 
-2022.05.25 机场接战友
+2022.05.25 连线到达纽约战友
 
-<img src="https://media.gettr.com/group45/origin/2022/05/25/18/c4edde2b-aef3-85fc-e2c2-77c929c51e59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/05/25/20/5b9755b5-20cf-305b-0454-0fb57aa6e129/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 2022.05.25 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group7/origin/2022/05/25/04/3221418d-64a1-f691-583d-52f2daa657ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 4:42 AM UTC  - :tv:直播](/content/gettr/p1b7bba538e.md)
-
-5/24/2022 Milles Guo: There is no single factor that can take down the CCP. The Chinese have ignored the evilness of the CCP and helped strengthen it in the past 70 years due to their cowardice. The Chinese people have not realized...
-
-<img src="https://media.gettr.com/group36/getter/2022/05/25/04/376d48b4-fdd0-23cf-a962-f75ac3480ca4/out.jpg" width="506" height="284">
 
 ---
 
