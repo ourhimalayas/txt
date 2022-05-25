@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 10:20 AM UTC  - :tv:直播](/content/gettr/p1b7j4y4f87.md)
+
+Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, has a typical Ukrainian spirit to fight for the pride of their country. He sometimes had difficulty dancing, as people are losing their lives on the batt...
+
+<img src="https://media.gettr.com/group21/origin/2022/05/25/10/f0af7648-ef99-b92d-c908-f4b0173b2d55/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 8:46 AM UTC  - :tv:直播](/content/gettr/p1b7vv99794.md)
 
 2022.05.24 文贵大直播（精华版）
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/25/2022 10:20 AM UTC  - :tv:直播](/content/gettr/p1b7j4y4f87.md)
+[@miles 5/25/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1b8ftk8c13.md)
 
-Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, has a typical Ukrainian spirit to fight for the pride of their country. He sometimes had difficulty dancing, as people are losing their lives on the batt...
+2022.05.25  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的变革（1）
 
-<img src="https://media.gettr.com/group21/origin/2022/05/25/10/f0af7648-ef99-b92d-c908-f4b0173b2d55/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/25/10/414d1627-8ec6-0bc5-f7e7-dc00f760fcde/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 2022-5-24 《避风港》（51）猴痘？辉瑞疫苗副作用？！
 
 <img src="https://media.gettr.com/group7/origin/2022/05/24/18/14de5338-bfce-95fb-b78b-64c04c909dc3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 5:39 PM UTC  - :tv:直播](/content/gettr/p1b4cqyb27c.md)
-
-2022年5月24日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group34/origin/2022/05/24/17/41323cd7-1a77-0d0d-3d1b-2ff18e04d9d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
