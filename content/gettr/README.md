@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/25/2022 8:46 AM UTC  - :tv:直播](/content/gettr/p1b7vv99794.md)
+
+2022.05.24 文贵大直播（精华版）
+
+<img src="https://media.gettr.com/group33/origin/2022/05/25/08/ac2d9e02-55e2-e003-5350-a4d60371d97e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@himalayaathena 5/25/2022 1:33 AM UTC ](/content/gettr/p1b5l9r1897.md)
 
 全球三大疫苗公司 #辉瑞、 #强生 和 #莫德纳，包括后来的 #阿斯利康，它们的大股东都是 #先锋集团 和 #贝莱德，而 #先锋集团 和 #贝莱德 同时也是全球最大数据中心（亚马逊、微软和谷歌）以及社交平台（脸书、油管、推特）和传统媒体（CNN、ABC、NBC、CBS、纽约时报等）的最大机构投资者，这也是为什么#疫苗灾难的声音被各大主流媒体和大科技公司所压制的原因。
@@ -10,11 +18,35 @@
 
 ---
 
-[@miles 5/25/2022 8:39 AM UTC  - :tv:直播](/content/gettr/p1b7ykke1ef.md)
+[@miles 5/25/2022 8:48 AM UTC ](/content/gettr/p1b7o8b47d4.md)
 
-2022.05.24 文贵大直播（精华版）
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group33/origin/2022/05/25/08/ac2d9e02-55e2-e003-5350-a4d60371d97e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年5月23日第80天当日救援统计：
+
+Medyka救援站接待：约126人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约21935人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 80 - Date: M...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/25/08/e593262a-8690-1b8c-abdd-ee41f5a6e81e/5d1d9ec71dc9b7d4bb7868a2f4332423.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +193,6 @@ On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world p
 https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibViOQ&s=08
 
 <img src="https://media.gettr.com/group35/getter/2022/05/24/16/6f051873-6bd8-f7cc-b925-19884dd58cb6/325c31a0f5c4588aecf1a76a674a342b.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p1b3e7k8191.md)
-
-2022年5月24日 文贵大直播：拜登访韩干掉北朝鲜战略；联合国日本入常展现实力；美对台模糊政策彻底改变；粮食危机击垮缺粮国家
-
-<img src="https://media.gettr.com/group47/origin/2022/05/24/12/db8ce684-c3ca-60f0-94bd-d594c5083d26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
