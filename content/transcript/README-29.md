@@ -3,6 +3,8 @@
 
 ## 頁面 29/43 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/content/transcript/2019/04/20190425-6473105803624226885.md)
+
 [文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/content/transcript/2019/04/20190423-1316930851159830610.md)
 
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/transcript/2019/04/20190422-2917569343036844190.md)
@@ -50,8 +52,6 @@
 [文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/content/transcript/2019/02/20190227-2121363787945897238.md)
 
 [文字版：2月24日，文贵谈，法治基金建立的真正目的](/content/transcript/2019/02/20190227-189178427361048869.md)
-
-[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/content/transcript/2019/02/20190226-8859437159396757540.md)
 
 
 ## 頁面 29/43 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)

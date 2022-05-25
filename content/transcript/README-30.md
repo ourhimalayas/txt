@@ -3,6 +3,8 @@
 
 ## 頁面 30/43 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/content/transcript/2019/02/20190226-8859437159396757540.md)
+
 [文字版：2月21日 再談法治基金捐款到底捐給了誰](/content/transcript/2019/02/20190225-476123730242359765.md)
 
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/transcript/2019/02/20190224-3447840307197696435.md)
@@ -50,8 +52,6 @@
 [文字版：2019年1月18日郭文贵先生直播（上，下）](/content/transcript/2019/01/20190122-8638350325848352117.md)
 
 [文字版2019年1月17 日直播（上，下）](/content/transcript/2019/01/20190122-1312642857829852488.md)
-
-[文字版：2019年1月16日郭先生报平安视频（上，下）](/content/transcript/2019/01/20190118-5239795096969232686.md)
 
 
 ## 頁面 30/43 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

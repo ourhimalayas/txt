@@ -3,6 +3,8 @@
 
 ## 頁面 39/43 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/content/transcript/2018/04/20180418-6784868507419879908.md)
+
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/content/transcript/2018/04/20180418-1652882263538149002.md)
 
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/transcript/2018/04/20180418-8750105287106833411.md)
@@ -50,8 +52,6 @@
 [11月8日文贵twitter再次被封7天后的报平安视频](/content/transcript/2018/04/20180418-7262790199483543364.md)
 
 [Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/content/transcript/2018/04/20180418-2982915845250551148.md)
-
-[文字版：2017年11月7日郭文贵先生接受郭牧师采访](/content/transcript/2018/04/20180418-3724438328570964289.md)
 
 
 ## 頁面 39/43 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

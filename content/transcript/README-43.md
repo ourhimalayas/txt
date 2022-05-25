@@ -3,6 +3,8 @@
 
 ## 頁面 43/43 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [查看全部](/content/transcript/README-all.md)
 
+[郭宝胜专访曹长青( 郭文贵爆料对中国政局与民主运动的巨大意义（视频文字版）](/content/transcript/2018/04/20180418-8737769596242434513.md)
+
 [郭文贵9月6日报平安：董卿是孙力军的情妇揭秘马航370失踪及雷洋之死&#124;文字版](/content/transcript/2018/04/20180418-6438072051436758841.md)
 
 [袁红冰: 郭文贵事件对中国未来的价值&#124;郭宝胜访谈文字版2017-6-24](/content/transcript/2018/04/20180418-8213280584796437424.md)

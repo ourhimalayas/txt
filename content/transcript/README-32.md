@@ -3,6 +3,8 @@
 
 ## 頁面 32/43 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/content/transcript/2018/11/20181124-4394519846774733520.md)
+
 [翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/content/transcript/2018/11/20181124-6313930265884722848.md)
 
 [翻译：1120发布会来宾提问，班农和郭先生回答](/content/transcript/2018/11/20181123-8581162821359950469.md)
@@ -50,8 +52,6 @@
 [文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/content/transcript/2018/10/20181025-1627101594427437852.md)
 
 [文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！](/content/transcript/2018/10/20181021-3410714193458373203.md)
-
-[文字版：郭先生直播 10月17号2018 年路德访谈文贵先生： 法国大革命与共产党的打土豪分田地的根本不同！也必将引起流血革命！西方国家已经开始实施对中国共产党的清除方案！无人可以改变！](/content/transcript/2018/10/20181018-4563210863477806974.md)
 
 
 ## 頁面 32/43 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

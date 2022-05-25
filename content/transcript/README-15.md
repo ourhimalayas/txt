@@ -3,6 +3,8 @@
 
 ## 頁面 15/43 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版:2020年8月16日郭先生GTV直播连线新西兰战友](/content/transcript/2020/08/20200831-5572954983708392558.md)
+
 [【文字版】2020年8月15日文贵先生连线Masha战友](/content/transcript/2020/08/20200823-930057980655469134.md)
 
 [【文字版】2020年8月12日文贵先生直播视频](/content/transcript/2020/08/20200823-4877264115847899571.md)
@@ -50,8 +52,6 @@
 [文字版：郭先生7月5日GTV直播](/content/transcript/2020/07/20200709-8762268395418060735.md)
 
 [文字版：郭先生7月4号GTV直播](/content/transcript/2020/07/20200709-6898409063046022191.md)
-
-[文字版:郭先生2020年7月2日直播](/content/transcript/2020/07/20200706-7619698888838221948.md)
 
 
 ## 頁面 15/43 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

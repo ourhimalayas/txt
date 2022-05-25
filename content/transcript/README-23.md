@@ -3,6 +3,8 @@
 
 ## 頁面 23/43 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年11月11日文贵班农谈](/content/transcript/2019/11/20191113-3588929521846219666.md)
+
 [文字版：2019年11月10日文贵报平安直播](/content/transcript/2019/11/20191112-8738069601493230135.md)
 
 [文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/content/transcript/2019/11/20191111-8774490754599223874.md)
@@ -50,8 +52,6 @@
 [文字版：2019年10月21日郭先生第一次报平安](/content/transcript/2019/10/20191022-1216375453972564281.md)
 
 [文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191021-396418607512158731.md)
-
-[文字版：2019年10月15日郭文贵先生船上直播：天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/content/transcript/2019/10/20191019-5901855488500270018.md)
 
 
 ## 頁面 23/43 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)

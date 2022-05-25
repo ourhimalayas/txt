@@ -3,6 +3,8 @@
 
 ## 頁面 35/43 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/content/transcript/2018/07/20180705-8441159493365541935.md)
+
 [翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/content/transcript/2018/07/20180703-1798568715370804702.md)
 
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/transcript/2018/07/20180703-4499282399094679308.md)
@@ -50,8 +52,6 @@
 [郭文贵先生与陈志煜对话录音（中英字幕）](/content/transcript/2018/04/20180425-6089618542439587251.md)
 
 [文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/content/transcript/2018/04/20180425-1035788071787459036.md)
-
-[文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/content/transcript/2018/04/20180422-7434374756497601766.md)
 
 
 ## 頁面 35/43 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)

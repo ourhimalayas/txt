@@ -3,6 +3,8 @@
 
 ## 頁面 42/43 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
 
+[2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/transcript/2018/04/20180418-1711855541201690600.md)
+
 [翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/content/transcript/2018/04/20180418-6992843521807662530.md)
 
 [美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/content/transcript/2018/04/20180418-6931208450020595005.md)
@@ -50,8 +52,6 @@
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清&#124;文字版(完整版)](/content/transcript/2018/04/20180418-3089407742427439276.md)
 
 [袁红冰: 郭文贵事件对中国未来的价值&#124;郭宝胜访谈文字版](/content/transcript/2018/04/20180418-1789482780048338185.md)
-
-[郭宝胜专访曹长青( 郭文贵爆料对中国政局与民主运动的巨大意义（视频文字版）](/content/transcript/2018/04/20180418-8737769596242434513.md)
 
 
 ## 頁面 42/43 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
