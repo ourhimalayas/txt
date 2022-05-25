@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/25/2022 5:57 AM UTC ](/content/gettr/p1b7kcva2a8.md)
+
+The biggest blow to the Chinese Communist Party to completely change the pattern of China, U.S. and Taiwan is Yes
+
+On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world pattern of China, the United States, ...
+
+<img src="https://media.gettr.com/group14/origin/2022/05/25/05/50999111-ff2a-5dba-4145-2f4f3c5b713e/7aa06fbaf45c4dadf9217f21138f64cd.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p1b7d8od557.md)
 
 5/24/2022 Miles Guo: The traitors of Taiwan inside Taiwan government will help carry out the CCP strategy of "encircling but not attacking" against Taiwan; even though Mr. "Yes Biden" has made it clear to the world that the U.S. wi...
@@ -10,13 +20,15 @@
 
 ---
 
-[@miles 5/25/2022 5:57 AM UTC ](/content/gettr/p1b7kcva2a8.md)
+[@miles 5/25/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p1b7l7c1496.md)
 
-The biggest blow to the Chinese Communist Party to completely change the pattern of China, U.S. and Taiwan is Yes
+【Ukrainian Rescue】 5/24/2022 A Russian girl comes to  our fellow fighters and asks for our vest of “taking down the evil CCP” since it also represents the Russian people’s voice. They hope China will be free.
 
-On May 24, Mr. Guo blew the whistle on Gettr that all the changes in the world pattern of China, the United States, ...
 
-<img src="https://media.gettr.com/group14/origin/2022/05/25/05/50999111-ff2a-5dba-4145-2f4f3c5b713e/7aa06fbaf45c4dadf9217f21138f64cd.jpg" width="506" height="284">
+
+【乌克兰救援】 5/24/2022 俄...
+
+<img src="https://media.gettr.com/group6/getter/2022/05/25/06/5e29fd8f-9e93-db67-5bb7-3988f6ed31cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,38 +161,6 @@ https://twitter.com/bbcchinese/status/1529057618014117889?t=kHGzXkjzUjBheKeDibVi
 【Ukrainian Rescue】 5/23/2022 Viking Rune, the president of the Norwegian rescue organization A-Team, gives First Aid training to the rescue volunteers in the Medyka camp in the big tent of NFSC and ROLF. He supports the NFSC and ho...
 
 <img src="https://media.gettr.com/group18/getter/2022/05/24/09/59158676-e865-9624-de3e-ad40760beeb7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/24/2022 9:01 AM UTC ](/content/gettr/p1b2j9s70dd.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月22日第79天当日救援统计：
-
-Medyka救援站接待：约133人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21809人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 79 - Date: M...
-
-<img src="https://media.gettr.com/group27/getter/2022/05/24/09/5d292180-692f-6b16-e4bf-bb9233384f84/e092004daa4f68c1433b5de8cc524dc4.jpg" width="506" height="284">
 
 ---
 
