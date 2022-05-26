@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/26/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1bcka3b4eb.md)
+
+2022.05.26 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group12/origin/2022/05/26/04/e716ed32-3fef-2a05-7e6a-23d91815e33b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 3:50 AM UTC  - :tv:直播](/content/gettr/p1bbh1x08ed.md)
 
 5/24/2022 Miles Guo: The CCP never anticipated two things could happen: Russia’s miserable failure and the US and Japan's prompt strategic adjustment towards the CCP.
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 5/26/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1bcka3b4eb.md)
+[@miles 5/26/2022 8:10 AM UTC  - :tv:直播](/content/gettr/p1bcs0mfe70.md)
 
-2022.05.26 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. This is because I knew that the CCP's insane actions around the world would inevitably lead the US to contain the CCP by allowing J...
 
-<img src="https://media.gettr.com/group12/origin/2022/05/26/04/e716ed32-3fef-2a05-7e6a-23d91815e33b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/05/26/08/6074f34e-5898-9d2c-4396-36f97173ce01/out.jpg" width="506" height="284">
 
 ---
 
@@ -190,14 +198,6 @@ Day 81 - Date: Ma...
 5/24/2022 Miles Guo: The entire world will be jointly ruled by Europe's NATO, the Asian version of NATO, and the African version of NATO rather than by the US and the CCP. IPEF is the same as CPTPP proposed by Abe. Joining the IPEF...
 
 <img src="https://media.gettr.com/group46/getter/2022/05/25/13/f9fd314f-095b-7b9e-d9e6-6ca41b6579f3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 1:24 PM UTC  - :tv:直播](/content/gettr/p1b85og2f98.md)
-
- 5月25号：尊敬的战友们好，无论在生活中．还是在灭共这种信仰的追求中！持之以恒．保持绝对的敬畏之心，这是一个有道德的追求成功的人的最基本的基础．和道德，后天星期五．由于安红的澳喜农场．在七哥的盖特帐号直播，灭共诗歌朗诵半决赛。所以我可能星期天再开始直播！
-
-<img src="https://media.gettr.com/group33/getter/2022/05/25/13/fb695c66-602c-9018-7923-64f08abfa65d/out.jpg" width="506" height="284">
 
 ---
 
