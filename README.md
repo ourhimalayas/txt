@@ -11,8 +11,14 @@
 
 ---
 
-#### [保卫台湾，拜登不只是说说而已](/content/gnews/2607957.md)
+#### [DC每日热点0526](/content/gnews/2608054.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [保卫台湾，拜登不只是说说而已](/content/gnews/2608003.md)
  `日本东京方舟农场`
+
+#### [万事达卡首席执行官认为SWIFT支付系统可能将于 5 年内不复存在](/content/gnews/2607989.md)
+ `纽约香草山MOS02`
 
 #### [中共国家医保局拒绝支付常态化核酸检测费用](/content/gnews/2607905.md)
  `日本东京方舟农场`
@@ -27,12 +33,6 @@
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [魁北克投票通过第96号法案法语宪章改革](/content/gnews/2607758.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [美国司法部对中共国的”跨国镇压“采取了行动](/content/gnews/2607757.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [北京加强病毒隔离 上海居民谴责不公平规定](/content/gnews/2607756.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [达沃斯：索罗斯称乌克兰可能是第三次世界大战的开始](/content/gnews/2607748.md)
