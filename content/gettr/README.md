@@ -14,6 +14,22 @@
 
 ---
 
+[@miles 5/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1bbmhy9a15.md)
+
+2022-5-25《鸡血王喜币大作战》 第二百零六集 嘉宾：Nick、封神榜
+
+<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1bbq15d090.md)
+
+2022.05.25 晚  新中国联邦 | 喜财经 第59期 粮食危机与邪恶国家的粮食阴谋；喜支付、喜生态引领未来
+
+<img src="https://media.gettr.com/group19/origin/2022/05/26/01/5170d8a0-451a-028e-1200-c2a978e34d4d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 1:08 AM UTC ](/content/gettr/p1bbfmkeb78.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -43,14 +59,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 81 - Date: Ma...
 
 <img src="https://media.gettr.com/group20/getter/2022/05/26/01/99f5210c-7dcc-7070-598d-e17366e42581/176da716576cbd5b69c0a8fd019a7b40.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1bbq15d090.md)
-
-2022.05.25 晚  新中国联邦 | 喜财经 第59期 粮食危机与邪恶国家的粮食阴谋；喜支付、喜生态引领未来
-
-<img src="https://media.gettr.com/group19/origin/2022/05/26/01/5170d8a0-451a-028e-1200-c2a978e34d4d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -184,38 +192,6 @@ Day 81 - Date: Ma...
 Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, has a typical Ukrainian spirit to fight for the pride of their country. He sometimes had difficulty dancing, as people are losing their lives on the batt...
 
 <img src="https://media.gettr.com/group21/origin/2022/05/25/10/f0af7648-ef99-b92d-c908-f4b0173b2d55/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 8:48 AM UTC ](/content/gettr/p1b7o8b47d4.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月23日第80天当日救援统计：
-
-Medyka救援站接待：约126人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21935人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 80 - Date: M...
-
-<img src="https://media.gettr.com/group31/getter/2022/05/25/08/e593262a-8690-1b8c-abdd-ee41f5a6e81e/5d1d9ec71dc9b7d4bb7868a2f4332423.jpg" width="506" height="284">
 
 ---
 
