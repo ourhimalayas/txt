@@ -5,11 +5,29 @@
 #### [美联储副主席布雷纳德认为央行数字货币有其道理](/content/gnews/2607796.md)
  `温哥华扬帆农场`
 
+#### [中共应对IPEF，王公公出访8个岛国](/content/gnews/2607759.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [魁北克投票通过第96号法案法语宪章改革](/content/gnews/2607758.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [美国司法部对中共国的”跨国镇压“采取了行动](/content/gnews/2607757.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [北京加强病毒隔离 上海居民谴责不公平规定](/content/gnews/2607756.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [加拿大敦促农民种植更多粮食](/content/gnews/2607755.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [达沃斯：索罗斯称乌克兰可能是第三次世界大战的开始](/content/gnews/2607748.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [布林肯称中共国 “破坏”了全球秩序 美国不寻求 “新冷战”](/content/gnews/2607740.md)
  `喜马拉雅意大利罗马达芬奇农场`
+
+#### [喜交所：加密货币投资者的税收压力越来越大](/content/gnews/2607726.md)
+ `秘密翻译组-原创组`
 
 #### [为灭共拜登宣布启动除中共之外的亚洲13国印太经济框架](/content/gnews/2607647.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -50,9 +68,6 @@
 #### [【G叻睇真D】索罗斯指责人工智慧加大专制政权控制权](/content/gnews/2607221.md)
  `G-时新闻`
 
-#### [“四方”会议启动卫星海事倡议 以对抗中共威胁](/content/gnews/2607205.md)
- `NFSC News`
-
 #### [有声新闻-新西兰财经G乐部2022年5月26日:财经新闻整理](/content/gnews/2607115.md)
  `Finance-GCLUB【新西兰财经G乐部】`
 
@@ -65,13 +80,13 @@
 #### [【G时新闻】82%的乌克兰国民认为不能把领土让给俄罗斯](/content/gnews/2607059.md)
  `G-时新闻`
 
+#### [有声&#124;波兰总统在乌克兰议会发表讲话，加深两国同盟](/content/gnews/2607043.md)
+ `MOSREC`
+
 #### [中共“稳住经济大盘”将成为经济崩盘的开始](/content/gnews/2607019.md)
  `波士顿五月花农场`
 
 #### [有声&#124;总统拜登表示愿意支持日本成为常任理事国](/content/gnews/2606975.md)
- `MOSREC`
-
-#### [有声&#124;拜登称：美国将保卫台湾](/content/gnews/2606957.md)
  `MOSREC`
 
 #### [CDC建议对所有国内航空旅行者进行新冠检测](/content/gnews/2606917.md)
@@ -108,21 +123,6 @@
  `KarmaLabs`
 
 #### [文编&#124;中共开启超限战，世界经济大失血](/content/gnews/2606324.md)
- `KarmaLabs`
-
-#### [文编&#124;互联网信息渐迷人眼](/content/gnews/2606311.md)
- `KarmaLabs`
-
-#### [文编&#124;七哥解读未来的NFT](/content/gnews/2606288.md)
- `KarmaLabs`
-
-#### [文编&#124;习近平视中国老百姓为畜奴](/content/gnews/2606270.md)
- `KarmaLabs`
-
-#### [文编&#124;习近平身体有病的情报是各股势力的武器](/content/gnews/2606254.md)
- `KarmaLabs`
-
-#### [文编&#124;马斯克无法左右中美政权，入主推特力不从心](/content/gnews/2606236.md)
  `KarmaLabs`
 
 #### [习近平批评那些将人权问题政治化的国家](/content/gnews/2605907.md)
