@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/26/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1bg6r91585.md)
+
+2022年5月26日  俄乌战争战况播报
+
+<img src="https://media.gettr.com/group24/origin/2022/05/26/17/e7790775-e252-49db-1ab7-82d3d61edbc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1bdwww8f59.md)
 
 2022.05.26 战友相聚纽约办公室
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/26/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1bg6r91585.md)
+[@miles 5/26/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1bh668ef49.md)
 
-2022年5月26日  俄乌战争战况播报
+2022-5-26 《避风港》（52）官方证实，“猴痘”用做掩饰疫苗灾难
 
-<img src="https://media.gettr.com/group24/origin/2022/05/26/17/e7790775-e252-49db-1ab7-82d3d61edbc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/05/26/18/9c1f249f-3eb2-8d01-fd9d-6142e0bb15d0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ Day 81 - Date: Ma...
 2022.05.25 连线到达纽约战友
 
 <img src="https://media.gettr.com/group36/origin/2022/05/25/20/5b9755b5-20cf-305b-0454-0fb57aa6e129/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/25/2022 6:12 PM UTC  - :tv:直播](/content/gettr/p1b9y5e034f.md)
-
-2022.05.25 机场接战友
-
-<img src="https://media.gettr.com/group45/origin/2022/05/25/18/c4edde2b-aef3-85fc-e2c2-77c929c51e59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
