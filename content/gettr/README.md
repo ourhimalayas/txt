@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 5/26/2022 3:50 AM UTC  - :tv:直播](/content/gettr/p1bbh1x08ed.md)
+
+5/24/2022 Miles Guo: The CCP never anticipated two things could happen: Russia’s miserable failure and the US and Japan's prompt strategic adjustment towards the CCP.
+
+
+
+5/24/2022 文贵直播：中共做梦都没想到的两件事：没想到俄罗斯会输这么惨，没想到美日能如此快速调整对中共的战略。
+
+
+
+<img src="https://media.gettr.com/group10/getter/2022/05/26/03/e4d8e8c3-d5ac-b4dd-f9a2-b0ec8510737e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1bbmhy9a15.md)
+
+2022-5-25《鸡血王喜币大作战》 第二百零六集 嘉宾：Nick、封神榜
+
+<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@snowsnow 5/26/2022 1:50 AM UTC ](/content/gettr/p1bb1vdc9bc.md)
 
 我们是消灭邪恶中国共产党的新中国人!
@@ -14,11 +36,11 @@
 
 ---
 
-[@miles 5/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1bbmhy9a15.md)
+[@miles 5/26/2022 3:57 AM UTC  - :tv:直播](/content/gettr/p1bbuav648a.md)
 
-2022-5-25《鸡血王喜币大作战》 第二百零六集 嘉宾：Nick、封神榜
+5/25/2022 Miles Guo’s GETTR: In Communist China, everyone, whether you are the president or an ordinary person, can be convicted without due process of law or trial. A society without rule of law and supervision is worse than an an...
 
-<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/05/26/03/b2e6a41e-639a-f230-b8c3-7cf7b847b129/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,22 +198,6 @@ Day 81 - Date: Ma...
 澳喜深挖爆料 ABC 的 Echo Hui是谁？
 
 <img src="https://media.gettr.com/group46/origin/2022/05/25/11/55d1679c-3002-1914-5efb-a60427269bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1b8ftk8c13.md)
-
-2022.05.25  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的变革（1）
-
-<img src="https://media.gettr.com/group29/origin/2022/05/25/10/414d1627-8ec6-0bc5-f7e7-dc00f760fcde/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 10:20 AM UTC  - :tv:直播](/content/gettr/p1b7j4y4f87.md)
-
-Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, has a typical Ukrainian spirit to fight for the pride of their country. He sometimes had difficulty dancing, as people are losing their lives on the batt...
-
-<img src="https://media.gettr.com/group21/origin/2022/05/25/10/f0af7648-ef99-b92d-c908-f4b0173b2d55/out.jpg" width="506" height="284">
 
 ---
 
