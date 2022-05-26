@@ -2,20 +2,38 @@
 ---
 
 
-#### [七哥谈其他数字货币与喜币的区别以及躺平币的发行（五）](/content/gnews/2604619.md)
+#### [只做唯一不做第一（三）](/content/gnews/2604677.md)
  `雅典娜GNotes`
 
-#### [七哥谈其他数字货币与喜币的区别以及躺平币的发行（四）](/content/gnews/2604618.md)
+#### [只做唯一不做第一（七）](/content/gnews/2604667.md)
  `雅典娜GNotes`
 
-#### [七哥谈其他数字货币与喜币的区别以及躺平币的发行（三）](/content/gnews/2604614.md)
+#### [只做唯一不做第一（六）](/content/gnews/2604656.md)
  `雅典娜GNotes`
 
-#### [七哥谈其他数字货币与喜币的区别以及躺平币的发行（七）](/content/gnews/2604610.md)
+#### [只做唯一不做第一（二）](/content/gnews/2604651.md)
  `雅典娜GNotes`
 
-#### [七哥谈其他数字货币与喜币的区别以及躺平币的发行（六）](/content/gnews/2604603.md)
+#### [樱花FM┃美国财政部即日起将不允许美国银行协助俄罗斯政府偿付债券](/content/gnews/2604650.md)
+ `樱花FM`
+
+#### [七哥谈喜币、HDO（一）](/content/gnews/2604641.md)
  `雅典娜GNotes`
+
+#### [新西兰领导人敦促美国重返区域贸易协定](/content/gnews/2604613.md)
+ `Shuizhuyu`
+
+#### [喜币KYC程序简化将加快账户通过率](/content/gnews/2604611.md)
+ `NFSC News`
+
+#### [樱花FM┃猴痘与猴无关，是疫苗灾难](/content/gnews/2604586.md)
+ `樱花FM`
+
+#### [樱花FM┃中国经济正步入危险深渊（下）](/content/gnews/2604585.md)
+ `樱花FM`
+
+#### [樱花FM┃中国经济正步入危险深渊（上）](/content/gnews/2604582.md)
+ `樱花FM`
 
 #### [面对疫苗灾难 所有的灾难皆可忽略不计](/content/gnews/2604554.md)
  `NFSC News`
@@ -74,23 +92,8 @@
 #### [欧盟对俄罗斯不确定的石油禁令，导致石油供应紧张](/content/gnews/2603914.md)
  `墨尔本雅典娜农场`
 
-#### [为控制支付市场 中共再次力推数字人民币](/content/gnews/2603910.md)
- `Tokyo Sakura Video Group`
-
-#### [5月25日，北京王府井，一个人都没](/content/gnews/2603895.md)
- `Tokyo Sakura Video Group`
-
-#### [现在回杭要提前社区报备，自费隔离500左右一天](/content/gnews/2603875.md)
- `Tokyo Sakura Video Group`
-
 #### [05/26每日播报｜社媒消息：斯蒂夫·班农 基辅独立报](/content/gnews/2603854.md)
  `秘密翻译组-即时新闻播报组`
-
-#### [上海春申路附近，崩溃的爸爸](/content/gnews/2603850.md)
- `Tokyo Sakura Video Group`
-
-#### [布林肯将发表有关中国政策的重要讲话](/content/gnews/2603738.md)
- `TokyoSakura Politics/樱花时政`
 
 #### [晶片之战｜英国拟启动国安法彻查中企对最大晶片制造商NewportWaferFAB收购案](/content/gnews/2603703.md)
  `關注組`
@@ -112,9 +115,6 @@
 
 #### [中共国禁止用医保支付大规模核酸检测费用](/content/gnews/2603183.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [印太经济框架意在围剿中共](/content/gnews/2603135.md)
- `NFSC News`
 
 #### [六四前夕：多所北京高校爆发校内抗议](/content/gnews/2603134.md)
  `NFSC News`
