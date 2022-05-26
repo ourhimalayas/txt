@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/26/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1bdwww8f59.md)
+
+2022.05.26 战友相聚纽约办公室
+
+<img src="https://media.gettr.com/group32/origin/2022/05/26/15/584eb617-9324-e924-ddb8-9470517d23ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p1be4jj7bbd.md)
 
 2022.05.26 战友相聚纽约办公室
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/26/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1bdwww8f59.md)
+[@miles 5/26/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1bg6r91585.md)
 
-2022.05.26 战友相聚纽约办公室
+2022年5月26日  俄乌战争战况播报
 
-<img src="https://media.gettr.com/group32/origin/2022/05/26/15/584eb617-9324-e924-ddb8-9470517d23ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/05/26/17/e7790775-e252-49db-1ab7-82d3d61edbc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ Day 81 - Date: Ma...
 2022.05.25 机场接战友
 
 <img src="https://media.gettr.com/group45/origin/2022/05/25/18/c4edde2b-aef3-85fc-e2c2-77c929c51e59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1b8zyffc47.md)
-
- 5月25号：尊敬的战友们好，这次开庭彻底结束了，找钥匙的杨澜老公吴征又出来了……
-
-<img src="https://media.gettr.com/group47/getter/2022/05/25/17/f9ba9893-8739-c231-8896-170c95186d89/out.jpg" width="506" height="284">
 
 ---
 
