@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/26/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p1be4jj7bbd.md)
+
+2022.05.26 战友相聚纽约办公室
+
+<img src="https://media.gettr.com/group32/origin/2022/05/26/15/584eb617-9324-e924-ddb8-9470517d23ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 8:10 AM UTC  - :tv:直播](/content/gettr/p1bcs0mfe70.md)
 
 5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. This is because I knew that the CCP's insane actions around the world would inevitably lead the US to contain the CCP by allowing J...
@@ -189,14 +197,6 @@ Day 81 - Date: Ma...
 5/24/2022 Miles Guo: Japan does not need to worry that it will not be able to become a permanent member of the UN because of the rules of the UN. Both the US and those within the Chinese Communist Party system believe that the CCP'...
 
 <img src="https://media.gettr.com/group21/getter/2022/05/25/15/f2ce6836-f923-8673-efbe-40a8a658a4e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 1:58 PM UTC  - :tv:直播](/content/gettr/p1b8h725acb.md)
-
-5/24/2022 Miles Guo: The entire world will be jointly ruled by Europe's NATO, the Asian version of NATO, and the African version of NATO rather than by the US and the CCP. IPEF is the same as CPTPP proposed by Abe. Joining the IPEF...
-
-<img src="https://media.gettr.com/group46/getter/2022/05/25/13/f9fd314f-095b-7b9e-d9e6-6ca41b6579f3/out.jpg" width="506" height="284">
 
 ---
 
