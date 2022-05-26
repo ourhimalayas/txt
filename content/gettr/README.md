@@ -2,11 +2,35 @@
 ---
 
 
-[@miles 5/25/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1bb5a718ff.md)
+[@miles 5/26/2022 1:08 AM UTC ](/content/gettr/p1bbfmkeb78.md)
 
-5/24/2022 Miles Guo: The world has entered a new era, where the competition among digital currencies will surpass the scale of any war. The total value of the Tangping (Lying-Flat) Coin will reach 100 trillions USD. In our lifetime...
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group40/getter/2022/05/25/23/4d78498c-b48b-0179-9b67-3f0eca616027/out.jpg" width="506" height="284">
+
+
+2022年5月24日第81天当日救援统计：
+
+Medyka救援站接待：约58人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约21993人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 81 - Date: Ma...
+
+<img src="https://media.gettr.com/group20/getter/2022/05/26/01/99f5210c-7dcc-7070-598d-e17366e42581/176da716576cbd5b69c0a8fd019a7b40.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +39,22 @@
 2022.05.25  七哥和战友乱聊
 
 <img src="https://media.gettr.com/group47/liveorigin/2022/05/26/00/a1d89eba-d2c8-4f40-4469-cfd7415e05d7/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1bb5a718ff.md)
+
+5/24/2022 Miles Guo: The world has entered a new era, where the competition among digital currencies will surpass the scale of any war. The total value of the Tangping (Lying-Flat) Coin will reach 100 trillions USD. In our lifetime...
+
+<img src="https://media.gettr.com/group40/getter/2022/05/25/23/4d78498c-b48b-0179-9b67-3f0eca616027/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 1:14 AM UTC  - :tv:直播](/content/gettr/p1bbixtde2a.md)
+
+5/25/2022 Miles Guo’s GETTR: The CCP does not allow the Chinese to sell their shares of Hong Kong stock and China concepts stock, and the SEC will certainly delist the entire China concepts stock. Many people are hoarding food in t...
+
+<img src="https://media.gettr.com/group25/getter/2022/05/26/01/52ad9aac-d406-d1c5-ef3c-c69e5165ec79/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,31 +207,11 @@ Day 80 - Date: M...
 
 ---
 
-[@himalayaathena 5/25/2022 1:33 AM UTC ](/content/gettr/p1b5l9r1897.md)
-
-全球三大疫苗公司 #辉瑞、 #强生 和 #莫德纳，包括后来的 #阿斯利康，它们的大股东都是 #先锋集团 和 #贝莱德，而 #先锋集团 和 #贝莱德 同时也是全球最大数据中心（亚马逊、微软和谷歌）以及社交平台（脸书、油管、推特）和传统媒体（CNN、ABC、NBC、CBS、纽约时报等）的最大机构投资者，这也是为什么#疫苗灾难的声音被各大主流媒体和大科技公司所压制的原因。
-
- https://gnews.org/zh-hans/2583162/
-
----
-
 [@miles 5/25/2022 7:27 AM UTC  - :tv:直播](/content/gettr/p1b7w9179e6.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group42/origin/2022/05/25/06/11c790d2-8f3b-cc29-b23c-b5b80dc9cf36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p1b7l7c1496.md)
-
-【Ukrainian Rescue】 5/24/2022 A Russian girl comes to  our fellow fighters and asks for our vest of “taking down the evil CCP” since it also represents the Russian people’s voice. They hope China will be free.
-
-
-
-【乌克兰救援】 5/24/2022 俄...
-
-<img src="https://media.gettr.com/group6/getter/2022/05/25/06/5e29fd8f-9e93-db67-5bb7-3988f6ed31cd/out.jpg" width="506" height="284">
 
 ---
 
