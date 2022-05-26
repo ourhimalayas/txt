@@ -16,6 +16,22 @@
 
 ---
 
+[@miles 5/26/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1bcka3b4eb.md)
+
+2022.05.26 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group12/origin/2022/05/26/04/e716ed32-3fef-2a05-7e6a-23d91815e33b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 3:57 AM UTC  - :tv:直播](/content/gettr/p1bbuav648a.md)
+
+5/25/2022 Miles Guo’s GETTR: In Communist China, everyone, whether you are the president or an ordinary person, can be convicted without due process of law or trial. A society without rule of law and supervision is worse than an an...
+
+<img src="https://media.gettr.com/group44/getter/2022/05/26/03/b2e6a41e-639a-f230-b8c3-7cf7b847b129/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1bbmhy9a15.md)
 
 2022-5-25《鸡血王喜币大作战》 第二百零六集 嘉宾：Nick、封神榜
@@ -33,14 +49,6 @@
 灭掉中共是人类生存的必须！
 
 <img src="https://media.gettr.com/group7/origin/2022/05/26/01/0ca9faa0-633a-baea-d1fd-eb65e3b57904/ed94985ed4daa5b16d9c3785f08bc5dc.png" width="506" height="284">
-
----
-
-[@miles 5/26/2022 3:57 AM UTC  - :tv:直播](/content/gettr/p1bbuav648a.md)
-
-5/25/2022 Miles Guo’s GETTR: In Communist China, everyone, whether you are the president or an ordinary person, can be convicted without due process of law or trial. A society without rule of law and supervision is worse than an an...
-
-<img src="https://media.gettr.com/group44/getter/2022/05/26/03/b2e6a41e-639a-f230-b8c3-7cf7b847b129/out.jpg" width="506" height="284">
 
 ---
 
@@ -190,14 +198,6 @@ Day 81 - Date: Ma...
  5月25号：尊敬的战友们好，无论在生活中．还是在灭共这种信仰的追求中！持之以恒．保持绝对的敬畏之心，这是一个有道德的追求成功的人的最基本的基础．和道德，后天星期五．由于安红的澳喜农场．在七哥的盖特帐号直播，灭共诗歌朗诵半决赛。所以我可能星期天再开始直播！
 
 <img src="https://media.gettr.com/group33/getter/2022/05/25/13/fb695c66-602c-9018-7923-64f08abfa65d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1b8im4bb58.md)
-
-澳喜深挖爆料 ABC 的 Echo Hui是谁？
-
-<img src="https://media.gettr.com/group46/origin/2022/05/25/11/55d1679c-3002-1914-5efb-a60427269bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
