@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/26/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p1be4jj7bbd.md)
+
+2022.05.26 战友相聚纽约办公室
+
+<img src="https://media.gettr.com/group32/origin/2022/05/26/15/584eb617-9324-e924-ddb8-9470517d23ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 1:39 PM UTC  - :tv:直播](/content/gettr/p1bdqd6cf29.md)
 
  5月26号：尊敬的战友们好……全球的粮食危机．疫苗灾难的危机．会让我们的战友．和新中国联邦……迎来一个自然的相互保护，互相爱戴，互相珍惜的．前所未有的，摸索．寻找人与人能美好相处的关系．这是上天送来．创建人与人的新关新型的社会关系，创造人性自然的信仰！和宗教的最佳机会！
@@ -10,7 +18,7 @@
 
 ---
 
-[@miles 5/26/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p1be4jj7bbd.md)
+[@miles 5/26/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1bdwww8f59.md)
 
 2022.05.26 战友相聚纽约办公室
 
@@ -189,14 +197,6 @@ Day 81 - Date: Ma...
  5月25号：尊敬的战友们好，这次开庭彻底结束了，找钥匙的杨澜老公吴征又出来了……
 
 <img src="https://media.gettr.com/group47/getter/2022/05/25/17/f9ba9893-8739-c231-8896-170c95186d89/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 3:03 PM UTC  - :tv:直播](/content/gettr/p1b955g3295.md)
-
-5/24/2022 Miles Guo: Japan does not need to worry that it will not be able to become a permanent member of the UN because of the rules of the UN. Both the US and those within the Chinese Communist Party system believe that the CCP'...
-
-<img src="https://media.gettr.com/group21/getter/2022/05/25/15/f2ce6836-f923-8673-efbe-40a8a658a4e3/out.jpg" width="506" height="284">
 
 ---
 
