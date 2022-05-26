@@ -92,17 +92,11 @@
 #### [有声&#124;总统拜登表示愿意支持日本成为常任理事国](/content/gnews/2606975.md)
  `MOSREC`
 
-#### [拜登坚定卫台验证文贵先生爆料，中共末路狂奔](/content/gnews/2606965.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [有声&#124;拜登称：美国将保卫台湾](/content/gnews/2606957.md)
  `MOSREC`
 
 #### [CDC建议对所有国内航空旅行者进行新冠检测](/content/gnews/2606917.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月26日早](/content/gnews/2606908.md)
- `纽约香草山MOS01`
 
 #### [战争中的黑客：兵力不足的乌克兰如何想方设法对抗俄罗斯](/content/gnews/2606757.md)
  `西班牙巴塞罗那喜悦农场`
