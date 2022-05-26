@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/26/2022 8:10 AM UTC  - :tv:直播](/content/gettr/p1bcs0mfe70.md)
+
+5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. This is because I knew that the CCP's insane actions around the world would inevitably lead the US to contain the CCP by allowing J...
+
+<img src="https://media.gettr.com/group13/getter/2022/05/26/08/6074f34e-5898-9d2c-4396-36f97173ce01/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1bcka3b4eb.md)
 
 2022.05.26 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -24,11 +32,11 @@
 
 ---
 
-[@miles 5/26/2022 8:10 AM UTC  - :tv:直播](/content/gettr/p1bcs0mfe70.md)
+[@miles 5/26/2022 9:50 AM UTC  - 3圖](/content/gettr/p1bc721cb39.md)
 
-5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. This is because I knew that the CCP's insane actions around the world would inevitably lead the US to contain the CCP by allowing J...
+5月26号：尊敬的战友们好！中国人的冷漠．和自私就像下面那几个截屏里说的一模一样，疫苗良方核糖核酸，清零政策，等等．灾难．一定会继续在中国发生……让我们看看大多数人们．对打台湾的态度，新疆集中营的态度，香港灾难态度，西藏自焚的发生后的反应……就知道我们的同胞将未来必将面对什么了……灾难发生后……我们一定会痛苦，但肯定不会痛不欲生，因为我们知道这些东西发生的根本原因．是什么？【新消息——据报道，根据泄露的音频剪辑，中国共产党高层讨论了入侵台湾的军事计划。新消息...
 
-<img src="https://media.gettr.com/group13/getter/2022/05/26/08/6074f34e-5898-9d2c-4396-36f97173ce01/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/05/26/09/7c753621-9123-421a-512b-ad3b25f26622/4107da6252426d9100cd9095d6615ba4.jpg" width="506" height="284">
 
 ---
 
@@ -181,15 +189,6 @@ Day 81 - Date: Ma...
 5/24/2022 Miles Guo: Japan does not need to worry that it will not be able to become a permanent member of the UN because of the rules of the UN. Both the US and those within the Chinese Communist Party system believe that the CCP'...
 
 <img src="https://media.gettr.com/group21/getter/2022/05/25/15/f2ce6836-f923-8673-efbe-40a8a658a4e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1b8jio5301.md)
-
-5/24/2022 Miles Guo:  The CCP's actions in Latin America will not pose any threat to the US at all! This only shows that the CCP is at its wits' end; the only countries that can influence the world are the G7, and China and Russia
-...
-
-<img src="https://media.gettr.com/group31/getter/2022/05/25/13/9b1b1527-cb16-98c9-f061-dac91484b5a6/out.jpg" width="506" height="284">
 
 ---
 
