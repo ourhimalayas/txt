@@ -11,6 +11,9 @@
 
 ---
 
+#### [轴心法会在日本，欧洲，更多国家消灭马克思社会主义](/content/gnews/2601185.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年5月23日早](/content/gnews/2601126.md)
  `MOSREC`
 
@@ -70,9 +73,6 @@
 
 #### [粮食专家警告全球小麦供应仅剩“10周”](/content/gnews/2600782.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [2022/05/25文贵先生盖特直播](/content/gnews/2600698.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [聚焦：为什么李克强们是在做无用功？](/content/gnews/2600605.md)
  `蓝莲花农场`
