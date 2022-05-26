@@ -2,6 +2,18 @@
 ---
 
 
+#### [今日盖特大V推荐 — 马克·梅多斯（Mark Meadows）](/content/gnews/2608212.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [DC大中华时事：美日印澳会谈后，中共军机25日罕见深夜袭扰台湾](/content/gnews/2608202.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [今日盖特大V推荐 — 肖恩·斯派塞（Sean Spicer）](/content/gnews/2608194.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [新冠疫苗可能导致飞行员飞行途中心脏骤停](/content/gnews/2608189.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [宝马将启用新能源以对应俄罗斯天然气禁运](/content/gnews/2608184.md)
  `秘密翻譯組G-Translators`
 
@@ -31,9 +43,6 @@
 
 #### [DC每日热点0526](/content/gnews/2608054.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [万事达卡首席执行官认为SWIFT支付系统可能将于 5 年内不复存在](/content/gnews/2607989.md)
- `纽约香草山MOS02`
 
 #### [英国购买两万剂猴痘疫苗](/content/gnews/2607985.md)
  `xiaobaige`
@@ -122,12 +131,6 @@
 #### [有声｜中共国育龄妇女锐减473万 多省人口负增长](/content/gnews/2606377.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [文编&#124;北京会比你想象的惨很多倍](/content/gnews/2606363.md)
- `KarmaLabs`
-
-#### [文编&#124;中共开启超限战，世界经济大失血](/content/gnews/2606324.md)
- `KarmaLabs`
-
 #### [郭文贵先生批驳“美国利用台湾”说](/content/gnews/2605896.md)
  `NFSC News`
 
@@ -145,9 +148,6 @@
 
 #### [澳大利亚加强对太平洋岛国的支持 以对抗中共](/content/gnews/2605205.md)
  `东京樱花团`
-
-#### [晶片之战｜英国拟启动国安法彻查中企对最大晶片制造商NewportWaferFAB收购案](/content/gnews/2603703.md)
- `關注組`
 
 #### [晶片之战｜韩国SK集团跟随三星 斥资2000亿美元投入半导体行业](/content/gnews/2603680.md)
  `關注組`
