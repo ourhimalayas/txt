@@ -18,6 +18,14 @@
 
 ---
 
+[@miles 5/26/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1bhqwuff06.md)
+
+2022年5月26日 七哥与战友们乱聊直播
+
+<img src="https://media.gettr.com/group16/origin/2022/05/26/23/b2f4c473-1ac5-f433-0f7a-560671f6b740/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1bieupd9f6.md)
 
 Exposing the Fake Activists for Democracy (I)
@@ -38,18 +46,6 @@ Exposing the Fake Activists for Democracy (I)
 
 ---
 
-[@miles 5/26/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1bhlqk1373.md)
-
-The Communist Party”s evil alliance Al Jazeera.
-
-
-
- 共产党的邪恶同盟: 半岛电视台
-
-<img src="https://media.gettr.com/group50/origin/2022/05/26/22/728b5249-135a-b4b0-1f03-395f227e2723/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/26/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1bifh071f3.md)
 
 Exposing the Fake Activists for Democracy (II)
@@ -59,6 +55,18 @@ Exposing the Fake Activists for Democracy (II)
 揭露欺民贼（二）
 
 <img src="https://media.gettr.com/group3/origin/2022/05/26/23/d6a9e718-f658-6708-023c-38248ba070d2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1bhlqk1373.md)
+
+The Communist Party”s evil alliance Al Jazeera.
+
+
+
+ 共产党的邪恶同盟: 半岛电视台
+
+<img src="https://media.gettr.com/group50/origin/2022/05/26/22/728b5249-135a-b4b0-1f03-395f227e2723/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 2022.05.25 晚  新中国联邦 | 喜财经 第59期 粮食危机与邪恶国家的粮食阴谋；喜支付、喜生态引领未来
 
 <img src="https://media.gettr.com/group19/origin/2022/05/26/01/5170d8a0-451a-028e-1200-c2a978e34d4d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/26/2022 1:14 AM UTC  - :tv:直播](/content/gettr/p1bbixtde2a.md)
-
-5/25/2022 Miles Guo’s GETTR: The CCP does not allow the Chinese to sell their shares of Hong Kong stock and China concepts stock, and the SEC will certainly delist the entire China concepts stock. Many people are hoarding food in t...
-
-<img src="https://media.gettr.com/group25/getter/2022/05/26/01/52ad9aac-d406-d1c5-ef3c-c69e5165ec79/out.jpg" width="506" height="284">
 
 ---
 
