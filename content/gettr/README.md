@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 5/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1bi9e14800.md)
+
+5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. It is CCP’s insanity that makes Japan become the permanent member
+
+
+
+5/24/2022 文贵直播：文贵早在2017年就提过日本会成为联合国常任理事国，是共产党的疯狂让日本入常
+
+
+
+
+
+<img src="https://media.gettr.com/group25/getter/2022/05/26/23/f3d4f04e-ee00-487d-10e0-6517b642d0b9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1bieupd9f6.md)
+
+Exposing the Fake Activists for Democracy (I)
+
+
+
+揭露欺民贼（一）
+
+<img src="https://media.gettr.com/group46/origin/2022/05/26/23/fd4344d7-5e36-1836-439d-b3f0d4f80fd8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1bi88k2e6d.md)
+
+5/26/2022 Miles Guo’s GETTR: The COVID vaccine disaster is so scary! Those who took three COVID shots are having the most adverse effects. The entire world is facing food shortages and famine. If Russia took the only key seaport un...
+
+<img src="https://media.gettr.com/group13/getter/2022/05/26/23/3b0b527c-d9dd-a0a5-a6b4-888157d081be/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1bhlqk1373.md)
 
 The Communist Party”s evil alliance Al Jazeera.
@@ -11,6 +47,30 @@ The Communist Party”s evil alliance Al Jazeera.
  共产党的邪恶同盟: 半岛电视台
 
 <img src="https://media.gettr.com/group50/origin/2022/05/26/22/728b5249-135a-b4b0-1f03-395f227e2723/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1bifh071f3.md)
+
+Exposing the Fake Activists for Democracy (II)
+
+
+
+揭露欺民贼（二）
+
+<img src="https://media.gettr.com/group3/origin/2022/05/26/23/d6a9e718-f658-6708-023c-38248ba070d2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p1bi7an05ab.md)
+
+Qatar's Collusion with the Chinese Communist Party(CCP).
+
+
+
+卡塔尔与中共的勾兑
+
+<img src="https://media.gettr.com/group36/origin/2022/05/26/22/8aa814b7-28de-432d-7df4-b0e4317eb9ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -59,18 +119,6 @@ The Communist Party”s evil alliance Al Jazeera.
  5月26号：尊敬的战友们好……全球的粮食危机．疫苗灾难的危机．会让我们的战友．和新中国联邦……迎来一个自然的相互保护，互相爱戴，互相珍惜的．前所未有的，摸索．寻找人与人能美好相处的关系．这是上天送来．创建人与人的新关新型的社会关系，创造人性自然的信仰！和宗教的最佳机会！
 
 <img src="https://media.gettr.com/group21/getter/2022/05/26/13/c4860000-f244-037d-f6c2-d493c4427682/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p1bi7an05ab.md)
-
-Qatar's Collusion with the Chinese Communist Party(CCP).
-
-
-
-卡塔尔与中共的勾兑
-
-<img src="https://media.gettr.com/group36/origin/2022/05/26/22/8aa814b7-28de-432d-7df4-b0e4317eb9ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -140,71 +188,11 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 
 ---
 
-[@miles 5/26/2022 1:08 AM UTC ](/content/gettr/p1bbfmkeb78.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月24日第81天当日救援统计：
-
-Medyka救援站接待：约58人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约21993人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 81 - Date: Ma...
-
-<img src="https://media.gettr.com/group20/getter/2022/05/26/01/99f5210c-7dcc-7070-598d-e17366e42581/176da716576cbd5b69c0a8fd019a7b40.jpg" width="506" height="284">
-
----
-
 [@miles 5/26/2022 1:14 AM UTC  - :tv:直播](/content/gettr/p1bbixtde2a.md)
 
 5/25/2022 Miles Guo’s GETTR: The CCP does not allow the Chinese to sell their shares of Hong Kong stock and China concepts stock, and the SEC will certainly delist the entire China concepts stock. Many people are hoarding food in t...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/26/01/52ad9aac-d406-d1c5-ef3c-c69e5165ec79/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1bb2lc67f6.md)
-
-2022.05.25  七哥和战友乱聊
-
-<img src="https://media.gettr.com/group47/liveorigin/2022/05/26/00/a1d89eba-d2c8-4f40-4469-cfd7415e05d7/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1bakc31fe3.md)
-
-5/24/2022 Miles Guo: When asked whether the US is willing to get militarily involved to defend Taiwan, President Biden answered “Yes”. This is the biggest gift to the Taiwanese!
-
-
-
-5/24/2022 文贵直播：当被问到美国是否会武力保护台湾时，拜登总统回答“是”，这是给台湾人民最...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/25/23/0cd69a54-a2a9-166f-7464-79875ce38470/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1bb8z97c63.md)
-
-5/25/2022 Miles Guo’s GETTR: The lawyer of the Rui Ma case slandered me in court today for not willing to return to China because of my involvement in kidnapping, rape, and mafia. This must have been directed by Bruno Wu. Even if I...
-
-<img src="https://media.gettr.com/group40/getter/2022/05/25/23/096fc267-ca96-7b16-08c7-03c271b19447/out.jpg" width="506" height="284">
 
 ---
 
