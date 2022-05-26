@@ -2,6 +2,15 @@
 ---
 
 
+[@miles 5/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1b8jio5301.md)
+
+5/24/2022 Miles Guo:  The CCP's actions in Latin America will not pose any threat to the US at all! This only shows that the CCP is at its wits' end; the only countries that can influence the world are the G7, and China and Russia
+...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/25/13/9b1b1527-cb16-98c9-f061-dac91484b5a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 8:10 AM UTC  - :tv:直播](/content/gettr/p1bcs0mfe70.md)
 
 5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. This is because I knew that the CCP's insane actions around the world would inevitably lead the US to contain the CCP by allowing J...
@@ -29,14 +38,6 @@
 
 
 <img src="https://media.gettr.com/group10/getter/2022/05/26/03/e4d8e8c3-d5ac-b4dd-f9a2-b0ec8510737e/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 9:50 AM UTC  - 3圖](/content/gettr/p1bc721cb39.md)
-
-5月26号：尊敬的战友们好！中国人的冷漠．和自私就像下面那几个截屏里说的一模一样，疫苗良方核糖核酸，清零政策，等等．灾难．一定会继续在中国发生……让我们看看大多数人们．对打台湾的态度，新疆集中营的态度，香港灾难态度，西藏自焚的发生后的反应……就知道我们的同胞将未来必将面对什么了……灾难发生后……我们一定会痛苦，但肯定不会痛不欲生，因为我们知道这些东西发生的根本原因．是什么？【新消息——据报道，根据泄露的音频剪辑，中国共产党高层讨论了入侵台湾的军事计划。新消息...
-
-<img src="https://media.gettr.com/group27/getter/2022/05/26/09/7c753621-9123-421a-512b-ad3b25f26622/4107da6252426d9100cd9095d6615ba4.jpg" width="506" height="284">
 
 ---
 
