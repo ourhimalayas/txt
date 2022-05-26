@@ -2,6 +2,18 @@
 ---
 
 
+[@snowsnow 5/26/2022 1:50 AM UTC ](/content/gettr/p1bb1vdc9bc.md)
+
+我们是消灭邪恶中国共产党的新中国人!
+
+中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类!
+
+灭掉中共是人类生存的必须！
+
+<img src="https://media.gettr.com/group7/origin/2022/05/26/01/0ca9faa0-633a-baea-d1fd-eb65e3b57904/ed94985ed4daa5b16d9c3785f08bc5dc.png" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 1:08 AM UTC ](/content/gettr/p1bbfmkeb78.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -34,6 +46,22 @@ Day 81 - Date: Ma...
 
 ---
 
+[@miles 5/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1bbq15d090.md)
+
+2022.05.25 晚  新中国联邦 | 喜财经 第59期 粮食危机与邪恶国家的粮食阴谋；喜支付、喜生态引领未来
+
+<img src="https://media.gettr.com/group19/origin/2022/05/26/01/5170d8a0-451a-028e-1200-c2a978e34d4d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/26/2022 1:14 AM UTC  - :tv:直播](/content/gettr/p1bbixtde2a.md)
+
+5/25/2022 Miles Guo’s GETTR: The CCP does not allow the Chinese to sell their shares of Hong Kong stock and China concepts stock, and the SEC will certainly delist the entire China concepts stock. Many people are hoarding food in t...
+
+<img src="https://media.gettr.com/group25/getter/2022/05/26/01/52ad9aac-d406-d1c5-ef3c-c69e5165ec79/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1bb2lc67f6.md)
 
 2022.05.25  七哥和战友乱聊
@@ -47,14 +75,6 @@ Day 81 - Date: Ma...
 5/24/2022 Miles Guo: The world has entered a new era, where the competition among digital currencies will surpass the scale of any war. The total value of the Tangping (Lying-Flat) Coin will reach 100 trillions USD. In our lifetime...
 
 <img src="https://media.gettr.com/group40/getter/2022/05/25/23/4d78498c-b48b-0179-9b67-3f0eca616027/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 1:14 AM UTC  - :tv:直播](/content/gettr/p1bbixtde2a.md)
-
-5/25/2022 Miles Guo’s GETTR: The CCP does not allow the Chinese to sell their shares of Hong Kong stock and China concepts stock, and the SEC will certainly delist the entire China concepts stock. Many people are hoarding food in t...
-
-<img src="https://media.gettr.com/group25/getter/2022/05/26/01/52ad9aac-d406-d1c5-ef3c-c69e5165ec79/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +187,6 @@ Nazar,  a Ukrainian break-dancer, who loves peace, freedom, and independence, ha
 
 ---
 
-[@miles 5/25/2022 8:46 AM UTC  - :tv:直播](/content/gettr/p1b7vv99794.md)
-
-2022.05.24 文贵大直播（精华版）
-
-<img src="https://media.gettr.com/group33/origin/2022/05/25/08/ac2d9e02-55e2-e003-5350-a4d60371d97e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/25/2022 8:48 AM UTC ](/content/gettr/p1b7o8b47d4.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -204,14 +216,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 80 - Date: M...
 
 <img src="https://media.gettr.com/group31/getter/2022/05/25/08/e593262a-8690-1b8c-abdd-ee41f5a6e81e/5d1d9ec71dc9b7d4bb7868a2f4332423.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 7:27 AM UTC  - :tv:直播](/content/gettr/p1b7w9179e6.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group42/origin/2022/05/25/06/11c790d2-8f3b-cc29-b23c-b5b80dc9cf36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
