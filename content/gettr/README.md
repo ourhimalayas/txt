@@ -2,12 +2,11 @@
 ---
 
 
-[@miles 5/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1b8jio5301.md)
+[@miles 5/26/2022 1:39 PM UTC  - :tv:直播](/content/gettr/p1bdqd6cf29.md)
 
-5/24/2022 Miles Guo:  The CCP's actions in Latin America will not pose any threat to the US at all! This only shows that the CCP is at its wits' end; the only countries that can influence the world are the G7, and China and Russia
-...
+ 5月26号：尊敬的战友们好……全球的粮食危机．疫苗灾难的危机．会让我们的战友．和新中国联邦……迎来一个自然的相互保护，互相爱戴，互相珍惜的．前所未有的，摸索．寻找人与人能美好相处的关系．这是上天送来．创建人与人的新关新型的社会关系，创造人性自然的信仰！和宗教的最佳机会！
 
-<img src="https://media.gettr.com/group31/getter/2022/05/25/13/9b1b1527-cb16-98c9-f061-dac91484b5a6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/05/26/13/c4860000-f244-037d-f6c2-d493c4427682/out.jpg" width="506" height="284">
 
 ---
 
