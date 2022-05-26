@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/26/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1bb2lc67f6.md)
+
+2022.05.25  七哥和战友乱聊
+
+<img src="https://media.gettr.com/group47/liveorigin/2022/05/26/00/a1d89eba-d2c8-4f40-4469-cfd7415e05d7/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@miles 5/25/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1bamhrc595.md)
 
 5/25/2022 Miles Guo’s GETTR: Not only is there a shortage of water everywhere in Communist China, but there is less and less clean water available. The Lao Baixing under the CCP's rule can't afford to go to school, can't afford to ...
@@ -27,6 +35,14 @@
 5/24/2022 文贵直播：当被问到美国是否会武力保护台湾时，拜登总统回答“是”，这是给台湾人民最...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/25/23/0cd69a54-a2a9-166f-7464-79875ce38470/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1bb8z97c63.md)
+
+5/25/2022 Miles Guo’s GETTR: The lawyer of the Rui Ma case slandered me in court today for not willing to return to China because of my involvement in kidnapping, rape, and mafia. This must have been directed by Bruno Wu. Even if I...
+
+<img src="https://media.gettr.com/group40/getter/2022/05/25/23/096fc267-ca96-7b16-08c7-03c271b19447/out.jpg" width="506" height="284">
 
 ---
 
@@ -54,14 +70,6 @@
 
 ---
 
-[@miles 5/25/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1b8ztz7424.md)
-
-2022.05.25  测试
-
-<img src="https://media.gettr.com/group47/liveorigin/2022/05/25/15/43e3fef6-5b80-13bd-1b21-5fd512a88eda/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
 [@miles 5/25/2022 3:03 PM UTC  - :tv:直播](/content/gettr/p1b955g3295.md)
 
 5/24/2022 Miles Guo: Japan does not need to worry that it will not be able to become a permanent member of the UN because of the rules of the UN. Both the US and those within the Chinese Communist Party system believe that the CCP'...
@@ -76,14 +84,6 @@
 ...
 
 <img src="https://media.gettr.com/group31/getter/2022/05/25/13/9b1b1527-cb16-98c9-f061-dac91484b5a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1bb8z97c63.md)
-
-5/25/2022 Miles Guo’s GETTR: The lawyer of the Rui Ma case slandered me in court today for not willing to return to China because of my involvement in kidnapping, rape, and mafia. This must have been directed by Bruno Wu. Even if I...
-
-<img src="https://media.gettr.com/group40/getter/2022/05/25/23/096fc267-ca96-7b16-08c7-03c271b19447/out.jpg" width="506" height="284">
 
 ---
 
