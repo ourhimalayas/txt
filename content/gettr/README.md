@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 5/26/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1bhlqk1373.md)
+
+The Communist Party”s evil alliance Al Jazeera.
+
+
+
+ 共产党的邪恶同盟: 半岛电视台
+
+<img src="https://media.gettr.com/group50/origin/2022/05/26/22/728b5249-135a-b4b0-1f03-395f227e2723/out.jpg" width="506" height="284">
+
+---
+
+[@realfayfay 5/26/2022 4:40 PM UTC ](/content/gettr/p1bdx3rf67c.md)
+
+不可思议啊😍😍😍😍😍
+
+<img src="https://media.gettr.com/group15/getter/2022/05/26/16/db32a0fa-37d0-7101-5118-47c33e02e955/dda8976b3a460a2d35d4dc4ef7145318.jpg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1bh668ef49.md)
 
 2022-5-26 《避风港》（52）官方证实，“猴痘”用做掩饰疫苗灾难
@@ -42,11 +62,15 @@
 
 ---
 
-[@realfayfay 5/26/2022 4:40 PM UTC ](/content/gettr/p1bdx3rf67c.md)
+[@miles 5/26/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p1bi7an05ab.md)
 
-不可思议啊😍😍😍😍😍
+Qatar's Collusion with the Chinese Communist Party(CCP).
 
-<img src="https://media.gettr.com/group15/getter/2022/05/26/16/db32a0fa-37d0-7101-5118-47c33e02e955/dda8976b3a460a2d35d4dc4ef7145318.jpg" width="506" height="284">
+
+
+卡塔尔与中共的勾兑
+
+<img src="https://media.gettr.com/group36/origin/2022/05/26/22/8aa814b7-28de-432d-7df4-b0e4317eb9ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +185,6 @@ Day 81 - Date: Ma...
 2022.05.25  七哥和战友乱聊
 
 <img src="https://media.gettr.com/group47/liveorigin/2022/05/26/00/a1d89eba-d2c8-4f40-4469-cfd7415e05d7/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1bb5a718ff.md)
-
-5/24/2022 Miles Guo: The world has entered a new era, where the competition among digital currencies will surpass the scale of any war. The total value of the Tangping (Lying-Flat) Coin will reach 100 trillions USD. In our lifetime...
-
-<img src="https://media.gettr.com/group40/getter/2022/05/25/23/4d78498c-b48b-0179-9b67-3f0eca616027/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/25/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1bamhrc595.md)
-
-5/25/2022 Miles Guo’s GETTR: Not only is there a shortage of water everywhere in Communist China, but there is less and less clean water available. The Lao Baixing under the CCP's rule can't afford to go to school, can't afford to ...
-
-<img src="https://media.gettr.com/group34/getter/2022/05/25/23/346d8ba7-e19a-3052-61fd-bc2aa2a24f61/out.jpg" width="506" height="284">
 
 ---
 
