@@ -3,6 +3,8 @@
 
 ## 頁面 42/43 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
 
+[NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/content/transcript/2018/04/20180418-8782315684152609597.md)
+
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号](/content/transcript/2018/04/20180418-7400984700740881497.md)
 
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/transcript/2018/04/20180418-1711855541201690600.md)
@@ -50,8 +52,6 @@
 [郭文贵先生9月9号报平安直播文字版](/content/transcript/2018/04/20180418-2798200416865678412.md)
 
 [郭文贵先生9月10号报平安直播文字版](/content/transcript/2018/04/20180418-8363627678146390497.md)
-
-[郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清&#124;文字版(完整版)](/content/transcript/2018/04/20180418-3089407742427439276.md)
 
 
 ## 頁面 42/43 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)

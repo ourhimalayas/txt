@@ -3,6 +3,8 @@
 
 ## 頁面 41/43 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/transcript/2018/04/20180418-8134538330051894256.md)
+
 [华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/transcript/2018/04/20180418-3075028168264714407.md)
 
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名](/content/transcript/2018/04/20180418-6592319178525638083.md)
@@ -50,8 +52,6 @@
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/content/transcript/2018/04/20180418-893371473063503687.md)
 
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/content/transcript/2018/04/20180418-1567783947311551796.md)
-
-[NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/content/transcript/2018/04/20180418-8782315684152609597.md)
 
 
 ## 頁面 41/43 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
