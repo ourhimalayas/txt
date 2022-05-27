@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bnyb9a26d.md)
+
+2022.05.27 纽约现场战友互动连线
+
+<img src="https://media.gettr.com/group18/origin/2022/05/27/20/c4a5f3d9-ab12-f1b6-353d-44f5e9d37728/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1bmq1ebb74.md)
 
 2022.05.27 纽约现场分享
@@ -82,11 +90,11 @@
 
 ---
 
-[@miles 5/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bnyb9a26d.md)
+[@miles 5/27/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1bnczs7c07.md)
 
-2022.05.27 纽约现场战友互动连线
+5/27/2022 Miles Guo’s GETTR: We must collect all the information and materials that are helpful and valuable for us to take down the CCP at all cost. We must do everything we can to protect the fellow fighters who provided the valu...
 
-<img src="https://media.gettr.com/group18/origin/2022/05/27/20/c4a5f3d9-ab12-f1b6-353d-44f5e9d37728/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/05/27/23/339120ba-a656-74ed-5c01-e6aa2ac71aa5/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 ---
 
 [@miles 5/26/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1bdwww8f59.md)
-
-2022.05.26 战友相聚纽约办公室
-
-<img src="https://media.gettr.com/group32/origin/2022/05/26/15/584eb617-9324-e924-ddb8-9470517d23ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 3:06 PM UTC  - :tv:直播](/content/gettr/p1be4jj7bbd.md)
 
 2022.05.26 战友相聚纽约办公室
 
