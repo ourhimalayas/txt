@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1blbmu2dba.md)
+
+2022.05.27  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的演变-坦克篇
+
+<img src="https://media.gettr.com/group14/origin/2022/05/27/10/5ec5e25c-c0c2-3c95-2cd2-96c9ff10536b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bjsruc47c.md)
 
 2022.05.27 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 5/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1blbmu2dba.md)
+[@miles 5/27/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p1blbne6b64.md)
 
-2022.05.27  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的演变-坦克篇
+2022.05.27 首届《联邦杯》诗歌朗诵大赛 原创组半决赛 澳喜农场主办
 
-<img src="https://media.gettr.com/group14/origin/2022/05/27/10/5ec5e25c-c0c2-3c95-2cd2-96c9ff10536b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/05/27/12/b7f3a0d3-cad6-58ec-ff6c-ddb1a621309d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 2022.05.26 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group12/origin/2022/05/26/04/e716ed32-3fef-2a05-7e6a-23d91815e33b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 3:57 AM UTC  - :tv:直播](/content/gettr/p1bbuav648a.md)
-
-5/25/2022 Miles Guo’s GETTR: In Communist China, everyone, whether you are the president or an ordinary person, can be convicted without due process of law or trial. A society without rule of law and supervision is worse than an an...
-
-<img src="https://media.gettr.com/group44/getter/2022/05/26/03/b2e6a41e-639a-f230-b8c3-7cf7b847b129/out.jpg" width="506" height="284">
 
 ---
 
