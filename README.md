@@ -11,6 +11,18 @@
 
 ---
 
+#### [马斯克称ESG是“骗局”](/content/gnews/2616005.md)
+ `加拿大温哥华英里农场`
+
+#### [推特投资者起诉马斯克 指其操纵股价](/content/gnews/2616004.md)
+ `加拿大温哥华英里农场`
+
+#### [日本将“大幅加强”军事能力](/content/gnews/2615980.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [全球和澳洲疫情“疫苗“更新图（2022年 5月27日）](/content/gnews/2615969.md)
+ `墨尔本雅典娜农场`
+
 #### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（四十）](/content/gnews/2615966.md)
  `墨尔本雅典娜农场`
 
@@ -23,12 +35,6 @@
 #### [防止中共违法挖角 台湾突击搜查10家在台陆企](/content/gnews/2615935.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [难忘的老照片](/content/gnews/2615930.md)
- `加拿大温哥华英里农场`
-
-#### [选择的结果](/content/gnews/2615929.md)
- `加拿大温哥华英里农场`
-
 #### [不要搞造神](/content/gnews/2615928.md)
  `加拿大温哥华英里农场`
 
@@ -40,9 +46,6 @@
 
 #### [中共：非公有资本不得从事新闻采编播发业务！](/content/gnews/2615886.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [A British freelance journalist interviewed Nicole from the New Federal State of China](/content/gnews/2615878.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [共军的养成 选美小姐当上首位女舰长](/content/gnews/2615877.md)
  `TokyoSakura Politics/樱花时政`
@@ -96,9 +99,6 @@
  `喜马拉雅意大利罗马达芬奇农场`
 
 #### [中共国正在推动全球工作时间的滑坡](/content/gnews/2615371.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [中共国开放债券市场以招揽外国投资者](/content/gnews/2615362.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [被停职医生要求成立调查委员会调查新冠疫苗](/content/gnews/2615344.md)
