@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1birdu60dc.md)
+
+2022-5-26《鸡血王喜币大作战》 第二百零七集 嘉宾：无双柳薇薇、Tex
+
+<img src="https://media.gettr.com/group36/origin/2022/05/27/02/b14c6479-f273-a447-21e9-df8d56ff5541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1bignyf725.md)
 
 2022.05.17  晚 新中国联邦⎪新闻访谈   拜登訪日、聲稱美國會武力保護台灣；全国稳住经济大盘电视电话会议解读；地球粮荒，雪上加霜
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 5/27/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1birdu60dc.md)
+[@miles 5/27/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bjsruc47c.md)
 
-2022-5-26《鸡血王喜币大作战》 第二百零七集 嘉宾：无双柳薇薇、Tex
+2022.05.27 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group36/origin/2022/05/27/02/b14c6479-f273-a447-21e9-df8d56ff5541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/05/27/04/7db37a48-fee3-a57c-10db-acfd2d2e7ca4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 5/25/2022 Miles Guo’s GETTR: In Communist China, everyone, whether you are the president or an ordinary person, can be convicted without due process of law or trial. A society without rule of law and supervision is worse than an an...
 
 <img src="https://media.gettr.com/group44/getter/2022/05/26/03/b2e6a41e-639a-f230-b8c3-7cf7b847b129/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1bbmhy9a15.md)
-
-2022-5-25《鸡血王喜币大作战》 第二百零六集 嘉宾：Nick、封神榜
-
-<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
