@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bjsruc47c.md)
+
+2022.05.27 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group25/origin/2022/05/27/04/7db37a48-fee3-a57c-10db-acfd2d2e7ca4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1birdu60dc.md)
 
 2022-5-26《鸡血王喜币大作战》 第二百零七集 嘉宾：无双柳薇薇、Tex
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 5/27/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bjsruc47c.md)
+[@miles 5/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1blbmu2dba.md)
 
-2022.05.27 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022.05.27  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的演变-坦克篇
 
-<img src="https://media.gettr.com/group25/origin/2022/05/27/04/7db37a48-fee3-a57c-10db-acfd2d2e7ca4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/05/27/10/5ec5e25c-c0c2-3c95-2cd2-96c9ff10536b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,20 +175,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 2022.05.26 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group12/origin/2022/05/26/04/e716ed32-3fef-2a05-7e6a-23d91815e33b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 3:50 AM UTC  - :tv:直播](/content/gettr/p1bbh1x08ed.md)
-
-5/24/2022 Miles Guo: The CCP never anticipated two things could happen: Russia’s miserable failure and the US and Japan's prompt strategic adjustment towards the CCP.
-
-
-
-5/24/2022 文贵直播：中共做梦都没想到的两件事：没想到俄罗斯会输这么惨，没想到美日能如此快速调整对中共的战略。
-
-
-
-<img src="https://media.gettr.com/group10/getter/2022/05/26/03/e4d8e8c3-d5ac-b4dd-f9a2-b0ec8510737e/out.jpg" width="506" height="284">
 
 ---
 
