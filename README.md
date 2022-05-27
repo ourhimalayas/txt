@@ -11,6 +11,18 @@
 
 ---
 
+#### [朔尔茨称相信普京在乌克兰战争中必败](/content/gnews/2610569.md)
+ `东京樱花团`
+
+#### [文•贵天成——文贵先生谈“G币、喜币、喜联储”（三十九）](/content/gnews/2610550.md)
+ `墨尔本雅典娜农场`
+
+#### [郭先生：让“灭共”成为我们新中国联邦人的信仰。](/content/gnews/2610471.md)
+ `日本东京方舟农场`
+
+#### [美法案将禁止谷歌、苹果托管接受中（共）国数字人民币APP](/content/gnews/2610469.md)
+ `澳喜特战旅Gnews`
+
 #### [澳洲新州疫苗接种率近9成 悉尼开始爆发军团病](/content/gnews/2610456.md)
  `走进澳洲`
 
@@ -44,20 +56,11 @@
 #### [郭文贵直播摘要和音频 2022.05.26](/content/gnews/2610240.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [【说事儿】布林肯将发表拜登政府有关中共国政策的重要讲话](/content/gnews/2610239.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】在中共国的压力下，世卫卫生组织会议拒绝接纳台湾](/content/gnews/2610231.md)
- `TokyoSakuraDesignGroup`
-
 #### [芬兰总理桑娜马琳访问乌克兰](/content/gnews/2610230.md)
  `澳喜特战旅Gnews`
 
 #### [英国痛批普京利用粮食危机挟持世界](/content/gnews/2610226.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [【说事儿】新西兰法庭案件:挑战新冠疫苗强制令，获赔4万美元](/content/gnews/2610221.md)
- `TokyoSakuraDesignGroup`
 
 #### [视频&#124;警车逃跑了](/content/gnews/2610190.md)
  `爆料视频`
@@ -153,9 +156,6 @@
  `NFSC News`
 
 #### [联合国官员承认全球将在十周内面临粮食危机](/content/gnews/2608286.md)
- `NFSC News`
-
-#### [美联合十三国建立新的印太经济同盟以对抗中共](/content/gnews/2608263.md)
  `NFSC News`
 
 #### [中共国家医保局拒绝支付常态化核酸检测费用](/content/gnews/2607905.md)
