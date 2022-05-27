@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1bignyf725.md)
+
+2022.05.17  晚 新中国联邦⎪新闻访谈   拜登訪日、聲稱美國會武力保護台灣；全国稳住经济大盘电视电话会议解读；地球粮荒，雪上加霜
+
+<img src="https://media.gettr.com/group44/origin/2022/05/27/00/dba62e8e-41c4-5a35-4ead-31e7b224bf95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1bhqwuff06.md)
 
 2022年5月26日 七哥与战友们乱聊直播
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/27/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1bignyf725.md)
+[@miles 5/27/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1birdu60dc.md)
 
-2022.05.17  晚 新中国联邦⎪新闻访谈   拜登訪日、聲稱美國會武力保護台灣；全国稳住经济大盘电视电话会议解读；地球粮荒，雪上加霜
+2022-5-26《鸡血王喜币大作战》 第二百零七集 嘉宾：无双柳薇薇、Tex
 
-<img src="https://media.gettr.com/group44/origin/2022/05/27/00/dba62e8e-41c4-5a35-4ead-31e7b224bf95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/05/27/02/b14c6479-f273-a447-21e9-df8d56ff5541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 2022-5-25《鸡血王喜币大作战》 第二百零六集 嘉宾：Nick、封神榜
 
 <img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1bbq15d090.md)
-
-2022.05.25 晚  新中国联邦 | 喜财经 第59期 粮食危机与邪恶国家的粮食阴谋；喜支付、喜生态引领未来
-
-<img src="https://media.gettr.com/group19/origin/2022/05/26/01/5170d8a0-451a-028e-1200-c2a978e34d4d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
