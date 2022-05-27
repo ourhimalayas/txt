@@ -71,6 +71,9 @@
 #### [【说事儿】瑞士7月初将召开乌克兰重建国际会议](/content/gnews/2610244.md)
  `TokyoSakuraDesignGroup`
 
+#### [芬兰总理桑娜马琳访问乌克兰](/content/gnews/2610230.md)
+ `澳喜特战旅Gnews`
+
 #### [英国痛批普京利用粮食危机挟持世界](/content/gnews/2610226.md)
  `TokyoSakura Politics/樱花时政`
 
@@ -106,12 +109,6 @@
 
 #### [俄军在顿巴斯的凶猛进攻已无法成为普京的救命稻草](/content/gnews/2609992.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [俄攻乌东顿巴斯地区 泽伦斯基控种族灭绝](/content/gnews/2609950.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [布林肯 ：中共比俄国更危险](/content/gnews/2609919.md)
- `秘密翻譯組G-Translators`
 
 #### [莫德纳首席执行官 : 3000万剂疫苗将被扔进垃圾桶](/content/gnews/2609914.md)
  `波士顿五月花农场金融部`
@@ -157,6 +154,9 @@
 
 #### [《时代》公布2022年百大影响力人物&nbsp; 彭帅入选](/content/gnews/2605304.md)
  `东京樱花团`
+
+#### [马克龙今与艾尔多安通话斡旋芬瑞加入北约](/content/gnews/2605252.md)
+ `TokyoSakura Politics/樱花时政`
 
 #### [灭共靠自己，与中共勾兑的一些西方团体不要再助纣为虐](/content/gnews/2574666.md)
  `日本东京方舟农场`
