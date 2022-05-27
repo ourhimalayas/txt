@@ -3,6 +3,8 @@
 
 ## 頁面 37/43 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/content/transcript/2018/04/20180418-2462703104101503083.md)
+
 [文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！](/content/transcript/2018/04/20180418-6803153181379823520.md)
 
 [文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/content/transcript/2018/04/20180418-7259055052246962788.md)
@@ -50,8 +52,6 @@
 [翻译：Bill Gertz 中国大型企业集团面临美国制裁](/content/transcript/2018/04/20180418-763599540793711583.md)
 
 [文字版：2018年2月10日郭先生再 郭媒体六段演讲](/content/transcript/2018/04/20180418-7159181407052206452.md)
-
-[文字版：文贵2月11号报平安视频](/content/transcript/2018/04/20180418-7379798999426119015.md)
 
 
 ## 頁面 37/43 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

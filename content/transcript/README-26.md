@@ -3,6 +3,8 @@
 
 ## 頁面 26/43 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/content/transcript/2019/08/20190811-3305401800182542531.md)
+
 [文字版：8月9日 郭文贵先生船上报平安直播](/content/transcript/2019/08/20190811-3314587443288819358.md)
 
 [文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/content/transcript/2019/08/20190809-1309289777403280615.md)
@@ -50,8 +52,6 @@
 [文字版：2019年7月8日：文贵车上谈王健之死](/content/transcript/2019/07/20190710-5360676795961744736.md)
 
 [文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/content/transcript/2019/07/20190710-4802216487220776718.md)
-
-[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/content/transcript/2019/07/20190709-1755868837124119656.md)
 
 
 ## 頁面 26/43 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

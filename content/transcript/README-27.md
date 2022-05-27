@@ -3,6 +3,8 @@
 
 ## 頁面 27/43 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/content/transcript/2019/07/20190709-1755868837124119656.md)
+
 [文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/content/transcript/2019/07/20190708-1629076298190675341.md)
 
 [文字版：2019年7月6日与彭文正先生连线----灭共保台](/content/transcript/2019/07/20190707-3878113483367388120.md)
@@ -50,8 +52,6 @@
 [文字版：2019年6月7日 香港的事真搞大了](/content/transcript/2019/06/20190608-7273432154872200395.md)
 
 [文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/content/transcript/2019/06/20190606-5836717562215401221.md)
-
-[文字版2019年5月31日文貴試直播](/content/transcript/2019/06/20190605-8092628019236727777.md)
 
 
 ## 頁面 27/43 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

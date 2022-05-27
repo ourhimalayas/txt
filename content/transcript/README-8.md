@@ -3,6 +3,8 @@
 
 ## 頁面 8/43 [**<**](/content/transcript/README-7.md) [1](/content/transcript/README.md) ... [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) **8** [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-9.md) [查看全部](/content/transcript/README-all.md)
 
+[2021年9月29日郭文贵先生直播全文字版](/content/transcript/2021/09/20210929-1565198.md)
+
 [2021年9月26日郭文贵先生直播全文字版](/content/transcript/2021/09/20210926-1558848.md)
 
 [2021年9月24日郭文贵先生直播全文字版](/content/transcript/2021/09/20210924-1553659.md)
@@ -50,8 +52,6 @@
 [2021年9月5日郭文贵先生直播全文字版](/content/transcript/2021/09/20210905-1514662.md)
 
 [2021年9月4日郭文贵先生试骑摩托车盖特全文字版](/content/transcript/2021/09/20210904-1566780.md)
-
-[2021年9月4日郭文贵先生试骑三轮摩托车盖特全文字版](/content/transcript/2021/09/20210904-1563831.md)
 
 
 ## 頁面 8/43 [**<**](/content/transcript/README-7.md) [1](/content/transcript/README.md) ... [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) **8** [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-9.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 33/43 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！](/content/transcript/2018/10/20181021-3410714193458373203.md)
+
 [文字版：郭先生直播 10月17号2018 年路德访谈文贵先生： 法国大革命与共产党的打土豪分田地的根本不同！也必将引起流血革命！西方国家已经开始实施对中国共产党的清除方案！无人可以改变！](/content/transcript/2018/10/20181018-4563210863477806974.md)
 
 [文字版：郭文贵先生10月16日直播政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油](/content/transcript/2018/10/20181017-1150776472458713125.md)
@@ -50,8 +52,6 @@
 [文字版：2018年9月2 日文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/content/transcript/2018/09/20180904-16996182542595224.md)
 
 [文字版：8月30日2018年关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！](/content/transcript/2018/09/20180902-4129689166696666776.md)
-
-[文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容](/content/transcript/2018/09/20180901-709890250224874284.md)
 
 
 ## 頁面 33/43 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)

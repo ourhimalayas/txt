@@ -3,6 +3,8 @@
 
 ## 頁面 25/43 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/content/transcript/2019/09/20190912-697366715802787855.md)
+
 [文字版：2019年9月9日 路德访谈文贵，班农先生](/content/transcript/2019/09/20190911-4067565485172047887.md)
 
 [文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！](/content/transcript/2019/09/20190910-2862056043397167369.md)
@@ -50,8 +52,6 @@
 [文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/content/transcript/2019/08/20190813-2165620896818936239.md)
 
 [文字版：2019年8月11日文貴船上直播高度關注香港](/content/transcript/2019/08/20190813-1303455060330520952.md)
-
-[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/content/transcript/2019/08/20190811-3305401800182542531.md)
 
 
 ## 頁面 25/43 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

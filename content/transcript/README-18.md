@@ -3,6 +3,8 @@
 
 ## 頁面 18/43 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年4月15日郭先生G-TV直播](/content/transcript/2020/04/20200418-7334677930976897436.md)
+
 [文字版:2020年4月14日郭先生G-TV直播](/content/transcript/2020/04/20200418-2928137426806462584.md)
 
 [文字版:2020年4月11日郭先生GTV直播](/content/transcript/2020/04/20200415-8766682257981187519.md)
@@ -50,8 +52,6 @@
 [文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/content/transcript/2020/03/20200317-7978079183041505608.md)
 
 [文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/content/transcript/2020/03/20200316-6955651449637446921.md)
-
-[文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/content/transcript/2020/03/20200314-7640814044022850534.md)
 
 
 ## 頁面 18/43 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

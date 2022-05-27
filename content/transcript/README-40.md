@@ -3,6 +3,8 @@
 
 ## 頁面 40/43 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
+[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/content/transcript/2018/04/20180418-2982915845250551148.md)
+
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访](/content/transcript/2018/04/20180418-3724438328570964289.md)
 
 [文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/transcript/2018/04/20180418-343207939646177641.md)
@@ -50,8 +52,6 @@
 [翻译：总统特朗普，郭文贵和一连串的奇事](/content/transcript/2018/04/20180418-4937079468780903769.md)
 
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/transcript/2018/04/20180418-8134538330051894256.md)
-
-[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/transcript/2018/04/20180418-3075028168264714407.md)
 
 
 ## 頁面 40/43 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

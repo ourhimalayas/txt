@@ -3,6 +3,8 @@
 
 ## 頁面 38/43 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：文贵2月11号报平安视频](/content/transcript/2018/04/20180418-7379798999426119015.md)
+
 [文字版：2018年2月8号文贵报平安视频](/content/transcript/2018/04/20180418-4679573221949971590.md)
 
 [文字版：文贵2月9号报平安直播](/content/transcript/2018/04/20180418-5725033153896340679.md)
@@ -50,8 +52,6 @@
 [华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/content/transcript/2018/04/20180418-6750041180802210914.md)
 
 [2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/content/transcript/2018/04/20180418-1392173713763860435.md)
-
-[2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/content/transcript/2018/04/20180418-3422500630253145548.md)
 
 
 ## 頁面 38/43 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
