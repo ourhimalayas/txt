@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/26/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1bhqwuff06.md)
+
+2022年5月26日 七哥与战友们乱聊直播
+
+<img src="https://media.gettr.com/group16/origin/2022/05/26/23/b2f4c473-1ac5-f433-0f7a-560671f6b740/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1bi9e14800.md)
 
 5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. It is CCP’s insanity that makes Japan become the permanent member
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/26/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1bhqwuff06.md)
+[@miles 5/27/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1bignyf725.md)
 
-2022年5月26日 七哥与战友们乱聊直播
+2022.05.17  晚 新中国联邦⎪新闻访谈   拜登訪日、聲稱美國會武力保護台灣；全国稳住经济大盘电视电话会议解读；地球粮荒，雪上加霜
 
-<img src="https://media.gettr.com/group16/origin/2022/05/26/23/b2f4c473-1ac5-f433-0f7a-560671f6b740/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/05/27/00/dba62e8e-41c4-5a35-4ead-31e7b224bf95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,18 +181,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 2022-5-25《鸡血王喜币大作战》 第二百零六集 嘉宾：Nick、封神榜
 
 <img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@snowsnow 5/26/2022 1:50 AM UTC ](/content/gettr/p1bb1vdc9bc.md)
-
-我们是消灭邪恶中国共产党的新中国人!
-
-中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类!
-
-灭掉中共是人类生存的必须！
-
-<img src="https://media.gettr.com/group7/origin/2022/05/26/01/0ca9faa0-633a-baea-d1fd-eb65e3b57904/ed94985ed4daa5b16d9c3785f08bc5dc.png" width="506" height="284">
 
 ---
 
