@@ -11,14 +11,32 @@
 
 ---
 
+#### [聚焦新中国联邦丨交易玩家默克尔](/content/gnews/2614818.md)
+ `NFSCFocus`
+
+#### [日本考虑放宽武器出口规定](/content/gnews/2614791.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [【小雨专栏】在路上074—母老虎篇](/content/gnews/2614790.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [聚焦新中国联邦丨全球金融危机的先兆](/content/gnews/2614786.md)
+ `NFSCFocus`
+
+#### [推特投资者起诉埃隆-马斯克，指控他操纵公司股价下跌](/content/gnews/2614748.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [特鲁多花费纳税人资金装修豪华别墅](/content/gnews/2614747.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [本周两则热点新闻再度曝光中共暴行](/content/gnews/2614739.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [【两岸三地谈中国】第12篇：“润”（RUN）字大火开启了中国加速衰落通道](/content/gnews/2614721.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [布林肯阐述对华政策：投资、联合盟友、竞争](/content/gnews/2614717.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [中日财经爆┃日本将重新启动闲置的核电站](/content/gnews/2614713.md)
- `东京樱花团`
-
-#### [日本下一财年国防开支或达7万亿日元](/content/gnews/2614681.md)
- `东京樱花团`
 
 #### [推特将因不当出售用户数据被罚1.5亿美元](/content/gnews/2614664.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -32,20 +50,14 @@
 #### [5/27/2022国际财经快讯：戴尔季度业绩超出预期；Costco的利润率受到运费和劳动力成本上涨的打击](/content/gnews/2614643.md)
  `秘密翻译组金融团队`
 
-#### [中日财经爆┃欧盟或将达成制裁俄罗斯石油运输的峰会协议](/content/gnews/2614642.md)
- `东京樱花团`
-
-#### [【樱话】疫苗大厂摩德纳称已丢弃三千万剂中共病毒疫苗](/content/gnews/2614608.md)
- `TokyoSakuraDesignGroup`
+#### [【G时新闻】俄罗斯炮击40多个乌克兰城镇](/content/gnews/2614607.md)
+ `G-时新闻`
 
 #### [一批卡通式的恶棍在瑞士阿尔卑斯山上决定你的命运](/content/gnews/2614584.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [菲律宾将是东南亚第一个提供Starlink宽带服务的国家](/content/gnews/2614486.md)
  `银河歌舞厅`
-
-#### [随着印度宣布限制糖出口，糖是下一种很难买到的食物](/content/gnews/2614451.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [【全字幕+视频】郭文贵2022年3月7日盖特](/content/gnews/2614442.md)
  `郭文贵全文字幕&#38;视频`
@@ -56,14 +68,8 @@
 #### [有声&#124;中共汽车行业迎来至暗时刻](/content/gnews/2614424.md)
  `MOSREC`
 
-#### [中共国百万储户无法从银行提取存款](/content/gnews/2614364.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [有声&#124;中共国房地产行业的压力](/content/gnews/2614363.md)
  `MOSREC`
-
-#### [拜登总统访问东京期间中俄战机自乌克兰入侵以来首次举行联合军事演习](/content/gnews/2614333.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [美国议员推动禁止应用程序平台接受数字人民币的法案](/content/gnews/2614312.md)
  `日本东京方舟农场`
@@ -85,9 +91,6 @@
 
 #### [串珠706:美国要么重生，要么彻底完蛋！](/content/gnews/2613982.md)
  `郭爆料串珠`
-
-#### [有声｜天津大学反抗暴力防疫](/content/gnews/2613965.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [无人问津 摩德纳丢弃3千万剂中共病毒疫苗](/content/gnews/2613954.md)
  `NFSC News`
@@ -124,9 +127,6 @@
 
 #### [世维会慕尼黑召开会议 呼吁柏林制裁北京](/content/gnews/2612976.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [美拟立法禁止谷歌苹果应用商店接受数字人民币](/content/gnews/2612925.md)
- `KarmaLabs`
 
 #### [躺平币，使用即灭共！！！](/content/gnews/2612866.md)
  `英国牛津梦想`
