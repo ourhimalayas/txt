@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p1blbne6b64.md)
+
+2022.05.27 首届《联邦杯》诗歌朗诵大赛 原创组半决赛 澳喜农场主办
+
+<img src="https://media.gettr.com/group13/origin/2022/05/27/12/b7f3a0d3-cad6-58ec-ff6c-ddb1a621309d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1blbmu2dba.md)
 
 2022.05.27  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的演变-坦克篇
@@ -58,11 +66,11 @@
 
 ---
 
-[@miles 5/27/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p1blbne6b64.md)
+[@miles 5/27/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1bm9753ff8.md)
 
-2022.05.27 首届《联邦杯》诗歌朗诵大赛 原创组半决赛 澳喜农场主办
+ 5月27号：尊敬的战友们好．保护新的．来自国内的向新中国联盟……提供灭共情报的任何信息，任何人．都应百分之百的得到我们保护．并及时的提供所有的承诺的经济的支持．和必须的帮助。
 
-<img src="https://media.gettr.com/group13/origin/2022/05/27/12/b7f3a0d3-cad6-58ec-ff6c-ddb1a621309d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/05/27/14/b4cf8960-0d6c-58f5-b0e6-56e87997c2a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. This is because I knew that the CCP's insane actions around the world would inevitably lead the US to contain the CCP by allowing J...
 
 <img src="https://media.gettr.com/group13/getter/2022/05/26/08/6074f34e-5898-9d2c-4396-36f97173ce01/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p1bcka3b4eb.md)
-
-2022.05.26 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group12/origin/2022/05/26/04/e716ed32-3fef-2a05-7e6a-23d91815e33b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
