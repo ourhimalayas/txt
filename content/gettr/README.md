@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1bm9753ff8.md)
+
+ 5月27号：尊敬的战友们好．保护新的．来自国内的向新中国联盟……提供灭共情报的任何信息，任何人．都应百分之百的得到我们保护．并及时的提供所有的承诺的经济的支持．和必须的帮助。
+
+<img src="https://media.gettr.com/group10/getter/2022/05/27/14/b4cf8960-0d6c-58f5-b0e6-56e87997c2a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p1blbne6b64.md)
 
 2022.05.27 首届《联邦杯》诗歌朗诵大赛 原创组半决赛 澳喜农场主办
@@ -66,11 +74,11 @@
 
 ---
 
-[@miles 5/27/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1bm9753ff8.md)
+[@miles 5/27/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1bmq1ebb74.md)
 
- 5月27号：尊敬的战友们好．保护新的．来自国内的向新中国联盟……提供灭共情报的任何信息，任何人．都应百分之百的得到我们保护．并及时的提供所有的承诺的经济的支持．和必须的帮助。
+2022.05.27 纽约现场分享
 
-<img src="https://media.gettr.com/group10/getter/2022/05/27/14/b4cf8960-0d6c-58f5-b0e6-56e87997c2a2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/05/27/16/e3f0285d-5e55-0bde-92d2-93c816ce8c42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
  5月26号：尊敬的战友们好……全球的粮食危机．疫苗灾难的危机．会让我们的战友．和新中国联邦……迎来一个自然的相互保护，互相爱戴，互相珍惜的．前所未有的，摸索．寻找人与人能美好相处的关系．这是上天送来．创建人与人的新关新型的社会关系，创造人性自然的信仰！和宗教的最佳机会！
 
 <img src="https://media.gettr.com/group21/getter/2022/05/26/13/c4860000-f244-037d-f6c2-d493c4427682/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 8:10 AM UTC  - :tv:直播](/content/gettr/p1bcs0mfe70.md)
-
-5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. This is because I knew that the CCP's insane actions around the world would inevitably lead the US to contain the CCP by allowing J...
-
-<img src="https://media.gettr.com/group13/getter/2022/05/26/08/6074f34e-5898-9d2c-4396-36f97173ce01/out.jpg" width="506" height="284">
 
 ---
 
