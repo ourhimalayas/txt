@@ -11,6 +11,15 @@
 
 ---
 
+#### [聚焦新中国联邦丨欧洲能源问题的未来](/content/gnews/2614867.md)
+ `NFSCFocus`
+
+#### [聚焦新中国联邦丨未来的新能源](/content/gnews/2614832.md)
+ `NFSCFocus`
+
+#### [【G时新闻】布林肯推出国务院“中国之家” 对抗中共](/content/gnews/2614831.md)
+ `G-时新闻`
+
 #### [聚焦新中国联邦丨交易玩家默克尔](/content/gnews/2614818.md)
  `NFSCFocus`
 
@@ -20,17 +29,17 @@
 #### [【小雨专栏】在路上074—母老虎篇](/content/gnews/2614790.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [聚焦新中国联邦丨全球金融危机的先兆](/content/gnews/2614786.md)
- `NFSCFocus`
+#### [有声新闻-新西兰财经G乐部2022年5月27日:财经新闻整理](/content/gnews/2614778.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [新西兰财经G乐部2022年5月27日:财经新闻整理](/content/gnews/2614777.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
 
 #### [推特投资者起诉埃隆-马斯克，指控他操纵公司股价下跌](/content/gnews/2614748.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [特鲁多花费纳税人资金装修豪华别墅](/content/gnews/2614747.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [本周两则热点新闻再度曝光中共暴行](/content/gnews/2614739.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [【两岸三地谈中国】第12篇：“润”（RUN）字大火开启了中国加速衰落通道](/content/gnews/2614721.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -83,9 +92,6 @@
 #### [【全字幕+视频】郭文贵2022年3月8日盖特](/content/gnews/2614181.md)
  `郭文贵全文字幕&#38;视频`
 
-#### [有声&#124;拜登坚定护台促中共改变对台策略](/content/gnews/2614146.md)
- `MOSREC`
-
 #### [美国及世界疫情简报（05-27-2022）](/content/gnews/2614079.md)
  `波士顿五月花农场`
 
@@ -95,17 +101,11 @@
 #### [无人问津 摩德纳丢弃3千万剂中共病毒疫苗](/content/gnews/2613954.md)
  `NFSC News`
 
-#### [有声&#124;躺平币可以直接实现购买](/content/gnews/2613939.md)
- `MOSREC`
-
 #### [全球疫情大解封 超过57个国家取消疫苗护照](/content/gnews/2613452.md)
  `墨尔本雅典娜农场`
 
 #### [秘翻在线：中共稳大盘十万人齐开经济会，“大跃进”卷土重来](/content/gnews/2613435.md)
  `秘密翻譯組G-Translators`
-
-#### [美国参议员提出一项法案 禁止应用程序商店支持接受数字人民币的应用程序](/content/gnews/2613373.md)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [秘翻在线：中共国一本小学生课本引发的热议](/content/gnews/2613288.md)
  `秘密翻譯組G-Translators`
