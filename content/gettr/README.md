@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1bmq1ebb74.md)
+
+2022.05.27 纽约现场分享
+
+<img src="https://media.gettr.com/group44/origin/2022/05/27/16/e3f0285d-5e55-0bde-92d2-93c816ce8c42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1bm9753ff8.md)
 
  5月27号：尊敬的战友们好．保护新的．来自国内的向新中国联盟……提供灭共情报的任何信息，任何人．都应百分之百的得到我们保护．并及时的提供所有的承诺的经济的支持．和必须的帮助。
@@ -74,11 +82,11 @@
 
 ---
 
-[@miles 5/27/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1bmq1ebb74.md)
+[@miles 5/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bnyb9a26d.md)
 
-2022.05.27 纽约现场分享
+2022.05.27 纽约现场战友互动连线
 
-<img src="https://media.gettr.com/group44/origin/2022/05/27/16/e3f0285d-5e55-0bde-92d2-93c816ce8c42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/05/27/20/c4a5f3d9-ab12-f1b6-353d-44f5e9d37728/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 2022.05.26 战友相聚纽约办公室
 
 <img src="https://media.gettr.com/group32/origin/2022/05/26/15/584eb617-9324-e924-ddb8-9470517d23ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 1:39 PM UTC  - :tv:直播](/content/gettr/p1bdqd6cf29.md)
-
- 5月26号：尊敬的战友们好……全球的粮食危机．疫苗灾难的危机．会让我们的战友．和新中国联邦……迎来一个自然的相互保护，互相爱戴，互相珍惜的．前所未有的，摸索．寻找人与人能美好相处的关系．这是上天送来．创建人与人的新关新型的社会关系，创造人性自然的信仰！和宗教的最佳机会！
-
-<img src="https://media.gettr.com/group21/getter/2022/05/26/13/c4860000-f244-037d-f6c2-d493c4427682/out.jpg" width="506" height="284">
 
 ---
 
