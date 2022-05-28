@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/28/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1bnudc5688.md)
+
+2022-5-27《鸡血王喜币大作战》 第二百零八集 嘉宾：青藤、文空、风雨之中
+
+<img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1bnmy66334.md)
 
 Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping Ukrainians go back to Ukraine on the border of Medyka, Poland. Alek thanks the New Federal State of China and Rule of Law Foundation's large tent for ...
@@ -106,11 +114,11 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 
 ---
 
-[@miles 5/28/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1bnudc5688.md)
+[@miles 5/28/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bpgec27f0.md)
 
-2022-5-27《鸡血王喜币大作战》 第二百零八集 嘉宾：青藤、文空、风雨之中
+2022/05/28  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
 
-<img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/05/28/04/d5922a5d-b972-3a80-5ea4-aa6cfc0341f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 不可思议啊😍😍😍😍😍
 
 <img src="https://media.gettr.com/group15/getter/2022/05/26/16/db32a0fa-37d0-7101-5118-47c33e02e955/dda8976b3a460a2d35d4dc4ef7145318.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1bh668ef49.md)
-
-2022-5-26 《避风港》（52）官方证实，“猴痘”用做掩饰疫苗灾难
-
-<img src="https://media.gettr.com/group8/origin/2022/05/26/18/9c1f249f-3eb2-8d01-fd9d-6142e0bb15d0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
