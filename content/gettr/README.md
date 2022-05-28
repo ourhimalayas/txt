@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/28/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p1bq5zt69d8.md)
+
+2022/05/28  新中国联邦｜真人真事 第55期 台湾宝岛农场 小Phil侠
+
+For English：https://gettr.com/streaming/p1bq7zx6817
+
+<img src="https://media.gettr.com/group20/origin/2022/05/28/14/8cc467a7-86c3-2a62-6f04-5b0f16d7571d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 2:40 PM UTC  - :tv:直播](/content/gettr/p1bqqe3baf8.md)
 
  5月28号：尊敬的战友们好……在西方法治国家．任何理由下，作伪证．提供伪造的证据．和不实的虚假信息．都是严重的刑事犯罪，大家一定要有基本的常识．很多共产党控制的假投资者和假战友．在欧洲和美国陷害战友．用虚假证据．虚假理由，并和共产党司法机关串谋．编造的所有的虚假证据，都是我们打击敌人，帮助战友及共匪的最有力武器……
@@ -146,21 +156,17 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 
 ---
 
-[@miles 5/28/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p1bq5zt69d8.md)
+[@himalayauk_hk 5/27/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1bnpm8fc5c.md)
 
-2022/05/28  新中国联邦｜真人真事 第55期 台湾宝岛农场 小Phil侠
+班農採訪
 
-For English：https://gettr.com/streaming/p1bq7zx6817
 
-<img src="https://media.gettr.com/group20/origin/2022/05/28/14/8cc467a7-86c3-2a62-6f04-5b0f16d7571d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
----
+好像Steve Wynn這樣嚴重的中共滲透事件必須要停止
 
-[@miles 5/26/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1bi88k2e6d.md)
+我們要感激郭文貴對美國的貢獻
 
-5/26/2022 Miles Guo’s GETTR: The COVID vaccine disaster is so scary! Those who took three COVID shots are having the most adverse effects. The entire world is facing food shortages and famine. If Russia took the only key seaport un...
-
-<img src="https://media.gettr.com/group13/getter/2022/05/26/23/3b0b527c-d9dd-a0a5-a6b4-888157d081be/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/05/27/21/35a6973f-bce2-8ddb-c193-7d2bb47eee2a/out.jpg" width="506" height="284">
 
 ---
 
