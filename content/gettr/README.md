@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/28/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p1bph90981f.md)
+
+如何正确的联系上G｜Fashion 客服？请看以下视频 👇
+
+
+
+@gfashion @Cornfieldsis 
+
+<img src="https://media.gettr.com/group8/getter/2022/05/28/05/4dbc4c90-1af7-1d42-113e-bc2b1a122517/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bpgec27f0.md)
 
 2022/05/28  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
@@ -122,15 +134,13 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 
 ---
 
-[@miles 5/28/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p1bph90981f.md)
+[@miles 5/28/2022 7:32 AM UTC ](/content/gettr/p1bpj4hc3aa.md)
 
-如何正确的联系上G｜Fashion 客服？请看以下视频 👇
+U.S. announces cooperation with U.K. and EU to pursue Russian war crimes
 
+Gnews Reprinted, on May 25 U.S. Secretary of State Antony Blinken announced, U.S. will establish Atrocity Crimes Advisory Group with UK and EU (ACA). Helping...
 
-
-@gfashion @Cornfieldsis 
-
-<img src="https://media.gettr.com/group8/getter/2022/05/28/05/4dbc4c90-1af7-1d42-113e-bc2b1a122517/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/05/28/07/d80f177e-b12b-e931-4b2f-50ac306be7e4/9587dee28017784f266955110b10be3d.jpg" width="506" height="284">
 
 ---
 
@@ -163,18 +173,6 @@ Exposing the Fake Activists for Democracy (II)
 揭露欺民贼（二）
 
 <img src="https://media.gettr.com/group3/origin/2022/05/26/23/d6a9e718-f658-6708-023c-38248ba070d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1bhlqk1373.md)
-
-The Communist Party”s evil alliance Al Jazeera.
-
-
-
- 共产党的邪恶同盟: 半岛电视台
-
-<img src="https://media.gettr.com/group50/origin/2022/05/26/22/728b5249-135a-b4b0-1f03-395f227e2723/out.jpg" width="506" height="284">
 
 ---
 
