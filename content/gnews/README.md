@@ -2,10 +2,25 @@
 ---
 
 
+#### [【说事儿】美联储副主席布雷纳德认为央行数字货币有其道理](/content/gnews/2618203.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】布林肯称中共国 “破坏”了全球秩序 美国不寻求 “新冷战”](/content/gnews/2618199.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】欧盟提议将违反俄罗斯制裁定为犯罪](/content/gnews/2618191.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】推特将因不当出售用户数据被罚1.5亿美元](/content/gnews/2618180.md)
+ `TokyoSakuraDesignGroup`
+
+#### [不敢买房不敢炒股！中国储蓄存款暴增！4月底达到109.2万亿](/content/gnews/2618158.md)
+ `波士顿五月花农场金融部`
+
 #### [有声｜美航空公司在旅游旺季前纷纷取消航班](/content/gnews/2618156.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [【樱话】加拿大各界要求特鲁多取消旅行限制](/content/gnews/2618123.md)
+#### [【樱话】推特投资者起诉埃隆-马斯克，指控他操纵公司股价下跌](/content/gnews/2618146.md)
  `TokyoSakuraDesignGroup`
 
 #### [据称日本国家支持基金JIC将寻求东芝竞购](/content/gnews/2618122.md)
@@ -17,14 +32,8 @@
 #### [有声｜俄士兵拒参战被解雇 影射俄欲侵占乌克兰](/content/gnews/2618093.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [【樱话】达沃斯警告：世界各地将发生饥荒](/content/gnews/2618091.md)
- `TokyoSakuraDesignGroup`
-
 #### [北京两所大学数百名学生抗议中共的新冠病毒封锁措施](/content/gnews/2618085.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [【樱话】布林肯发表政策演说 提投资、结盟、竞争三大方向 阻中共扰乱国际秩序](/content/gnews/2618063.md)
- `TokyoSakuraDesignGroup`
 
 #### [有声｜对俄石油禁运可能将推动油价突破150美元](/content/gnews/2618062.md)
  `秘密翻译组-即时新闻播报组`
@@ -37,9 +46,6 @@
 
 #### [有声｜乌克兰军队可能被迫从该国东部撤退撤退](/content/gnews/2618019.md)
  `秘密翻译组-即时新闻播报组`
-
-#### [中共国访问南太平洋有什么利害关系？](/content/gnews/2617995.md)
- `澳喜特战旅Gnews`
 
 #### [有声｜绿地寻求美元债展期 将出售千亿资产](/content/gnews/2617988.md)
  `秘密翻译组-即时新闻播报组`
@@ -64,9 +70,6 @@
 
 #### [RBI行长坚持立场，称数字货币没有任何价值](/content/gnews/2617899.md)
  `墨尔本雅典娜农场`
-
-#### [匈牙利总理表示：匈牙利政府因乌克兰战争获得紧急权力](/content/gnews/2617892.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [塞浦路斯取消所有针对游客的 COVID-19 测试](/content/gnews/2617872.md)
  `澳喜特战旅Gnews`
@@ -93,9 +96,6 @@
  `墨尔本雅典娜农场`
 
 #### [中共指责布林肯对华政策演讲 散布虚假信息渲染中共威胁论](/content/gnews/2617793.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [那些为乌克兰献身的战士是人类文明的英雄](/content/gnews/2617763.md)
  `TokyoSakura Politics/樱花时政`
 
 #### [在劳动力市场紧张的情况下，苹果提高了工人的工资预算](/content/gnews/2617623.md)
