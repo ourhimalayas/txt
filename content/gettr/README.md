@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/27/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1bnczs7c07.md)
+
+5/27/2022 Miles Guo’s GETTR: We must collect all the information and materials that are helpful and valuable for us to take down the CCP at all cost. We must do everything we can to protect the fellow fighters who provided the valu...
+
+<img src="https://media.gettr.com/group48/getter/2022/05/27/23/339120ba-a656-74ed-5c01-e6aa2ac71aa5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bnyb9a26d.md)
 
 2022.05.27 纽约现场战友互动连线
@@ -90,11 +98,11 @@
 
 ---
 
-[@miles 5/27/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1bnczs7c07.md)
+[@miles 5/28/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1bnmy66334.md)
 
-5/27/2022 Miles Guo’s GETTR: We must collect all the information and materials that are helpful and valuable for us to take down the CCP at all cost. We must do everything we can to protect the fellow fighters who provided the valu...
+Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping Ukrainians go back to Ukraine on the border of Medyka, Poland. Alek thanks the New Federal State of China and Rule of Law Foundation's large tent for ...
 
-<img src="https://media.gettr.com/group48/getter/2022/05/27/23/339120ba-a656-74ed-5c01-e6aa2ac71aa5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/05/28/00/103be1f0-35ea-b690-257a-5dbf5dffbdf7/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 2022年5月26日  俄乌战争战况播报
 
 <img src="https://media.gettr.com/group24/origin/2022/05/26/17/e7790775-e252-49db-1ab7-82d3d61edbc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/26/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1bdwww8f59.md)
-
-2022.05.26 战友相聚纽约办公室
-
-<img src="https://media.gettr.com/group32/origin/2022/05/26/15/584eb617-9324-e924-ddb8-9470517d23ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
