@@ -2,6 +2,20 @@
 ---
 
 
+[@himalayauk_hk 5/27/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1bnpm8fc5c.md)
+
+班農採訪
+
+
+
+好像Steve Wynn這樣嚴重的中共滲透事件必須要停止
+
+我們要感激郭文貴對美國的貢獻
+
+<img src="https://media.gettr.com/group7/origin/2022/05/27/21/35a6973f-bce2-8ddb-c193-7d2bb47eee2a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p1bq5zt69d8.md)
 
 2022/05/28  新中国联邦｜真人真事 第55期 台湾宝岛农场 小Phil侠
@@ -156,29 +170,11 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 
 ---
 
-[@himalayauk_hk 5/27/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1bnpm8fc5c.md)
+[@miles 5/28/2022 5:37 PM UTC  - :tv:直播](/content/gettr/p1br0rb46d1.md)
 
-班農採訪
+2022年5月28日 俄乌战争战况播报 
 
-
-
-好像Steve Wynn這樣嚴重的中共滲透事件必須要停止
-
-我們要感激郭文貴對美國的貢獻
-
-<img src="https://media.gettr.com/group7/origin/2022/05/27/21/35a6973f-bce2-8ddb-c193-7d2bb47eee2a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1bifh071f3.md)
-
-Exposing the Fake Activists for Democracy (II)
-
-
-
-揭露欺民贼（二）
-
-<img src="https://media.gettr.com/group3/origin/2022/05/26/23/d6a9e718-f658-6708-023c-38248ba070d2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/05/28/17/faf2ed6b-450b-ca3e-78ed-a26c9f35c27f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
