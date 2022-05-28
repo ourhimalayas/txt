@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/28/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bpgec27f0.md)
+
+2022/05/28  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
+
+<img src="https://media.gettr.com/group5/origin/2022/05/28/04/d5922a5d-b972-3a80-5ea4-aa6cfc0341f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1bnudc5688.md)
 
 2022-5-27《鸡血王喜币大作战》 第二百零八集 嘉宾：青藤、文空、风雨之中
@@ -114,11 +122,15 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 
 ---
 
-[@miles 5/28/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bpgec27f0.md)
+[@miles 5/28/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p1bph90981f.md)
 
-2022/05/28  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
+如何正确的联系上G｜Fashion 客服？请看以下视频 👇
 
-<img src="https://media.gettr.com/group5/origin/2022/05/28/04/d5922a5d-b972-3a80-5ea4-aa6cfc0341f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+@gfashion @Cornfieldsis 
+
+<img src="https://media.gettr.com/group8/getter/2022/05/28/05/4dbc4c90-1af7-1d42-113e-bc2b1a122517/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +187,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 卡塔尔与中共的勾兑
 
 <img src="https://media.gettr.com/group36/origin/2022/05/26/22/8aa814b7-28de-432d-7df4-b0e4317eb9ce/out.jpg" width="506" height="284">
-
----
-
-[@realfayfay 5/26/2022 4:40 PM UTC ](/content/gettr/p1bdx3rf67c.md)
-
-不可思议啊😍😍😍😍😍
-
-<img src="https://media.gettr.com/group15/getter/2022/05/26/16/db32a0fa-37d0-7101-5118-47c33e02e955/dda8976b3a460a2d35d4dc4ef7145318.jpg" width="506" height="284">
 
 ---
 
