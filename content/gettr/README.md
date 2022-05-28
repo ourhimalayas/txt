@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/28/2022 7:47 PM UTC  - :tv:直播](/content/gettr/p1br00j896a.md)
+
+5/28/2022 Miles Guo’s GETTR: All those who made false testimonies and set up our fellow fighters in the investment case in Italy as demanded by the CCP have been arrested. An official of the CCP's Embassy in Germany told those who ...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/28/19/4b0fb153-42b9-4f69-5f89-7d73678a011b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/28/2022 5:37 PM UTC  - :tv:直播](/content/gettr/p1br0rb46d1.md)
+
+2022年5月28日 俄乌战争战况播报 
+
+<img src="https://media.gettr.com/group17/origin/2022/05/28/17/faf2ed6b-450b-ca3e-78ed-a26c9f35c27f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@himalayauk_hk 5/27/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1bnpm8fc5c.md)
 
 班農採訪
@@ -154,27 +170,11 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 
 ---
 
-[@miles 5/27/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1bignyf725.md)
+[@miles 5/28/2022 7:58 PM UTC  - :tv:直播](/content/gettr/p1brdtjb498.md)
 
-2022.05.17  晚 新中国联邦⎪新闻访谈   拜登訪日、聲稱美國會武力保護台灣；全国稳住经济大盘电视电话会议解读；地球粮荒，雪上加霜
+5/28/2022 Miles Guo’s GETTR: To all fellow fighters in the U.S., you shall remember not to lie or make false testimonies at any time. No matter what issues or situations you are facing, calm down and do not listen to the noises aro...
 
-<img src="https://media.gettr.com/group44/origin/2022/05/27/00/dba62e8e-41c4-5a35-4ead-31e7b224bf95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1bhqwuff06.md)
-
-2022年5月26日 七哥与战友们乱聊直播
-
-<img src="https://media.gettr.com/group16/origin/2022/05/26/23/b2f4c473-1ac5-f433-0f7a-560671f6b740/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 5:37 PM UTC  - :tv:直播](/content/gettr/p1br0rb46d1.md)
-
-2022年5月28日 俄乌战争战况播报 
-
-<img src="https://media.gettr.com/group17/origin/2022/05/28/17/faf2ed6b-450b-ca3e-78ed-a26c9f35c27f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/05/28/19/3c330a1c-93c1-e8cc-fcf7-ed03b9419f1a/out.jpg" width="506" height="284">
 
 ---
 
