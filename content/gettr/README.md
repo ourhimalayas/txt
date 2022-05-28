@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/28/2022 8:27 PM UTC  - :tv:直播](/content/gettr/p1brkp2aab6.md)
+
+2022.05.28 爆二代GFASHION解药系列新款分享
+
+<img src="https://media.gettr.com/group23/origin/2022/05/28/20/cccaff75-8f2a-a05e-28a2-3445ca68bb48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/28/2022 7:58 PM UTC  - :tv:直播](/content/gettr/p1brdtjb498.md)
+
+5/28/2022 Miles Guo’s GETTR: To all fellow fighters in the U.S., you shall remember not to lie or make false testimonies at any time. No matter what issues or situations you are facing, calm down and do not listen to the noises aro...
+
+<img src="https://media.gettr.com/group25/getter/2022/05/28/19/3c330a1c-93c1-e8cc-fcf7-ed03b9419f1a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 5:37 PM UTC  - :tv:直播](/content/gettr/p1br0rb46d1.md)
 
 2022年5月28日 俄乌战争战况播报 
@@ -159,22 +175,6 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 2022.05.27 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group25/origin/2022/05/27/04/7db37a48-fee3-a57c-10db-acfd2d2e7ca4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/27/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1birdu60dc.md)
-
-2022-5-26《鸡血王喜币大作战》 第二百零七集 嘉宾：无双柳薇薇、Tex
-
-<img src="https://media.gettr.com/group36/origin/2022/05/27/02/b14c6479-f273-a447-21e9-df8d56ff5541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 7:58 PM UTC  - :tv:直播](/content/gettr/p1brdtjb498.md)
-
-5/28/2022 Miles Guo’s GETTR: To all fellow fighters in the U.S., you shall remember not to lie or make false testimonies at any time. No matter what issues or situations you are facing, calm down and do not listen to the noises aro...
-
-<img src="https://media.gettr.com/group25/getter/2022/05/28/19/3c330a1c-93c1-e8cc-fcf7-ed03b9419f1a/out.jpg" width="506" height="284">
 
 ---
 
