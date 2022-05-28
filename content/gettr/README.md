@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/28/2022 7:32 AM UTC ](/content/gettr/p1bpj4hc3aa.md)
+
+U.S. announces cooperation with U.K. and EU to pursue Russian war crimes
+
+Gnews Reprinted, on May 25 U.S. Secretary of State Antony Blinken announced, U.S. will establish Atrocity Crimes Advisory Group with UK and EU (ACA). Helping...
+
+<img src="https://media.gettr.com/group47/origin/2022/05/28/07/d80f177e-b12b-e931-4b2f-50ac306be7e4/9587dee28017784f266955110b10be3d.jpg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p1bph90981f.md)
 
 如何正确的联系上G｜Fashion 客服？请看以下视频 👇
@@ -134,13 +144,13 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 
 ---
 
-[@miles 5/28/2022 7:32 AM UTC ](/content/gettr/p1bpj4hc3aa.md)
+[@miles 5/28/2022 1:01 PM UTC ](/content/gettr/p1bqjecbbce.md)
 
-U.S. announces cooperation with U.K. and EU to pursue Russian war crimes
+5月28号，尊敬的战友们好……新中国联邦的疫苗灭共成就全球唯一一个。我们将彻底的改变世界媒体和信息的存在方式，这就叫爆料革命。
 
-Gnews Reprinted, on May 25 U.S. Secretary of State Antony Blinken announced, U.S. will establish Atrocity Crimes Advisory Group with UK and EU (ACA). Helping...
 
-<img src="https://media.gettr.com/group47/origin/2022/05/28/07/d80f177e-b12b-e931-4b2f-50ac306be7e4/9587dee28017784f266955110b10be3d.jpg" width="506" height="284">
+
+【最后，根据目前的任何科学标准，甚至不再有合格的 "大流行病 "或 "紧急情况 "来证明被告的任何行为，包括，但不限于，FDA继续为未经许可的、实际上是基因疗法的mRNA "疫苗 "重新签发紧急授权，然后在违反10 U.S.C. § 1107a的明确法定禁止的情况下强制执行。------ 疫苗彻底结束！】
 
 ---
 
@@ -173,18 +183,6 @@ Exposing the Fake Activists for Democracy (II)
 揭露欺民贼（二）
 
 <img src="https://media.gettr.com/group3/origin/2022/05/26/23/d6a9e718-f658-6708-023c-38248ba070d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p1bi7an05ab.md)
-
-Qatar's Collusion with the Chinese Communist Party(CCP).
-
-
-
-卡塔尔与中共的勾兑
-
-<img src="https://media.gettr.com/group36/origin/2022/05/26/22/8aa814b7-28de-432d-7df4-b0e4317eb9ce/out.jpg" width="506" height="284">
 
 ---
 
