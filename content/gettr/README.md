@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/28/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1bnmy66334.md)
+
+Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping Ukrainians go back to Ukraine on the border of Medyka, Poland. Alek thanks the New Federal State of China and Rule of Law Foundation's large tent for ...
+
+<img src="https://media.gettr.com/group27/getter/2022/05/28/00/103be1f0-35ea-b690-257a-5dbf5dffbdf7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/27/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1bnczs7c07.md)
 
 5/27/2022 Miles Guo’s GETTR: We must collect all the information and materials that are helpful and valuable for us to take down the CCP at all cost. We must do everything we can to protect the fellow fighters who provided the valu...
@@ -98,11 +106,11 @@
 
 ---
 
-[@miles 5/28/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1bnmy66334.md)
+[@miles 5/28/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1bnudc5688.md)
 
-Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping Ukrainians go back to Ukraine on the border of Medyka, Poland. Alek thanks the New Federal State of China and Rule of Law Foundation's large tent for ...
+2022-5-27《鸡血王喜币大作战》 第二百零八集 嘉宾：青藤、文空、风雨之中
 
-<img src="https://media.gettr.com/group27/getter/2022/05/28/00/103be1f0-35ea-b690-257a-5dbf5dffbdf7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Qatar's Collusion with the Chinese Communist Party(CCP).
 2022-5-26 《避风港》（52）官方证实，“猴痘”用做掩饰疫苗灾难
 
 <img src="https://media.gettr.com/group8/origin/2022/05/26/18/9c1f249f-3eb2-8d01-fd9d-6142e0bb15d0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/26/2022 5:57 PM UTC  - :tv:直播](/content/gettr/p1bg6r91585.md)
-
-2022年5月26日  俄乌战争战况播报
-
-<img src="https://media.gettr.com/group24/origin/2022/05/26/17/e7790775-e252-49db-1ab7-82d3d61edbc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
