@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/28/2022 8:27 PM UTC  - :tv:直播](/content/gettr/p1brkp2aab6.md)
+
+2022.05.28 爆二代GFASHION解药系列新款分享
+
+<img src="https://media.gettr.com/group23/origin/2022/05/28/20/cccaff75-8f2a-a05e-28a2-3445ca68bb48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 7:47 PM UTC  - :tv:直播](/content/gettr/p1br00j896a.md)
 
 5/28/2022 Miles Guo’s GETTR: All those who made false testimonies and set up our fellow fighters in the investment case in Italy as demanded by the CCP have been arrested. An official of the CCP's Embassy in Germany told those who ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/28/2022 8:27 PM UTC  - :tv:直播](/content/gettr/p1brkp2aab6.md)
+[@miles 5/28/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1brr3d244d.md)
 
-2022.05.28 爆二代GFASHION解药系列新款分享
+2022.05.28 摇滚巨星现场排练
 
-<img src="https://media.gettr.com/group23/origin/2022/05/28/20/cccaff75-8f2a-a05e-28a2-3445ca68bb48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/05/28/20/74e3df12-408e-067e-e246-ab177305968f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 2022.05.27  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的演变-坦克篇
 
 <img src="https://media.gettr.com/group14/origin/2022/05/27/10/5ec5e25c-c0c2-3c95-2cd2-96c9ff10536b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/27/2022 5:00 AM UTC  - :tv:直播](/content/gettr/p1bjsruc47c.md)
-
-2022.05.27 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group25/origin/2022/05/27/04/7db37a48-fee3-a57c-10db-acfd2d2e7ca4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
