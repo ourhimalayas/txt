@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/28/2022 1:01 PM UTC ](/content/gettr/p1bqjecbbce.md)
+
+5月28号，尊敬的战友们好……新中国联邦的疫苗灭共成就全球唯一一个。我们将彻底的改变世界媒体和信息的存在方式，这就叫爆料革命。
+
+
+
+【最后，根据目前的任何科学标准，甚至不再有合格的 "大流行病 "或 "紧急情况 "来证明被告的任何行为，包括，但不限于，FDA继续为未经许可的、实际上是基因疗法的mRNA "疫苗 "重新签发紧急授权，然后在违反10 U.S.C. § 1107a的明确法定禁止的情况下强制执行。------ 疫苗彻底结束！】
+
+---
+
 [@miles 5/28/2022 7:32 AM UTC ](/content/gettr/p1bpj4hc3aa.md)
 
 U.S. announces cooperation with U.K. and EU to pursue Russian war crimes
@@ -128,29 +138,11 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 
 ---
 
-[@miles 5/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1bi9e14800.md)
+[@miles 5/28/2022 2:40 PM UTC  - :tv:直播](/content/gettr/p1bqqe3baf8.md)
 
-5/24/2022 Miles Guo: I mentioned back in 2017 that Japan would become a permanent member of the UN. It is CCP’s insanity that makes Japan become the permanent member
+ 5月28号：尊敬的战友们好……在西方法治国家．任何理由下，作伪证．提供伪造的证据．和不实的虚假信息．都是严重的刑事犯罪，大家一定要有基本的常识．很多共产党控制的假投资者和假战友．在欧洲和美国陷害战友．用虚假证据．虚假理由，并和共产党司法机关串谋．编造的所有的虚假证据，都是我们打击敌人，帮助战友及共匪的最有力武器……
 
-
-
-5/24/2022 文贵直播：文贵早在2017年就提过日本会成为联合国常任理事国，是共产党的疯狂让日本入常
-
-
-
-
-
-<img src="https://media.gettr.com/group25/getter/2022/05/26/23/f3d4f04e-ee00-487d-10e0-6517b642d0b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 1:01 PM UTC ](/content/gettr/p1bqjecbbce.md)
-
-5月28号，尊敬的战友们好……新中国联邦的疫苗灭共成就全球唯一一个。我们将彻底的改变世界媒体和信息的存在方式，这就叫爆料革命。
-
-
-
-【最后，根据目前的任何科学标准，甚至不再有合格的 "大流行病 "或 "紧急情况 "来证明被告的任何行为，包括，但不限于，FDA继续为未经许可的、实际上是基因疗法的mRNA "疫苗 "重新签发紧急授权，然后在违反10 U.S.C. § 1107a的明确法定禁止的情况下强制执行。------ 疫苗彻底结束！】
+<img src="https://media.gettr.com/group18/getter/2022/05/28/14/c9b5e56f-dc7c-3e14-6e91-494e827afc38/out.jpg" width="506" height="284">
 
 ---
 
