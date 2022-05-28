@@ -11,6 +11,21 @@
 
 ---
 
+#### [【樱话】因医护人员不足曼省或寻求军方援助](/content/gnews/2618024.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】随着印度宣布限制糖出口，糖是下一种很难买到的食物](/content/gnews/2618008.md)
+ `TokyoSakuraDesignGroup`
+
+#### [有声｜绿地寻求美元债展期 将出售千亿资产](/content/gnews/2617988.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [【樱话】一批卡通式的恶棍在瑞士阿尔卑斯山上决定你的命运](/content/gnews/2617983.md)
+ `TokyoSakuraDesignGroup`
+
+#### [大直播后记：七哥讲述当初去郑州发展的原因](/content/gnews/2617970.md)
+ `雅典娜GNotes`
+
 #### [【樱话】推特将因不当出售用户数据被罚1.5亿美元](/content/gnews/2617959.md)
  `TokyoSakuraDesignGroup`
 
@@ -34,9 +49,6 @@
 
 #### [习近平警告拜登民主正在消亡：“你们没有时间了”](/content/gnews/2617860.md)
  `喜马拉雅农场新西兰站`
-
-#### [组图：人教版数学教材插图引争议](/content/gnews/2617848.md)
- `日本东京方舟农场`
 
 #### [中日财经爆&#124;绿地也要“爆雷”？寻求延长4.88亿美元的债券支付](/content/gnews/2617822.md)
  `东京樱花团`
@@ -74,9 +86,6 @@
 #### [布林肯：在习领导下，中共对内更加压制，对外更加咄咄逼人](/content/gnews/2617601.md)
  `美国政要直译推`
 
-#### [大直播后记：七哥回忆刚从清丰看守所出来后的一段最落魄的时光](/content/gnews/2617566.md)
- `雅典娜GNotes`
-
 #### [拜登强调 现代集团宣布在美国投资100亿美元的消息](/content/gnews/2617559.md)
  `TokyoSakura Politics/樱花时政`
 
@@ -93,9 +102,6 @@
  `MOSVIDEO`
 
 #### [视频&#124;日美战斗机联合军演以应对中俄朝挑衅](/content/gnews/2617533.md)
- `MOSVIDEO`
-
-#### [视频&#124;中共权利体系下的“特供制”](/content/gnews/2617524.md)
  `MOSVIDEO`
 
 #### [揭露欺民贼-潘林正和腾彪（二）](/content/gnews/2617520.md)
@@ -148,12 +154,6 @@
 
 #### [斐济将加入印太经济框架](/content/gnews/2616215.md)
  `日本东京方舟农场`
-
-#### [世卫组织：20多个国家出现近200例猴痘病例](/content/gnews/2616126.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [菲律宾在苏比克湾部署海军对抗中共国](/content/gnews/2616125.md)
- `TokyoSakura Politics/樱花时政`
 
 #### [基辛格暗示乌克兰割地求和 遭泽连斯基痛批](/content/gnews/2615873.md)
  `TokyoSakura Politics/樱花时政`
