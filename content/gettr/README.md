@@ -58,11 +58,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p1bujln0f86.md)
+[@miles 5/29/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p1bv1cr266e.md)
 
-2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？
+2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
 
-<img src="https://media.gettr.com/group30/origin/2022/05/29/11/50b21742-c3a4-57d2-e035-ec91754630ee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/05/29/12/4b83ac19-1601-7883-eab6-86afa6f8fe76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
