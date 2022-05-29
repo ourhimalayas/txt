@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1buaisb859.md)
+
+2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
+
+<img src="https://media.gettr.com/group26/origin/2022/05/29/12/4b83ac19-1601-7883-eab6-86afa6f8fe76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p1bv1cr266e.md)
 
 2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
@@ -66,11 +74,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1buaisb859.md)
+[@miles 5/29/2022 5:29 PM UTC  - :tv:直播](/content/gettr/p1bvwyk33b5.md)
 
-2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
+2022-5-29 「遇见」——命运因此而改變⛅️ #小小尼莫音乐会 🎼第十三期，奇妙的緣分🌟，讓我們在爆料革命裡遇見彼此🍀，一起創造音樂🎶，譜寫命運🎸
 
-<img src="https://media.gettr.com/group26/origin/2022/05/29/12/4b83ac19-1601-7883-eab6-86afa6f8fe76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/05/29/17/38dd7650-7628-3427-e171-e799efcb3a10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Gnews Reprinted, on May 25 U.S. Secretary of State Antony Blinken announced, U.S
 2022-5-27《鸡血王喜币大作战》 第二百零八集 嘉宾：青藤、文空、风雨之中
 
 <img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1bnmy66334.md)
-
-Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping Ukrainians go back to Ukraine on the border of Medyka, Poland. Alek thanks the New Federal State of China and Rule of Law Foundation's large tent for ...
-
-<img src="https://media.gettr.com/group27/getter/2022/05/28/00/103be1f0-35ea-b690-257a-5dbf5dffbdf7/out.jpg" width="506" height="284">
 
 ---
 
