@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/28/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1bs2sxf5f6.md)
+
+Young volunteers from the United States and Nigeria, part of the organization “Making Difference in Uganda”, came to serve at the Ukrainian Refugee Center in Medyka, Poland. They spoke about their duties, their beliefs about the tr...
+
+<img src="https://media.gettr.com/group46/origin/2022/05/28/23/dda97529-c627-d6a5-07e4-7208fb58f3fb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1brr3d244d.md)
 
 2022.05.28 摇滚巨星现场排练
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/28/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1bs2sxf5f6.md)
+[@miles 5/29/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p1bsmsa7557.md)
 
-Young volunteers from the United States and Nigeria, part of the organization “Making Difference in Uganda”, came to serve at the Ukrainian Refugee Center in Medyka, Poland. They spoke about their duties, their beliefs about the tr...
+2022-5-28《鸡血王喜币大作战》 第二百零九集 嘉宾：卡丽熙、Eric
 
-<img src="https://media.gettr.com/group46/origin/2022/05/28/23/dda97529-c627-d6a5-07e4-7208fb58f3fb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/05/29/02/19543873-9276-5c14-bdd2-9dcb8fd6438d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
  5月27号：尊敬的战友们好．保护新的．来自国内的向新中国联盟……提供灭共情报的任何信息，任何人．都应百分之百的得到我们保护．并及时的提供所有的承诺的经济的支持．和必须的帮助。
 
 <img src="https://media.gettr.com/group10/getter/2022/05/27/14/b4cf8960-0d6c-58f5-b0e6-56e87997c2a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/27/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p1blbne6b64.md)
-
-2022.05.27 首届《联邦杯》诗歌朗诵大赛 原创组半决赛 澳喜农场主办
-
-<img src="https://media.gettr.com/group13/origin/2022/05/27/12/b7f3a0d3-cad6-58ec-ff6c-ddb1a621309d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
