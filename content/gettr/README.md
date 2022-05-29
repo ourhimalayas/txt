@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1bvnx4b10b.md)
+
+2022.05.29  新中国联邦 | 喜健康   文贵先生说的区块链技术在医学领域怎样应用？
+
+<img src="https://media.gettr.com/group24/origin/2022/05/29/20/d08eeb1e-63cd-b50c-c998-58b097457486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 8:21 PM UTC  - :tv:直播](/content/gettr/p1bvv8a3552.md)
 
 5/30/2022 Miles Guo: Due to the vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court, if the US government officially ceases the vaccine mandate, Communist China wil...
@@ -122,11 +130,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1bvnx4b10b.md)
+[@miles 5/29/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bwksx0770.md)
 
-2022.05.29  新中国联邦 | 喜健康   文贵先生说的区块链技术在医学领域怎样应用？
+5/29/2022 Miles Guo: The "zero-COVID policy" is actually the CCP's trick to win others' trust by deliberately hurting itself, and to prevent the world from investigating the origins of the CCP virus. The "zero-COVID policy" is nece...
 
-<img src="https://media.gettr.com/group24/origin/2022/05/29/20/d08eeb1e-63cd-b50c-c998-58b097457486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/05/29/21/929920cd-dbc0-4827-902b-9cad4222c236/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ Young volunteers from the United States and Nigeria, part of the organization �
 我們要感激郭文貴對美國的貢獻
 
 <img src="https://media.gettr.com/group7/origin/2022/05/27/21/35a6973f-bce2-8ddb-c193-7d2bb47eee2a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p1bq5zt69d8.md)
-
-2022/05/28  新中国联邦｜真人真事 第55期 台湾宝岛农场 小Phil侠
-
-For English：https://gettr.com/streaming/p1bq7zx6817
-
-<img src="https://media.gettr.com/group20/origin/2022/05/28/14/8cc467a7-86c3-2a62-6f04-5b0f16d7571d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
