@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p1bsmsa7557.md)
+
+2022-5-28《鸡血王喜币大作战》 第二百零九集 嘉宾：卡丽熙、Eric
+
+<img src="https://media.gettr.com/group26/origin/2022/05/29/02/19543873-9276-5c14-bdd2-9dcb8fd6438d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1bs2sxf5f6.md)
 
 Young volunteers from the United States and Nigeria, part of the organization “Making Difference in Uganda”, came to serve at the Ukrainian Refugee Center in Medyka, Poland. They spoke about their duties, their beliefs about the tr...
@@ -34,11 +42,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p1bsmsa7557.md)
+[@miles 5/29/2022 7:42 AM UTC ](/content/gettr/p1bu25v1068.md)
 
-2022-5-28《鸡血王喜币大作战》 第二百零九集 嘉宾：卡丽熙、Eric
+The CCP can only be taken down when it collapses financially, launches war against Taiwan, attempts to conquer the US and Europe, thus causing the US and Japan to deploy the 2nd and 3rd island chains of the CCP with barbs and chang...
 
-<img src="https://media.gettr.com/group26/origin/2022/05/29/02/19543873-9276-5c14-bdd2-9dcb8fd6438d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/05/29/07/876dcc5e-9a34-efab-d1d1-ba78ef1fab00/a4109e2393ba868c9f4a3385b9dc8c0a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 2022.05.27 纽约现场分享
 
 <img src="https://media.gettr.com/group44/origin/2022/05/27/16/e3f0285d-5e55-0bde-92d2-93c816ce8c42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/27/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1bm9753ff8.md)
-
- 5月27号：尊敬的战友们好．保护新的．来自国内的向新中国联盟……提供灭共情报的任何信息，任何人．都应百分之百的得到我们保护．并及时的提供所有的承诺的经济的支持．和必须的帮助。
-
-<img src="https://media.gettr.com/group10/getter/2022/05/27/14/b4cf8960-0d6c-58f5-b0e6-56e87997c2a2/out.jpg" width="506" height="284">
 
 ---
 
