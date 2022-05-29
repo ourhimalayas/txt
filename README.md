@@ -11,38 +11,44 @@
 
 ---
 
-#### [樱花FM┃油价飙涨 英国向油企征收25%暴利税](/content/gnews/2623224.md)
- `樱花FM`
+#### [视频&#124;中共国企背景绿地集团寻求债务展期](/content/gnews/2623358.md)
+ `MOSVIDEO`
 
-#### [樱花FM┃加拿大阿尔伯塔省：三针接种住院比例上升，风险远超未接种者](/content/gnews/2623213.md)
- `樱花FM`
-
-#### [【樱话】500多名美軍人就強制疫苗令對政府提起訟訴](/content/gnews/2623206.md)
+#### [【樱话】降雨防汛灾难不断，注定2022年不平凡](/content/gnews/2623355.md)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】澳洲新州疫苗接种率近9成 悉尼开始爆发军团病](/content/gnews/2623181.md)
+#### [视频&#124;中共封杀布林肯对华政策讲话](/content/gnews/2623348.md)
+ `MOSVIDEO`
+
+#### [【樱话】美拟立法禁止谷歌苹果应用商店接受数字人民币](/content/gnews/2623344.md)
  `TokyoSakuraDesignGroup`
 
-#### [樱花FM┃求贤若渴的孤独与自信灭共的一万人足已](/content/gnews/2623179.md)
- `樱花FM`
+#### [中共在动员国家为对台作战进行准备](/content/gnews/2623325.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [樱花FM┃外汇短缺的斯里兰卡决定购买俄罗斯原油](/content/gnews/2623158.md)
- `樱花FM`
-
-#### [樱花FM┃拜登在海军学院讲话：确保南海航行自由](/content/gnews/2623154.md)
- `樱花FM`
-
-#### [樱花FM┃中共向穷国与非洲大量放贷 构成世界新金融危机严重危险](/content/gnews/2623153.md)
- `樱花FM`
-
-#### [【樱话】全球疫情大解封 超过57个国家取消疫苗护照](/content/gnews/2623146.md)
+#### [【樱话】COVID-19 疫苗正在以前所未有的速度杀死健康人类](/content/gnews/2623321.md)
  `TokyoSakuraDesignGroup`
 
-#### [樱花FM┃中共计划摧毁“星链”的数千颗卫星](/content/gnews/2623130.md)
+#### [科里医生驳斥辉瑞疫苗对幼儿有80%的有效性](/content/gnews/2623318.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [皮埃尔·科里医生表示科学不应该卷入政治](/content/gnews/2623300.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [视频&#124;蓬佩奥揭示当初选择华为作为制裁对象的里程碑意义](/content/gnews/2623294.md)
+ `MOSVIDEO`
+
+#### [皮特·麦卡洛博士认为无需为猴痘症感到恐慌](/content/gnews/2623290.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [秘翻在线：民主党内新联盟支持商务部针对中共国逃避关税的调查](/content/gnews/2623234.md)
+ `秘密翻譯組G-Translators`
+
+#### [樱花FM┃今天又多了一个绝望的母亲和妻子](/content/gnews/2623229.md)
  `樱花FM`
 
-#### [樱花FM┃共军的养成 选美小姐当上首位女舰长](/content/gnews/2623101.md)
- `樱花FM`
+#### [参加爆料革命应该是战友本身想要灭共，而非其他目的性的想法](/content/gnews/2623106.md)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [担忧中共人权问题，德国拒绝为大众在华投资提供担保](/content/gnews/2623087.md)
  `波士顿五月花农场金融部`
@@ -83,9 +89,6 @@
 #### [泽斯基呼吁：世界应在法律上承认俄罗斯为恐怖主义国家](/content/gnews/2622702.md)
  `日本东京方舟农场`
 
-#### [2018年11月1日郭文贵先生直播 全文字版](/content/gnews/2622641.md)
- `温哥华扬帆农场《文贵大直播》全文听写组`
-
 #### [蓬佩奥揭示当初选择华为作为制裁对象的里程碑意义](/content/gnews/2622602.md)
  `NFSC News`
 
@@ -94,9 +97,6 @@
 
 #### [中共国企背景绿地集团寻求债务展期](/content/gnews/2622600.md)
  `NFSC News`
-
-#### [俄罗斯再次测试钻石高超音速巡航导弹](/content/gnews/2622525.md)
- `TokyoSakura Politics/樱花时政`
 
 #### [拜登寄语海军毕业生保持南中国海自由](/content/gnews/2622518.md)
  `NFSC News`
