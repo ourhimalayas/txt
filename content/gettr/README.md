@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p1bu10h9767.md)
+
+5/28/2022 Miles Guo’s GETTR: As I have said a long time ago, the COVID vaccine disaster has started this May, and various countries are ending the COVID vaccine mandates. When it comes to the issue of the COVID vaccination, only if...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/29/08/37e97d24-7bfe-36b6-1747-a5f8bbe4f0e2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 7:42 AM UTC ](/content/gettr/p1bu25v1068.md)
 
 The CCP can only be taken down when it collapses financially, launches war against Taiwan, attempts to conquer the US and Europe, thus causing the US and Japan to deploy the 2nd and 3rd island chains of the CCP with barbs and chang...
@@ -50,11 +58,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p1bu10h9767.md)
+[@miles 5/29/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p1bujln0f86.md)
 
-5/28/2022 Miles Guo’s GETTR: As I have said a long time ago, the COVID vaccine disaster has started this May, and various countries are ending the COVID vaccine mandates. When it comes to the issue of the COVID vaccination, only if...
+2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？
 
-<img src="https://media.gettr.com/group39/getter/2022/05/29/08/37e97d24-7bfe-36b6-1747-a5f8bbe4f0e2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/05/29/11/50b21742-c3a4-57d2-e035-ec91754630ee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 5/27/2022 Miles Guo’s GETTR: We must collect all the information and materials that are helpful and valuable for us to take down the CCP at all cost. We must do everything we can to protect the fellow fighters who provided the valu...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/27/23/339120ba-a656-74ed-5c01-e6aa2ac71aa5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bnyb9a26d.md)
-
-2022.05.27 纽约现场战友互动连线
-
-<img src="https://media.gettr.com/group18/origin/2022/05/27/20/c4a5f3d9-ab12-f1b6-353d-44f5e9d37728/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
