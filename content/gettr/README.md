@@ -2,6 +2,14 @@
 ---
 
 
+[@globalalliance 5/29/2022 7:26 PM UTC  - :tv:直播](/content/gettr/p1bvpwd3840.md)
+
+2022.05.29  七哥乱聊直播
+
+<img src="https://media.gettr.com/group48/origin/2022/05/29/19/2b3dd7bf-439d-07e1-083d-f86e053d6d41/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 7:08 PM UTC  - :tv:直播](/content/gettr/p1bw0ot71d7.md)
 
 2022-5-29 「遇见」——命运因此而改變⛅️ #小小尼莫音乐会 🎼第十三期，奇妙的緣分🌟，讓我們在爆料革命裡遇見彼此🍀，一起創造音樂🎶，譜寫命運🎸
@@ -106,11 +114,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@globalalliance 5/29/2022 7:26 PM UTC  - :tv:直播](/content/gettr/p1bvpwd3840.md)
+[@miles 5/29/2022 8:21 PM UTC  - :tv:直播](/content/gettr/p1bvv8a3552.md)
 
-2022.05.29  七哥乱聊直播
+5/30/2022 Miles Guo: Due to the vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court, if the US government officially ceases the vaccine mandate, Communist China wil...
 
-<img src="https://media.gettr.com/group48/origin/2022/05/29/19/2b3dd7bf-439d-07e1-083d-f86e053d6d41/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/05/29/20/6c4c78ba-4663-a14e-2262-1e49d4582cfb/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ For English：https://gettr.com/streaming/p1bq7zx6817
  5月28号：尊敬的战友们好……在西方法治国家．任何理由下，作伪证．提供伪造的证据．和不实的虚假信息．都是严重的刑事犯罪，大家一定要有基本的常识．很多共产党控制的假投资者和假战友．在欧洲和美国陷害战友．用虚假证据．虚假理由，并和共产党司法机关串谋．编造的所有的虚假证据，都是我们打击敌人，帮助战友及共匪的最有力武器……
 
 <img src="https://media.gettr.com/group18/getter/2022/05/28/14/c9b5e56f-dc7c-3e14-6e91-494e827afc38/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 1:01 PM UTC ](/content/gettr/p1bqjecbbce.md)
-
-5月28号，尊敬的战友们好……新中国联邦的疫苗灭共成就全球唯一一个。我们将彻底的改变世界媒体和信息的存在方式，这就叫爆料革命。
-
-
-
-【最后，根据目前的任何科学标准，甚至不再有合格的 "大流行病 "或 "紧急情况 "来证明被告的任何行为，包括，但不限于，FDA继续为未经许可的、实际上是基因疗法的mRNA "疫苗 "重新签发紧急授权，然后在违反10 U.S.C. § 1107a的明确法定禁止的情况下强制执行。------ 疫苗彻底结束！】
 
 ---
 
