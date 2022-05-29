@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/28/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1brr3d244d.md)
+
+2022.05.28 摇滚巨星现场排练
+
+<img src="https://media.gettr.com/group38/origin/2022/05/28/20/74e3df12-408e-067e-e246-ab177305968f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/28/2022 8:27 PM UTC  - :tv:直播](/content/gettr/p1brkp2aab6.md)
 
 2022.05.28 爆二代GFASHION解药系列新款分享
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/28/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1brr3d244d.md)
+[@miles 5/28/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1bs2sxf5f6.md)
 
-2022.05.28 摇滚巨星现场排练
+Young volunteers from the United States and Nigeria, part of the organization “Making Difference in Uganda”, came to serve at the Ukrainian Refugee Center in Medyka, Poland. They spoke about their duties, their beliefs about the tr...
 
-<img src="https://media.gettr.com/group38/origin/2022/05/28/20/74e3df12-408e-067e-e246-ab177305968f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/05/28/23/dda97529-c627-d6a5-07e4-7208fb58f3fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 2022.05.27 首届《联邦杯》诗歌朗诵大赛 原创组半决赛 澳喜农场主办
 
 <img src="https://media.gettr.com/group13/origin/2022/05/27/12/b7f3a0d3-cad6-58ec-ff6c-ddb1a621309d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1blbmu2dba.md)
-
-2022.05.27  新中国联邦 | 军情室 从俄乌战争看未来装甲作战的演变-坦克篇
-
-<img src="https://media.gettr.com/group14/origin/2022/05/27/10/5ec5e25c-c0c2-3c95-2cd2-96c9ff10536b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
