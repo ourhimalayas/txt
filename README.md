@@ -11,6 +11,12 @@
 
 ---
 
+#### [北京因新疆人权拒绝更新双边自贸协议谈判](/content/gnews/2626907.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [有声&#124;新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月28日晚](/content/gnews/2626894.md)
+ `MOSREC`
+
 #### [2022年5月29日文贵大直播摘要及音频—银河系农场](/content/gnews/2626879.md)
  `喜马拉雅日本银河系农场`
 
@@ -97,12 +103,6 @@
 
 #### [20220529郭文贵大直播：与打过疫苗的人接触时的注意事项](/content/gnews/2626284.md)
  `Tokyo Sakura Video Group`
-
-#### [20220529郭文贵大直播 ：现在很多医生在良知和生存之间取舍中，失去了良知](/content/gnews/2626249.md)
- `Tokyo Sakura Video Group`
-
-#### [2022/05/29 英喜时事速递](/content/gnews/2626143.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [重磅炸弹：CNN最终承认mRNA“疫苗”会破坏免疫力](/content/gnews/2625336.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
