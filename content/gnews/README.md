@@ -2,6 +2,9 @@
 ---
 
 
+#### [乌克兰东部城市的苦战中已有1500人死亡](/content/gnews/2622188.md)
+ `topnews`
+
 #### [币圈新闻动态：喜币（HCN）价格目前在40.785 HDO](/content/gnews/2622182.md)
  `喜马拉雅-华盛顿DC农场`
 
@@ -10,9 +13,6 @@
 
 #### [中共宣传在谷歌和搜索中排名靠前](/content/gnews/2622149.md)
  `topnews`
-
-#### [玛丽安娜·维舍米尔斯基： “我的照片被用来散布关于战争的谎言”](/content/gnews/2622096.md)
- `日本东京方舟农场`
 
 #### [历史的先声系列——从历史上英日同盟看美日韩结盟](/content/gnews/2622092.md)
  `Himalaya San Francisco Quantum Farm`
