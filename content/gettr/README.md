@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bwksx0770.md)
+
+5/29/2022 Miles Guo: The "zero-COVID policy" is actually the CCP's trick to win others' trust by deliberately hurting itself, and to prevent the world from investigating the origins of the CCP virus. The "zero-COVID policy" is nece...
+
+<img src="https://media.gettr.com/group22/getter/2022/05/29/21/929920cd-dbc0-4827-902b-9cad4222c236/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1bvnx4b10b.md)
 
 2022.05.29  新中国联邦 | 喜健康   文贵先生说的区块链技术在医学领域怎样应用？
@@ -130,11 +138,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bwksx0770.md)
+[@miles 5/29/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1bwgl4a92a.md)
 
-5/29/2022 Miles Guo: The "zero-COVID policy" is actually the CCP's trick to win others' trust by deliberately hurting itself, and to prevent the world from investigating the origins of the CCP virus. The "zero-COVID policy" is nece...
+At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy handing over the humanitarian aids, e.g., children’s nappies, milk powder, bath towels etc., to the Ukraine volunteers. Ukrainian people appreciated the...
 
-<img src="https://media.gettr.com/group22/getter/2022/05/29/21/929920cd-dbc0-4827-902b-9cad4222c236/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/05/29/23/80d0f68a-8f6b-162a-8cd2-a2b9911ca065/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,20 +159,6 @@ Young volunteers from the United States and Nigeria, part of the organization �
 2022年5月28日 俄乌战争战况播报 
 
 <img src="https://media.gettr.com/group17/origin/2022/05/28/17/faf2ed6b-450b-ca3e-78ed-a26c9f35c27f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@himalayauk_hk 5/27/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1bnpm8fc5c.md)
-
-班農採訪
-
-
-
-好像Steve Wynn這樣嚴重的中共滲透事件必須要停止
-
-我們要感激郭文貴對美國的貢獻
-
-<img src="https://media.gettr.com/group7/origin/2022/05/27/21/35a6973f-bce2-8ddb-c193-7d2bb47eee2a/out.jpg" width="506" height="284">
 
 ---
 
