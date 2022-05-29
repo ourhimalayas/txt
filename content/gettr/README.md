@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p1bv1cr266e.md)
+
+2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
+
+<img src="https://media.gettr.com/group26/origin/2022/05/29/12/4b83ac19-1601-7883-eab6-86afa6f8fe76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p1bu10h9767.md)
 
 5/28/2022 Miles Guo’s GETTR: As I have said a long time ago, the COVID vaccine disaster has started this May, and various countries are ending the COVID vaccine mandates. When it comes to the issue of the COVID vaccination, only if...
@@ -58,7 +66,7 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p1bv1cr266e.md)
+[@miles 5/29/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1buaisb859.md)
 
 2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
 
@@ -167,14 +175,6 @@ Gnews Reprinted, on May 25 U.S. Secretary of State Antony Blinken announced, U.S
 Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping Ukrainians go back to Ukraine on the border of Medyka, Poland. Alek thanks the New Federal State of China and Rule of Law Foundation's large tent for ...
 
 <img src="https://media.gettr.com/group27/getter/2022/05/28/00/103be1f0-35ea-b690-257a-5dbf5dffbdf7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/27/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1bnczs7c07.md)
-
-5/27/2022 Miles Guo’s GETTR: We must collect all the information and materials that are helpful and valuable for us to take down the CCP at all cost. We must do everything we can to protect the fellow fighters who provided the valu...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/27/23/339120ba-a656-74ed-5c01-e6aa2ac71aa5/out.jpg" width="506" height="284">
 
 ---
 
