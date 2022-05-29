@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 5:42 PM UTC  - :tv:直播](/content/gettr/p1bvrkm6071.md)
+
+2022年5月29日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group40/origin/2022/05/29/17/e2de2e52-715d-be9b-97a4-7618bb98fe2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1buaisb859.md)
 
 2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
@@ -74,11 +82,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 5:42 PM UTC  - :tv:直播](/content/gettr/p1bvrkm6071.md)
+[@miles 5/29/2022 6:00 PM UTC  - :tv:直播](/content/gettr/p1bvrym8f01.md)
 
-2022年5月29日 俄乌战争战况播报
+2022年5月29日 GFASHION纽约现场分享
 
-<img src="https://media.gettr.com/group40/origin/2022/05/29/17/e2de2e52-715d-be9b-97a4-7618bb98fe2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/05/29/17/a089d1c2-6936-318a-6662-c8211b6a1b36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Gnews Reprinted, on May 25 U.S. Secretary of State Antony Blinken announced, U.S
 2022/05/28  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
 
 <img src="https://media.gettr.com/group5/origin/2022/05/28/04/d5922a5d-b972-3a80-5ea4-aa6cfc0341f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1bnudc5688.md)
-
-2022-5-27《鸡血王喜币大作战》 第二百零八集 嘉宾：青藤、文空、风雨之中
-
-<img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
