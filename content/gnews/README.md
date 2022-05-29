@@ -2,8 +2,29 @@
 ---
 
 
+#### [【全字幕+视频】郭文贵2022年03月03日盖特](/content/gnews/2626184.md)
+ `郭文贵全文字幕&#38;视频`
+
+#### [今日盖特大V推荐 — 罗纳·麦克丹尼尔（Ronna McDaniel）](/content/gnews/2626179.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [【全字幕+视频】郭文贵2022年03月04日盖特](/content/gnews/2626178.md)
+ `郭文贵全文字幕&#38;视频`
+
+#### [20220529郭文贵大直播 ：不被隔离清零唯一的办法消灭共产党](/content/gnews/2626171.md)
+ `Tokyo Sakura Video Group`
+
+#### [05/29/22 香港快讯 陈家强称若本港经济要复苏 通关必不可少](/content/gnews/2626150.md)
+ `英喜-粵語組`
+
 #### [2022/05/29 英喜时事速递](/content/gnews/2626143.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [20220529郭文贵大直播：人类在密接和非密接中逐渐适应冠状病毒、冠状病毒系列到此基本结束](/content/gnews/2626141.md)
+ `Tokyo Sakura Video Group`
+
+#### [医生处方权与冠状病毒大流行的关系初探](/content/gnews/2626110.md)
+ `波士顿五月花农场`
 
 #### [20220529郭文贵大直播：青蒿素是防止猴豆病毒最好的解药](/content/gnews/2626103.md)
  `Tokyo Sakura Video Group`
@@ -11,8 +32,17 @@
 #### [20220529郭文贵大直播 ：动态清零是中共内部政治需要，也是避免美国病毒溯源的苦肉计](/content/gnews/2625976.md)
  `Tokyo Sakura Video Group`
 
-#### [2022年5月29日文贵大直播速记](/content/gnews/2625975.md)
- `Mr. Miles Guo's News Briefing`
+#### [文贵大直播要点&#8211;避风港专题（2022年5月29日）](/content/gnews/2625974.md)
+ `波士顿五月花农场`
+
+#### [20220529郭文贵大直播 ：人类已进入对疫苗的大恐慌时代](/content/gnews/2625972.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220529郭文贵大直播 ：中共的无症状传染、PCR检测确定感染都是为了掩盖疫苗副作用](/content/gnews/2625971.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220529郭文贵大直播 ：避风港节目真实观看数据达几亿次，中共害怕并篡改数据](/content/gnews/2625970.md)
+ `Tokyo Sakura Video Group`
 
 #### [20220529郭文贵大直播 ：保护人类的神医，现在变成了神棍（医棍），灾难刚刚开始](/content/gnews/2625968.md)
  `Tokyo Sakura Video Group`
@@ -20,20 +50,8 @@
 #### [20220529郭文贵大直播 ：美国害怕疫苗引起的巨量诉讼，中共未来面临几十万亿的赔偿](/content/gnews/2625961.md)
  `Tokyo Sakura Video Group`
 
-#### [【樱话】美国准备为乌提供更先进武器 俄警告勿越 “红线”（1/2）](/content/gnews/2625947.md)
- `TokyoSakuraDesignGroup`
-
 #### [Leslyn Lewis呼吁特鲁多取消加拿大的疫苗旅行护照](/content/gnews/2625916.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [中共严厉的抗疫政策成越南经济的福音](/content/gnews/2625896.md)
- `【🌹玫瑰新闻】`
-
-#### [中共新冠清零政策损害美国企业](/content/gnews/2625895.md)
- `【🌹玫瑰新闻】`
-
-#### [中共军事节目爆美国星链威胁大](/content/gnews/2625894.md)
- `【🌹玫瑰新闻】`
 
 #### [中概股审计 美国宽容变强硬 中共傲慢变软](/content/gnews/2625893.md)
  `【🌹玫瑰新闻】`
@@ -41,17 +59,8 @@
 #### [冠状病毒：一项新的研究表明，老年人的长期新冠症状可能“只是衰老的一部分”](/content/gnews/2625853.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [有声&#124;中共国威胁要炸毁埃隆马斯克的Starlink卫星](/content/gnews/2625790.md)
- `MOSREC`
-
-#### [有声&#124;新中国联邦致力打造重要情报价值平台](/content/gnews/2625750.md)
- `MOSREC`
-
 #### [英国加密货币投资者面临持续升高的税务压力](/content/gnews/2625727.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [樱花数据分析┃英国死亡数据统计（1）：全原因死亡风险，接种者达到未接种者的两倍！](/content/gnews/2625725.md)
- `东京樱花团`
 
 #### [澳大利亚新冠疫苗普及后发生了什么](/content/gnews/2625699.md)
  `秘密翻譯組G-Translators`
@@ -61,9 +70,6 @@
 
 #### [拜登亚洲之行后，北朝鲜发射导弹](/content/gnews/2625643.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [文贵大直播 5/29 人类大恐慌时代已来临](/content/gnews/2625406.md)
- `秘密翻译组-原创组`
 
 #### [重磅炸弹：CNN最终承认mRNA“疫苗”会破坏免疫力](/content/gnews/2625336.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -76,9 +82,6 @@
 
 #### [中日财经爆┃经济倒塌前，中共国所有陆运物流大幅度下降](/content/gnews/2625227.md)
  `东京樱花团`
-
-#### [【全文字幕】2021年11月01日喜币上市大直播：第二部分](/content/gnews/2625182.md)
- `文贵视频字幕全集`
 
 #### [乌克兰守军在顿巴斯城市的猛烈炮火中坚守阵地](/content/gnews/2625177.md)
  `波士顿五月花农场金融部`
@@ -124,9 +127,6 @@
 
 #### [2022.5.28大直播 全世界已经认清疫苗危害 中共面临海量赔偿](/content/gnews/2624555.md)
  `秘密翻译组-原创组`
-
-#### [乌克兰前总统波罗申科离境受阻](/content/gnews/2624543.md)
- `波士顿五月花农场金融部`
 
 #### [5/29/2022国内经济财经周报：绿地暴雷；河南多家银行存款失踪，储户维权被黄码](/content/gnews/2624448.md)
  `秘密翻译组金融团队`
