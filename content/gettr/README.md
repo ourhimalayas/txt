@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 7:42 AM UTC ](/content/gettr/p1bu25v1068.md)
+
+The CCP can only be taken down when it collapses financially, launches war against Taiwan, attempts to conquer the US and Europe, thus causing the US and Japan to deploy the 2nd and 3rd island chains of the CCP with barbs and chang...
+
+<img src="https://media.gettr.com/group17/origin/2022/05/29/07/876dcc5e-9a34-efab-d1d1-ba78ef1fab00/a4109e2393ba868c9f4a3385b9dc8c0a.png" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p1bsmsa7557.md)
 
 2022-5-28《鸡血王喜币大作战》 第二百零九集 嘉宾：卡丽熙、Eric
@@ -42,11 +50,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 7:42 AM UTC ](/content/gettr/p1bu25v1068.md)
+[@miles 5/29/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p1bu10h9767.md)
 
-The CCP can only be taken down when it collapses financially, launches war against Taiwan, attempts to conquer the US and Europe, thus causing the US and Japan to deploy the 2nd and 3rd island chains of the CCP with barbs and chang...
+5/28/2022 Miles Guo’s GETTR: As I have said a long time ago, the COVID vaccine disaster has started this May, and various countries are ending the COVID vaccine mandates. When it comes to the issue of the COVID vaccination, only if...
 
-<img src="https://media.gettr.com/group17/origin/2022/05/29/07/876dcc5e-9a34-efab-d1d1-ba78ef1fab00/a4109e2393ba868c9f4a3385b9dc8c0a.png" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/05/29/08/37e97d24-7bfe-36b6-1747-a5f8bbe4f0e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Ting Guo Da Ciwei interviewed with Alek, a volunteer from Ukraine who is helping
 2022.05.27 纽约现场战友互动连线
 
 <img src="https://media.gettr.com/group18/origin/2022/05/27/20/c4a5f3d9-ab12-f1b6-353d-44f5e9d37728/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/27/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1bmq1ebb74.md)
-
-2022.05.27 纽约现场分享
-
-<img src="https://media.gettr.com/group44/origin/2022/05/27/16/e3f0285d-5e55-0bde-92d2-93c816ce8c42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
