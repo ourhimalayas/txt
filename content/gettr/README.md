@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 8:21 PM UTC  - :tv:直播](/content/gettr/p1bvv8a3552.md)
+
+5/30/2022 Miles Guo: Due to the vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court, if the US government officially ceases the vaccine mandate, Communist China wil...
+
+<img src="https://media.gettr.com/group41/getter/2022/05/29/20/6c4c78ba-4663-a14e-2262-1e49d4582cfb/out.jpg" width="506" height="284">
+
+---
+
 [@globalalliance 5/29/2022 7:26 PM UTC  - :tv:直播](/content/gettr/p1bvpwd3840.md)
 
 2022.05.29  七哥乱聊直播
@@ -114,11 +122,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 8:21 PM UTC  - :tv:直播](/content/gettr/p1bvv8a3552.md)
+[@miles 5/29/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1bvnx4b10b.md)
 
-5/30/2022 Miles Guo: Due to the vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court, if the US government officially ceases the vaccine mandate, Communist China wil...
+2022.05.29  新中国联邦 | 喜健康   文贵先生说的区块链技术在医学领域怎样应用？
 
-<img src="https://media.gettr.com/group41/getter/2022/05/29/20/6c4c78ba-4663-a14e-2262-1e49d4582cfb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/05/29/20/d08eeb1e-63cd-b50c-c998-58b097457486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Young volunteers from the United States and Nigeria, part of the organization �
 For English：https://gettr.com/streaming/p1bq7zx6817
 
 <img src="https://media.gettr.com/group20/origin/2022/05/28/14/8cc467a7-86c3-2a62-6f04-5b0f16d7571d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 2:40 PM UTC  - :tv:直播](/content/gettr/p1bqqe3baf8.md)
-
- 5月28号：尊敬的战友们好……在西方法治国家．任何理由下，作伪证．提供伪造的证据．和不实的虚假信息．都是严重的刑事犯罪，大家一定要有基本的常识．很多共产党控制的假投资者和假战友．在欧洲和美国陷害战友．用虚假证据．虚假理由，并和共产党司法机关串谋．编造的所有的虚假证据，都是我们打击敌人，帮助战友及共匪的最有力武器……
-
-<img src="https://media.gettr.com/group18/getter/2022/05/28/14/c9b5e56f-dc7c-3e14-6e91-494e827afc38/out.jpg" width="506" height="284">
 
 ---
 
