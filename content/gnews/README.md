@@ -2,6 +2,12 @@
 ---
 
 
+#### [纳粹普京已对西方文明国家全面宣战](/content/gnews/2622608.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [中共建一带一路推行霸权，却批美国孤立中共](/content/gnews/2622568.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [拜登对海军毕业生说：保持南中国海的自由](/content/gnews/2622560.md)
  `澳喜农场`
 
@@ -25,12 +31,6 @@
 
 #### [史无前例！国务院超10万人大会明示中共国经济即将雪崩](/content/gnews/2622483.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [中共利用搜索引 擎影响外国舆论](/content/gnews/2622477.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [萨摩亚与中共国签署协议，双方讨论建立一个警察培训中心](/content/gnews/2622476.md)
- `澳喜农场`
 
 #### [欧洲失去了乌克兰粮仓，俄罗斯引发全球粮食危机](/content/gnews/2622475.md)
  `墨尔本雅典娜农场`
