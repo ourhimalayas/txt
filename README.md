@@ -11,26 +11,35 @@
 
 ---
 
+#### [美法案拟禁止苹果、谷歌应用程序商店接受数字人民币](/content/gnews/2625100.md)
+ `NFSC News`
+
+#### [大直播后记：七哥希望战友们好好活着，盖特大升级后即将腾飞](/content/gnews/2625099.md)
+ `雅典娜GNotes`
+
+#### [布林肯演讲预示着美国达成灭共共识](/content/gnews/2625094.md)
+ `波士顿五月花农场`
+
 #### [聚焦新中国联邦丨新中国联邦的三座山计划](/content/gnews/2625080.md)
  `NFSCFocus`
 
 #### [美国务院将对迫害新疆人的中共官员进行追责](/content/gnews/2625070.md)
  `NFSC News`
 
-#### [聚焦新中国联邦丨来自世界各国的认可](/content/gnews/2625007.md)
- `NFSCFocus`
+#### [有声&#124;喜交所CEO谈数字货币税收](/content/gnews/2625065.md)
+ `MOSREC`
 
-#### [立陶宛众筹540万美元为乌克兰购买一架Bayraktar战斗无人机](/content/gnews/2625000.md)
- `温哥华扬帆农场`
+#### [【G时新闻】天津多所高校爆发抗议活动](/content/gnews/2624992.md)
+ `G-时新闻`
+
+#### [【说事儿】降雨防汛灾难不断，注定2022年不平凡](/content/gnews/2624970.md)
+ `TokyoSakuraDesignGroup`
 
 #### [郭先生解析：妥协是双方自愿形成的平衡的结果](/content/gnews/2624968.md)
  `NFSC News`
 
 #### [有声&#124;北京以疫情为名关闭多国签证中心](/content/gnews/2624959.md)
  `MOSREC`
-
-#### [【说事儿】美拟立法禁止谷歌苹果应用商店接受数字人民币](/content/gnews/2624955.md)
- `TokyoSakuraDesignGroup`
 
 #### [惜别梅迪卡 整装准备下一次出发](/content/gnews/2624931.md)
  `NFSC News`
@@ -56,9 +65,6 @@
 #### [视频&#124;美法案拟禁止苹果、谷歌应用程序商店接受数字人民币](/content/gnews/2624784.md)
  `MOSVIDEO`
 
-#### [视频&#124;美国务院将对迫害新疆人的中共官员进行追责](/content/gnews/2624783.md)
- `MOSVIDEO`
-
 #### [大直播后记：七哥解读老照片，中银大厦和裕达工地](/content/gnews/2624610.md)
  `雅典娜GNotes`
 
@@ -67,9 +73,6 @@
 
 #### [2022.5.28大直播 全世界已经认清疫苗危害 中共面临海量赔偿](/content/gnews/2624555.md)
  `秘密翻译组-原创组`
-
-#### [G保险作为战友平台将可能是世界上最少有的直接贴现保险](/content/gnews/2624553.md)
- `喜马拉雅日本银河系农场`
 
 #### [乌克兰前总统波罗申科离境受阻](/content/gnews/2624543.md)
  `波士顿五月花农场金融部`
@@ -109,9 +112,6 @@
 
 #### [中国共产党关闭了中共国对世界的窗口](/content/gnews/2624084.md)
  `topnews`
-
-#### [七哥⸺特别的正常人](/content/gnews/2624074.md)
- `韩国正道农场`
 
 #### [日本拟增编防卫预算 朝野人士大多表态赞同理解](/content/gnews/2624073.md)
  `TokyoSakura Politics/樱花时政`
