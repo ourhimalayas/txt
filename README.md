@@ -11,6 +11,12 @@
 
 ---
 
+#### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（四十二）](/content/gnews/2622232.md)
+ `墨尔本雅典娜农场`
+
+#### [Coinbase公司股价下跌的期间，四名高管通过出售股票收益12亿美元](/content/gnews/2622222.md)
+ `日本东京方舟农场`
+
 #### [乌克兰东部城市的苦战中已有1500人死亡](/content/gnews/2622188.md)
  `topnews`
 
@@ -20,8 +26,8 @@
 #### [美国针对朝鲜导弹对俄罗斯银行实施制裁](/content/gnews/2622163.md)
  `topnews`
 
-#### [中共宣传在谷歌和搜索中排名靠前](/content/gnews/2622149.md)
- `topnews`
+#### [德国政府拒绝为大众汽车在华投资做担保 哈贝克威胁向制裁俄罗斯寡头一样制裁中国官员](/content/gnews/2622154.md)
+ `喜马拉雅德国纽伦堡正义农场`
 
 #### [历史的先声系列——从历史上英日同盟看美日韩结盟](/content/gnews/2622092.md)
  `Himalaya San Francisco Quantum Farm`
@@ -119,9 +125,6 @@
 #### [泽连斯基对德拉吉说：“我们期待更多帮助”](/content/gnews/2621279.md)
  `xiaobaige`
 
-#### [丹泽尔·华盛顿评论假新闻](/content/gnews/2621207.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [参议员哈格蒂：取消中国关税无助于解决通胀,却会放弃与中共的谈判姿态](/content/gnews/2621206.md)
  `美国政要直译推`
 
@@ -159,9 +162,6 @@
  `NFSC News`
 
 #### [喜交所CEO谈数字货币税收](/content/gnews/2617314.md)
- `NFSC News`
-
-#### [新中国联邦致力打造重要情报价值平台](/content/gnews/2617313.md)
  `NFSC News`
 
 #### [大直播后记：七哥谈1982-1983年的经历](/content/gnews/2608373.md)
