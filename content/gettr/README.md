@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 6:47 PM UTC  - :tv:直播](/content/gettr/p1bvpl0d4b9.md)
+
+2022年5月29日 GFASHION纽约现场分享 2
+
+<img src="https://media.gettr.com/group33/origin/2022/05/29/17/a089d1c2-6936-318a-6662-c8211b6a1b36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 6:00 PM UTC  - :tv:直播](/content/gettr/p1bvrym8f01.md)
 
 2022年5月29日 GFASHION纽约现场分享
@@ -90,11 +98,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 6:47 PM UTC  - :tv:直播](/content/gettr/p1bvpl0d4b9.md)
+[@miles 5/29/2022 7:08 PM UTC  - :tv:直播](/content/gettr/p1bw0ot71d7.md)
 
-2022年5月29日 GFASHION纽约现场分享 2
+2022-5-29 「遇见」——命运因此而改變⛅️ #小小尼莫音乐会 🎼第十三期，奇妙的緣分🌟，讓我們在爆料革命裡遇見彼此🍀，一起創造音樂🎶，譜寫命運🎸
 
-<img src="https://media.gettr.com/group33/origin/2022/05/29/17/a089d1c2-6936-318a-6662-c8211b6a1b36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/05/29/19/b3e5c15a-ddb6-d074-1214-870e738acad3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,18 +171,6 @@ U.S. announces cooperation with U.K. and EU to pursue Russian war crimes
 Gnews Reprinted, on May 25 U.S. Secretary of State Antony Blinken announced, U.S. will establish Atrocity Crimes Advisory Group with UK and EU (ACA). Helping...
 
 <img src="https://media.gettr.com/group47/origin/2022/05/28/07/d80f177e-b12b-e931-4b2f-50ac306be7e4/9587dee28017784f266955110b10be3d.jpg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p1bph90981f.md)
-
-如何正确的联系上G｜Fashion 客服？请看以下视频 👇
-
-
-
-@gfashion @Cornfieldsis 
-
-<img src="https://media.gettr.com/group8/getter/2022/05/28/05/4dbc4c90-1af7-1d42-113e-bc2b1a122517/out.jpg" width="506" height="284">
 
 ---
 
