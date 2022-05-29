@@ -2,59 +2,59 @@
 ---
 
 
-#### [【全字幕+视频】郭文贵2022年03月03日盖特](/content/gnews/2626184.md)
+#### [【全字幕+视频】郭文贵2022年02月24日盖特](/content/gnews/2626263.md)
  `郭文贵全文字幕&#38;视频`
 
-#### [今日盖特大V推荐 — 罗纳·麦克丹尼尔（Ronna McDaniel）](/content/gnews/2626179.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【全字幕+视频】郭文贵2022年03月04日盖特](/content/gnews/2626178.md)
- `郭文贵全文字幕&#38;视频`
-
-#### [20220529郭文贵大直播 ：不被隔离清零唯一的办法消灭共产党](/content/gnews/2626171.md)
+#### [辽宁 丹东市老百姓越发发觉，核酸检测就是随机抽一个倒霉的去隔离，仔细听电话录音](/content/gnews/2626261.md)
  `Tokyo Sakura Video Group`
 
-#### [05/29/22 香港快讯 陈家强称若本港经济要复苏 通关必不可少](/content/gnews/2626150.md)
- `英喜-粵語組`
+#### [20220529郭文贵大直播：人体体液中能检测到刺突蛋白，辉瑞的文档记录了不能让孕妇和打过COVID-9疫苗的人接触或同处](/content/gnews/2626260.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220529郭文贵大直播 ：现在很多医生在良知和生存之间取舍中，失去了良知](/content/gnews/2626249.md)
+ `Tokyo Sakura Video Group`
+
+#### [【全字幕+视频】郭文贵2022年02月28日盖特](/content/gnews/2626233.md)
+ `郭文贵全文字幕&#38;视频`
+
+#### [中共国良知义士，被共匪逼的生存都成问题,小崔托朋友卖画](/content/gnews/2626210.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国核酸检测产业化运作，中共新型割韭菜神器常态化投入使用](/content/gnews/2626209.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国 上海74岁老翁，家族第四代住在上海，没想到有生之年遭遇上海封城，受尽精神与肉体折磨。他呼吁为了下一代，把这一切都记录下来](/content/gnews/2626208.md)
+ `Tokyo Sakura Video Group`
+
+#### [有中国平安银行在，中国实体永不平安](/content/gnews/2626207.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国上海 这两天的洋大人集合](/content/gnews/2626202.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220529郭文贵大直播 ：猴痘病毒是冠状病毒和疫苗灾难轮回的结果](/content/gnews/2626195.md)
+ `Tokyo Sakura Video Group`
+
+#### [【全字幕+视频】郭文贵2022年03月01日盖特](/content/gnews/2626194.md)
+ `郭文贵全文字幕&#38;视频`
+
+#### [Nature杂志说流感疫苗能预防90%的新冠重症](/content/gnews/2626183.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220529郭文贵大直播 ：医生在治病时是最神圣的，医生在法庭的证言是最重要的](/content/gnews/2626180.md)
+ `Tokyo Sakura Video Group`
 
 #### [2022/05/29 英喜时事速递](/content/gnews/2626143.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [20220529郭文贵大直播：人类在密接和非密接中逐渐适应冠状病毒、冠状病毒系列到此基本结束](/content/gnews/2626141.md)
- `Tokyo Sakura Video Group`
-
 #### [医生处方权与冠状病毒大流行的关系初探](/content/gnews/2626110.md)
- `波士顿五月花农场`
-
-#### [20220529郭文贵大直播：青蒿素是防止猴豆病毒最好的解药](/content/gnews/2626103.md)
- `Tokyo Sakura Video Group`
-
-#### [20220529郭文贵大直播 ：动态清零是中共内部政治需要，也是避免美国病毒溯源的苦肉计](/content/gnews/2625976.md)
- `Tokyo Sakura Video Group`
-
-#### [文贵大直播要点&#8211;避风港专题（2022年5月29日）](/content/gnews/2625974.md)
  `波士顿五月花农场`
 
 #### [20220529郭文贵大直播 ：人类已进入对疫苗的大恐慌时代](/content/gnews/2625972.md)
  `Tokyo Sakura Video Group`
 
-#### [20220529郭文贵大直播 ：中共的无症状传染、PCR检测确定感染都是为了掩盖疫苗副作用](/content/gnews/2625971.md)
- `Tokyo Sakura Video Group`
-
-#### [20220529郭文贵大直播 ：避风港节目真实观看数据达几亿次，中共害怕并篡改数据](/content/gnews/2625970.md)
- `Tokyo Sakura Video Group`
-
-#### [20220529郭文贵大直播 ：保护人类的神医，现在变成了神棍（医棍），灾难刚刚开始](/content/gnews/2625968.md)
- `Tokyo Sakura Video Group`
-
-#### [20220529郭文贵大直播 ：美国害怕疫苗引起的巨量诉讼，中共未来面临几十万亿的赔偿](/content/gnews/2625961.md)
- `Tokyo Sakura Video Group`
-
 #### [Leslyn Lewis呼吁特鲁多取消加拿大的疫苗旅行护照](/content/gnews/2625916.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [中概股审计 美国宽容变强硬 中共傲慢变软](/content/gnews/2625893.md)
- `【🌹玫瑰新闻】`
 
 #### [冠状病毒：一项新的研究表明，老年人的长期新冠症状可能“只是衰老的一部分”](/content/gnews/2625853.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -71,14 +71,14 @@
 #### [拜登亚洲之行后，北朝鲜发射导弹](/content/gnews/2625643.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
+#### [中共新冠疫苗灾难是旷世之灾](/content/gnews/2625523.md)
+ `KarmaLabs`
+
 #### [重磅炸弹：CNN最终承认mRNA“疫苗”会破坏免疫力](/content/gnews/2625336.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [“上流社会”购买假疫苗接种证书—赎买自由](/content/gnews/2625303.md)
  `mayflowertranslate`
-
-#### [耶路撒冷在以色列国旗游行之前处于高度戒备状态](/content/gnews/2625302.md)
- `波士顿五月花农场金融部`
 
 #### [中日财经爆┃经济倒塌前，中共国所有陆运物流大幅度下降](/content/gnews/2625227.md)
  `东京樱花团`
