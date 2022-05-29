@@ -2,6 +2,18 @@
 ---
 
 
+#### [【说事儿】推特将因不当出售用户数据被罚1.5亿美元](/content/gnews/2623398.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】习近平正在建设集中营网格化畜奴社会 中国年轻人没有未来](/content/gnews/2623385.md)
+ `TokyoSakuraDesignGroup`
+
+#### [拜登在海军学院讲话：确保南海航行自由](/content/gnews/2623384.md)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [视频&#124;从镇反运动、三反五反运动看中共搞阶级斗争的本质](/content/gnews/2623363.md)
+ `MOSVIDEO`
+
 #### [视频&#124;中共国企背景绿地集团寻求债务展期](/content/gnews/2623358.md)
  `MOSVIDEO`
 
@@ -11,32 +23,23 @@
 #### [视频&#124;中共封杀布林肯对华政策讲话](/content/gnews/2623348.md)
  `MOSVIDEO`
 
-#### [【樱话】美拟立法禁止谷歌苹果应用商店接受数字人民币](/content/gnews/2623344.md)
- `TokyoSakuraDesignGroup`
-
 #### [中共在动员国家为对台作战进行准备](/content/gnews/2623325.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【樱话】COVID-19 疫苗正在以前所未有的速度杀死健康人类](/content/gnews/2623321.md)
- `TokyoSakuraDesignGroup`
 
 #### [科里医生驳斥辉瑞疫苗对幼儿有80%的有效性](/content/gnews/2623318.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
+#### [中共强制接种疫苗致中国血癌儿童数量激增 中共急调其大外宣力量对内加强欺骗](/content/gnews/2623304.md)
+ `英国牛津梦想`
+
 #### [皮埃尔·科里医生表示科学不应该卷入政治](/content/gnews/2623300.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [视频&#124;蓬佩奥揭示当初选择华为作为制裁对象的里程碑意义](/content/gnews/2623294.md)
- `MOSVIDEO`
-
-#### [皮特·麦卡洛博士认为无需为猴痘症感到恐慌](/content/gnews/2623290.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [64在既，思念八弟](/content/gnews/2623277.md)
+ `纽约香草山MOS02`
 
 #### [秘翻在线：民主党内新联盟支持商务部针对中共国逃避关税的调查](/content/gnews/2623234.md)
  `秘密翻譯組G-Translators`
-
-#### [樱花FM┃今天又多了一个绝望的母亲和妻子](/content/gnews/2623229.md)
- `樱花FM`
 
 #### [参加爆料革命应该是战友本身想要灭共，而非其他目的性的想法](/content/gnews/2623106.md)
  `喜马拉雅-华盛顿DC农场`
@@ -61,9 +64,6 @@
 
 #### [普京警告说，西方继续向乌克兰供应武器是“危险的”](/content/gnews/2623014.md)
  `波士顿五月花农场金融部`
-
-#### [2022年5月28日 《文贵大直播》全文字版](/content/gnews/2622997.md)
- `温哥华扬帆农场《文贵大直播》全文听写组`
 
 #### [总统泽连斯基称顿巴斯和哈尔科夫局势“难以形容”](/content/gnews/2622989.md)
  `波士顿五月花农场金融部`
