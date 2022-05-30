@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 5/30/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1c185nb8a9.md)
+
+5/30/2022 Miles Guo: Due to the CCP’s vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court; Communist China will probably have to pay up to 600 trillion USD for all ...
+
+<img src="https://media.gettr.com/group14/getter/2022/05/30/23/3fdf7f41-65fd-0ac4-0dcf-11fe46793104/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 9:12 PM UTC  - :tv:直播](/content/gettr/p1c1b28ce40.md)
 
 5月30号：尊敬的战友们好．共产党在南半岛的所谓的外交十国．黑外交活动，将彻底失败，爆料革命将爆出这些国家的总统和政治家与中共的腐败……新中国联邦的全球战友们正在全力以赴准备着．全世界关注的新中国联邦6月4号两周年的国庆日活动，共产党的经济．政治．民声，正在走向崩溃，每时每刻。都有新中国联邦人……灭共的重要成收获和结果……追求喜马拉雅信仰的行动力的体现……
@@ -165,14 +173,6 @@ https://gnews.org/zh-hans/2618610/
 5/29/2022 Miles Guo: Monkeypox is not an isolated disease! It is the aftermath of a destroyed immune system caused by CCP virus infection and/or administration of COVID vaccines; Artemisinin is the most effective medicine for preve...
 
 <img src="https://media.gettr.com/group13/getter/2022/05/30/00/de744336-a3fb-9220-1478-7308cd2d881a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1bwhnwf899.md)
-
-5/29/2022 Miles Guo: It's always been the coronavirus that is wreaking havoc, while other so-called new viruses are just political manipulations to divert the people's attention and prevent them from investigating the origins of th...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/29/23/6b05dc1d-edbd-a385-00c8-1acfe7d65f3e/out.jpg" width="506" height="284">
 
 ---
 
