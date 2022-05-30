@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/30/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1bwo3587ff.md)
+
+5/29/2022 Miles Guo: In terms of ending the COVID vaccine mandate, America is the bellwether and plays a crucial role here. The reason why America is afraid of making the call now is because of the concern on a slew of non-stop law...
+
+<img src="https://media.gettr.com/group7/getter/2022/05/30/01/29148992-ba7a-5e11-2469-51a300c07a69/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 12:46 AM UTC  - :tv:直播](/content/gettr/p1bwws6bee6.md)
 
 5/29/2022 Miles Guo: In October 2021, the US government informed the CCP that they will surely investigate the origins of the CCP virus, as did Europe. Thus, the CCP started to implement the zero-COVID policy to get rid of the COVI...
@@ -146,19 +154,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/28/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1brr3d244d.md)
+[@miles 5/30/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1bxbqm3113.md)
 
-2022.05.28 摇滚巨星现场排练
+2022-5-29《鸡血王喜币大作战》 第二百一十集 嘉宾：齐天二圣、七里香
 
-<img src="https://media.gettr.com/group38/origin/2022/05/28/20/74e3df12-408e-067e-e246-ab177305968f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/30/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1bwo3587ff.md)
-
-5/29/2022 Miles Guo: In terms of ending the COVID vaccine mandate, America is the bellwether and plays a crucial role here. The reason why America is afraid of making the call now is because of the concern on a slew of non-stop law...
-
-<img src="https://media.gettr.com/group7/getter/2022/05/30/01/29148992-ba7a-5e11-2469-51a300c07a69/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
