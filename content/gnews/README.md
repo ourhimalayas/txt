@@ -107,6 +107,9 @@
 #### [疫苗灾难｜接种疫苗后爆发式患血癌 中国受害者实名举报促中共交代](/content/gnews/2628496.md)
  `關注組`
 
+#### [对抗中共在太平洋的渗透 澳洲新政府加强周边联系](/content/gnews/2628494.md)
+ `NFSC News`
+
 #### [美军成立“防区内部队”震慑中共](/content/gnews/2628489.md)
  `NFSC News`
 
@@ -150,9 +153,6 @@
  `NFSC News`
 
 #### [郭先生谈六四庆典和疫苗灾难](/content/gnews/2622729.md)
- `NFSC News`
-
-#### [西方各国严惩中共帮凶，原GTV案伪证陆续曝光](/content/gnews/2622728.md)
  `NFSC News`
 
 #### [中共国全网封杀布林肯对华政策全文及相关讨论](/content/gnews/2621598.md)
