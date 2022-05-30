@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/30/2022 4:16 PM UTC  - :tv:直播](/content/gettr/p1c0jvd3ecc.md)
+
+5/29/2022 Miles Guo: Ending the vaccine mandate in the U.S. means ending the vaccine mandates around the world.
+
+
+
+5/29/202 文贵直播：美国疫苗强制的停止等同于全世界范围内疫苗强制的停止。
+
+
+
+<img src="https://media.gettr.com/group49/getter/2022/05/30/16/5e6553cd-28f9-aa97-3757-7ca49e50cf4c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1bzsel7cce.md)
 
  5月30号：尊敬的战友们好……每次看到在乌克兰前线救援的视频！都非常非常的感动，每次看．都有不同的感受，所有参与前线过救援的战友们．给新中国联邦和未来的新中国人所带来的帮助和。和深远的意义．是无法形容的．衷心地感谢……每一位亲爱的兄弟姐妹们！
@@ -26,17 +40,11 @@
 
 ---
 
-[@miles 5/30/2022 4:16 PM UTC  - :tv:直播](/content/gettr/p1c0jvd3ecc.md)
+[@miles 5/30/2022 5:25 PM UTC  - :tv:直播](/content/gettr/p1c0or0e81c.md)
 
-5/29/2022 Miles Guo: Ending the vaccine mandate in the U.S. means ending the vaccine mandates around the world.
+2022年5月30日 俄乌战争战况播报
 
-
-
-5/29/202 文贵直播：美国疫苗强制的停止等同于全世界范围内疫苗强制的停止。
-
-
-
-<img src="https://media.gettr.com/group49/getter/2022/05/30/16/5e6553cd-28f9-aa97-3757-7ca49e50cf4c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/05/30/17/67cf64b4-d9be-7b08-51e3-244df38c0fdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy h
 5/30/2022 Miles Guo: Due to the vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court, if the US government officially ceases the vaccine mandate, Communist China wil...
 
 <img src="https://media.gettr.com/group41/getter/2022/05/29/20/6c4c78ba-4663-a14e-2262-1e49d4582cfb/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 5/29/2022 7:26 PM UTC  - :tv:直播](/content/gettr/p1bvpwd3840.md)
-
-2022.05.29  七哥乱聊直播
-
-<img src="https://media.gettr.com/group48/origin/2022/05/29/19/2b3dd7bf-439d-07e1-083d-f86e053d6d41/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
