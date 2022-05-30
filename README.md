@@ -11,6 +11,24 @@
 
 ---
 
+#### [万事达卡CEO：SWIFT五年内可能被CBDC取代](/content/gnews/2633195.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [有声&#124;美军成立“防区内部队”震慑中共](/content/gnews/2633157.md)
+ `MOSREC`
+
+#### [05/30/22 香港快讯 香港中学校长会指人才流失影响未来发展 促政府及早规划](/content/gnews/2633155.md)
+ `英喜-粵語組`
+
+#### [装置作品《1958》、《1960》](/content/gnews/2633123.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [普京高级军官阵亡又增两人 包括“最好伞兵指挥官”](/content/gnews/2633119.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [欧盟团结正在瓦解](/content/gnews/2633117.md)
+ `xiaobaige`
+
 #### [FDA调查甲型肝炎爆发可能与有机草莓有关](/content/gnews/2633103.md)
  `TokyoSakura Politics/樱花时政`
 
@@ -20,17 +38,8 @@
 #### [恐惧被捕，香港教会放弃坚持了33年的六四悼念活动](/content/gnews/2633089.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [以色列国旗游行途径穆斯林区发生冲突](/content/gnews/2633072.md)
- `TokyoSakura Politics/樱花时政`
-
 #### [欧盟、美、英关于为乌克兰成立暴行犯罪咨询小组的声明](/content/gnews/2633061.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [新时代的“唐” 彼得•蒂尔作为美国右翼势力的崛起](/content/gnews/2633057.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [唐纳德议员：拜登是在“把我们出卖给中国人”](/content/gnews/2633045.md)
- `TokyoSakura Politics/樱花时政`
 
 #### [俄罗斯间谍称普京身患癌症，可活三年](/content/gnews/2633027.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -92,16 +101,10 @@
 #### [有声新闻-新西兰财经G乐部2022年5月30日:财经新闻整理](/content/gnews/2631904.md)
  `Finance-GCLUB【新西兰财经G乐部】`
 
-#### [新西兰财经G乐部2022年5月30日:财经新闻整理](/content/gnews/2631903.md)
- `Finance-GCLUB【新西兰财经G乐部】`
-
 #### [2022/05/26 墙内世界](/content/gnews/2631869.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [樱花FM┃不终结暴力核酸检测，中国将既输掉防疫又输掉民生](/content/gnews/2631853.md)
- `樱花FM`
-
-#### [樱花FM┃替中共背书，联合国人权高专巴切莱特访疆](/content/gnews/2631824.md)
  `樱花FM`
 
 #### [有声&#124;美国务院将对迫害新疆人的中共官员进行追责](/content/gnews/2631806.md)
@@ -166,9 +169,6 @@
 
 #### [史蒂夫·班农：必须停止像Steve Wynn这样的中共严重渗透事件](/content/gnews/2628241.md)
  `墨尔本雅典娜农场`
-
-#### [秘翻在线：联合国人权事务高级官员巴切莱特受到中共限制和操纵](/content/gnews/2628061.md)
- `秘密翻譯組G-Translators`
 
 #### [灭共靠自己，与中共勾兑的一些西方团体不要再助纣为虐](/content/gnews/2574666.md)
  `日本东京方舟农场`
