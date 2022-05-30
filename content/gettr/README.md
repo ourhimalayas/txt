@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/30/2022 6:15 AM UTC  - :tv:直播](/content/gettr/p1bxz1z5df5.md)
+
+5/29/2022 Miles Guo: The executives of SIIC and Greenland Holdings were not vaccinated against the COVID-19, and it is even more unlikely that the top officials of the Shanghai government take the COVID vaccine. The absurdities hap...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/30/06/8daa61ca-526f-9fa1-77f1-b43056234fcf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/30/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1bxbqm3113.md)
+
+2022-5-29《鸡血王喜币大作战》 第二百一十集 嘉宾：齐天二圣、七里香
+
+<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1bwo3587ff.md)
 
 5/29/2022 Miles Guo: In terms of ending the COVID vaccine mandate, America is the bellwether and plays a crucial role here. The reason why America is afraid of making the call now is because of the concern on a slew of non-stop law...
@@ -138,27 +154,11 @@ The CCP can only be taken down when it collapses financially, launches war again
 
 ---
 
-[@miles 5/29/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p1bsmsa7557.md)
+[@miles 5/30/2022 6:20 AM UTC  - :tv:直播](/content/gettr/p1byisqed74.md)
 
-2022-5-28《鸡血王喜币大作战》 第二百零九集 嘉宾：卡丽熙、Eric
+5/29/2022  Miles Guo: The fellow fighters living inside China should worry about whether or not they could survive instead of the pain after being poked in the throat. They should understand who force you to get poked, who let you ...
 
-<img src="https://media.gettr.com/group26/origin/2022/05/29/02/19543873-9276-5c14-bdd2-9dcb8fd6438d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1bs2sxf5f6.md)
-
-Young volunteers from the United States and Nigeria, part of the organization “Making Difference in Uganda”, came to serve at the Ukrainian Refugee Center in Medyka, Poland. They spoke about their duties, their beliefs about the tr...
-
-<img src="https://media.gettr.com/group46/origin/2022/05/28/23/dda97529-c627-d6a5-07e4-7208fb58f3fb/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1bxbqm3113.md)
-
-2022-5-29《鸡血王喜币大作战》 第二百一十集 嘉宾：齐天二圣、七里香
-
-<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/05/30/06/2322488a-d201-00a2-b0ea-34c69780623b/out.jpg" width="506" height="284">
 
 ---
 
