@@ -2,11 +2,38 @@
 ---
 
 
+#### [文•贵天成：文贵先生谈孟建柱（九十四）](/content/gnews/2629471.md)
+ `墨尔本雅典娜农场`
+
+#### [大直播后记：知识分子骨子里的毛病——爱惜羽毛、图名害命](/content/gnews/2629462.md)
+ `雅典娜GNotes`
+
+#### [【樱话】中共强迫藏民交回草原使用证 百余名藏人遭传唤恐吓](/content/gnews/2629461.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】俄罗斯 “积极讨论 ”允许加密货币用于国际支付](/content/gnews/2629454.md)
+ `TokyoSakuraDesignGroup`
+
+#### [俄乌两军在乌东重镇北顿涅茨克展开激战](/content/gnews/2629432.md)
+ `日本东京方舟农场`
+
+#### [PCR就是一个骗局 掩盖疫苗灾害的目的 ｜粤时报](/content/gnews/2629431.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [乌南大反攻！击杀63名敌人、摧毁19台军械](/content/gnews/2629410.md)
+ `蓝莲花农场`
+
+#### [20220530郭文贵乱聊直播：养人心的蛊一定会遭到反噬](/content/gnews/2629402.md)
+ `Tokyo Sakura Video Group`
+
 #### [大直播后记：现在学生抗议对推翻中共并没影响](/content/gnews/2629401.md)
  `雅典娜GNotes`
 
 #### [20220530郭文贵乱聊直播：消灭共产党不需要20年](/content/gnews/2629396.md)
  `Tokyo Sakura Video Group`
+
+#### [【樱话】西班牙通过法令限制公共建筑的空调使用以节能](/content/gnews/2629389.md)
+ `TokyoSakuraDesignGroup`
 
 #### [20220530郭文贵乱聊直播：父母与儿女之间爱的界限和关系](/content/gnews/2629352.md)
  `Tokyo Sakura Video Group`
@@ -20,38 +47,14 @@
 #### [拜登亲访乌瓦尔德 慰问校园枪击案遇难者家属](/content/gnews/2629309.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [文•贵天成——文贵先生谈“G币、喜币、喜联储”（四十五）](/content/gnews/2629302.md)
- `墨尔本雅典娜农场`
-
 #### [民生集萃—疫情导致实体经济低迷(2022.5.30A）曾经广东省的&#8221;销冠，已面目全非](/content/gnews/2629285.md)
  `墨尔本雅典娜农场`
 
-#### [20220530郭文贵乱聊直播：我们反文化大革命 反剥夺个性 剥夺色彩是文贵先生做Gfashion的初衷](/content/gnews/2629259.md)
- `Tokyo Sakura Video Group`
-
-#### [【全字幕+视频】10月26日盖特：尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？](/content/gnews/2629246.md)
- `郭文贵全文字幕&#38;视频`
-
-#### [逾百名英国议员敦促制裁香港官员在英资产](/content/gnews/2629242.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [毒疫苗（改编自宽恕）](/content/gnews/2629236.md)
- `东京樱花团`
-
-#### [印尼大屠杀（改编南海姑娘）](/content/gnews/2629229.md)
- `东京樱花团`
-
-#### [20220530郭文贵乱聊直播：GFASHION让人有个性、有审美文化、价值观取向，共产党害怕GFASHION成功下去](/content/gnews/2629225.md)
- `Tokyo Sakura Video Group`
-
-#### [20220530郭文贵乱聊直播 ：中国没有品牌，时尚是一种生活文化财富积累的结果](/content/gnews/2629224.md)
+#### [20220530郭文贵乱聊直播：千万不要劝说别人加入爆料革命](/content/gnews/2629249.md)
  `Tokyo Sakura Video Group`
 
 #### [葡萄牙议会否决对数字货币征税的提议](/content/gnews/2629162.md)
  `墨尔本雅典娜农场`
-
-#### [中共国民众高呼：土匪土匪！强盗强盗](/content/gnews/2629150.md)
- `Tokyo Sakura Video Group`
 
 #### [国际｜传普京病重已死 俄罗斯外长罕有出面辟谣](/content/gnews/2629040.md)
  `關注組`
@@ -98,11 +101,14 @@
 #### [“从未如此糟糕过”新州数千名医护人员今天将罢工](/content/gnews/2628555.md)
  `澳喜农场`
 
-#### [有声&#124;天津多所高校爆发抗议活动](/content/gnews/2628554.md)
- `MOSREC`
-
 #### [美国医生重新考虑辉瑞特效药用于低风险的新冠患者](/content/gnews/2628542.md)
  `澳喜农场`
+
+#### [喜马拉雅币一周分析与总结（5月23日-5月29日）](/content/gnews/2628539.md)
+ `NFSC News`
+
+#### [“六四”前中共提升监控64受害者母亲的力度](/content/gnews/2628538.md)
+ `NFSC News`
 
 #### [疫苗灾难｜接种疫苗后爆发式患血癌 中国受害者实名举报促中共交代](/content/gnews/2628496.md)
  `關注組`
@@ -111,6 +117,9 @@
  `NFSC News`
 
 #### [美军成立“防区内部队”震慑中共](/content/gnews/2628489.md)
+ `NFSC News`
+
+#### [Airbnb退出中共国](/content/gnews/2628483.md)
  `NFSC News`
 
 #### [共和党研究委员会说必须向福奇之类卫生官员追究责任](/content/gnews/2628409.md)
@@ -149,17 +158,8 @@
 #### [一周疫情、疫苗信息回顾 （2022年5月18日~5月25日）](/content/gnews/2622731.md)
  `NFSC News`
 
-#### [班农表示美国应该感谢郭文贵的卓越贡献](/content/gnews/2622730.md)
- `NFSC News`
-
-#### [郭先生谈六四庆典和疫苗灾难](/content/gnews/2622729.md)
- `NFSC News`
-
 #### [中共国全网封杀布林肯对华政策全文及相关讨论](/content/gnews/2621598.md)
  `日本東京方舟農場`
-
-#### [美国宣布对朝鲜采取新制裁](/content/gnews/2621298.md)
- `TokyoSakura Politics/樱花时政`
 
 #### [灭共靠自己，与中共勾兑的一些西方团体不要再助纣为虐](/content/gnews/2574666.md)
  `日本东京方舟农场`
