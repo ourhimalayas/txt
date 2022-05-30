@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/30/2022 12:46 AM UTC  - :tv:直播](/content/gettr/p1bwws6bee6.md)
+
+5/29/2022 Miles Guo: In October 2021, the US government informed the CCP that they will surely investigate the origins of the CCP virus, as did Europe. Thus, the CCP started to implement the zero-COVID policy to get rid of the COVI...
+
+<img src="https://media.gettr.com/group32/getter/2022/05/30/00/83d909a3-f6d5-d2f0-4b1c-99c0f26fa3d7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1bwtjk4194.md)
 
 5/29/2022 Miles Guo: Monkeypox is not an isolated disease! It is the aftermath of a destroyed immune system caused by CCP virus infection and/or administration of COVID vaccines; Artemisinin is the most effective medicine for preve...
@@ -146,19 +154,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/28/2022 8:27 PM UTC  - :tv:直播](/content/gettr/p1brkp2aab6.md)
+[@miles 5/30/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1bwo3587ff.md)
 
-2022.05.28 爆二代GFASHION解药系列新款分享
+5/29/2022 Miles Guo: In terms of ending the COVID vaccine mandate, America is the bellwether and plays a crucial role here. The reason why America is afraid of making the call now is because of the concern on a slew of non-stop law...
 
-<img src="https://media.gettr.com/group23/origin/2022/05/28/20/cccaff75-8f2a-a05e-28a2-3445ca68bb48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 12:46 AM UTC  - :tv:直播](/content/gettr/p1bwws6bee6.md)
-
-5/29/2022 Miles Guo: In October 2021, the US government informed the CCP that they will surely investigate the origins of the CCP virus, as did Europe. Thus, the CCP started to implement the zero-COVID policy to get rid of the COVI...
-
-<img src="https://media.gettr.com/group32/getter/2022/05/30/00/83d909a3-f6d5-d2f0-4b1c-99c0f26fa3d7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/05/30/01/29148992-ba7a-5e11-2469-51a300c07a69/out.jpg" width="506" height="284">
 
 ---
 
