@@ -2,13 +2,11 @@
 ---
 
 
-[@miles 5/30/2022 7:31 AM UTC ](/content/gettr/p1bxp9me1b6.md)
+[@miles 5/30/2022 9:30 AM UTC  - :tv:直播](/content/gettr/p1by5uycd2f.md)
 
-The CCP created COVID-19 virus and pushed mandatory vaccine, and used the death of Chinese people as a dirty trick to shirk responsibility
+5/29/2022 Miles Guo: Whether it is a Chinese doctor or an American doctor, they will never tell the truth as long as they are involved in political and commercial interests. The CCP as well as the governments and doctors controlled...
 
-On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP) created th...
-
-<img src="https://media.gettr.com/group7/origin/2022/05/30/07/a770535c-44cf-5afa-d8fd-6c82c8c7967e/b4f19a058cee437f168ba5bb3853c195.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/05/30/09/67ff2438-9195-e0c8-1ebe-263aaa735231/out.jpg" width="506" height="284">
 
 ---
 
@@ -21,6 +19,24 @@ On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP)
 为寻慈悲法，万念一时空！】
 
 <img src="https://media.gettr.com/group33/getter/2022/05/30/07/772b7300-302d-89b9-cf19-1cc3a4e5bafe/980da890051b195d82ee53e2febfe69e.jpg" width="506" height="284">
+
+---
+
+[@miles 5/30/2022 7:31 AM UTC ](/content/gettr/p1bxp9me1b6.md)
+
+The CCP created COVID-19 virus and pushed mandatory vaccine, and used the death of Chinese people as a dirty trick to shirk responsibility
+
+On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP) created th...
+
+<img src="https://media.gettr.com/group7/origin/2022/05/30/07/a770535c-44cf-5afa-d8fd-6c82c8c7967e/b4f19a058cee437f168ba5bb3853c195.png" width="506" height="284">
+
+---
+
+[@miles 5/30/2022 9:40 AM UTC  - :tv:直播](/content/gettr/p1bygce8f6a.md)
+
+2022.05.30  文贵大直播（精华版）70个国家将在yingg2提请中共疫苗的仲裁 中共病毒疫苗是整治·商业疫苗  美国会在中期选举前后结束强制疫苗
+
+<img src="https://media.gettr.com/group30/origin/2022/05/30/09/a556033e-1aff-0150-945c-9642966a7f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,22 +165,6 @@ At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy h
 2022年5月29日 GFASHION纽约现场分享
 
 <img src="https://media.gettr.com/group33/origin/2022/05/29/17/a089d1c2-6936-318a-6662-c8211b6a1b36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 5:42 PM UTC  - :tv:直播](/content/gettr/p1bvrkm6071.md)
-
-2022年5月29日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group40/origin/2022/05/29/17/e2de2e52-715d-be9b-97a4-7618bb98fe2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1buaisb859.md)
-
-2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
-
-<img src="https://media.gettr.com/group26/origin/2022/05/29/12/4b83ac19-1601-7883-eab6-86afa6f8fe76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
