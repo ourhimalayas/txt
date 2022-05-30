@@ -2,11 +2,37 @@
 ---
 
 
+[@miles 5/30/2022 7:31 AM UTC ](/content/gettr/p1bxp9me1b6.md)
+
+The CCP created COVID-19 virus and pushed mandatory vaccine, and used the death of Chinese people as a dirty trick to shirk responsibility
+
+On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP) created th...
+
+<img src="https://media.gettr.com/group7/origin/2022/05/30/07/a770535c-44cf-5afa-d8fd-6c82c8c7967e/b4f19a058cee437f168ba5bb3853c195.png" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 6:15 AM UTC  - :tv:直播](/content/gettr/p1bxz1z5df5.md)
 
 5/29/2022 Miles Guo: The executives of SIIC and Greenland Holdings were not vaccinated against the COVID-19, and it is even more unlikely that the top officials of the Shanghai government take the COVID vaccine. The absurdities hap...
 
 <img src="https://media.gettr.com/group31/getter/2022/05/30/06/8daa61ca-526f-9fa1-77f1-b43056234fcf/out.jpg" width="506" height="284">
+
+---
+
+[@himalayaathena 5/30/2022 3:31 AM UTC ](/content/gettr/p1bxfwf68c6.md)
+
+世界上大多数保险巨头的背后老板都是 #先锋集团、 #贝莱德 和 #道富 这些资本大鳄。这些黑暗的沼泽地力量不但控制了大科技公司和媒体，也是 #疫苗 公司和 #保险 公司的最大机构投资者，它们究竟想达到什么目的？疫苗灾难给了我们最好的答案！
+
+https://gnews.org/zh-hans/2618610/
+
+---
+
+[@miles 5/30/2022 6:20 AM UTC  - :tv:直播](/content/gettr/p1byisqed74.md)
+
+5/29/2022  Miles Guo: The fellow fighters living inside China should worry about whether or not they could survive instead of the pain after being poked in the throat. They should understand who force you to get poked, who let you ...
+
+<img src="https://media.gettr.com/group8/getter/2022/05/30/06/2322488a-d201-00a2-b0ea-34c69780623b/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,30 +161,6 @@ At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy h
 2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
 
 <img src="https://media.gettr.com/group26/origin/2022/05/29/12/4b83ac19-1601-7883-eab6-86afa6f8fe76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 8:21 AM UTC  - :tv:直播](/content/gettr/p1bu10h9767.md)
-
-5/28/2022 Miles Guo’s GETTR: As I have said a long time ago, the COVID vaccine disaster has started this May, and various countries are ending the COVID vaccine mandates. When it comes to the issue of the COVID vaccination, only if...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/29/08/37e97d24-7bfe-36b6-1747-a5f8bbe4f0e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 7:42 AM UTC ](/content/gettr/p1bu25v1068.md)
-
-The CCP can only be taken down when it collapses financially, launches war against Taiwan, attempts to conquer the US and Europe, thus causing the US and Japan to deploy the 2nd and 3rd island chains of the CCP with barbs and chang...
-
-<img src="https://media.gettr.com/group17/origin/2022/05/29/07/876dcc5e-9a34-efab-d1d1-ba78ef1fab00/a4109e2393ba868c9f4a3385b9dc8c0a.png" width="506" height="284">
-
----
-
-[@miles 5/30/2022 6:20 AM UTC  - :tv:直播](/content/gettr/p1byisqed74.md)
-
-5/29/2022  Miles Guo: The fellow fighters living inside China should worry about whether or not they could survive instead of the pain after being poked in the throat. They should understand who force you to get poked, who let you ...
-
-<img src="https://media.gettr.com/group8/getter/2022/05/30/06/2322488a-d201-00a2-b0ea-34c69780623b/out.jpg" width="506" height="284">
 
 ---
 
