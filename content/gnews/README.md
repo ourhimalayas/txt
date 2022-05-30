@@ -2,6 +2,9 @@
 ---
 
 
+#### [有声&#124;Airbnb退出中共国](/content/gnews/2633430.md)
+ `MOSREC`
+
 #### [DC每日热点0530](/content/gnews/2633420.md)
  `喜马拉雅-华盛顿DC农场`
 
@@ -16,6 +19,9 @@
 
 #### [有声&#124;对抗中共在太平洋的渗透 澳洲新政府加强周边联系](/content/gnews/2633359.md)
  `MOSREC`
+
+#### [中共在国内的清零政策是战争的需要，政治稳定的需要 ｜粤时报](/content/gnews/2633337.md)
+ `秘密翻译组-即时新闻播报组`
 
 #### [第二架乌克兰难民包机飞抵蒙特利尔](/content/gnews/2633336.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -98,14 +104,8 @@
 #### [Nicole 连线班农战斗室 Part 2](/content/gnews/2631905.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [有声新闻-新西兰财经G乐部2022年5月30日:财经新闻整理](/content/gnews/2631904.md)
- `Finance-GCLUB【新西兰财经G乐部】`
-
 #### [2022/05/26 墙内世界](/content/gnews/2631869.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [有声&#124;美国务院将对迫害新疆人的中共官员进行追责](/content/gnews/2631806.md)
- `MOSREC`
 
 #### [2022/05/25 墙内世界](/content/gnews/2631745.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
