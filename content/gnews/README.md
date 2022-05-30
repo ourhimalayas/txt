@@ -2,6 +2,12 @@
 ---
 
 
+#### [澳大利亚总理回应布林肯称中共国为主要长期战略威胁的讲话时说，澳大利亚与美国盟友步调一致](/content/gnews/2627241.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [斯蒂芬·布莱因博士：美国需要与盟友及朋友协作来阻止入侵台湾](/content/gnews/2627235.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
 #### [中共与萨摩亚签署双边协议，推动扩大南太平洋的影响力](/content/gnews/2627233.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -35,17 +41,11 @@
 #### [今年12月份之前大概率美国会停止强制疫苗](/content/gnews/2627161.md)
  `雅典娜GNotes`
 
-#### [今日盖特大V推荐 — 加德·萨德（Gad Saad）](/content/gnews/2627135.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [美国担心停止强制疫苗会带来巨大的诉讼](/content/gnews/2627133.md)
  `雅典娜GNotes`
 
 #### [研究表明，无症状感染者传播中共病毒的可能性要低68%](/content/gnews/2627117.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [今日盖特大V推荐 — 马吉德·纳瓦兹（Maajid أبو عمّار）](/content/gnews/2627080.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [粮食危机报告导致鱼类恐慌性购买](/content/gnews/2627074.md)
  `波士顿五月花农场金融部`
