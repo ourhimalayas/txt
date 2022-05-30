@@ -2,6 +2,15 @@
 ---
 
 
+#### [埃德蒙顿华人集会呼吁唐人街的长治久安](/content/gnews/2633485.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [秘翻在线：基辛格在达沃斯与拜登唱反调](/content/gnews/2633471.md)
+ `秘密翻譯組G-Translators`
+
+#### [民调显示多数加拿大人认为已陷入经济衰退](/content/gnews/2633431.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [有声&#124;Airbnb退出中共国](/content/gnews/2633430.md)
  `MOSREC`
 
@@ -29,12 +38,6 @@
 #### [加拿大动用紧急医疗储备救助乌克兰](/content/gnews/2633324.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [DC大中华时事：北京今日出现突发疫情 表明动态清零任务艰巨](/content/gnews/2633310.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [新中国联邦天使医生守护人类安全和健康](/content/gnews/2633291.md)
- `纽约香草山MOS02`
-
 #### [2022/05/29 文贵先生大直播精要](/content/gnews/2633251.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -58,9 +61,6 @@
 
 #### [有声&#124;美军成立“防区内部队”震慑中共](/content/gnews/2633157.md)
  `MOSREC`
-
-#### [欧盟团结正在瓦解](/content/gnews/2633117.md)
- `xiaobaige`
 
 #### [G7停止资助海外化石燃料开发](/content/gnews/2633097.md)
  `TokyoSakura Politics/樱花时政`
