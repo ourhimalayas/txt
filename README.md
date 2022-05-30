@@ -11,6 +11,33 @@
 
 ---
 
+#### [葡萄牙议会否决对数字货币征税的提议](/content/gnews/2629162.md)
+ `墨尔本雅典娜农场`
+
+#### [上海核酸检测产业化运作，中共新型割韭菜神器常态化投入](/content/gnews/2629154.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国民众高呼：土匪土匪！强盗强盗](/content/gnews/2629150.md)
+ `Tokyo Sakura Video Group`
+
+#### [视频&#124;台海自古多壮士，无耻台奸愈猖狂](/content/gnews/2629110.md)
+ `MOSVIDEO`
+
+#### [上海 5月28日 进超市需要邀请卡](/content/gnews/2629106.md)
+ `Tokyo Sakura Video Group`
+
+#### [上海 5月28日 新闻里的步行街，和网友亲眼看到的步行街现状](/content/gnews/2629105.md)
+ `Tokyo Sakura Video Group`
+
+#### [雅典娜时报-第306期](/content/gnews/2629101.md)
+ `墨尔本雅典娜农场`
+
+#### [救援前线遇天使](/content/gnews/2629097.md)
+ `华盛顿DC-Russian`
+
+#### [视频&#124;班农表示美国应该感谢郭文贵的卓越贡献](/content/gnews/2629096.md)
+ `MOSVIDEO`
+
 #### [中共城管明抢百姓大蒜](/content/gnews/2629079.md)
  `Tokyo Sakura Video Group`
 
@@ -23,38 +50,17 @@
 #### [【全字幕+视频】郭文贵2021年10月28日盖特](/content/gnews/2629055.md)
  `郭文贵全文字幕&#38;视频`
 
-#### [对人体直接喷洒消毒液，不接受消杀不让回小区？](/content/gnews/2629045.md)
- `Tokyo Sakura Video Group`
-
-#### [中国银行大排长龙](/content/gnews/2629044.md)
- `Tokyo Sakura Video Group`
-
 #### [国际｜传普京病重已死 俄罗斯外长罕有出面辟谣](/content/gnews/2629040.md)
  `關注組`
 
-#### [视频&#124;西方各国严惩中共帮凶，原GTV案伪证陆续曝光](/content/gnews/2629001.md)
- `MOSVIDEO`
-
 #### [湖南多地发布暴雨红色预警并启动防汛Ⅳ级应急响应](/content/gnews/2628956.md)
  `波士顿五月花农场金融部`
-
-#### [被“澳喜挖掘机”曝光后Echo Hui大量资讯下架](/content/gnews/2628954.md)
- `澳喜农场`
 
 #### [【全字幕+视频】郭文贵2021年10月29日直播 格芯与数字货币](/content/gnews/2628942.md)
  `郭文贵全文字幕&#38;视频`
 
 #### [【全字幕+视频】郭文贵2021年10月30日盖特](/content/gnews/2628915.md)
  `郭文贵全文字幕&#38;视频`
-
-#### [中共国智能手机市场出货量同比下降幅度高达40.5%](/content/gnews/2628905.md)
- `加拿大温哥华英里农场`
-
-#### [手机产业链企业谋求出路](/content/gnews/2628904.md)
- `加拿大温哥华英里农场`
-
-#### [PC复苏，HPC生猛](/content/gnews/2628903.md)
- `加拿大温哥华英里农场`
 
 #### [泽伦斯基遭入侵后首次访问乌克兰东部地区](/content/gnews/2628874.md)
  `墨尔本雅典娜农场`
@@ -64,9 +70,6 @@
 
 #### [文雍漫谈：简单的效用](/content/gnews/2628776.md)
  `文雍`
-
-#### [视频&#124;共产党的邪恶同盟：半岛电视台](/content/gnews/2628760.md)
- `MOSVIDEO`
 
 #### [视频&#124;“六四”前中共提升监控64受害者母亲的力度](/content/gnews/2628750.md)
  `MOSVIDEO`
@@ -136,9 +139,6 @@
 
 #### [秘翻在线：联合国人权事务高级官员巴切莱特受到中共限制和操纵](/content/gnews/2628061.md)
  `秘密翻譯組G-Translators`
-
-#### [一季度，美联储背负3300亿美元账面损失](/content/gnews/2627051.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [郭文贵先生强调：猴痘是中共病毒和毒疫苗的综合结果](/content/gnews/2626842.md)
  `日本东京方舟农场`
