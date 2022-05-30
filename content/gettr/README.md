@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1bwhnwf899.md)
+
+5/29/2022 Miles Guo: It's always been the coronavirus that is wreaking havoc, while other so-called new viruses are just political manipulations to divert the people's attention and prevent them from investigating the origins of th...
+
+<img src="https://media.gettr.com/group48/getter/2022/05/29/23/6b05dc1d-edbd-a385-00c8-1acfe7d65f3e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1bwgl4a92a.md)
 
 At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy handing over the humanitarian aids, e.g., children’s nappies, milk powder, bath towels etc., to the Ukraine volunteers. Ukrainian people appreciated the...
@@ -138,19 +146,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/28/2022 7:47 PM UTC  - :tv:直播](/content/gettr/p1br00j896a.md)
+[@miles 5/30/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1bwtjk4194.md)
 
-5/28/2022 Miles Guo’s GETTR: All those who made false testimonies and set up our fellow fighters in the investment case in Italy as demanded by the CCP have been arrested. An official of the CCP's Embassy in Germany told those who ...
+5/29/2022 Miles Guo: Monkeypox is not an isolated disease! It is the aftermath of a destroyed immune system caused by CCP virus infection and/or administration of COVID vaccines; Artemisinin is the most effective medicine for preve...
 
-<img src="https://media.gettr.com/group12/getter/2022/05/28/19/4b0fb153-42b9-4f69-5f89-7d73678a011b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1bwhnwf899.md)
-
-5/29/2022 Miles Guo: It's always been the coronavirus that is wreaking havoc, while other so-called new viruses are just political manipulations to divert the people's attention and prevent them from investigating the origins of th...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/29/23/6b05dc1d-edbd-a385-00c8-1acfe7d65f3e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/05/30/00/de744336-a3fb-9220-1478-7308cd2d881a/out.jpg" width="506" height="284">
 
 ---
 
