@@ -11,6 +11,9 @@
 
 ---
 
+#### [DC每日热点0530](/content/gnews/2633420.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [秘翻在线: 中共外交部再批布林肯](/content/gnews/2633412.md)
  `秘密翻譯組G-Translators`
 
@@ -27,9 +30,6 @@
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [加拿大动用紧急医疗储备救助乌克兰](/content/gnews/2633324.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [加拿大以二战英雄命名两艘新巡逻舰](/content/gnews/2633311.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [DC大中华时事：北京今日出现突发疫情 表明动态清零任务艰巨](/content/gnews/2633310.md)
