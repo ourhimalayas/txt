@@ -11,11 +11,29 @@
 
 ---
 
+#### [Nicole采访来自汉城的韩国志愿者](/content/gnews/2633528.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [2022/05/30 英喜时事速递](/content/gnews/2633524.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [猴痘是新冠病毒、新冠疫苗综合作用的结果，冠状系列病毒已基本结束](/content/gnews/2633519.md)
+ `亚伦YALUN`
+
+#### [阿斯利康疫苗可能导致严重神经系统疾病](/content/gnews/2633499.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [加州有望通过 COVID-19“医疗错误信息法案”](/content/gnews/2633496.md)
+ `mayflowertranslate`
+
 #### [埃德蒙顿华人集会呼吁唐人街的长治久安](/content/gnews/2633485.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [秘翻在线：基辛格在达沃斯与拜登唱反调](/content/gnews/2633471.md)
  `秘密翻譯組G-Translators`
+
+#### [Nicole采访做义工的乌克兰年轻女孩](/content/gnews/2633461.md)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [民调显示多数加拿大人认为已陷入经济衰退](/content/gnews/2633431.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -32,9 +50,6 @@
 #### [加拿大枪支暴力犯罪率回升](/content/gnews/2633405.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [每日快报： 万事达卡首席执行官称，SWIFT 可能在五年内被 CBDC 取代](/content/gnews/2633396.md)
- `喜马拉雅-华盛顿DC农场`
-
 #### [有声&#124;对抗中共在太平洋的渗透 澳洲新政府加强周边联系](/content/gnews/2633359.md)
  `MOSREC`
 
@@ -42,9 +57,6 @@
  `秘密翻译组-即时新闻播报组`
 
 #### [第二架乌克兰难民包机飞抵蒙特利尔](/content/gnews/2633336.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [加拿大动用紧急医疗储备救助乌克兰](/content/gnews/2633324.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [2022/05/29 文贵先生大直播精要](/content/gnews/2633251.md)
@@ -60,9 +72,6 @@
  `温哥华圆成农场🇨🇦`
 
 #### [拜登称美国不会向乌克兰发送远程火箭系统](/content/gnews/2633218.md)
- `喜马拉雅意大利罗马达芬奇农场`
-
-#### [万事达卡CEO：SWIFT五年内可能被CBDC取代](/content/gnews/2633195.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
 #### [中共国输出新冠疫苗造成死亡，已有70个国家准备在国际仲裁法庭告中共](/content/gnews/2633188.md)
@@ -86,20 +95,11 @@
 #### [她急了？ 他急了？中共全网封杀布林肯对华政策演讲译文](/content/gnews/2632777.md)
  `新西兰伊甸农场听写编辑组`
 
-#### [受中共封城影响丰田再次削减6月生产计划](/content/gnews/2632776.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [樱花深度报道┃中共领导高层出现了不和谐的声音（下）](/content/gnews/2632775.md)
- `东京樱花团`
-
 #### [文贵谈当今医学界悲哀的沦落现状](/content/gnews/2632685.md)
  `东京樱花团`
 
 #### [5月29日郭文贵先生直播视频：GFASHION帮助新中国联邦追求文化主权](/content/gnews/2632680.md)
  `日本东京方舟农场`
-
-#### [2022年5月29日《文贵大直播》全文字版](/content/gnews/2632668.md)
- `温哥华扬帆农场《文贵大直播》全文听写组`
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月30日早](/content/gnews/2632518.md)
  `纽约香草山MOS01`
