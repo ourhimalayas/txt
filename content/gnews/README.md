@@ -2,11 +2,20 @@
 ---
 
 
-#### [加拿大动用紧急医疗储备救助乌克兰](/content/gnews/2633324.md)
+#### [加拿大枪支暴力犯罪率回升](/content/gnews/2633405.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [中共强制疫苗政策是为了逃避病毒溯源](/content/gnews/2633312.md)
- `波士顿五月花农场`
+#### [每日快报： 万事达卡首席执行官称，SWIFT 可能在五年内被 CBDC 取代](/content/gnews/2633396.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [有声&#124;对抗中共在太平洋的渗透 澳洲新政府加强周边联系](/content/gnews/2633359.md)
+ `MOSREC`
+
+#### [第二架乌克兰难民包机飞抵蒙特利尔](/content/gnews/2633336.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [加拿大动用紧急医疗储备救助乌克兰](/content/gnews/2633324.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [加拿大以二战英雄命名两艘新巡逻舰](/content/gnews/2633311.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -46,12 +55,6 @@
 
 #### [G7停止资助海外化石燃料开发](/content/gnews/2633097.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [欧盟、美、英关于为乌克兰成立暴行犯罪咨询小组的声明](/content/gnews/2633061.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [俄罗斯间谍称普京身患癌症，可活三年](/content/gnews/2633027.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [朝鲜在对COVID-19数量的怀疑中采取行动软化遏制措施](/content/gnews/2633000.md)
  `西班牙巴塞罗那喜悦农场`
@@ -97,9 +100,6 @@
 
 #### [2022/05/26 墙内世界](/content/gnews/2631869.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [樱花FM┃不终结暴力核酸检测，中国将既输掉防疫又输掉民生](/content/gnews/2631853.md)
- `樱花FM`
 
 #### [有声&#124;美国务院将对迫害新疆人的中共官员进行追责](/content/gnews/2631806.md)
  `MOSREC`
