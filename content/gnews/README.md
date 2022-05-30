@@ -2,7 +2,19 @@
 ---
 
 
+#### [大直播后记：现在学生抗议对推翻中共并没影响](/content/gnews/2629401.md)
+ `雅典娜GNotes`
+
+#### [20220530郭文贵乱聊直播：消灭共产党不需要20年](/content/gnews/2629396.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220530郭文贵乱聊直播：父母与儿女之间爱的界限和关系](/content/gnews/2629352.md)
+ `Tokyo Sakura Video Group`
+
 #### [GFASHION未来将持之以恒的给GLUB会员利益](/content/gnews/2629348.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220530郭文贵乱聊直播：西方民主文明是侵略性的，共产主义乌托邦文明是集权性](/content/gnews/2629347.md)
  `Tokyo Sakura Video Group`
 
 #### [拜登亲访乌瓦尔德 慰问校园枪击案遇难者家属](/content/gnews/2629309.md)
@@ -38,20 +50,8 @@
 #### [葡萄牙议会否决对数字货币征税的提议](/content/gnews/2629162.md)
  `墨尔本雅典娜农场`
 
-#### [上海核酸检测产业化运作，中共新型割韭菜神器常态化投入](/content/gnews/2629154.md)
- `Tokyo Sakura Video Group`
-
 #### [中共国民众高呼：土匪土匪！强盗强盗](/content/gnews/2629150.md)
  `Tokyo Sakura Video Group`
-
-#### [上海 5月28日 进超市需要邀请卡](/content/gnews/2629106.md)
- `Tokyo Sakura Video Group`
-
-#### [上海 5月28日 新闻里的步行街，和网友亲眼看到的步行街现状](/content/gnews/2629105.md)
- `Tokyo Sakura Video Group`
-
-#### [【全字幕+视频】郭文贵2021年10月28日盖特](/content/gnews/2629055.md)
- `郭文贵全文字幕&#38;视频`
 
 #### [国际｜传普京病重已死 俄罗斯外长罕有出面辟谣](/content/gnews/2629040.md)
  `關注組`
