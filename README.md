@@ -11,17 +11,44 @@
 
 ---
 
-#### [【樱话】中共强制接种疫苗致中国血癌儿童数量激增 中共急调其大外宣力量对内加强欺骗](/content/gnews/2629628.md)
+#### [【樱话】美“防区内部队”冲绳待命 随时遏制中共对第一岛链的任何威胁](/content/gnews/2629743.md)
  `TokyoSakuraDesignGroup`
+
+#### [【樱话】美国将对中共国部分医疗产品的惩罚性关税豁免期延长6个月](/content/gnews/2629728.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】参议员提出法案限制中共国数字货币在美国的使用–“这是一个重大的金融和监控风险”](/content/gnews/2629715.md)
+ `TokyoSakuraDesignGroup`
+
+#### [一墙内主播感叹中共严苛的言论审查制度正在毁灭中国的语言文化](/content/gnews/2629700.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [以总理贝内特：伊朗将为其代理人煽动攻击付出 &#8220;全部代价&#8221;](/content/gnews/2629693.md)
+ `波士顿五月花农场金融部`
+
+#### [【樱话】中国共产党关闭了中共国对世界的窗口](/content/gnews/2629685.md)
+ `TokyoSakuraDesignGroup`
+
+#### [文•贵天成——文贵先生谈孟建柱（九十七）](/content/gnews/2629660.md)
+ `墨尔本雅典娜农场`
+
+#### [中共秘推与太平洋岛国警务、网络安全协议](/content/gnews/2629645.md)
+ `波士顿五月花农场金融部`
+
+#### [比特币连续下跌八周 加密货币与美股脱钩 数字货币群雄逐鹿](/content/gnews/2629639.md)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [西班牙调查行动逾2200 人 列入所谓打“假疫苗″名单里 ｜粤时报](/content/gnews/2629635.md)
+ `秘密翻译组-即时新闻播报组`
 
 #### [中日财经爆&#124;德国大众汽车CEO为其支持新疆业务辩护](/content/gnews/2629627.md)
  `东京樱花团`
 
+#### [中共继续提供物资给缅甸军方](/content/gnews/2629626.md)
+ `东京樱花团`
+
 #### [就欧盟对俄制裁不团结 德国提出警告](/content/gnews/2629589.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [【樱话】俄罗斯和中共阻止联合国就缅甸危机发表声明](/content/gnews/2629588.md)
- `TokyoSakuraDesignGroup`
 
 #### [涉操纵美股 一中国人被控](/content/gnews/2629581.md)
  `TokyoSakura Politics/樱花时政`
@@ -32,25 +59,13 @@
 #### [戒酒和健身是文贵开始爆料革命以来最重要的两件事](/content/gnews/2629579.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [【樱话】关注新疆人权 德国政府拒绝再为大众汽车等在华投资做担保](/content/gnews/2629555.md)
- `TokyoSakuraDesignGroup`
-
 #### [法国外交部长将于周一访问基辅](/content/gnews/2629554.md)
  `日本东京方舟农场`
-
-#### [【樱话】查封中共海外资产序幕拉开 逾百英国议员吁调查中港官员在英资产](/content/gnews/2629533.md)
- `TokyoSakuraDesignGroup`
 
 #### [乌克兰卡卢什乐团拍卖奖杯为乌军队筹集90万美金](/content/gnews/2629520.md)
  `thedawn`
 
-#### [马斯克的推特计划对很多人来说意味着更少自由言论](/content/gnews/2629515.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [文•贵天成——文贵先生谈孟建柱（九十五）](/content/gnews/2629482.md)
- `墨尔本雅典娜农场`
-
-#### [文•贵天成：文贵先生谈孟建柱（九十四）](/content/gnews/2629471.md)
  `墨尔本雅典娜农场`
 
 #### [俄乌两军在乌东重镇北顿涅茨克展开激战](/content/gnews/2629432.md)
@@ -63,12 +78,6 @@
  `Tokyo Sakura Video Group`
 
 #### [20220530郭文贵乱聊直播：消灭共产党不需要20年](/content/gnews/2629396.md)
- `Tokyo Sakura Video Group`
-
-#### [20220530郭文贵乱聊直播：父母与儿女之间爱的界限和关系](/content/gnews/2629352.md)
- `Tokyo Sakura Video Group`
-
-#### [GFASHION未来将持之以恒的给GLUB会员利益](/content/gnews/2629348.md)
  `Tokyo Sakura Video Group`
 
 #### [20220530郭文贵乱聊直播：西方民主文明是侵略性的，共产主义乌托邦文明是集权性](/content/gnews/2629347.md)
@@ -103,9 +112,6 @@
 
 #### [视频&#124;“六四”前中共提升监控64受害者母亲的力度](/content/gnews/2628750.md)
  `MOSVIDEO`
-
-#### [加拿大因延禁华为设备被排除在印太战略之外](/content/gnews/2628686.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [5月29日文贵大直播：中共清零政策就是一场政治需要的表演秀](/content/gnews/2628672.md)
  `日本东京方舟农场`
@@ -152,9 +158,6 @@
 #### [Airbnb退出中共国](/content/gnews/2628483.md)
  `NFSC News`
 
-#### [共和党研究委员会说必须向福奇之类卫生官员追究责任](/content/gnews/2628409.md)
- `秘密翻譯組G-Translators`
-
 #### [有针对高端技术的“间谍活动” 日警察厅强化管理](/content/gnews/2628287.md)
  `TokyoSakura Politics/樱花时政`
 
@@ -163,9 +166,6 @@
 
 #### [史蒂夫·班农：必须停止像Steve Wynn这样的中共严重渗透事件](/content/gnews/2628241.md)
  `墨尔本雅典娜农场`
-
-#### [埃德蒙顿华人呼吁加强当地社区治安](/content/gnews/2628206.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [秘翻在线：联合国人权事务高级官员巴切莱特受到中共限制和操纵](/content/gnews/2628061.md)
  `秘密翻譯組G-Translators`
