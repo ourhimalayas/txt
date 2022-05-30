@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/30/2022 11:10 AM UTC  - :tv:直播](/content/gettr/p1bywlt43c6.md)
+
+2022.05.30 新中国联邦 | 军情室  浅谈超高音速导弹
+
+<img src="https://media.gettr.com/group39/origin/2022/05/30/11/8acdccdb-1dc6-2798-fff3-34fc55068135/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 9:30 AM UTC  - :tv:直播](/content/gettr/p1by5uycd2f.md)
 
 5/29/2022 Miles Guo: Whether it is a Chinese doctor or an American doctor, they will never tell the truth as long as they are involved in political and commercial interests. The CCP as well as the governments and doctors controlled...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/30/2022 11:10 AM UTC  - :tv:直播](/content/gettr/p1bywlt43c6.md)
+[@miles 5/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1bzsel7cce.md)
 
-2022.05.30 新中国联邦 | 军情室  浅谈超高音速导弹
+ 5月30号：尊敬的战友们好……每次看到在乌克兰前线救援的视频！都非常非常的感动，每次看．都有不同的感受，所有参与前线过救援的战友们．给新中国联邦和未来的新中国人所带来的帮助和。和深远的意义．是无法形容的．衷心地感谢……每一位亲爱的兄弟姐妹们！
 
-<img src="https://media.gettr.com/group39/origin/2022/05/30/11/8acdccdb-1dc6-2798-fff3-34fc55068135/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/05/30/13/e5bf3969-99e9-385a-203b-5d4c39b27782/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy h
 2022-5-29 「遇见」——命运因此而改變⛅️ #小小尼莫音乐会 🎼第十三期，奇妙的緣分🌟，讓我們在爆料革命裡遇見彼此🍀，一起創造音樂🎶，譜寫命運🎸
 
 <img src="https://media.gettr.com/group38/origin/2022/05/29/19/b3e5c15a-ddb6-d074-1214-870e738acad3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 6:47 PM UTC  - :tv:直播](/content/gettr/p1bvpl0d4b9.md)
-
-2022年5月29日 GFASHION纽约现场分享 2
-
-<img src="https://media.gettr.com/group33/origin/2022/05/29/17/a089d1c2-6936-318a-6662-c8211b6a1b36/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
