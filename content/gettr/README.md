@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/29/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1bwgl4a92a.md)
+
+At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy handing over the humanitarian aids, e.g., children’s nappies, milk powder, bath towels etc., to the Ukraine volunteers. Ukrainian people appreciated the...
+
+<img src="https://media.gettr.com/group3/origin/2022/05/29/23/80d0f68a-8f6b-162a-8cd2-a2b9911ca065/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/29/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1bwksx0770.md)
 
 5/29/2022 Miles Guo: The "zero-COVID policy" is actually the CCP's trick to win others' trust by deliberately hurting itself, and to prevent the world from investigating the origins of the CCP virus. The "zero-COVID policy" is nece...
@@ -138,11 +146,11 @@ Young volunteers from the United States and Nigeria, part of the organization �
 
 ---
 
-[@miles 5/29/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1bwgl4a92a.md)
+[@miles 5/29/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1bwhnwf899.md)
 
-At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy handing over the humanitarian aids, e.g., children’s nappies, milk powder, bath towels etc., to the Ukraine volunteers. Ukrainian people appreciated the...
+5/29/2022 Miles Guo: It's always been the coronavirus that is wreaking havoc, while other so-called new viruses are just political manipulations to divert the people's attention and prevent them from investigating the origins of th...
 
-<img src="https://media.gettr.com/group3/origin/2022/05/29/23/80d0f68a-8f6b-162a-8cd2-a2b9911ca065/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/05/29/23/6b05dc1d-edbd-a385-00c8-1acfe7d65f3e/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy h
 5/28/2022 Miles Guo’s GETTR: To all fellow fighters in the U.S., you shall remember not to lie or make false testimonies at any time. No matter what issues or situations you are facing, calm down and do not listen to the noises aro...
 
 <img src="https://media.gettr.com/group25/getter/2022/05/28/19/3c330a1c-93c1-e8cc-fcf7-ed03b9419f1a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/28/2022 5:37 PM UTC  - :tv:直播](/content/gettr/p1br0rb46d1.md)
-
-2022年5月28日 俄乌战争战况播报 
-
-<img src="https://media.gettr.com/group17/origin/2022/05/28/17/faf2ed6b-450b-ca3e-78ed-a26c9f35c27f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
