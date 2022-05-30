@@ -2,17 +2,11 @@
 ---
 
 
-[@miles 5/30/2022 9:08 PM UTC ](/content/gettr/p1c1fr1079b.md)
+[@miles 5/30/2022 9:19 PM UTC  - 2圖](/content/gettr/p1c1f4u66a4.md)
 
- 5月30号：尊敬的战友们好．共产党在南半岛的所谓的外交十国．黑外交活动，将彻底失败，爆料革命将爆出这些国家的总统和政治家与中共的腐败……新中国联邦的全球战友们正在全力以赴准备着．全世界关注的新中国联邦6月4号两周年的国庆日活动，共产党的经济．政治．民声，正在走向崩溃，每时每刻。都有新中国联邦人……灭共的重要成收获和结果……追求喜马拉雅信仰的行动力的体现……
+5月30日：G FASHION 是G  club member．会员最重要的利益，连接社会家庭最重要的纽带和不可替代的社会关系资源！https://instagram.com/stories/anthonydltorre/2849187402015481362?igshid=YmMyMTA2M2Y=
 
----
-
-[@miles 5/30/2022 7:07 PM UTC  - :tv:直播](/content/gettr/p1c0vhldded.md)
-
-2022-05-30 4k战友游船直播测试
-
-<img src="https://media.gettr.com/group36/origin/2022/05/30/19/eb5d39f6-b6b0-0797-9032-e79ca478235f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/05/30/21/6bbe108b-21c4-80fc-7893-d2850a16baa3/1673aab15becf402c97255ec4af77605.jpg" width="506" height="284">
 
 ---
 
@@ -21,6 +15,14 @@
 5月30号：尊敬的战友们好．共产党在南半岛的所谓的外交十国．黑外交活动，将彻底失败，爆料革命将爆出这些国家的总统和政治家与中共的腐败……新中国联邦的全球战友们正在全力以赴准备着．全世界关注的新中国联邦6月4号两周年的国庆日活动，共产党的经济．政治．民声，正在走向崩溃，每时每刻。都有新中国联邦人……灭共的重要成收获和结果……追求喜马拉雅信仰的行动力的体现……
 
 <img src="https://media.gettr.com/group28/getter/2022/05/30/21/2d6ee76a-5af3-14a9-bd34-dfc3a2dceba8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/30/2022 7:07 PM UTC  - :tv:直播](/content/gettr/p1c0vhldded.md)
+
+2022-05-30 4k战友游船直播测试
+
+<img src="https://media.gettr.com/group36/origin/2022/05/30/19/eb5d39f6-b6b0-0797-9032-e79ca478235f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
