@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1bzsel7cce.md)
+
+ 5月30号：尊敬的战友们好……每次看到在乌克兰前线救援的视频！都非常非常的感动，每次看．都有不同的感受，所有参与前线过救援的战友们．给新中国联邦和未来的新中国人所带来的帮助和。和深远的意义．是无法形容的．衷心地感谢……每一位亲爱的兄弟姐妹们！
+
+<img src="https://media.gettr.com/group43/getter/2022/05/30/13/e5bf3969-99e9-385a-203b-5d4c39b27782/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 11:10 AM UTC  - :tv:直播](/content/gettr/p1bywlt43c6.md)
 
 2022.05.30 新中国联邦 | 军情室  浅谈超高音速导弹
@@ -18,11 +26,17 @@
 
 ---
 
-[@miles 5/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1bzsel7cce.md)
+[@miles 5/30/2022 4:16 PM UTC  - :tv:直播](/content/gettr/p1c0jvd3ecc.md)
 
- 5月30号：尊敬的战友们好……每次看到在乌克兰前线救援的视频！都非常非常的感动，每次看．都有不同的感受，所有参与前线过救援的战友们．给新中国联邦和未来的新中国人所带来的帮助和。和深远的意义．是无法形容的．衷心地感谢……每一位亲爱的兄弟姐妹们！
+5/29/2022 Miles Guo: Ending the vaccine mandate in the U.S. means ending the vaccine mandates around the world.
 
-<img src="https://media.gettr.com/group43/getter/2022/05/30/13/e5bf3969-99e9-385a-203b-5d4c39b27782/out.jpg" width="506" height="284">
+
+
+5/29/202 文贵直播：美国疫苗强制的停止等同于全世界范围内疫苗强制的停止。
+
+
+
+<img src="https://media.gettr.com/group49/getter/2022/05/30/16/5e6553cd-28f9-aa97-3757-7ca49e50cf4c/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +171,6 @@ At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy h
 2022.05.29  七哥乱聊直播
 
 <img src="https://media.gettr.com/group48/origin/2022/05/29/19/2b3dd7bf-439d-07e1-083d-f86e053d6d41/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 7:08 PM UTC  - :tv:直播](/content/gettr/p1bw0ot71d7.md)
-
-2022-5-29 「遇见」——命运因此而改變⛅️ #小小尼莫音乐会 🎼第十三期，奇妙的緣分🌟，讓我們在爆料革命裡遇見彼此🍀，一起創造音樂🎶，譜寫命運🎸
-
-<img src="https://media.gettr.com/group38/origin/2022/05/29/19/b3e5c15a-ddb6-d074-1214-870e738acad3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
