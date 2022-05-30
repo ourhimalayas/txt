@@ -11,11 +11,44 @@
 
 ---
 
+#### [台湾被打概率大大降低（八）](/content/gnews/2633854.md)
+ `雅典娜GNotes`
+
+#### [台湾被打概率大大降低（七）](/content/gnews/2633852.md)
+ `雅典娜GNotes`
+
+#### [台湾被打概率大大降低（六）](/content/gnews/2633850.md)
+ `雅典娜GNotes`
+
+#### [台湾被打概率大大降低（五）](/content/gnews/2633846.md)
+ `雅典娜GNotes`
+
+#### [女权主义是女人开始学会爱女人](/content/gnews/2633836.md)
+ `纽约香草山MOS03`
+
+#### [中共的清零政策是牺牲百姓的苦肉计](/content/gnews/2633834.md)
+ `NFSC News`
+
+#### [英国外交部：中共国阻碍联合国新疆人权调查](/content/gnews/2633819.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [超70国将在国际仲裁法庭状告中共毒疫苗灾害](/content/gnews/2633807.md)
+ `NFSC News`
+
+#### [泰国寻求与越南协议 提高大米出口价格](/content/gnews/2633806.md)
+ `NFSC News`
+
+#### [日本确认跟随美国准备应对台海危机](/content/gnews/2633798.md)
+ `NFSC News`
+
+#### [美国国务院声明高度关注联合国对中共人权的调查](/content/gnews/2633781.md)
+ `NFSC News`
+
+#### [中俄贸易额增加](/content/gnews/2633751.md)
+ `mayflowertranslate`
+
 #### [美国政府修订针对“世界末日”的秘密计划](/content/gnews/2633711.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [5月30日 勿忘香港（图片1-7）](/content/gnews/2633634.md)
- `波士顿五月花农场`
 
 #### [乌克兰可能很快就会获得美国远程多管火箭系统](/content/gnews/2633626.md)
  `波士顿五月花农场金融部`
@@ -26,17 +59,11 @@
 #### [【G时新闻】班农表示美国应该感谢郭文贵的卓越贡献](/content/gnews/2633593.md)
  `G-时新闻`
 
-#### [艾滋病在新冠疫苗完全接种者中蔓延时政府却用渲染俄乌战争来转移人们的视线](/content/gnews/2633575.md)
- `mayflowertranslate`
-
 #### [【G叻睇真D】纽芬兰省取消对省级雇员的中共病毒疫苗强制令](/content/gnews/2633571.md)
  `G-时新闻`
 
 #### [【G叻睇真D】多伦多医生承认给数百名婴儿注射中共病毒疫苗](/content/gnews/2633553.md)
  `G-时新闻`
-
-#### [Nicole采访来自汉城的韩国志愿者](/content/gnews/2633528.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [2022/05/30 英喜时事速递](/content/gnews/2633524.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -49,12 +76,6 @@
 
 #### [加州有望通过 COVID-19“医疗错误信息法案”](/content/gnews/2633496.md)
  `mayflowertranslate`
-
-#### [埃德蒙顿华人集会呼吁唐人街的长治久安](/content/gnews/2633485.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [Nicole采访做义工的乌克兰年轻女孩](/content/gnews/2633461.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [民调显示多数加拿大人认为已陷入经济衰退](/content/gnews/2633431.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -74,14 +95,8 @@
 #### [中共在国内的清零政策是战争的需要，政治稳定的需要 ｜粤时报](/content/gnews/2633337.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [第二架乌克兰难民包机飞抵蒙特利尔](/content/gnews/2633336.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [2022/05/29 文贵先生大直播精要](/content/gnews/2633251.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [拜登称美国不会向乌克兰发送远程火箭系统](/content/gnews/2633218.md)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [中共国输出新冠疫苗造成死亡，已有70个国家准备在国际仲裁法庭告中共](/content/gnews/2633188.md)
  `秘密翻译组-即时新闻播报组`
@@ -98,17 +113,8 @@
 #### [她急了？ 他急了？中共全网封杀布林肯对华政策演讲译文](/content/gnews/2632777.md)
  `新西兰伊甸农场听写编辑组`
 
-#### [文贵谈当今医学界悲哀的沦落现状](/content/gnews/2632685.md)
- `东京樱花团`
-
 #### [5月29日郭文贵先生直播视频：GFASHION帮助新中国联邦追求文化主权](/content/gnews/2632680.md)
  `日本东京方舟农场`
-
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月30日早](/content/gnews/2632518.md)
- `纽约香草山MOS01`
-
-#### [使用即价值，躺平币即将上线](/content/gnews/2632160.md)
- `新加坡狮城农场 Himalaya Singapore`
 
 #### [Nicole 连线班农战斗室 Part 2](/content/gnews/2631905.md)
  `喜马拉雅-华盛顿DC农场`
@@ -134,20 +140,14 @@
 #### [俄外交官称中共国现在是美国的“主要敌人”](/content/gnews/2631587.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [大直播后记：中共卖出的疫苗很可能未来会被追责](/content/gnews/2631421.md)
- `雅典娜GNotes`
-
 #### [秘翻在线：中共太平洋计划遭遇重挫](/content/gnews/2631266.md)
  `秘密翻譯組G-Translators`
 
 #### [秘翻在线：被卸磨杀驴的科兴生物](/content/gnews/2631253.md)
  `秘密翻譯組G-Translators`
 
-#### [Gfashion尊重每个人的独特自我](/content/gnews/2631210.md)
- `银河歌舞厅`
-
-#### [加拿大动用紧急医疗储备救助乌克兰](/content/gnews/2630920.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
+#### [美国超越中共国成为印度最大贸易伙伴](/content/gnews/2631202.md)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [中日财经爆&#124;德国大众汽车CEO为其支持新疆业务辩护](/content/gnews/2629627.md)
  `东京樱花团`
