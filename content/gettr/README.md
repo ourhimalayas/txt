@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/30/2022 7:07 PM UTC  - :tv:直播](/content/gettr/p1c0vhldded.md)
+
+2022-05-30 4k战友游船直播测试
+
+<img src="https://media.gettr.com/group36/origin/2022/05/30/19/eb5d39f6-b6b0-0797-9032-e79ca478235f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/30/2022 5:25 PM UTC  - :tv:直播](/content/gettr/p1c0or0e81c.md)
+
+2022年5月30日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group11/origin/2022/05/30/17/67cf64b4-d9be-7b08-51e3-244df38c0fdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 4:16 PM UTC  - :tv:直播](/content/gettr/p1c0jvd3ecc.md)
 
 5/29/2022 Miles Guo: Ending the vaccine mandate in the U.S. means ending the vaccine mandates around the world.
@@ -40,11 +56,13 @@
 
 ---
 
-[@miles 5/30/2022 5:25 PM UTC  - :tv:直播](/content/gettr/p1c0or0e81c.md)
+[@miles 5/30/2022 7:10 PM UTC  - :tv:直播](/content/gettr/p1c14697a95.md)
 
-2022年5月30日 俄乌战争战况播报
+2022年5月30日 战友游船连线直播
 
-<img src="https://media.gettr.com/group11/origin/2022/05/30/17/67cf64b4-d9be-7b08-51e3-244df38c0fdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group6/origin/2022/05/30/18/a331e32a-9de3-1ad8-aa86-9f88cc20e06f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,22 +173,6 @@ At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy h
 5/29/2022 Miles Guo: The "zero-COVID policy" is actually the CCP's trick to win others' trust by deliberately hurting itself, and to prevent the world from investigating the origins of the CCP virus. The "zero-COVID policy" is nece...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/29/21/929920cd-dbc0-4827-902b-9cad4222c236/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1bvnx4b10b.md)
-
-2022.05.29  新中国联邦 | 喜健康   文贵先生说的区块链技术在医学领域怎样应用？
-
-<img src="https://media.gettr.com/group24/origin/2022/05/29/20/d08eeb1e-63cd-b50c-c998-58b097457486/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 8:21 PM UTC  - :tv:直播](/content/gettr/p1bvv8a3552.md)
-
-5/30/2022 Miles Guo: Due to the vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court, if the US government officially ceases the vaccine mandate, Communist China wil...
-
-<img src="https://media.gettr.com/group41/getter/2022/05/29/20/6c4c78ba-4663-a14e-2262-1e49d4582cfb/out.jpg" width="506" height="284">
 
 ---
 
