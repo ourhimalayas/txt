@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/30/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1c185nb8a9.md)
+
+5/30/2022 Miles Guo: Due to the CCP’s vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court; Communist China will probably have to pay up to 600 trillion USD for all ...
+
+<img src="https://media.gettr.com/group14/getter/2022/05/30/23/3fdf7f41-65fd-0ac4-0dcf-11fe46793104/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/30/2022 9:19 PM UTC  - 2圖](/content/gettr/p1c1f4u66a4.md)
 
 5月30日：G FASHION 是G  club member．会员最重要的利益，连接社会家庭最重要的纽带和不可替代的社会关系资源！https://instagram.com/stories/anthonydltorre/2849187402015481362?igshid=YmMyMTA2M2Y=
@@ -10,11 +18,15 @@
 
 ---
 
-[@miles 5/30/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1c185nb8a9.md)
+[@miles 5/30/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1c1cdw5e6e.md)
 
-5/30/2022 Miles Guo: Due to the CCP’s vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court; Communist China will probably have to pay up to 600 trillion USD for all ...
+5/29/2022 Miles Guo: The “zero-COVID policy” is actually the CCP’s trick to win others’ trust by deliberately hurting itself, and to prevent the world from investigating the origins of the CCP virus.
 
-<img src="https://media.gettr.com/group14/getter/2022/05/30/23/3fdf7f41-65fd-0ac4-0dcf-11fe46793104/out.jpg" width="506" height="284">
+
+
+5/29/2022 文贵直播：中共的清零政策实为苦肉计，...
+
+<img src="https://media.gettr.com/group47/getter/2022/05/30/23/a79e0b1f-fad5-b279-3d53-6ad8559eaef3/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ https://gnews.org/zh-hans/2618610/
 5/29/2022 Miles Guo: In October 2021, the US government informed the CCP that they will surely investigate the origins of the CCP virus, as did Europe. Thus, the CCP started to implement the zero-COVID policy to get rid of the COVI...
 
 <img src="https://media.gettr.com/group32/getter/2022/05/30/00/83d909a3-f6d5-d2f0-4b1c-99c0f26fa3d7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1bwtjk4194.md)
-
-5/29/2022 Miles Guo: Monkeypox is not an isolated disease! It is the aftermath of a destroyed immune system caused by CCP virus infection and/or administration of COVID vaccines; Artemisinin is the most effective medicine for preve...
-
-<img src="https://media.gettr.com/group13/getter/2022/05/30/00/de744336-a3fb-9220-1478-7308cd2d881a/out.jpg" width="506" height="284">
 
 ---
 
