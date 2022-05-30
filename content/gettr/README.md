@@ -12,11 +12,15 @@ On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP)
 
 ---
 
-[@miles 5/30/2022 6:15 AM UTC  - :tv:直播](/content/gettr/p1bxz1z5df5.md)
+[@miles 5/30/2022 7:54 AM UTC  - 2圖](/content/gettr/p1bxs1hce5f.md)
 
-5/29/2022 Miles Guo: The executives of SIIC and Greenland Holdings were not vaccinated against the COVID-19, and it is even more unlikely that the top officials of the Shanghai government take the COVID vaccine. The absurdities hap...
+5月30号：【《水月观音》
 
-<img src="https://media.gettr.com/group31/getter/2022/05/30/06/8daa61ca-526f-9fa1-77f1-b43056234fcf/out.jpg" width="506" height="284">
+我佛度清风，常卧水月中。
+
+为寻慈悲法，万念一时空！】
+
+<img src="https://media.gettr.com/group33/getter/2022/05/30/07/772b7300-302d-89b9-cf19-1cc3a4e5bafe/980da890051b195d82ee53e2febfe69e.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +29,14 @@ On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP)
 世界上大多数保险巨头的背后老板都是 #先锋集团、 #贝莱德 和 #道富 这些资本大鳄。这些黑暗的沼泽地力量不但控制了大科技公司和媒体，也是 #疫苗 公司和 #保险 公司的最大机构投资者，它们究竟想达到什么目的？疫苗灾难给了我们最好的答案！
 
 https://gnews.org/zh-hans/2618610/
+
+---
+
+[@miles 5/30/2022 6:15 AM UTC  - :tv:直播](/content/gettr/p1bxz1z5df5.md)
+
+5/29/2022 Miles Guo: The executives of SIIC and Greenland Holdings were not vaccinated against the COVID-19, and it is even more unlikely that the top officials of the Shanghai government take the COVID vaccine. The absurdities hap...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/30/06/8daa61ca-526f-9fa1-77f1-b43056234fcf/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +161,6 @@ At Medyka, the Volunteers from the New Federal State of China (NFSC) were busy h
 ---
 
 [@miles 5/29/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1buaisb859.md)
-
-2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
-
-<img src="https://media.gettr.com/group26/origin/2022/05/29/12/4b83ac19-1601-7883-eab6-86afa6f8fe76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/29/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p1bv1cr266e.md)
 
 2022-5-28 文贵大直播《避风港》(53)专场  热点话题：#核酸检测 #封锁清零   #疯炒猴痘 #疫苗灾难 #疫苗追责等  探讨：如何用信仰面对黑暗末世？！
 
