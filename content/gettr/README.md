@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 5/31/2022 9:30 AM UTC ](/content/gettr/p1c391x52a3.md)
+
+The CCP's "Zero-COVID Policy" is a political necessity
+
+
+
+On May 29th, Mr. Guo said in his big live-broadcast, the "Zero-COVID Policy" that the Communist Party is playing, is a "bitter meat" to prevent the world from tracing the so...
+
+<img src="https://media.gettr.com/group38/origin/2022/05/31/09/ad1ec2fa-8f75-9397-2c00-59574651931f/64718f1ca7e4e3990a9af621904ea212.jpg" width="506" height="284">
+
+---
+
 [@miles 5/31/2022 7:16 AM UTC  - :tv:直播](/content/gettr/p1c365x1454.md)
 
 2022-5-30《鸡血王喜币大作战》 第二百一十一集 嘉宾：NICK
@@ -18,15 +30,11 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 ---
 
-[@miles 5/31/2022 9:30 AM UTC ](/content/gettr/p1c391x52a3.md)
+[@miles 5/31/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1c50a3b3df.md)
 
-The CCP's "Zero-COVID Policy" is a political necessity
+ 5月31号：尊敬的战友们好……接下来的几天，直到6月4号．新中国联邦人，将会用．无数传奇和感动．在世界的传奇城市．金融城市．时尚城市，现代音乐城市．世界的政治．经济精英中心．曼哈顿描绘新中国联邦人……展示一个美好的有巨大的．无穷无尽的潜力的新中国人的未来形象！
 
-
-
-On May 29th, Mr. Guo said in his big live-broadcast, the "Zero-COVID Policy" that the Communist Party is playing, is a "bitter meat" to prevent the world from tracing the so...
-
-<img src="https://media.gettr.com/group38/origin/2022/05/31/09/ad1ec2fa-8f75-9397-2c00-59574651931f/64718f1ca7e4e3990a9af621904ea212.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/05/31/15/ef9569c5-abc1-1cf1-94d1-e948a351d37f/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ On May 29th, Mr. Guo said in his big live-broadcast, the "Zero-COVID Policy" tha
 为寻慈悲法，万念一时空！】
 
 <img src="https://media.gettr.com/group33/getter/2022/05/30/07/772b7300-302d-89b9-cf19-1cc3a4e5bafe/980da890051b195d82ee53e2febfe69e.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 7:31 AM UTC ](/content/gettr/p1bxp9me1b6.md)
-
-The CCP created COVID-19 virus and pushed mandatory vaccine, and used the death of Chinese people as a dirty trick to shirk responsibility
-
-On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP) created th...
-
-<img src="https://media.gettr.com/group7/origin/2022/05/30/07/a770535c-44cf-5afa-d8fd-6c82c8c7967e/b4f19a058cee437f168ba5bb3853c195.png" width="506" height="284">
 
 ---
 
