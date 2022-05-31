@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/31/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1c50a3b3df.md)
+
+ 5月31号：尊敬的战友们好……接下来的几天，直到6月4号．新中国联邦人，将会用．无数传奇和感动．在世界的传奇城市．金融城市．时尚城市，现代音乐城市．世界的政治．经济精英中心．曼哈顿描绘新中国联邦人……展示一个美好的有巨大的．无穷无尽的潜力的新中国人的未来形象！
+
+<img src="https://media.gettr.com/group43/getter/2022/05/31/15/ef9569c5-abc1-1cf1-94d1-e948a351d37f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/31/2022 9:30 AM UTC ](/content/gettr/p1c391x52a3.md)
 
 The CCP's "Zero-COVID Policy" is a political necessity
@@ -30,11 +38,13 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 ---
 
-[@miles 5/31/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1c50a3b3df.md)
+[@miles 5/31/2022 4:42 PM UTC ](/content/gettr/p1c4u8p106c.md)
 
- 5月31号：尊敬的战友们好……接下来的几天，直到6月4号．新中国联邦人，将会用．无数传奇和感动．在世界的传奇城市．金融城市．时尚城市，现代音乐城市．世界的政治．经济精英中心．曼哈顿描绘新中国联邦人……展示一个美好的有巨大的．无穷无尽的潜力的新中国人的未来形象！
 
-<img src="https://media.gettr.com/group43/getter/2022/05/31/15/ef9569c5-abc1-1cf1-94d1-e948a351d37f/out.jpg" width="506" height="284">
+
+5月31号：尊敬的战友们好！上海23,000,000人民．应该有个基本的对事情的认知，这不是政府错了，更不是上海政府撒谎，是因为你从来不知道自己是谁，😜😜😜甚至还把自己当成赵家人！你忘了你自己是一个极权下的奴隶……，根本问题是你自己忘了你自己的角色！
+
+<img src="https://media.gettr.com/group8/getter/2022/05/31/16/4237d040-105a-3b53-c6de-d44bfc08de3f/302e85b9e162d81427c953c78289e860.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +189,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 为寻慈悲法，万念一时空！】
 
 <img src="https://media.gettr.com/group33/getter/2022/05/30/07/772b7300-302d-89b9-cf19-1cc3a4e5bafe/980da890051b195d82ee53e2febfe69e.jpg" width="506" height="284">
-
----
-
-[@himalayaathena 5/30/2022 3:31 AM UTC ](/content/gettr/p1bxfwf68c6.md)
-
-世界上大多数保险巨头的背后老板都是 #先锋集团、 #贝莱德 和 #道富 这些资本大鳄。这些黑暗的沼泽地力量不但控制了大科技公司和媒体，也是 #疫苗 公司和 #保险 公司的最大机构投资者，它们究竟想达到什么目的？疫苗灾难给了我们最好的答案！
-
-https://gnews.org/zh-hans/2618610/
 
 ---
 
