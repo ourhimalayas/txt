@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/31/2022 4:42 PM UTC ](/content/gettr/p1c4u8p106c.md)
+
+
+
+5月31号：尊敬的战友们好！上海23,000,000人民．应该有个基本的对事情的认知，这不是政府错了，更不是上海政府撒谎，是因为你从来不知道自己是谁，😜😜😜甚至还把自己当成赵家人！你忘了你自己是一个极权下的奴隶……，根本问题是你自己忘了你自己的角色！
+
+<img src="https://media.gettr.com/group8/getter/2022/05/31/16/4237d040-105a-3b53-c6de-d44bfc08de3f/302e85b9e162d81427c953c78289e860.jpg" width="506" height="284">
+
+---
+
 [@miles 5/31/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1c50a3b3df.md)
 
  5月31号：尊敬的战友们好……接下来的几天，直到6月4号．新中国联邦人，将会用．无数传奇和感动．在世界的传奇城市．金融城市．时尚城市，现代音乐城市．世界的政治．经济精英中心．曼哈顿描绘新中国联邦人……展示一个美好的有巨大的．无穷无尽的潜力的新中国人的未来形象！
@@ -38,13 +48,11 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 ---
 
-[@miles 5/31/2022 4:42 PM UTC ](/content/gettr/p1c4u8p106c.md)
+[@miles 5/31/2022 4:57 PM UTC  - :tv:直播](/content/gettr/p1c4w56d41a.md)
 
+2022年5月31日 俄乌战争战况播报
 
-
-5月31号：尊敬的战友们好！上海23,000,000人民．应该有个基本的对事情的认知，这不是政府错了，更不是上海政府撒谎，是因为你从来不知道自己是谁，😜😜😜甚至还把自己当成赵家人！你忘了你自己是一个极权下的奴隶……，根本问题是你自己忘了你自己的角色！
-
-<img src="https://media.gettr.com/group8/getter/2022/05/31/16/4237d040-105a-3b53-c6de-d44bfc08de3f/302e85b9e162d81427c953c78289e860.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/05/31/16/07c06642-ea65-8cc7-32e9-4ba7b5c91633/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,18 +185,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 2022.05.30  文贵大直播（精华版）70个国家将在yingg2提请中共疫苗的仲裁 中共病毒疫苗是整治·商业疫苗  美国会在中期选举前后结束强制疫苗
 
 <img src="https://media.gettr.com/group30/origin/2022/05/30/09/a556033e-1aff-0150-945c-9642966a7f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 7:54 AM UTC  - 2圖](/content/gettr/p1bxs1hce5f.md)
-
-5月30号：【《水月观音》
-
-我佛度清风，常卧水月中。
-
-为寻慈悲法，万念一时空！】
-
-<img src="https://media.gettr.com/group33/getter/2022/05/30/07/772b7300-302d-89b9-cf19-1cc3a4e5bafe/980da890051b195d82ee53e2febfe69e.jpg" width="506" height="284">
 
 ---
 
