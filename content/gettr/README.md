@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/31/2022 7:03 PM UTC ](/content/gettr/p1c52i6c9d7.md)
+
+2022-5-31 《避风港》(54) 疫苗接种者只需5个月发展成艾滋病样
+
+---
+
+[@miles 5/31/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1c5p2leaf3.md)
+
+2022年5月31日 Gclub会员船游活动第二天
+
+<img src="https://media.gettr.com/group14/origin/2022/05/31/18/ed7d58b9-abcb-55c4-76f2-4b6198de2704/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/31/2022 4:57 PM UTC  - :tv:直播](/content/gettr/p1c4w56d41a.md)
 
 2022年5月31日 俄乌战争战况播报
@@ -56,11 +70,11 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 ---
 
-[@miles 5/31/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1c5p2leaf3.md)
+[@miles 5/31/2022 7:04 PM UTC  - :tv:直播](/content/gettr/p1c5dgp2973.md)
 
-2022年5月31日 Gclub会员船游活动第二天
+2022-05-31 4k战友游船直播测试 第二天
 
-<img src="https://media.gettr.com/group14/origin/2022/05/31/18/ed7d58b9-abcb-55c4-76f2-4b6198de2704/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/05/31/19/fb1aa5d4-1964-27b6-24d1-992199f663d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,22 +183,6 @@ https://gettr.com/streaming/p1c2ijc87cd
  5月30号：尊敬的战友们好……每次看到在乌克兰前线救援的视频！都非常非常的感动，每次看．都有不同的感受，所有参与前线过救援的战友们．给新中国联邦和未来的新中国人所带来的帮助和。和深远的意义．是无法形容的．衷心地感谢……每一位亲爱的兄弟姐妹们！
 
 <img src="https://media.gettr.com/group43/getter/2022/05/30/13/e5bf3969-99e9-385a-203b-5d4c39b27782/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 11:10 AM UTC  - :tv:直播](/content/gettr/p1bywlt43c6.md)
-
-2022.05.30 新中国联邦 | 军情室  浅谈超高音速导弹
-
-<img src="https://media.gettr.com/group39/origin/2022/05/30/11/8acdccdb-1dc6-2798-fff3-34fc55068135/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 9:40 AM UTC  - :tv:直播](/content/gettr/p1bygce8f6a.md)
-
-2022.05.30  文贵大直播（精华版）70个国家将在yingg2提请中共疫苗的仲裁 中共病毒疫苗是整治·商业疫苗  美国会在中期选举前后结束强制疫苗
-
-<img src="https://media.gettr.com/group30/origin/2022/05/30/09/a556033e-1aff-0150-945c-9642966a7f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
