@@ -11,11 +11,17 @@
 
 ---
 
+#### [韩国K-Pop现身白宫新闻发布会](/content/gnews/2639878.md)
+ `秘密翻譯組G-Translators`
+
 #### [【秘翻在线】英国政府计划对稳定币制定新的保障措施](/content/gnews/2639805.md)
  `秘密翻譯組G-Translators`
 
 #### [六四臨近,你收到微信網警的限制群聊和發朋友圈禁令嗎？](/content/gnews/2639780.md)
  `NewFOC`
+
+#### [疫苗危机真相大白天下之日还很遥远](/content/gnews/2639765.md)
+ `NFSC News`
 
 #### [欧盟打破僵局达成削减俄罗斯石油进口协议](/content/gnews/2639684.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -83,9 +89,6 @@
 #### [预计最迟今年年底美国将停止强制疫苗 中共未来面临巨额毒疫苗危害赔偿](/content/gnews/2638924.md)
  `焦點20分`
 
-#### [30架共机再次扰台 台湾战机紧急驱离](/content/gnews/2638919.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [《疫苗白血病群体的公开信》揭示疫苗灾难真相](/content/gnews/2638762.md)
  `KarmaLabs`
 
@@ -100,9 +103,6 @@
 
 #### [有声&#124;GFashion尊重每个人的独特自我](/content/gnews/2638576.md)
  `MOSREC`
-
-#### [郭先生诠释G-Fashion独特内涵](/content/gnews/2638537.md)
- `NFSC News`
 
 #### [【G时新闻】与太平洋岛国未能达成共识，中共安全协议被迫搁置](/content/gnews/2638532.md)
  `G-时新闻`
