@@ -3,6 +3,8 @@
 
 ## 頁面 25/43 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年9月15日 香港已成为恐惧之港](/content/transcript/2019/09/20190917-7577220596935524798.md)
+
 [文字版：2019年9月16日郭先生直播](/content/transcript/2019/09/20190917-3170231134844722988.md)
 
 [文字版：2019年9月14日郭先生报平安视频](/content/transcript/2019/09/20190915-5986309951181433663.md)
@@ -50,8 +52,6 @@
 [文字版：郭文貴先生2019年8月15日報平安直播](/content/transcript/2019/08/20190819-7582253714688026419.md)
 
 [文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/content/transcript/2019/08/20190815-8696204592091636594.md)
-
-[文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/content/transcript/2019/08/20190814-2176259177090842759.md)
 
 
 ## 頁面 25/43 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 36/43 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：4月28日金正恩是我们学习的坏榜样！](/content/transcript/2018/04/20180429-1799430545409667372.md)
+
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/transcript/2018/04/20180426-3820645061800034569.md)
 
 [翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/content/transcript/2018/04/20180426-4217728045032280574.md)
@@ -50,8 +52,6 @@
 [文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/content/transcript/2018/04/20180418-5862976291239032790.md)
 
 [文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180418-2853950060193549328.md)
-
-[文字版2018年3月28日郭先生YouTube三个视频1. 香港警察如何黑抓我们的员工和钱？2. 香港警察查封我们香港DBS银行．建行．中国银行的帐号用的什么法律手续？3. 为什么西方政府现在开始关注黑港警事件？](/content/transcript/2018/04/20180418-7552905014733217015.md)
 
 
 ## 頁面 36/43 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)

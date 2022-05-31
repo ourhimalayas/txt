@@ -3,6 +3,8 @@
 
 ## 頁面 18/43 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年4月23日郭先生GTV直播](/content/transcript/2020/04/20200427-7105885845281106075.md)
+
 [文字版:2020年4月22郭文贵先生GTV直播](/content/transcript/2020/04/20200424-2443423908182231640.md)
 
 [文字版：2020年4月19日郭先生GTV直播](/content/transcript/2020/04/20200423-2216881106964005874.md)
@@ -50,8 +52,6 @@
 [文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/content/transcript/2020/03/20200325-7072048714867304434.md)
 
 [文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/content/transcript/2020/03/20200323-7421159796736318134.md)
-
-[文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/content/transcript/2020/03/20200321-732520138033685407.md)
 
 
 ## 頁面 18/43 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

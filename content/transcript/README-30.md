@@ -3,6 +3,8 @@
 
 ## 頁面 30/43 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/content/transcript/2019/03/20190304-4934492035985499612.md)
+
 [文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息](/content/transcript/2019/03/20190303-6089231756466029624.md)
 
 [文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/content/transcript/2019/02/20190228-4589670167001687334.md)
@@ -50,8 +52,6 @@
 [文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大](/content/transcript/2019/01/20190127-8646715222462480282.md)
 
 [文字版：2019年1月23日文貴報平安直播](/content/transcript/2019/01/20190125-5995035220130924499.md)
-
-[文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/transcript/2019/01/20190123-2188991099465691450.md)
 
 
 ## 頁面 30/43 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

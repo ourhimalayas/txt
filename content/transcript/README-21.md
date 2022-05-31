@@ -3,6 +3,8 @@
 
 ## 頁面 21/43 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/content/transcript/2020/01/20200113-2672985235705561306.md)
+
 [文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/content/transcript/2020/01/20200112-3278403890679158483.md)
 
 [文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/content/transcript/2020/01/20200112-7411568700881167018.md)
@@ -50,8 +52,6 @@
 [文字版：2019年12月16号文贵报平安，维护海外华人形象，依法惩治海外的大小欺民贼](/content/transcript/2019/12/20191218-6370413042704455809.md)
 
 [文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实](/content/transcript/2019/12/20191218-3353927093351940100.md)
-
-[文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用](/content/transcript/2019/12/20191217-6566572008069059453.md)
 
 
 ## 頁面 21/43 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)

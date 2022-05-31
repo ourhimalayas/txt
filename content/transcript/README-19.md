@@ -3,6 +3,8 @@
 
 ## 頁面 19/43 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/content/transcript/2020/03/20200321-732520138033685407.md)
+
 [文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/content/transcript/2020/03/20200319-5480491388779340708.md)
 
 [文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/content/transcript/2020/03/20200317-7978079183041505608.md)
@@ -50,8 +52,6 @@
 [文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造](/content/transcript/2020/02/20200210-4272958490110900794.md)
 
 [文字版：2020年2月8日文贵第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的](/content/transcript/2020/02/20200210-962029426939304062.md)
-
-[文字版：2020年2月6日郭文贵先生接受班农先生战斗室访谈谈武汉疫情真相](/content/transcript/2020/02/20200208-1574169935593183081.md)
 
 
 ## 頁面 19/43 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 43/43 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [查看全部](/content/transcript/README-all.md)
 
+[翻译：一位被中国政府通缉的亿万富翁向美国寻求政治庇护](/content/transcript/2018/04/20180418-3813308793717217976.md)
+
 [郭文贵先生9月9号报平安直播文字版](/content/transcript/2018/04/20180418-2798200416865678412.md)
 
 [郭文贵先生9月10号报平安直播文字版](/content/transcript/2018/04/20180418-8363627678146390497.md)
