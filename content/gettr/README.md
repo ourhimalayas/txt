@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 5/31/2022 3:03 AM UTC ](/content/gettr/p1c2ehf0cf4.md)
+
+https://gettr.com/streaming/p1c2ijc87cd
+
+---
+
+[@mos_hongkong 5/30/2022 2:07 PM UTC ](/content/gettr/p1bzks7926b.md)
+
+5/30/2022
+
+近期大热的“GameFi”项目STEPN遭遇突变。
+
+北京时间5月27日凌晨，币圈项目STEPN在其官方社交媒体突然发布公告，宣布开始清退中国大陆用户。
+
+据其公告称：“为积极主动响应相关监管政策，STEPN将对APP用户进行清查，若发现中国大陆地区用户，则STEPN将依据使用条款对其账户于2022年7月15日（UTC+8）24：00停止提供GPS及IP位置服务。”
+
+对于中国大陆用户的项目资产，STEPN项目方称“如果您预期长期会在该...
+
+---
+
 [@miles 5/30/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1c1cdw5e6e.md)
 
 5/29/2022 Miles Guo: The “zero-COVID policy” is actually the CCP’s trick to win others’ trust by deliberately hurting itself, and to prevent the world from investigating the origins of the CCP virus.
@@ -30,17 +50,13 @@
 
 ---
 
-[@mos_hongkong 5/30/2022 2:07 PM UTC ](/content/gettr/p1bzks7926b.md)
+[@miles 5/31/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1c24p1bb37.md)
 
-5/30/2022
+2022-5-30《鸡血王喜币大作战》 第二百一十一集 嘉宾：NICK
 
-近期大热的“GameFi”项目STEPN遭遇突变。
 
-北京时间5月27日凌晨，币圈项目STEPN在其官方社交媒体突然发布公告，宣布开始清退中国大陆用户。
 
-据其公告称：“为积极主动响应相关监管政策，STEPN将对APP用户进行清查，若发现中国大陆地区用户，则STEPN将依据使用条款对其账户于2022年7月15日（UTC+8）24：00停止提供GPS及IP位置服务。”
-
-对于中国大陆用户的项目资产，STEPN项目方称“如果您预期长期会在该...
+<img src="https://media.gettr.com/group25/origin/2022/05/31/03/efe1cf93-d5e8-276c-7322-a9220da2e823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,22 +183,6 @@ https://gnews.org/zh-hans/2618610/
 5/29/2022  Miles Guo: The fellow fighters living inside China should worry about whether or not they could survive instead of the pain after being poked in the throat. They should understand who force you to get poked, who let you ...
 
 <img src="https://media.gettr.com/group8/getter/2022/05/30/06/2322488a-d201-00a2-b0ea-34c69780623b/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 2:59 AM UTC  - :tv:直播](/content/gettr/p1bxbqm3113.md)
-
-2022-5-29《鸡血王喜币大作战》 第二百一十集 嘉宾：齐天二圣、七里香
-
-<img src="https://media.gettr.com/group29/origin/2022/05/14/03/46256ca2-6d4a-951c-91e0-49e418083bd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1bwo3587ff.md)
-
-5/29/2022 Miles Guo: In terms of ending the COVID vaccine mandate, America is the bellwether and plays a crucial role here. The reason why America is afraid of making the call now is because of the concern on a slew of non-stop law...
-
-<img src="https://media.gettr.com/group7/getter/2022/05/30/01/29148992-ba7a-5e11-2469-51a300c07a69/out.jpg" width="506" height="284">
 
 ---
 
