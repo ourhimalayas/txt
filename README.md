@@ -11,20 +11,32 @@
 
 ---
 
-#### [台湾被打概率大大降低（八）](/content/gnews/2633854.md)
+#### [灭共的具体三道大门（九）](/content/gnews/2633935.md)
  `雅典娜GNotes`
 
-#### [台湾被打概率大大降低（七）](/content/gnews/2633852.md)
+#### [灭共的具体三道大门（八）](/content/gnews/2633931.md)
  `雅典娜GNotes`
 
-#### [台湾被打概率大大降低（六）](/content/gnews/2633850.md)
+#### [灭共的具体三道大门（七）](/content/gnews/2633930.md)
  `雅典娜GNotes`
 
-#### [台湾被打概率大大降低（五）](/content/gnews/2633846.md)
+#### [灭共的具体三道大门（六）](/content/gnews/2633925.md)
  `雅典娜GNotes`
 
-#### [女权主义是女人开始学会爱女人](/content/gnews/2633836.md)
- `纽约香草山MOS03`
+#### [灭共的具体三道大门（五）](/content/gnews/2633921.md)
+ `雅典娜GNotes`
+
+#### [得了新冠，成了“罪人”，被辞退](/content/gnews/2633885.md)
+ `Tokyo Sakura Video Group`
+
+#### [互相举报，互相揭发时代又来了](/content/gnews/2633884.md)
+ `Tokyo Sakura Video Group`
+
+#### [美国有望在年底结束中共病毒疫苗强制接种](/content/gnews/2633873.md)
+ `NFSC News`
+
+#### [猴痘是中共病毒和疫苗的后果](/content/gnews/2633853.md)
+ `NFSC News`
 
 #### [中共的清零政策是牺牲百姓的苦肉计](/content/gnews/2633834.md)
  `NFSC News`
@@ -39,9 +51,6 @@
  `NFSC News`
 
 #### [日本确认跟随美国准备应对台海危机](/content/gnews/2633798.md)
- `NFSC News`
-
-#### [美国国务院声明高度关注联合国对中共人权的调查](/content/gnews/2633781.md)
  `NFSC News`
 
 #### [中俄贸易额增加](/content/gnews/2633751.md)
@@ -80,17 +89,11 @@
 #### [民调显示多数加拿大人认为已陷入经济衰退](/content/gnews/2633431.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [有声&#124;Airbnb退出中共国](/content/gnews/2633430.md)
- `MOSREC`
-
 #### [秘翻在线: 中共外交部再批布林肯](/content/gnews/2633412.md)
  `秘密翻譯組G-Translators`
 
 #### [加拿大枪支暴力犯罪率回升](/content/gnews/2633405.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [有声&#124;对抗中共在太平洋的渗透 澳洲新政府加强周边联系](/content/gnews/2633359.md)
- `MOSREC`
 
 #### [中共在国内的清零政策是战争的需要，政治稳定的需要 ｜粤时报](/content/gnews/2633337.md)
  `秘密翻译组-即时新闻播报组`
@@ -109,9 +112,6 @@
 
 #### [5/30/2022国际财经快讯：德国修改宪法以启用国防基金；中共封城导致丰田未能实现全球生产目标](/content/gnews/2632851.md)
  `秘密翻译组金融团队`
-
-#### [她急了？ 他急了？中共全网封杀布林肯对华政策演讲译文](/content/gnews/2632777.md)
- `新西兰伊甸农场听写编辑组`
 
 #### [5月29日郭文贵先生直播视频：GFASHION帮助新中国联邦追求文化主权](/content/gnews/2632680.md)
  `日本东京方舟农场`
