@@ -8,6 +8,26 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 ---
 
+[@miles 5/31/2022 7:13 AM UTC  - :tv:直播](/content/gettr/p1c3cq85d02.md)
+
+2022-5-30《鸡血王喜币大作战》 第二百一十一集 嘉宾：NICK
+
+
+
+<img src="https://media.gettr.com/group25/origin/2022/05/31/03/efe1cf93-d5e8-276c-7322-a9220da2e823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/31/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1c24p1bb37.md)
+
+2022-5-30《鸡血王喜币大作战》 第二百一十一集 嘉宾：NICK
+
+
+
+<img src="https://media.gettr.com/group25/origin/2022/05/31/03/efe1cf93-d5e8-276c-7322-a9220da2e823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@mos_hongkong 5/30/2022 2:07 PM UTC ](/content/gettr/p1bzks7926b.md)
 
 5/30/2022
@@ -47,16 +67,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 5月30日：G FASHION 是G  club member．会员最重要的利益，连接社会家庭最重要的纽带和不可替代的社会关系资源！https://instagram.com/stories/anthonydltorre/2849187402015481362?igshid=YmMyMTA2M2Y=
 
 <img src="https://media.gettr.com/group32/getter/2022/05/30/21/6bbe108b-21c4-80fc-7893-d2850a16baa3/1673aab15becf402c97255ec4af77605.jpg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1c24p1bb37.md)
-
-2022-5-30《鸡血王喜币大作战》 第二百一十一集 嘉宾：NICK
-
-
-
-<img src="https://media.gettr.com/group25/origin/2022/05/31/03/efe1cf93-d5e8-276c-7322-a9220da2e823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP)
 世界上大多数保险巨头的背后老板都是 #先锋集团、 #贝莱德 和 #道富 这些资本大鳄。这些黑暗的沼泽地力量不但控制了大科技公司和媒体，也是 #疫苗 公司和 #保险 公司的最大机构投资者，它们究竟想达到什么目的？疫苗灾难给了我们最好的答案！
 
 https://gnews.org/zh-hans/2618610/
-
----
-
-[@miles 5/30/2022 6:15 AM UTC  - :tv:直播](/content/gettr/p1bxz1z5df5.md)
-
-5/29/2022 Miles Guo: The executives of SIIC and Greenland Holdings were not vaccinated against the COVID-19, and it is even more unlikely that the top officials of the Shanghai government take the COVID vaccine. The absurdities hap...
-
-<img src="https://media.gettr.com/group31/getter/2022/05/30/06/8daa61ca-526f-9fa1-77f1-b43056234fcf/out.jpg" width="506" height="284">
 
 ---
 
