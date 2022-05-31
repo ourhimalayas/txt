@@ -2,9 +2,19 @@
 ---
 
 
-[@miles 5/31/2022 7:03 PM UTC ](/content/gettr/p1c52i6c9d7.md)
+[@miles 5/31/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1c6bja32b9.md)
 
-2022-5-31 《避风港》(54) 疫苗接种者只需5个月发展成艾滋病样
+5/30/2022 Miles Guo’s GETTR: Wang Yi's so-called 10-nation tour of the southern hemisphere is bullshit! The U.S. will definitely destroy those who are in cahoots with the CCP in these countries, such as the president of Solomon Isl...
+
+<img src="https://media.gettr.com/group24/getter/2022/05/31/23/b3ffd9ba-5b0f-47cc-aacc-9d518d54b161/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/31/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1c645w5f4e.md)
+
+5/30/2022 Miles Guo’s GETTR: Unlike the CCP, which only seeks to seize other people’s properties and monopolize all resources, citizens of the New Federal State of China own Himalaya Coins and are getting rich together, enjoying th...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/31/23/fa9ffea3-0430-6364-8751-f0afcb4e1e47/out.jpg" width="506" height="284">
 
 ---
 
@@ -13,6 +23,20 @@
 Sergio is a French volunteer who came to help Ukrainian on the 26 of April. He shared his memorable experience with King, a New Federal State of China and Rule of Law Foundation volunteer. Sergio praised and thanked the NFSC coffee...
 
 <img src="https://media.gettr.com/group29/origin/2022/05/31/22/68ca4450-2747-2da6-d757-270654da748c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/31/2022 7:03 PM UTC ](/content/gettr/p1c52i6c9d7.md)
+
+2022-5-31 《避风港》(54) 疫苗接种者只需5个月发展成艾滋病样
+
+---
+
+[@miles 5/31/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1c602l3e58.md)
+
+5/31/2022 Miles Guo's GETTR: There is a sharp rise in the monthly new cases of cancer, myocarditis and myocardial infarction in the world! Our fellow fighters’ family members in mainland China already got myocarditis and leukemia a...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/31/22/eb30b023-12c3-cef1-2eda-ecc4301e47cf/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,14 +170,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 ---
 
-[@miles 5/30/2022 7:07 PM UTC  - :tv:直播](/content/gettr/p1c0vhldded.md)
-
-2022-05-30 4k战友游船直播测试
-
-<img src="https://media.gettr.com/group36/origin/2022/05/30/19/eb5d39f6-b6b0-0797-9032-e79ca478235f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/30/2022 7:10 PM UTC  - :tv:直播](/content/gettr/p1c14697a95.md)
 
 2022年5月30日 战友游船连线直播
@@ -161,28 +177,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 
 <img src="https://media.gettr.com/group6/origin/2022/05/30/18/a331e32a-9de3-1ad8-aa86-9f88cc20e06f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 5:25 PM UTC  - :tv:直播](/content/gettr/p1c0or0e81c.md)
-
-2022年5月30日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group11/origin/2022/05/30/17/67cf64b4-d9be-7b08-51e3-244df38c0fdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 4:16 PM UTC  - :tv:直播](/content/gettr/p1c0jvd3ecc.md)
-
-5/29/2022 Miles Guo: Ending the vaccine mandate in the U.S. means ending the vaccine mandates around the world.
-
-
-
-5/29/202 文贵直播：美国疫苗强制的停止等同于全世界范围内疫苗强制的停止。
-
-
-
-<img src="https://media.gettr.com/group49/getter/2022/05/30/16/5e6553cd-28f9-aa97-3757-7ca49e50cf4c/out.jpg" width="506" height="284">
 
 ---
 
