@@ -8,6 +8,22 @@
 
 ---
 
+[@miles 5/31/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1c6ffq0a34.md)
+
+Sergio is a French volunteer who came to help Ukrainian on the 26 of April. He shared his memorable experience with King, a New Federal State of China and Rule of Law Foundation volunteer. Sergio praised and thanked the NFSC coffee...
+
+<img src="https://media.gettr.com/group29/origin/2022/05/31/22/68ca4450-2747-2da6-d757-270654da748c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/31/2022 7:04 PM UTC  - :tv:直播](/content/gettr/p1c5dgp2973.md)
+
+2022-05-31 4k战友游船直播测试 第二天
+
+<img src="https://media.gettr.com/group4/origin/2022/05/31/19/fb1aa5d4-1964-27b6-24d1-992199f663d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/31/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1c5p2leaf3.md)
 
 2022年5月31日 Gclub会员船游活动第二天
@@ -67,14 +83,6 @@ On May 29th, Mr. Guo said in his big live-broadcast, the "Zero-COVID Policy" tha
 [@miles 5/31/2022 3:03 AM UTC ](/content/gettr/p1c2ehf0cf4.md)
 
 https://gettr.com/streaming/p1c2ijc87cd
-
----
-
-[@miles 5/31/2022 7:04 PM UTC  - :tv:直播](/content/gettr/p1c5dgp2973.md)
-
-2022-05-31 4k战友游船直播测试 第二天
-
-<img src="https://media.gettr.com/group4/origin/2022/05/31/19/fb1aa5d4-1964-27b6-24d1-992199f663d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 
 <img src="https://media.gettr.com/group49/getter/2022/05/30/16/5e6553cd-28f9-aa97-3757-7ca49e50cf4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1bzsel7cce.md)
-
- 5月30号：尊敬的战友们好……每次看到在乌克兰前线救援的视频！都非常非常的感动，每次看．都有不同的感受，所有参与前线过救援的战友们．给新中国联邦和未来的新中国人所带来的帮助和。和深远的意义．是无法形容的．衷心地感谢……每一位亲爱的兄弟姐妹们！
-
-<img src="https://media.gettr.com/group43/getter/2022/05/30/13/e5bf3969-99e9-385a-203b-5d4c39b27782/out.jpg" width="506" height="284">
 
 ---
 
