@@ -2,6 +2,27 @@
 ---
 
 
+#### [2022年5月31日《樱花简报》：日本警察厅设“经济安全保障室”应对中俄技术窃密](/content/gnews/2634157.md)
+ `东京樱花团`
+
+#### [加拿大纽芬兰和拉布拉多省将放弃对工人的新冠疫苗强制令](/content/gnews/2634150.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [军费大涨“超限”　德国准备修宪](/content/gnews/2634147.md)
+ `加拿大温哥华英里农场`
+
+#### [俄乌冲突殃及斯里兰卡](/content/gnews/2634146.md)
+ `加拿大温哥华英里农场`
+
+#### [俄乌战争加剧非洲“三重危机”](/content/gnews/2634145.md)
+ `加拿大温哥华英里农场`
+
+#### [俄乌战争在拉美多国引发社会动荡](/content/gnews/2634144.md)
+ `加拿大温哥华英里农场`
+
+#### [精糧接受法国JTO NEWS采访](/content/gnews/2634118.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [拜登计划在中期选举前减免每个借款人1万美元的学生债](/content/gnews/2634085.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -10,6 +31,12 @@
 
 #### [无惧中共国撤资 《壮志凌云2》赢得票房和掌声](/content/gnews/2634048.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [加拿大各银行正为经济崩溃做准备](/content/gnews/2633948.md)
+ `扬帆枫叶快讯`
+
+#### [多数加拿大人称经济已经陷入衰退](/content/gnews/2633947.md)
+ `扬帆枫叶快讯`
 
 #### [纽芬兰省取消对政府雇员的疫苗强制接种](/content/gnews/2633945.md)
  `扬帆枫叶快讯`
@@ -20,29 +47,8 @@
 #### [加拿大新法案赋予边境执法者过度裁量权](/content/gnews/2633943.md)
  `扬帆枫叶快讯`
 
-#### [灭共的具体三道大门（九）](/content/gnews/2633935.md)
- `雅典娜GNotes`
-
-#### [灭共的具体三道大门（八）](/content/gnews/2633931.md)
- `雅典娜GNotes`
-
-#### [灭共的具体三道大门（七）](/content/gnews/2633930.md)
- `雅典娜GNotes`
-
-#### [灭共的具体三道大门（六）](/content/gnews/2633925.md)
- `雅典娜GNotes`
-
-#### [灭共的具体三道大门（五）](/content/gnews/2633921.md)
- `雅典娜GNotes`
-
 #### [埃德蒙顿华人呼吁加强当地社区治安](/content/gnews/2633916.md)
  `扬帆枫叶快讯`
-
-#### [得了新冠，成了“罪人”，被辞退](/content/gnews/2633885.md)
- `Tokyo Sakura Video Group`
-
-#### [互相举报，互相揭发时代又来了](/content/gnews/2633884.md)
- `Tokyo Sakura Video Group`
 
 #### [美国有望在年底结束中共病毒疫苗强制接种](/content/gnews/2633873.md)
  `NFSC News`
@@ -77,9 +83,6 @@
 #### [中共国空军进入防空区 台湾战机紧急行动](/content/gnews/2633602.md)
  `波士顿五月花农场金融部`
 
-#### [2022/05/30 英喜时事速递](/content/gnews/2633524.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [猴痘是新冠病毒、新冠疫苗综合作用的结果，冠状系列病毒已基本结束](/content/gnews/2633519.md)
  `亚伦YALUN`
 
@@ -94,9 +97,6 @@
 
 #### [2022/05/29 文贵先生大直播精要](/content/gnews/2633251.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [中共国输出新冠疫苗造成死亡，已有70个国家准备在国际仲裁法庭告中共](/content/gnews/2633188.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [G7停止资助海外化石燃料开发](/content/gnews/2633097.md)
  `TokyoSakura Politics/樱花时政`
