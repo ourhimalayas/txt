@@ -2,6 +2,9 @@
 ---
 
 
+#### [无惧中共国撤资 《壮志凌云2》赢得票房和掌声](/content/gnews/2634048.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [灭共的具体三道大门（九）](/content/gnews/2633935.md)
  `雅典娜GNotes`
 
@@ -14,8 +17,8 @@
 #### [灭共的具体三道大门（六）](/content/gnews/2633925.md)
  `雅典娜GNotes`
 
-#### [灭共的具体三道大门（五）](/content/gnews/2633921.md)
- `雅典娜GNotes`
+#### [埃德蒙顿华人呼吁加强当地社区治安](/content/gnews/2633916.md)
+ `扬帆枫叶快讯`
 
 #### [得了新冠，成了“罪人”，被辞退](/content/gnews/2633885.md)
  `Tokyo Sakura Video Group`
@@ -41,8 +44,8 @@
 #### [泰国寻求与越南协议 提高大米出口价格](/content/gnews/2633806.md)
  `NFSC News`
 
-#### [日本确认跟随美国准备应对台海危机](/content/gnews/2633798.md)
- `NFSC News`
+#### [泽伦斯基指责欧盟未能就俄石油禁运达成一致](/content/gnews/2633768.md)
+ `蓝莲花农场`
 
 #### [中俄贸易额增加](/content/gnews/2633751.md)
  `mayflowertranslate`
@@ -83,9 +86,6 @@
 #### [秘翻在线: 中共外交部再批布林肯](/content/gnews/2633412.md)
  `秘密翻譯組G-Translators`
 
-#### [加拿大枪支暴力犯罪率回升](/content/gnews/2633405.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [中共在国内的清零政策是战争的需要，政治稳定的需要 ｜粤时报](/content/gnews/2633337.md)
  `秘密翻译组-即时新闻播报组`
 
@@ -103,6 +103,9 @@
 
 #### [5/30/2022国际财经快讯：德国修改宪法以启用国防基金；中共封城导致丰田未能实现全球生产目标](/content/gnews/2632851.md)
  `秘密翻译组金融团队`
+
+#### [文贵谈当今医学界悲哀的沦落现状](/content/gnews/2632685.md)
+ `东京樱花团`
 
 #### [5月29日郭文贵先生直播视频：GFASHION帮助新中国联邦追求文化主权](/content/gnews/2632680.md)
  `日本东京方舟农场`
@@ -136,9 +139,6 @@
 
 #### [秘翻在线：被卸磨杀驴的科兴生物](/content/gnews/2631253.md)
  `秘密翻譯組G-Translators`
-
-#### [美国超越中共国成为印度最大贸易伙伴](/content/gnews/2631202.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [中日财经爆&#124;德国大众汽车CEO为其支持新疆业务辩护](/content/gnews/2629627.md)
  `东京樱花团`
