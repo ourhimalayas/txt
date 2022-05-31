@@ -2,13 +2,23 @@
 ---
 
 
+[@miles 5/31/2022 7:13 AM UTC  - :tv:直播](/content/gettr/p1c3cq85d02.md)
+
+2022-5-30《鸡血王喜币大作战》 第二百一十一集 嘉宾：NICK
+
+
+
+<img src="https://media.gettr.com/group25/origin/2022/05/31/03/efe1cf93-d5e8-276c-7322-a9220da2e823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/31/2022 3:03 AM UTC ](/content/gettr/p1c2ehf0cf4.md)
 
 https://gettr.com/streaming/p1c2ijc87cd
 
 ---
 
-[@miles 5/31/2022 7:13 AM UTC  - :tv:直播](/content/gettr/p1c3cq85d02.md)
+[@miles 5/31/2022 7:16 AM UTC  - :tv:直播](/content/gettr/p1c365x1454.md)
 
 2022-5-30《鸡血王喜币大作战》 第二百一十一集 嘉宾：NICK
 
@@ -177,14 +187,6 @@ On May 29, Mr. Miles Guo blew the whistle that the Chinese Communist Party (CCP)
 世界上大多数保险巨头的背后老板都是 #先锋集团、 #贝莱德 和 #道富 这些资本大鳄。这些黑暗的沼泽地力量不但控制了大科技公司和媒体，也是 #疫苗 公司和 #保险 公司的最大机构投资者，它们究竟想达到什么目的？疫苗灾难给了我们最好的答案！
 
 https://gnews.org/zh-hans/2618610/
-
----
-
-[@miles 5/30/2022 6:20 AM UTC  - :tv:直播](/content/gettr/p1byisqed74.md)
-
-5/29/2022  Miles Guo: The fellow fighters living inside China should worry about whether or not they could survive instead of the pain after being poked in the throat. They should understand who force you to get poked, who let you ...
-
-<img src="https://media.gettr.com/group8/getter/2022/05/30/06/2322488a-d201-00a2-b0ea-34c69780623b/out.jpg" width="506" height="284">
 
 ---
 
