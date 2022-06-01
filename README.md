@@ -11,6 +11,18 @@
 
 ---
 
+#### [100多名澳大利亚国防军将被派往太平洋地区，以应对中国威胁](/content/gnews/2640744.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [民生集萃——民生灾难（2022.6.1E）&#8211;50岁的大姨突然离世……](/content/gnews/2640731.md)
+ `墨尔本雅典娜农场`
+
+#### [面对低迷的经济，“摆烂”成为中共国年轻人的无奈选择](/content/gnews/2640694.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [新中国联邦&amp;正道主义将被人类接受并将永远闪耀光芒](/content/gnews/2640665.md)
+ `喜马拉雅日本银河系农场`
+
 #### [法国志愿者表示要继续与普京和中共等独裁者作斗争](/content/gnews/2640630.md)
  `墨尔本雅典娜农场`
 
@@ -46,6 +58,9 @@
 
 #### [能源价格疯涨 欧盟艰难推进对俄罗斯能源制裁](/content/gnews/2640360.md)
  `蓝莲花农场`
+
+#### [自由党政府反对结束旅行限制规定](/content/gnews/2640359.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [中共病毒疫苗导致的严重疾病陡增](/content/gnews/2640336.md)
  `thedawn`
@@ -89,20 +104,8 @@
 #### [一个新版讽刺片](/content/gnews/2640132.md)
  `Tokyo Sakura Video Group`
 
-#### [疫苗毒死人还封口](/content/gnews/2640131.md)
- `Tokyo Sakura Video Group`
-
-#### [中共国衡水中学，孩子们被中共洗脑，愚昧操纵到如此地步](/content/gnews/2640130.md)
- `Tokyo Sakura Video Group`
-
 #### [安东尼·阿尔巴内塞对中共的立场对所有澳大利亚人来说堪称佳音](/content/gnews/2640070.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [中共利用数字人民币来激励受中共病毒影响的消费者](/content/gnews/2640055.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [今天北京地铁去英文化有多彻底未来就会出现多少习猪头](/content/gnews/2640048.md)
- `NewFOC`
 
 #### [黄浩铭出狱信念不变 寄语港人 ｜粤时报](/content/gnews/2640041.md)
  `秘密翻译组-即时新闻播报组`
@@ -112,6 +115,9 @@
 
 #### [医生噤声源于套牢在脖上的三把锁，挣脱捆绑重回希腊纯真时代](/content/gnews/2640003.md)
  `亚伦YALUN`
+
+#### [阿斯利康疫苗或导致严重的神经系统疾病](/content/gnews/2639999.md)
+ `扬帆枫叶快讯`
 
 #### [说说我的“六四”](/content/gnews/2639988.md)
  `日本东京方舟农场`
@@ -133,12 +139,6 @@
 
 #### [郭先生谈GFashon对新中国联邦的重要意义](/content/gnews/2639882.md)
  `NFSC News`
-
-#### [韩国K-Pop现身白宫新闻发布会](/content/gnews/2639878.md)
- `秘密翻譯組G-Translators`
-
-#### [猴痘来自疫苗！](/content/gnews/2639845.md)
- `mayflowertranslate`
 
 #### [【秘翻在线】英国政府计划对稳定币制定新的保障措施](/content/gnews/2639805.md)
  `秘密翻譯組G-Translators`
