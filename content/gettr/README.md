@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/1/2022 7:44 PM UTC  - 6圖](/content/gettr/p1cale02ab4.md)
+
+ 6月1号：尊敬的战友们好．衷心地祝愿．全天下的儿童们节日快乐，为所有天下的儿童．未来的安全．健康．快乐．祈福！吃饺子喽，这是七哥的过儿童节的方式！
+
+<img src="https://media.gettr.com/group5/getter/2022/06/01/19/64e2025a-8b00-f7d1-3a31-06f8a8ffe183/2e1934d30bf74c17da7196a27cd2c800.jpg" width="506" height="284">
+
+---
+
 [@miles 6/1/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1c9xef3a69.md)
 
 2022年6月1日 俄乌战争战况播报
@@ -34,11 +42,11 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 
 ---
 
-[@miles 6/1/2022 7:44 PM UTC  - 6圖](/content/gettr/p1cale02ab4.md)
+[@miles 6/1/2022 8:11 PM UTC  - :tv:直播](/content/gettr/p1cajs02c77.md)
 
- 6月1号：尊敬的战友们好．衷心地祝愿．全天下的儿童们节日快乐，为所有天下的儿童．未来的安全．健康．快乐．祈福！吃饺子喽，这是七哥的过儿童节的方式！
+2022-06-01 4k测试新中国联邦战友相聚纽约
 
-<img src="https://media.gettr.com/group5/getter/2022/06/01/19/64e2025a-8b00-f7d1-3a31-06f8a8ffe183/2e1934d30bf74c17da7196a27cd2c800.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/06/01/20/634b3e3d-a2ab-2e9c-aa96-c094391b72f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,12 +159,6 @@ On May 29th, Mr. Guo said in his big live-broadcast, the "Zero-COVID Policy" tha
 
 
 <img src="https://media.gettr.com/group25/origin/2022/05/31/03/efe1cf93-d5e8-276c-7322-a9220da2e823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 3:03 AM UTC ](/content/gettr/p1c2ehf0cf4.md)
-
-https://gettr.com/streaming/p1c2ijc87cd
 
 ---
 
