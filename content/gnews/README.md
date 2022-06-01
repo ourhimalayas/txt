@@ -2,35 +2,47 @@
 ---
 
 
+#### [韩国男团BTS在白宫和拜登见面，呼吁停止亚裔仇恨](/content/gnews/2642189.md)
+ `澳喜农场`
+
+#### [北京各自庄有2例阳性，立马焊死大门，今天估计得封死！CCP都是这么突然](/content/gnews/2642158.md)
+ `Tokyo Sakura Video Group`
+
+#### [有自由则中共死](/content/gnews/2642157.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;郭先生谈GFashon对新中国联邦的重要意义](/content/gnews/2642152.md)
+ `MOSVIDEO`
+
+#### [西澳放宽了对大多数员工的新冠疫苗强制接种令](/content/gnews/2642148.md)
+ `澳喜农场`
+
+#### [视频&#124;疫苗危机真相大白天下之日还很遥远](/content/gnews/2642119.md)
+ `MOSVIDEO`
+
+#### [COVID-19疫苗副作用集萃（2022.6.1B）16岁肺癌晚期](/content/gnews/2642098.md)
+ `墨尔本雅典娜农场`
+
+#### [拜登表示美国并不打算推翻普京政权](/content/gnews/2642097.md)
+ `澳喜农场`
+
 #### [视频&#124;. 新中国联邦的医生是人类健康安全的天使](/content/gnews/2642090.md)
  `MOSVIDEO`
 
-#### [“我老爸病危通知书下了，我想回家回不了！下去就会被CCP隔离！隔离你还得出钱”](/content/gnews/2642075.md)
+#### [受上海疫情影响造成零部件断供，丰田汽车宣布日本10座工厂停工，5万辆汽车延迟生产](/content/gnews/2642077.md)
  `Tokyo Sakura Video Group`
 
-#### [视频&#124;郭先生诠释G-Fashion独特内涵](/content/gnews/2642071.md)
- `MOSVIDEO`
+#### [中共国又有6个随地倒，揪心！](/content/gnews/2642076.md)
+ `Tokyo Sakura Video Group`
 
-#### [中共国召回一些具有争议的人教版教科书](/content/gnews/2642049.md)
- `澳喜农场`
-
-#### [快乐的节日](/content/gnews/2642048.md)
- `东京樱花团`
-
-#### [视频&#124;解决墙内所有问题的唯一办法就是灭共](/content/gnews/2642045.md)
- `MOSVIDEO`
-
-#### [【说事儿】可怕的中共病毒后遗症：近20%患者出现“长新冠”症状](/content/gnews/2642040.md)
- `TokyoSakuraDesignGroup`
+#### [“我老爸病危通知书下了，我想回家回不了！下去就会被CCP隔离！隔离你还得出钱”](/content/gnews/2642075.md)
+ `Tokyo Sakura Video Group`
 
 #### [文·贵天成——文贵先生谈“盗国贼”（三）](/content/gnews/2642036.md)
  `墨尔本雅典娜农场`
 
 #### [中国是爹妈爷爷挣钱隔辈花,沼泽地有钱人是钱多到花不完](/content/gnews/2642009.md)
  `喜马拉雅日本银河系农场`
-
-#### [欧盟协议禁运俄罗斯原油](/content/gnews/2641975.md)
- `TokyoSakura Politics/樱花时政`
 
 #### [小钱我不偷你,大钱我不要,我要你人民币的命—喜联储](/content/gnews/2641962.md)
  `喜马拉雅日本银河系农场`
@@ -41,11 +53,8 @@
 #### [超九成日本民众赞同准备应对未来台海战争](/content/gnews/2641902.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [梅迪卡的白色帐篷The White Tent in Medyka](/content/gnews/2641866.md)
- `澳喜农场`
-
-#### [上海滩（中共泄洪版）](/content/gnews/2641799.md)
- `东京樱花团`
+#### [用事实反驳《以青春之名》](/content/gnews/2641846.md)
+ `澳喜特战旅Gnews`
 
 #### [联合国人权高专访疆行程受限 沦为中共“大外宣”](/content/gnews/2641787.md)
  `NFSC News`
@@ -55,9 +64,6 @@
 
 #### [浅谈高超音速导弹](/content/gnews/2641575.md)
  `NFSC 军事`
-
-#### [世上可有这样一方土地](/content/gnews/2641569.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [闲聊澳洲系列：俄乌战争的另一条战线，美英打压德法掌控欧洲](/content/gnews/2641514.md)
  `墨尔本雅典娜农场`
@@ -145,12 +151,6 @@
 
 #### [北约议会一致通过并签署了“与乌克兰站在一起”的宣言](/content/gnews/2637020.md)
  `日本东京方舟农场`
-
-#### [我身边的中共毒疫苗副作用案例整理（下）](/content/gnews/2636697.md)
- `喜马拉雅纽约磐石农场`
-
-#### [我身边的中共毒疫苗副作用案例整理（上）](/content/gnews/2636474.md)
- `喜马拉雅纽约磐石农场`
 
 #### [热点｜王毅“太平洋岛国之旅”以失败告终 10国拒签中共“安全合作协议”](/content/gnews/2634977.md)
  `關注組`
