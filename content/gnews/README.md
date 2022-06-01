@@ -2,20 +2,41 @@
 ---
 
 
+#### [【樱话】联邦报告警告称中国对美国农业的兴趣构成安全威胁](/content/gnews/2643806.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】禁止新冠疫苗强制令是支持自由主义的立场](/content/gnews/2643795.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】中共受挫 未能与太平洋岛国达成安全贸易协议](/content/gnews/2643767.md)
+ `TokyoSakuraDesignGroup`
+
+#### [日本成立新的战略小组监视中国动向](/content/gnews/2643759.md)
+ `波士顿五月花农场金融部`
+
+#### [美商务部长称正调查中共国公司耍花招逃避美国制裁](/content/gnews/2643741.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [【樱话】美议员再度访台称：美台站在一起是跨党派共识](/content/gnews/2643740.md)
+ `TokyoSakuraDesignGroup`
+
 #### [【樱话】居家隔离　北京复制上海模式](/content/gnews/2643710.md)
  `TokyoSakuraDesignGroup`
 
 #### [秘翻在线：美国儿童COVID-19患者一个月内翻倍至11万2千人](/content/gnews/2643706.md)
  `秘密翻譯組G-Translators`
 
-#### [【樱话】从金融的本质谈躺平币的投资价值](/content/gnews/2643674.md)
- `TokyoSakuraDesignGroup`
+#### [加拿大边境服务局申请积压严重](/content/gnews/2643670.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [秘翻在线：加密货币市场出现“脱钩”现象](/content/gnews/2643667.md)
  `秘密翻譯組G-Translators`
 
 #### [视频&#124;乌克兰收集俄罗斯死者进行囚犯交换](/content/gnews/2643664.md)
  `MOSVIDEO`
+
+#### [秘翻在线：陈希任中共三亚市代理市长和副市长](/content/gnews/2643660.md)
+ `秘密翻譯組G-Translators`
 
 #### [中共派30架战机闯入台湾防空区](/content/gnews/2643655.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -47,9 +68,6 @@
 #### [秘翻在线：上海企业家们的痛苦领悟](/content/gnews/2643518.md)
  `秘密翻譯組G-Translators`
 
-#### [2022年6月1日战时快讯](/content/gnews/2643486.md)
- `墨尔本雅典娜农场`
-
 #### [关于躺平币使用及价值](/content/gnews/2643470.md)
  `喜马拉雅德国纽伦堡正义农场`
 
@@ -61,6 +79,9 @@
 
 #### [在有儿童死于新冠病毒后，台湾加大了儿童疫苗接种力度](/content/gnews/2643464.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [读卖新闻：中共国绝不能利用联合国高级人权官员的访问来结束问题](/content/gnews/2643457.md)
+ `温哥华扬帆农场`
 
 #### [卫健委领导被清零后新冠也清零了](/content/gnews/2643453.md)
  `澳喜农场`
@@ -89,9 +110,6 @@
 #### [有声&#124;新数据库揭示超9万种拓扑材料](/content/gnews/2643387.md)
  `MOSREC`
 
-#### [有声&#124;美将领称助乌破解俄粮食封锁势在必行](/content/gnews/2643385.md)
- `MOSREC`
-
 #### [拜登向乌克兰运送先进的火箭系统 目的不想延长战争](/content/gnews/2643070.md)
  `墨尔本雅典娜农场`
 
@@ -110,32 +128,14 @@
 #### [秘翻新闻｜中共毒苗 台海局勢 中共用科技監控抓人](/content/gnews/2642424.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [河南女孩打一针科兴后患再障花60万殒命科兴只赔25万](/content/gnews/2642421.md)
- `NewFOC`
-
 #### [联合国人权高专访疆行程受限 沦为中共“大外宣”](/content/gnews/2641787.md)
  `NFSC News`
-
-#### [浅谈高超音速导弹](/content/gnews/2641575.md)
- `NFSC 军事`
-
-#### [闲聊澳洲系列：俄乌战争的另一条战线，美英打压德法掌控欧洲](/content/gnews/2641514.md)
- `墨尔本雅典娜农场`
 
 #### [揭露欺民贼](/content/gnews/2641509.md)
  `NFSC News`
 
 #### [撤离之际，新中国联邦将救援物资移交给乌克兰志愿者](/content/gnews/2641499.md)
  `NFSC News`
-
-#### [DC大中华时事：预示中共国金融崩盘已经开始](/content/gnews/2641489.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [银行卡惊魂](/content/gnews/2641457.md)
- `澳喜农场`
-
-#### [梨花颂（葬香港）](/content/gnews/2641397.md)
- `东京樱花团`
 
 #### [欧盟峰会就加快乌克兰谷物陆路出口达成一致](/content/gnews/2640585.md)
  `TokyoSakura Politics/樱花时政`
