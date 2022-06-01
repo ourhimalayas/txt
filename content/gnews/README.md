@@ -2,6 +2,12 @@
 ---
 
 
+#### [今天北京地铁去英文化有多彻底未来就会出现多少习猪头](/content/gnews/2640048.md)
+ `NewFOC`
+
+#### [黄浩铭出狱信念不变 寄语港人 ｜粤时报](/content/gnews/2640041.md)
+ `秘密翻译组-即时新闻播报组`
+
 #### [美国联邦参议员会晤蔡英文总统 重申支持台湾](/content/gnews/2640034.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -58,9 +64,6 @@
 
 #### [韩国K-Pop现身白宫新闻发布会](/content/gnews/2639878.md)
  `秘密翻譯組G-Translators`
-
-#### [伊维菌素确实对中共病毒疫苗后遗症有效](/content/gnews/2639847.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [猴痘来自疫苗！](/content/gnews/2639845.md)
  `mayflowertranslate`
@@ -124,9 +127,6 @@
 
 #### [中日财经爆｜食品价格上涨，年均突破1万种，6月份以后规模将扩大](/content/gnews/2637318.md)
  `东京樱花团`
-
-#### [有声｜中共面临1万亿美元资金缺口](/content/gnews/2637307.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [粮食短缺迫在眉睫 斯里兰卡呼吁农民种植更多水稻](/content/gnews/2637282.md)
  `波士顿五月花农场金融部`
