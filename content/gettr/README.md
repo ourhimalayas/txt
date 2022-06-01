@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/1/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1c7yos80e2.md)
+
+Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica, Poland, and reported that volunteers from almost all over the world gathered at the Medica camp in Poland to support the Ukrainian people in their ow...
+
+<img src="https://media.gettr.com/group43/origin/2022/06/01/05/1f1f8f06-3d1f-951e-74f2-f2e50de1b638/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/1/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1c70u88aa2.md)
 
 2022-5-31《鸡血王喜币大作战》 第二百一十二集 嘉宾：文空、Happy
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/1/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1c7yos80e2.md)
+[@miles 6/1/2022 11:04 AM UTC  - :tv:直播](/content/gettr/p1c98r0f2a7.md)
 
-Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica, Poland, and reported that volunteers from almost all over the world gathered at the Medica camp in Poland to support the Ukrainian people in their ow...
+2022.06.01 新中国联邦 | 军情室 六四特辑 八九六四后西方对中共的军事禁运
 
-<img src="https://media.gettr.com/group43/origin/2022/06/01/05/1f1f8f06-3d1f-951e-74f2-f2e50de1b638/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/06/01/10/723c6232-d5e4-7cf2-32aa-fe95a0f34b9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 5/29/2022 文贵直播：中共的清零政策实为苦肉计，...
 
 <img src="https://media.gettr.com/group47/getter/2022/05/30/23/a79e0b1f-fad5-b279-3d53-6ad8559eaef3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1c185nb8a9.md)
-
-5/30/2022 Miles Guo: Due to the CCP’s vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court; Communist China will probably have to pay up to 600 trillion USD for all ...
-
-<img src="https://media.gettr.com/group14/getter/2022/05/30/23/3fdf7f41-65fd-0ac4-0dcf-11fe46793104/out.jpg" width="506" height="284">
 
 ---
 
