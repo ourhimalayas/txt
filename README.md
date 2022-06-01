@@ -11,6 +11,30 @@
 
 ---
 
+#### [【樱话】居家隔离　北京复制上海模式](/content/gnews/2643710.md)
+ `TokyoSakuraDesignGroup`
+
+#### [秘翻在线：美国儿童COVID-19患者一个月内翻倍至11万2千人](/content/gnews/2643706.md)
+ `秘密翻譯組G-Translators`
+
+#### [【樱话】从金融的本质谈躺平币的投资价值](/content/gnews/2643674.md)
+ `TokyoSakuraDesignGroup`
+
+#### [秘翻在线：加密货币市场出现“脱钩”现象](/content/gnews/2643667.md)
+ `秘密翻譯組G-Translators`
+
+#### [视频&#124;乌克兰收集俄罗斯死者进行囚犯交换](/content/gnews/2643664.md)
+ `MOSVIDEO`
+
+#### [中共派30架战机闯入台湾防空区](/content/gnews/2643655.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [2024年之前泰国会取消数字货币转账的增值税](/content/gnews/2643646.md)
+ `墨尔本雅典娜农场`
+
+#### [秘翻在线：韩国5大加密货币交易所从6月3日起无偿分配Luna 2.0](/content/gnews/2643644.md)
+ `秘密翻譯組G-Translators`
+
 #### [秘翻在线：OPEC讨论将俄罗斯排除在产油量协议之外的方案](/content/gnews/2643623.md)
  `秘密翻譯組G-Translators`
 
@@ -35,14 +59,8 @@
 #### [2022年6月1日战时快讯](/content/gnews/2643486.md)
  `墨尔本雅典娜农场`
 
-#### [【唠嗑】](/content/gnews/2643471.md)
- `SpicyWorld`
-
 #### [关于躺平币使用及价值](/content/gnews/2643470.md)
  `喜马拉雅德国纽伦堡正义农场`
-
-#### [【全民抓“大鹅”】](/content/gnews/2643469.md)
- `SpicyWorld`
 
 #### [加拿大贸易部长面临合同违规调查](/content/gnews/2643467.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -53,40 +71,34 @@
 #### [在有儿童死于新冠病毒后，台湾加大了儿童疫苗接种力度](/content/gnews/2643464.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [读卖新闻：中共国绝不能利用联合国高级人权官员的访问来结束问题](/content/gnews/2643457.md)
- `温哥华扬帆农场`
-
 #### [卫健委领导被清零后新冠也清零了](/content/gnews/2643453.md)
  `澳喜农场`
 
-#### [美国家情报总监：威胁美国家安全的不是中国人民或华裔](/content/gnews/2643448.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [六四感言](/content/gnews/2643417.md)
- `墨尔本雅典娜农场`
+#### [有声&#124;“六四”前中共提升监控64受害者母亲的力度](/content/gnews/2643412.md)
+ `MOSREC`
 
 #### [泽连斯基说：“我们无意攻击俄罗斯”](/content/gnews/2643409.md)
  `xiaobaige`
 
-#### [有声&#124;台湾突击调查非法挖角科技人才的中共公司](/content/gnews/2643378.md)
+#### [有声&#124;喜马拉雅币一周分析与总结（5月23日-5月29日）](/content/gnews/2643408.md)
  `MOSREC`
 
-#### [有声&#124;尼古拉·特斯拉、能源、宇宙](/content/gnews/2643374.md)
+#### [有声&#124;中共的清零政策是牺牲百姓的苦肉计](/content/gnews/2643406.md)
  `MOSREC`
 
-#### [有声&#124;法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2643367.md)
+#### [有声&#124;美国国务院声明高度关注联合国对中共人权的调查](/content/gnews/2643405.md)
  `MOSREC`
 
-#### [有声&#124;小行星采矿初创公司将从太空获取稀有矿物](/content/gnews/2643355.md)
+#### [有声&#124;共产党统治下的中共国遍地是灾（二）](/content/gnews/2643397.md)
  `MOSREC`
 
-#### [有声&#124;美国准备向乌克兰提供先进远程火箭系统](/content/gnews/2643344.md)
+#### [有声&#124;64在既，思念八弟](/content/gnews/2643391.md)
  `MOSREC`
 
-#### [有声&#124;中俄阻挠联合国安理会通过制裁朝鲜提议](/content/gnews/2643342.md)
+#### [有声&#124;新数据库揭示超9万种拓扑材料](/content/gnews/2643387.md)
  `MOSREC`
 
-#### [有声&#124;俄爹和匪儿](/content/gnews/2643329.md)
+#### [有声&#124;美将领称助乌破解俄粮食封锁势在必行](/content/gnews/2643385.md)
  `MOSREC`
 
 #### [拜登向乌克兰运送先进的火箭系统 目的不想延长战争](/content/gnews/2643070.md)
@@ -101,19 +113,7 @@
 #### [新资本主义，经济停滞的30年，以投资人才为目标](/content/gnews/2642829.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [美国总统乔拜登支持美联储加息政策以抑制通胀](/content/gnews/2642785.md)
- `温哥华圆成农场🇨🇦`
-
-#### [秘翻在线：菲律宾向中共国提出新的外交抗议](/content/gnews/2642780.md)
- `秘密翻譯組G-Translators`
-
 #### [COVID-19疫苗副作用集萃（2022.6.1E）－新冠疫苗第三针副作用好大](/content/gnews/2642736.md)
- `墨尔本雅典娜农场`
-
-#### [日本民调：九成日本人赞成做好准备应对未来台海战争](/content/gnews/2642635.md)
- `日本东京方舟农场`
-
-#### [美国就出口制裁问题对中共国公司进行调查](/content/gnews/2642493.md)
  `墨尔本雅典娜农场`
 
 #### [秘翻新闻｜中共毒苗 台海局勢 中共用科技監控抓人](/content/gnews/2642424.md)
@@ -143,8 +143,8 @@
 #### [银行卡惊魂](/content/gnews/2641457.md)
  `澳喜农场`
 
-#### [欧盟年底切断90%俄罗斯石油](/content/gnews/2641439.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [梨花颂（葬香港）](/content/gnews/2641397.md)
+ `东京樱花团`
 
 #### [欧盟峰会就加快乌克兰谷物陆路出口达成一致](/content/gnews/2640585.md)
  `TokyoSakura Politics/樱花时政`
