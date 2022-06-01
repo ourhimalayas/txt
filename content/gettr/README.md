@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/1/2022 11:04 AM UTC  - :tv:直播](/content/gettr/p1c98r0f2a7.md)
+
+2022.06.01 新中国联邦 | 军情室 六四特辑 八九六四后西方对中共的军事禁运
+
+<img src="https://media.gettr.com/group40/origin/2022/06/01/10/723c6232-d5e4-7cf2-32aa-fe95a0f34b9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/1/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1c7yos80e2.md)
 
 Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica, Poland, and reported that volunteers from almost all over the world gathered at the Medica camp in Poland to support the Ukrainian people in their ow...
@@ -18,11 +26,11 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 
 ---
 
-[@miles 6/1/2022 11:04 AM UTC  - :tv:直播](/content/gettr/p1c98r0f2a7.md)
+[@miles 6/1/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1c9xef3a69.md)
 
-2022.06.01 新中国联邦 | 军情室 六四特辑 八九六四后西方对中共的军事禁运
+2022年6月1日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group40/origin/2022/06/01/10/723c6232-d5e4-7cf2-32aa-fe95a0f34b9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/06/01/16/d7740669-072b-abed-b0c2-f400fc316dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,18 +173,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 据其公告称：“为积极主动响应相关监管政策，STEPN将对APP用户进行清查，若发现中国大陆地区用户，则STEPN将依据使用条款对其账户于2022年7月15日（UTC+8）24：00停止提供GPS及IP位置服务。”
 
 对于中国大陆用户的项目资产，STEPN项目方称“如果您预期长期会在该...
-
----
-
-[@miles 5/30/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1c1cdw5e6e.md)
-
-5/29/2022 Miles Guo: The “zero-COVID policy” is actually the CCP’s trick to win others’ trust by deliberately hurting itself, and to prevent the world from investigating the origins of the CCP virus.
-
-
-
-5/29/2022 文贵直播：中共的清零政策实为苦肉计，...
-
-<img src="https://media.gettr.com/group47/getter/2022/05/30/23/a79e0b1f-fad5-b279-3d53-6ad8559eaef3/out.jpg" width="506" height="284">
 
 ---
 
