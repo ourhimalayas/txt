@@ -2,6 +2,15 @@
 ---
 
 
+#### [疫苗毒死人还封口](/content/gnews/2640131.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国衡水中学，孩子们被中共洗脑，愚昧操纵到如此地步](/content/gnews/2640130.md)
+ `Tokyo Sakura Video Group`
+
+#### [安东尼·阿尔巴内塞对中共的立场对所有澳大利亚人来说堪称佳音](/content/gnews/2640070.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [中共利用数字人民币来激励受中共病毒影响的消费者](/content/gnews/2640055.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -47,23 +56,20 @@
 #### [布拉德利·塞耶：中共国的侵略威胁](/content/gnews/2639945.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [中共飞机进入台湾的防空区域](/content/gnews/2639924.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [美国小麦收成遭受冬季干燥和春季潮湿打击](/content/gnews/2639923.md)
  `波士顿五月花农场金融部`
 
 #### [民生集萃——疫情导致实体经济低迷（2022.6.1A）&#8211;36岁，熬夜，心梗](/content/gnews/2639919.md)
  `墨尔本雅典娜农场`
 
-#### [欧盟召开紧急峰会讨论对俄罗斯的第六套制裁方案](/content/gnews/2639911.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [欧盟就禁止俄罗斯石油进口达成一致](/content/gnews/2639903.md)
  `温哥华圆成农场🇨🇦`
 
 #### [耶路撒冷邮报刊登采访台湾外长文章 无视中共威胁](/content/gnews/2639902.md)
  `日本东京方舟农场`
+
+#### [郭先生谈GFashon对新中国联邦的重要意义](/content/gnews/2639882.md)
+ `NFSC News`
 
 #### [韩国K-Pop现身白宫新闻发布会](/content/gnews/2639878.md)
  `秘密翻譯組G-Translators`
@@ -86,9 +92,6 @@
 #### [WHO：猴痘不会成大流行病，但仍存诸多未知](/content/gnews/2639616.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [倡导者谴责联合国官员的中共国之行是“终极背叛”](/content/gnews/2639586.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [5/31/2022 文贵盖特：全世界的癌症、心机炎、心肌梗塞每月新增病例陡然增加](/content/gnews/2639538.md)
  `秘密翻译组-北美组`
 
@@ -103,9 +106,6 @@
 
 #### [20220529文贵大直播《避风港》：政治医生、商业医生与当下的人类大劫难](/content/gnews/2639017.md)
  `秘密翻译组-原创组`
-
-#### [美参议员抵台 将拜会蔡英文总统](/content/gnews/2638930.md)
- `NFSC News`
 
 #### [逾百名英国议员联署要求审查中港官员在英资产](/content/gnews/2638929.md)
  `NFSC News`
