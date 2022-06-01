@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/31/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1c6bja32b9.md)
+[@miles 6/1/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1c7yos80e2.md)
 
-5/30/2022 Miles Guo’s GETTR: Wang Yi's so-called 10-nation tour of the southern hemisphere is bullshit! The U.S. will definitely destroy those who are in cahoots with the CCP in these countries, such as the president of Solomon Isl...
+Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica, Poland, and reported that volunteers from almost all over the world gathered at the Medica camp in Poland to support the Ukrainian people in their ow...
 
-<img src="https://media.gettr.com/group24/getter/2022/05/31/23/b3ffd9ba-5b0f-47cc-aacc-9d518d54b161/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/06/01/05/1f1f8f06-3d1f-951e-74f2-f2e50de1b638/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@
 
 
 <img src="https://media.gettr.com/group5/origin/2022/06/01/02/87927751-33e7-69c3-3c48-c61073565c2c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/31/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1c6bja32b9.md)
+
+5/30/2022 Miles Guo’s GETTR: Wang Yi's so-called 10-nation tour of the southern hemisphere is bullshit! The U.S. will definitely destroy those who are in cahoots with the CCP in these countries, such as the president of Solomon Isl...
+
+<img src="https://media.gettr.com/group24/getter/2022/05/31/23/b3ffd9ba-5b0f-47cc-aacc-9d518d54b161/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 5/30/2022 Miles Guo: Due to the CCP’s vaccine-related death, around 70 countries are preparing to sue Communist China in the International Arbitration Court; Communist China will probably have to pay up to 600 trillion USD for all ...
 
 <img src="https://media.gettr.com/group14/getter/2022/05/30/23/3fdf7f41-65fd-0ac4-0dcf-11fe46793104/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 9:19 PM UTC  - 2圖](/content/gettr/p1c1f4u66a4.md)
-
-5月30日：G FASHION 是G  club member．会员最重要的利益，连接社会家庭最重要的纽带和不可替代的社会关系资源！https://instagram.com/stories/anthonydltorre/2849187402015481362?igshid=YmMyMTA2M2Y=
-
-<img src="https://media.gettr.com/group32/getter/2022/05/30/21/6bbe108b-21c4-80fc-7893-d2850a16baa3/1673aab15becf402c97255ec4af77605.jpg" width="506" height="284">
 
 ---
 
