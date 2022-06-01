@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/1/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1c70u88aa2.md)
+
+2022-5-31《鸡血王喜币大作战》 第二百一十二集 嘉宾：文空、Happy
+
+<img src="https://media.gettr.com/group19/origin/2022/05/18/03/323fd27c-dd83-7122-9483-f4148d4531c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/31/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1c6bja32b9.md)
 
 5/30/2022 Miles Guo’s GETTR: Wang Yi's so-called 10-nation tour of the southern hemisphere is bullshit! The U.S. will definitely destroy those who are in cahoots with the CCP in these countries, such as the president of Solomon Isl...
@@ -10,11 +18,29 @@
 
 ---
 
+[@globalalliance 6/1/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1c7b5ad93b.md)
+
+2022.05.31  新中国联邦 | 喜财经  第65期 血流成河，Luna2.0 借尸还魂，重新上线各大数字交易所；上海解封始于愚人节，止于儿童节
+
+
+
+<img src="https://media.gettr.com/group5/origin/2022/06/01/02/87927751-33e7-69c3-3c48-c61073565c2c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/31/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1c645w5f4e.md)
 
 5/30/2022 Miles Guo’s GETTR: Unlike the CCP, which only seeks to seize other people’s properties and monopolize all resources, citizens of the New Federal State of China own Himalaya Coins and are getting rich together, enjoying th...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/31/23/fa9ffea3-0430-6364-8751-f0afcb4e1e47/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/31/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1c602l3e58.md)
+
+5/31/2022 Miles Guo's GETTR: There is a sharp rise in the monthly new cases of cancer, myocarditis and myocardial infarction in the world! Our fellow fighters’ family members in mainland China already got myocarditis and leukemia a...
+
+<img src="https://media.gettr.com/group39/getter/2022/05/31/22/eb30b023-12c3-cef1-2eda-ecc4301e47cf/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,14 +55,6 @@ Sergio is a French volunteer who came to help Ukrainian on the 26 of April. He s
 [@miles 5/31/2022 7:03 PM UTC ](/content/gettr/p1c52i6c9d7.md)
 
 2022-5-31 《避风港》(54) 疫苗接种者只需5个月发展成艾滋病样
-
----
-
-[@miles 5/31/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1c602l3e58.md)
-
-5/31/2022 Miles Guo's GETTR: There is a sharp rise in the monthly new cases of cancer, myocarditis and myocardial infarction in the world! Our fellow fighters’ family members in mainland China already got myocarditis and leukemia a...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/31/22/eb30b023-12c3-cef1-2eda-ecc4301e47cf/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,24 +177,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 5月30日：G FASHION 是G  club member．会员最重要的利益，连接社会家庭最重要的纽带和不可替代的社会关系资源！https://instagram.com/stories/anthonydltorre/2849187402015481362?igshid=YmMyMTA2M2Y=
 
 <img src="https://media.gettr.com/group32/getter/2022/05/30/21/6bbe108b-21c4-80fc-7893-d2850a16baa3/1673aab15becf402c97255ec4af77605.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 9:12 PM UTC  - :tv:直播](/content/gettr/p1c1b28ce40.md)
-
-5月30号：尊敬的战友们好．共产党在南半岛的所谓的外交十国．黑外交活动，将彻底失败，爆料革命将爆出这些国家的总统和政治家与中共的腐败……新中国联邦的全球战友们正在全力以赴准备着．全世界关注的新中国联邦6月4号两周年的国庆日活动，共产党的经济．政治．民声，正在走向崩溃，每时每刻。都有新中国联邦人……灭共的重要成收获和结果……追求喜马拉雅信仰的行动力的体现……
-
-<img src="https://media.gettr.com/group28/getter/2022/05/30/21/2d6ee76a-5af3-14a9-bd34-dfc3a2dceba8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/30/2022 7:10 PM UTC  - :tv:直播](/content/gettr/p1c14697a95.md)
-
-2022年5月30日 战友游船连线直播
-
-
-
-<img src="https://media.gettr.com/group6/origin/2022/05/30/18/a331e32a-9de3-1ad8-aa86-9f88cc20e06f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
