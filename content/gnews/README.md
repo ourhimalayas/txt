@@ -2,6 +2,12 @@
 ---
 
 
+#### [郭先生谈“六·四”国庆庆典筹备](/content/gnews/2646140.md)
+ `NFSC News`
+
+#### [医学文明对独裁者只是可利用的工具](/content/gnews/2646121.md)
+ `NFSC News`
+
 #### [有声&#124;美国有望在年底结束中共病毒疫苗强制接种](/content/gnews/2646062.md)
  `MOSREC`
 
@@ -129,12 +135,6 @@
  `NFSC News`
 
 #### [房企“花样年”被曝面临清盘](/content/gnews/2641649.md)
- `NFSC News`
-
-#### [习近平曾威胁拜登：独裁国家将统治世界](/content/gnews/2641437.md)
- `NFSC News`
-
-#### [法国记者于乌东采访期间身亡　疑遭俄军炮火攻击](/content/gnews/2641436.md)
  `NFSC News`
 
 #### [欧盟峰会就加快乌克兰谷物陆路出口达成一致](/content/gnews/2640585.md)
