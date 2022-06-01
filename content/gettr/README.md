@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/1/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1c9xef3a69.md)
+
+2022年6月1日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group26/origin/2022/06/01/16/d7740669-072b-abed-b0c2-f400fc316dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/1/2022 11:04 AM UTC  - :tv:直播](/content/gettr/p1c98r0f2a7.md)
 
 2022.06.01 新中国联邦 | 军情室 六四特辑 八九六四后西方对中共的军事禁运
@@ -26,11 +34,11 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 
 ---
 
-[@miles 6/1/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1c9xef3a69.md)
+[@miles 6/1/2022 7:44 PM UTC  - 6圖](/content/gettr/p1cale02ab4.md)
 
-2022年6月1日 俄乌战争战况播报
+ 6月1号：尊敬的战友们好．衷心地祝愿．全天下的儿童们节日快乐，为所有天下的儿童．未来的安全．健康．快乐．祈福！吃饺子喽，这是七哥的过儿童节的方式！
 
-<img src="https://media.gettr.com/group26/origin/2022/06/01/16/d7740669-072b-abed-b0c2-f400fc316dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/06/01/19/64e2025a-8b00-f7d1-3a31-06f8a8ffe183/2e1934d30bf74c17da7196a27cd2c800.jpg" width="506" height="284">
 
 ---
 
@@ -159,20 +167,6 @@ https://gettr.com/streaming/p1c2ijc87cd
 
 
 <img src="https://media.gettr.com/group25/origin/2022/05/31/03/efe1cf93-d5e8-276c-7322-a9220da2e823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@mos_hongkong 5/30/2022 2:07 PM UTC ](/content/gettr/p1bzks7926b.md)
-
-5/30/2022
-
-近期大热的“GameFi”项目STEPN遭遇突变。
-
-北京时间5月27日凌晨，币圈项目STEPN在其官方社交媒体突然发布公告，宣布开始清退中国大陆用户。
-
-据其公告称：“为积极主动响应相关监管政策，STEPN将对APP用户进行清查，若发现中国大陆地区用户，则STEPN将依据使用条款对其账户于2022年7月15日（UTC+8）24：00停止提供GPS及IP位置服务。”
-
-对于中国大陆用户的项目资产，STEPN项目方称“如果您预期长期会在该...
 
 ---
 
