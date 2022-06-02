@@ -2,29 +2,35 @@
 ---
 
 
-#### [【说事儿】超九成日本民众赞同准备应对未来台海战争](/content/gnews/2648845.md)
+#### [中共的苦肉计](/content/gnews/2649001.md)
+ `雅典娜GNotes`
+
+#### [中共卖出的疫苗很可能未来会被追责](/content/gnews/2649000.md)
+ `雅典娜GNotes`
+
+#### [【说事儿】紧急救援收官 新中国联邦迈上国际舞台](/content/gnews/2648956.md)
  `TokyoSakuraDesignGroup`
+
+#### [上海解封不仅仅只有居委会成“背锅侠”](/content/gnews/2648930.md)
+ `澳喜农场`
+
+#### [秘翻在线：2022环太平洋军演即将开始](/content/gnews/2648855.md)
+ `秘密翻譯組G-Translators`
+
+#### [06/02每日播报｜社媒消息：班农先生 Just the News](/content/gnews/2648838.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [民生集萃—疫情导致实体经济低迷(2022.6.2O) 被生活压垮](/content/gnews/2648834.md)
+ `墨尔本雅典娜农场`
 
 #### [疫苗伤害补偿计划不堪重负](/content/gnews/2648808.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [【说事儿】日本首相将在亚洲安全会议上呼吁合作对抗中俄](/content/gnews/2648795.md)
- `TokyoSakuraDesignGroup`
-
-#### [中共人祸 较多年平均入汛日期偏早15天](/content/gnews/2648764.md)
- `儒为`
-
-#### [【说事儿】突破性发现：新冠后脏器损害与淀粉样蛋白有关](/content/gnews/2648763.md)
- `TokyoSakuraDesignGroup`
 
 #### [国际能源署警告美国和欧洲的夏季能源危机迫在眉睫](/content/gnews/2648742.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [美国将在最新的援助计划中向乌克兰提供远程火箭](/content/gnews/2648720.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [民生集萃—疫情导致实体经济低迷(2022.6.2N) HR都失业了](/content/gnews/2648713.md)
- `墨尔本雅典娜农场`
 
 #### [中日财经爆｜“全球QT” 前所未有　 一场“飓风”即将来临](/content/gnews/2648621.md)
  `东京樱花团`
@@ -83,9 +89,6 @@
 #### [秘翻在线：辉瑞公司寻求FDA授权为5岁以下幼儿注射中共病毒疫苗](/content/gnews/2648367.md)
  `秘密翻譯組G-Translators`
 
-#### [美国海军宣布举行第28届环太平洋军演](/content/gnews/2648363.md)
- `日本东京方舟农场`
-
 #### [菲律宾SEC对以数字资产为主题的投资骗局Astrazion发出警告](/content/gnews/2648255.md)
  `墨尔本雅典娜农场`
 
@@ -111,9 +114,6 @@
  `MOSVIDEO`
 
 #### [视频&#124;韩国少年团体白宫发言：反亚裔仇恨](/content/gnews/2648061.md)
- `MOSVIDEO`
-
-#### [视频&#124;俄乌谈判进展顺利 共产党在拉美的布局毫无意义](/content/gnews/2648057.md)
  `MOSVIDEO`
 
 #### [民生集萃—疫情导致实体经济低迷(2022.6.2F)—知名民营企业美的集团加大力度裁员](/content/gnews/2648056.md)
