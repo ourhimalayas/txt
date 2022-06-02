@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/2/2022 10:35 AM UTC  - :tv:直播](/content/gettr/p1ce7ll4c41.md)
+
+The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to an end. Nicole interviewed Mr. Leo, who has been leading all the NFSC volunteers and fellow fighters to provide services on Medyka frontline since March 2...
+
+<img src="https://media.gettr.com/group46/origin/2022/06/02/10/6d616032-eb95-bd98-895e-b987067722dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/2/2022 6:25 AM UTC  - :tv:直播](/content/gettr/p1ccvjtb894.md)
 
 64两周年深夜机场接战友，猜猜我们来接谁？
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 6/2/2022 10:35 AM UTC  - :tv:直播](/content/gettr/p1ce7ll4c41.md)
+[@miles 6/2/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1ce1wt7c68.md)
 
-The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to an end. Nicole interviewed Mr. Leo, who has been leading all the NFSC volunteers and fellow fighters to provide services on Medyka frontline since March 2...
+千声万籁·承载辉煌  首届《联邦杯》诗歌朗诵大赛总决赛
 
-<img src="https://media.gettr.com/group46/origin/2022/06/02/10/6d616032-eb95-bd98-895e-b987067722dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/06/02/11/4caa9d42-c380-ad05-6ef8-eb211444d45d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,12 +173,6 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 Sergio is a French volunteer who came to help Ukrainian on the 26 of April. He shared his memorable experience with King, a New Federal State of China and Rule of Law Foundation volunteer. Sergio praised and thanked the NFSC coffee...
 
 <img src="https://media.gettr.com/group29/origin/2022/05/31/22/68ca4450-2747-2da6-d757-270654da748c/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 7:03 PM UTC ](/content/gettr/p1c52i6c9d7.md)
-
-2022-5-31 《避风港》(54) 疫苗接种者只需5个月发展成艾滋病样
 
 ---
 
