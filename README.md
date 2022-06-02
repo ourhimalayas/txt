@@ -11,14 +11,41 @@
 
 ---
 
+#### [七哥捐给希望学校的钱都成了绝望,中共教育是腐败根源](/content/gnews/2651122.md)
+ `喜马拉雅日本银河系农场`
+
+#### [樱花FM┃中共上海市低调宣布：明日解封](/content/gnews/2651120.md)
+ `樱花FM`
+
+#### [【说事儿】六月四日,我们的国庆日](/content/gnews/2651103.md)
+ `TokyoSakuraDesignGroup`
+
+#### [GEDU是走向AI时代数字时代区块链元宇宙时代新的开始](/content/gnews/2651096.md)
+ `喜马拉雅日本银河系农场`
+
+#### [【说事儿】跑鞋项目币STEPN5月暴跌也是中共操控](/content/gnews/2651081.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃郭文贵先生2022年5月30日盖特视频（8分18秒）全文字版](/content/gnews/2651046.md)
+ `樱花FM`
+
+#### [【说事儿】新中国联邦建国2周年回顾](/content/gnews/2651042.md)
+ `TokyoSakuraDesignGroup`
+
+#### [教育是中国人的希望,承载人类的负担和历史上的各种考验](/content/gnews/2651032.md)
+ `喜马拉雅日本银河系农场`
+
+#### [【说事儿】猴痘再次验证了中共和邪恶组织的反人类恐怖行动](/content/gnews/2651027.md)
+ `TokyoSakuraDesignGroup`
+
+#### [英国预计将有200万人罹患“长病程中共病毒”](/content/gnews/2651010.md)
+ `NFSC News`
+
+#### [樱花FM┃年度追加预算通过，2.7万亿日元支出债务剧增](/content/gnews/2651005.md)
+ `樱花FM`
+
 #### [【樱话】六月四日,我们的国庆日](/content/gnews/2650982.md)
  `TokyoSakuraDesignGroup`
-
-#### [【樱话】跑鞋项目币STEPN5月暴跌也是中共操控](/content/gnews/2650927.md)
- `TokyoSakuraDesignGroup`
-
-#### [中日财经爆｜科技改变生活，特斯拉新研发的电池可用上百年](/content/gnews/2650926.md)
- `东京樱花团`
 
 #### [新中国联邦两周年庆广告登陆奥克兰市中心](/content/gnews/2650907.md)
  `NFSC News`
@@ -26,16 +53,7 @@
 #### [樱花FM┃榨干了城市，中共又把魔爪伸向了农村](/content/gnews/2650906.md)
  `樱花FM`
 
-#### [【樱话】新中国联邦建国2周年回顾](/content/gnews/2650902.md)
- `TokyoSakuraDesignGroup`
-
 #### [樱花FM┃信用破产 LUNA代币重启暴跌70%](/content/gnews/2650889.md)
- `樱花FM`
-
-#### [樱花FM┃食品价格上涨，年均突破1万种，6月份以后规模将扩大](/content/gnews/2650871.md)
- `樱花FM`
-
-#### [樱花FM┃大量港生入读英国学校 体验人性化的教育](/content/gnews/2650858.md)
  `樱花FM`
 
 #### [日本卫生部重新统计发现，疫苗2剂接种者的阳性率超过了未接种疫苗的人数](/content/gnews/2650854.md)
@@ -49,9 +67,6 @@
 
 #### [Gfashion佛教系列服装：加持正道修为，体现追求境界](/content/gnews/2650821.md)
  `NFSC News`
-
-#### [【G时新闻】医学文明对独裁者只是可利用的工具](/content/gnews/2650783.md)
- `G-时新闻`
 
 #### [中共在俄罗斯能源陷入困境时大获其利](/content/gnews/2650768.md)
  `秘密翻譯組G-Translators`
@@ -107,20 +122,8 @@
 #### [注射科兴最终不治花费70万仅赔25万母亲不服四处碰壁](/content/gnews/2650415.md)
  `NewFOC`
 
-#### [【秘翻在线】布林肯：乌克兰承诺不会用美方援助的火箭系统攻击俄领土](/content/gnews/2650299.md)
- `秘密翻譯組G-Translators`
-
 #### [美国和德国同意向乌克兰提供先进武器](/content/gnews/2650251.md)
  `澳喜特战旅Gnews`
-
-#### [文•贵天成——文贵先生谈孟建柱（一百零三）](/content/gnews/2650117.md)
- `墨尔本雅典娜农场`
-
-#### [文•贵天成——文贵先生谈孟建柱（一百零二）](/content/gnews/2650083.md)
- `墨尔本雅典娜农场`
-
-#### [共产党统治下的中共国遍地是灾（六）](/content/gnews/2649818.md)
- `纽约香草山MOS02`
 
 #### [秘翻在线：海关和边境保护局已准备好执行《防止强迫维吾尔人劳动法》](/content/gnews/2649563.md)
  `秘密翻譯組G-Translators`
@@ -151,9 +154,6 @@
 
 #### [中日财经爆｜“全球QT” 前所未有　 一场“飓风”即将来临](/content/gnews/2648621.md)
  `东京樱花团`
-
-#### [美白宫：任何对俄网络攻击都不算直接介入俄乌战争](/content/gnews/2648453.md)
- `thedawn`
 
 #### [北约主席宣布两个北欧国家和土耳其即将举行加盟会谈](/content/gnews/2648415.md)
  `东京樱花团`
