@@ -11,26 +11,29 @@
 
 ---
 
+#### [SWIFT支付系统可能在五年内被CBDC取代](/content/gnews/2651943.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [台湾和美国将启动贸易谈判](/content/gnews/2651893.md)
+ `纽约香草山MOS02`
+
+#### [六四感言](/content/gnews/2651867.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [在美国的压力下欧佩克同意加快石油制造速度](/content/gnews/2651832.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [欧元区通胀飙升至新纪录](/content/gnews/2651807.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [加拿大巡逻机遭到中共战机挑衅](/content/gnews/2651779.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [聚焦新中国联邦丨文贵先生心中好人的四大特质](/content/gnews/2651764.md)
- `NFSCFocus`
-
-#### [如果中共国入侵，美国会保卫台湾吗？](/content/gnews/2651763.md)
- `墨尔本雅典娜农场`
-
 #### [被唤醒的远方](/content/gnews/2651719.md)
  `郭郊玉米地`
 
 #### [焦点：难舍优秀中国产业工人，苹果公司大举撒离](/content/gnews/2651697.md)
  `蓝莲花农场`
+
+#### [英国紧随美国向乌克兰提供火箭系统](/content/gnews/2651682.md)
+ `NFSC News`
 
 #### [文·贵天成——文贵先生谈“文化大革命”（十五）](/content/gnews/2651673.md)
  `墨尔本雅典娜农场`
@@ -96,9 +99,6 @@
  `喜马拉雅德国纽伦堡正义农场`
 
 #### [中日财经爆｜科技改变生活，特斯拉新研发的电池可用上百年](/content/gnews/2650926.md)
- `东京樱花团`
-
-#### [中日财经爆┃ABC附属公司KTNV遭遇变故众多高管离开](/content/gnews/2650873.md)
  `东京樱花团`
 
 #### [日本卫生部重新统计发现，疫苗2剂接种者的阳性率超过了未接种疫苗的人数](/content/gnews/2650854.md)
