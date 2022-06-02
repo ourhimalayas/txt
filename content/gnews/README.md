@@ -2,6 +2,12 @@
 ---
 
 
+#### [闲聊澳洲：2022年6月2日新闻集萃](/content/gnews/2652613.md)
+ `墨尔本雅典娜农场`
+
+#### [艾迪医生关于猴痘的来信](/content/gnews/2652609.md)
+ `mayflowertranslate`
+
 #### [多伦多警方解除疫苗令警官雇员可返回岗位](/content/gnews/2652578.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -86,9 +92,6 @@
 #### [亚马逊将于一年后关闭其在中共国的Kindle电子书店](/content/gnews/2651886.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [克里姆林宫就有关普京健康的传言发表声明](/content/gnews/2651843.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年6月2日早](/content/gnews/2651825.md)
  `纽约香草山MOS01`
 
@@ -97,9 +100,6 @@
 
 #### [中共的封城政策，恐懼感超越六四](/content/gnews/2651617.md)
  `NFSC News`
-
-#### [日本一快餐连锁店员工在独自工作时死亡](/content/gnews/2651269.md)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [华尔街与中共将很快决裂](/content/gnews/2651243.md)
  `喜马拉雅德国纽伦堡正义农场`
