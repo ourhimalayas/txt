@@ -11,6 +11,12 @@
 
 ---
 
+#### [DC每日热点0602](/content/gnews/2652512.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [【秘翻在线】中共通过茶壶炼油厂帮助伊朗逃避制裁并向其输送数百亿美元](/content/gnews/2652511.md)
+ `秘密翻譯組G-Translators`
+
 #### [全球主义者进入灭绝人类的杀戮阶段](/content/gnews/2652476.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -80,9 +86,6 @@
 #### [最新关于加拿大英国君主制的民意调查](/content/gnews/2652140.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [加拿大五大银行放弃强制性COVID疫苗政策](/content/gnews/2652125.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [台湾和美国将启动贸易谈判](/content/gnews/2651893.md)
  `纽约香草山MOS02`
 
@@ -94,9 +97,6 @@
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年6月2日早](/content/gnews/2651825.md)
  `纽约香草山MOS01`
-
-#### [欧元区通胀飙升至新纪录](/content/gnews/2651807.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [焦点：难舍优秀中国产业工人，苹果公司大举撒离](/content/gnews/2651697.md)
  `蓝莲花农场`
