@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/1/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1cbnhi6643.md)
+
+2022-06-01 新中国联邦战友相聚纽约4k
+
+<img src="https://media.gettr.com/group47/origin/2022/06/01/20/634b3e3d-a2ab-2e9c-aa96-c094391b72f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/1/2022 8:11 PM UTC  - :tv:直播](/content/gettr/p1cajs02c77.md)
 
 2022-06-01 4k测试新中国联邦战友相聚纽约
@@ -50,11 +58,15 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 
 ---
 
-[@miles 6/1/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1cbnhi6643.md)
+[@miles 6/1/2022 11:59 PM UTC ](/content/gettr/p1cb25f3b85.md)
 
-2022-06-01 新中国联邦战友相聚纽约4k
+Official tweet of the U.S. Embassy and Consulates in China shows CCP's Blocking of Blinken's speech on China policy
 
-<img src="https://media.gettr.com/group47/origin/2022/06/01/20/634b3e3d-a2ab-2e9c-aa96-c094391b72f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+The official twitter of the U.S. Embassy and Consulates in Beijing posted a message on May 31 that the Chinese C...
+
+<img src="https://media.gettr.com/group40/origin/2022/06/01/23/355c5803-ece0-d22b-5268-e6c0ab3f8846/f808e34c429bedb3e2b1e529948cdc42.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +169,6 @@ The CCP's "Zero-COVID Policy" is a political necessity
 On May 29th, Mr. Guo said in his big live-broadcast, the "Zero-COVID Policy" that the Communist Party is playing, is a "bitter meat" to prevent the world from tracing the so...
 
 <img src="https://media.gettr.com/group38/origin/2022/05/31/09/ad1ec2fa-8f75-9397-2c00-59574651931f/64718f1ca7e4e3990a9af621904ea212.jpg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 7:16 AM UTC  - :tv:直播](/content/gettr/p1c365x1454.md)
-
-2022-5-30《鸡血王喜币大作战》 第二百一十一集 嘉宾：NICK
-
-
-
-<img src="https://media.gettr.com/group25/origin/2022/05/31/03/efe1cf93-d5e8-276c-7322-a9220da2e823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
