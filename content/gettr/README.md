@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 6/2/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1cc4ay3410.md)
+
+2022-6-1《鸡血王喜币大作战》 第二百一十三集 嘉宾：齐天二圣、Nick
+
+<img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/1/2022 11:59 PM UTC ](/content/gettr/p1cb25f3b85.md)
+
+Official tweet of the U.S. Embassy and Consulates in China shows CCP's Blocking of Blinken's speech on China policy
+
+
+
+The official twitter of the U.S. Embassy and Consulates in Beijing posted a message on May 31 that the Chinese C...
+
+<img src="https://media.gettr.com/group40/origin/2022/06/01/23/355c5803-ece0-d22b-5268-e6c0ab3f8846/f808e34c429bedb3e2b1e529948cdc42.jpg" width="506" height="284">
+
+---
+
 [@miles 6/1/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1cbnhi6643.md)
 
 2022-06-01 新中国联邦战友相聚纽约4k
@@ -58,15 +78,11 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 
 ---
 
-[@miles 6/1/2022 11:59 PM UTC ](/content/gettr/p1cb25f3b85.md)
+[@globalalliance 6/2/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1cc47pd9e3.md)
 
-Official tweet of the U.S. Embassy and Consulates in China shows CCP's Blocking of Blinken's speech on China policy
+2022.06.01 新中国联邦 | 喜财经  第66期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天
 
-
-
-The official twitter of the U.S. Embassy and Consulates in Beijing posted a message on May 31 that the Chinese C...
-
-<img src="https://media.gettr.com/group40/origin/2022/06/01/23/355c5803-ece0-d22b-5268-e6c0ab3f8846/f808e34c429bedb3e2b1e529948cdc42.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/06/02/02/49454417-10a3-3edd-a4d9-e8d6a82c677d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,26 +165,6 @@ Sergio is a French volunteer who came to help Ukrainian on the 26 of April. He s
 5月31号：尊敬的战友们好！上海23,000,000人民．应该有个基本的对事情的认知，这不是政府错了，更不是上海政府撒谎，是因为你从来不知道自己是谁，😜😜😜甚至还把自己当成赵家人！你忘了你自己是一个极权下的奴隶……，根本问题是你自己忘了你自己的角色！
 
 <img src="https://media.gettr.com/group8/getter/2022/05/31/16/4237d040-105a-3b53-c6de-d44bfc08de3f/302e85b9e162d81427c953c78289e860.jpg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1c50a3b3df.md)
-
- 5月31号：尊敬的战友们好……接下来的几天，直到6月4号．新中国联邦人，将会用．无数传奇和感动．在世界的传奇城市．金融城市．时尚城市，现代音乐城市．世界的政治．经济精英中心．曼哈顿描绘新中国联邦人……展示一个美好的有巨大的．无穷无尽的潜力的新中国人的未来形象！
-
-<img src="https://media.gettr.com/group43/getter/2022/05/31/15/ef9569c5-abc1-1cf1-94d1-e948a351d37f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 9:30 AM UTC ](/content/gettr/p1c391x52a3.md)
-
-The CCP's "Zero-COVID Policy" is a political necessity
-
-
-
-On May 29th, Mr. Guo said in his big live-broadcast, the "Zero-COVID Policy" that the Communist Party is playing, is a "bitter meat" to prevent the world from tracing the so...
-
-<img src="https://media.gettr.com/group38/origin/2022/05/31/09/ad1ec2fa-8f75-9397-2c00-59574651931f/64718f1ca7e4e3990a9af621904ea212.jpg" width="506" height="284">
 
 ---
 
