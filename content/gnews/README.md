@@ -2,26 +2,35 @@
 ---
 
 
-#### [SWIFT支付系统可能在五年内被CBDC取代](/content/gnews/2651943.md)
+#### [加拿大五大银行放弃强制性COVID疫苗政策](/content/gnews/2652125.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [加拿大银行警告全球经济放缓](/content/gnews/2652107.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [四川雅安两县先后发生地震 官方称系2013年强震后的余震 ｜粤时报](/content/gnews/2652025.md)
+ `秘密翻译组-即时新闻播报组`
 
 #### [台湾和美国将启动贸易谈判](/content/gnews/2651893.md)
  `纽约香草山MOS02`
 
-#### [六四感言](/content/gnews/2651867.md)
+#### [加拿大或制裁普京女友及其他关联人](/content/gnews/2651874.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [在美国的压力下欧佩克同意加快石油制造速度](/content/gnews/2651832.md)
- `西班牙巴塞罗那喜悦农场`
+#### [加拿大国民咖啡品牌Tim Hortons涉侵权行为](/content/gnews/2651873.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [克里姆林宫就有关普京健康的传言发表声明](/content/gnews/2651843.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [欧元区通胀飙升至新纪录](/content/gnews/2651807.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [被唤醒的远方](/content/gnews/2651719.md)
- `郭郊玉米地`
-
 #### [焦点：难舍优秀中国产业工人，苹果公司大举撒离](/content/gnews/2651697.md)
  `蓝莲花农场`
+
+#### [美国将于6月21日禁止新疆商品入关](/content/gnews/2651683.md)
+ `NFSC News`
 
 #### [英国紧随美国向乌克兰提供火箭系统](/content/gnews/2651682.md)
  `NFSC News`
@@ -56,9 +65,6 @@
 #### [【G时新闻】美国和台湾启动会谈以促进更紧密的贸易关系](/content/gnews/2651360.md)
  `G-时新闻`
 
-#### [美国和其他国家呼吁国际劳工组织调查新疆系统性侵犯劳工和人权](/content/gnews/2651359.md)
- `温哥华扬帆农场`
-
 #### [冠疫苗与男性和女性的心脏骤停率增加25%联系起来](/content/gnews/2651358.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -66,9 +72,6 @@
  `澳喜特战旅Gnews`
 
 #### [樱花FM┃大阪知事称与武汉的合作 “不是国家安全问题”](/content/gnews/2651296.md)
- `樱花FM`
-
-#### [樱花FM┃俄罗斯用断气威胁欧洲各国](/content/gnews/2651294.md)
  `樱花FM`
 
 #### [日本一快餐连锁店员工在独自工作时死亡](/content/gnews/2651269.md)
@@ -149,14 +152,11 @@
 #### [上海所谓的解封 同时北京部分地区封锁](/content/gnews/2648032.md)
  `NFSC News`
 
-#### [中共销毁中共毒疫苗接种记录](/content/gnews/2648031.md)
- `NFSC News`
-
-#### [乌克兰国际电视台ICTV报道新中国联邦救援行动](/content/gnews/2648030.md)
- `NFSC News`
-
 #### [美台21世纪贸易倡议 为加入印太经济框架做铺垫](/content/gnews/2647348.md)
  `TokyoSakura Politics/樱花时政`
+
+#### [西医在中国的发展（二十）-齐鲁医学院及医院](/content/gnews/2645675.md)
+ `喜马拉雅纽约磐石农场`
 
 #### [史蒂夫·班农：必须停止像Steve Wynn这样的中共严重渗透事件](/content/gnews/2628241.md)
  `墨尔本雅典娜农场`
