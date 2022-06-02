@@ -41,9 +41,6 @@
 #### [河北燕郊抗议，百姓抗议中共抓人](/content/gnews/2647687.md)
  `Tokyo Sakura Video Group`
 
-#### [中共国幼儿园发给小朋友们的儿童节礼物](/content/gnews/2647686.md)
- `Tokyo Sakura Video Group`
-
 #### [郭文贵先生5月31日盖特视频：如玉温婉 智慧坚定](/content/gnews/2647681.md)
  `日本东京方舟农场`
 
@@ -134,11 +131,14 @@
 #### [美国就出口制裁问题对中资公司进行调查](/content/gnews/2645054.md)
  `西班牙巴塞罗那喜悦农场`
 
+#### [新西兰财经G乐部2022年6月1日:财经新闻整理](/content/gnews/2644750.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [有声新闻-新西兰财经G乐部2022年6月1日:财经新闻整理](/content/gnews/2644749.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
 #### [a16z介绍2022年加密货币状况的报告](/content/gnews/2644576.md)
  `经济小组`
-
-#### [2024年之前泰国会取消数字货币转账的增值税](/content/gnews/2643646.md)
- `墨尔本雅典娜农场`
 
 #### [欧盟峰会就加快乌克兰谷物陆路出口达成一致](/content/gnews/2640585.md)
  `TokyoSakura Politics/樱花时政`
