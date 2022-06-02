@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/2/2022 6:25 AM UTC  - :tv:直播](/content/gettr/p1ccvjtb894.md)
+
+64两周年深夜机场接战友，猜猜我们来接谁？
+
+<img src="https://media.gettr.com/group13/getter/2022/06/02/04/9b450dd5-c087-618f-8f56-106d60c54d1a/b75bc9359652d8b851a1d839d6dd8133.jpg" width="506" height="284">
+
+---
+
 [@shinchan777 5/31/2022 2:47 AM UTC  - 6圖](/content/gettr/p1c2jbf5d0d.md)
 
 2022年5月30日
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 6/2/2022 6:25 AM UTC  - :tv:直播](/content/gettr/p1ccvjtb894.md)
+[@miles 6/2/2022 10:35 AM UTC  - :tv:直播](/content/gettr/p1ce7ll4c41.md)
 
-64两周年深夜机场接战友，猜猜我们来接谁？
+The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to an end. Nicole interviewed Mr. Leo, who has been leading all the NFSC volunteers and fellow fighters to provide services on Medyka frontline since March 2...
 
-<img src="https://media.gettr.com/group13/getter/2022/06/02/04/9b450dd5-c087-618f-8f56-106d60c54d1a/b75bc9359652d8b851a1d839d6dd8133.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/06/02/10/6d616032-eb95-bd98-895e-b987067722dd/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Sergio is a French volunteer who came to help Ukrainian on the 26 of April. He s
 2022-05-31 4k战友游船直播测试 第二天
 
 <img src="https://media.gettr.com/group4/origin/2022/05/31/19/fb1aa5d4-1964-27b6-24d1-992199f663d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1c5p2leaf3.md)
-
-2022年5月31日 Gclub会员船游活动第二天
-
-<img src="https://media.gettr.com/group14/origin/2022/05/31/18/ed7d58b9-abcb-55c4-76f2-4b6198de2704/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
