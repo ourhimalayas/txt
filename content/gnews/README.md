@@ -2,13 +2,34 @@
 ---
 
 
+#### [北京丰台坦克，6.4快到了，又来坦克](/content/gnews/2646658.md)
+ `Tokyo Sakura Video Group`
+
+#### [被疫苗致残的受害者来到北京维权喊冤](/content/gnews/2646654.md)
+ `Tokyo Sakura Video Group`
+
+#### [明白人还是有的，12万亿和老百姓有个屁的关系](/content/gnews/2646637.md)
+ `Tokyo Sakura Video Group`
+
+#### [俄土蜜月，背后都是中共的影子](/content/gnews/2646630.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [北京疫情灾难凸显　当权者急于推责](/content/gnews/2646629.md)
+ `澳喜农场`
+
+#### [共匪金融临近崩塌，各种骗局行将败露，硕鼠连连，苦难国人](/content/gnews/2646617.md)
+ `Tokyo Sakura Video Group`
+
+#### [六一儿童节“快乐” 摄于2022年 四川大凉山, 中共不灭，天理不容](/content/gnews/2646607.md)
+ `Tokyo Sakura Video Group`
+
+#### [上海解封，一群老外在记录历史](/content/gnews/2646588.md)
+ `Tokyo Sakura Video Group`
+
 #### [中共国，孩子打完新冠疫苗高烧不退，最后得了白血病](/content/gnews/2646578.md)
  `Tokyo Sakura Video Group`
 
 #### [上海将逐渐解除长达两个月的病毒封城，但仍有很多限制](/content/gnews/2646573.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [欧盟宣布到今年年底将禁止进口将近90%俄罗斯石油](/content/gnews/2646560.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [美台贸易倡议开启，美国为台湾穿上金刚罩](/content/gnews/2646551.md)
@@ -32,9 +53,6 @@
 #### [美国和台湾启动会谈以促进更紧密的贸易关系](/content/gnews/2646362.md)
  `mayflowertranslate`
 
-#### [新西兰和美国重申对中所安全协议的担忧](/content/gnews/2646352.md)
- `墨尔本雅典娜农场`
-
 #### [研究显示冠状(CCP)病毒疫苗导致严重的神经系统疾病和心肌炎](/content/gnews/2646313.md)
  `喜马拉雅纽约磐石农场`
 
@@ -47,17 +65,8 @@
 #### [物价飞涨更多加拿大人申请食物救济](/content/gnews/2646271.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [澳大利亚新任国防部长：中共国是最大安全隐患](/content/gnews/2646263.md)
- `日本东京方舟农场`
-
-#### [DC每日热点0601](/content/gnews/2646262.md)
- `喜马拉雅-华盛顿DC农场`
-
 #### [加州立法者们正试图立法惩戒不用瑞德西维，呼吸机和疫苗治疗新冠病毒患者的医生。](/content/gnews/2646249.md)
  `mayflowertranslate`
-
-#### [《历史的今天》2022.06.01](/content/gnews/2646243.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [拜登会见阿德恩：中共国在太平洋战略威胁美西两国](/content/gnews/2646212.md)
  `TokyoSakura Politics/樱花时政`
@@ -92,9 +101,6 @@
 #### [医学文明对独裁者只是可利用的工具](/content/gnews/2646121.md)
  `NFSC News`
 
-#### [有声&#124;美国有望在年底结束中共病毒疫苗强制接种](/content/gnews/2646062.md)
- `MOSREC`
-
 #### [20220529文贵聊天直播：文贵先生谈长岛哥、联盟委员会、以及蛊获人心](/content/gnews/2645907.md)
  `秘密翻译组-原创组`
 
@@ -103,12 +109,6 @@
 
 #### [史蒂夫-永利案会促使美国两党合力彻查中共渗透](/content/gnews/2645855.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【G时新闻】逾百名英国议员联署要求审查中港官员在英国资产](/content/gnews/2645747.md)
- `G-时新闻`
-
-#### [美参议员防台 中共军机示威 ｜粤时报](/content/gnews/2645609.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [美国就出口制裁问题对中资公司进行调查](/content/gnews/2645054.md)
  `西班牙巴塞罗那喜悦农场`
