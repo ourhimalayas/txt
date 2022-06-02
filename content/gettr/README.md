@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 6/2/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1cc4ay3410.md)
-
-2022-6-1《鸡血王喜币大作战》 第二百一十三集 嘉宾：齐天二圣、Nick
-
-<img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@shinchan777 5/31/2022 2:47 AM UTC  - 6圖](/content/gettr/p1c2jbf5d0d.md)
 
 2022年5月30日
@@ -31,6 +23,22 @@
 七哥真的是太让人感动，什么事情都亲力亲为，对人掏心掏肺的好，七哥用他的行动教...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/31/02/6d53371d-88c2-2b43-784a-c0c7abeaeb94/d6cad938e2b02d17086e92adedacd938.jpg" width="506" height="284">
+
+---
+
+[@miles 6/2/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1cc4ay3410.md)
+
+2022-6-1《鸡血王喜币大作战》 第二百一十三集 嘉宾：齐天二圣、Nick
+
+<img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/2/2022 6:25 AM UTC  - :tv:直播](/content/gettr/p1ccvjtb894.md)
+
+64两周年深夜机场接战友，猜猜我们来接谁？
+
+<img src="https://media.gettr.com/group13/getter/2022/06/02/04/9b450dd5-c087-618f-8f56-106d60c54d1a/b75bc9359652d8b851a1d839d6dd8133.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Sergio is a French volunteer who came to help Ukrainian on the 26 of April. He s
 2022年5月31日 Gclub会员船游活动第二天
 
 <img src="https://media.gettr.com/group14/origin/2022/05/31/18/ed7d58b9-abcb-55c4-76f2-4b6198de2704/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 4:57 PM UTC  - :tv:直播](/content/gettr/p1c4w56d41a.md)
-
-2022年5月31日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group6/origin/2022/05/31/16/07c06642-ea65-8cc7-32e9-4ba7b5c91633/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
