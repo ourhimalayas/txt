@@ -2,6 +2,9 @@
 ---
 
 
+#### [苹果将iPad产能从中共国转移至越南](/content/gnews/2658695.md)
+ `NFSC News`
+
 #### [六四前夕香港政府提前关闭烛光晚会场地](/content/gnews/2658643.md)
  `日本东京方舟农场`
 
@@ -32,6 +35,15 @@
 #### [美网络电商巨头亚马逊电子读书器Kindle 停止中共国零售业务 ｜粤时报](/content/gnews/2658528.md)
  `秘密翻译组-即时新闻播报组`
 
+#### [新中国联邦创始人传奇的人生之凤凰涅槃浴火重生（下）](/content/gnews/2658522.md)
+ `cindy`
+
+#### [新中国联邦创始人传奇的人生之凤凰涅槃浴火重生（上）](/content/gnews/2658513.md)
+ `cindy`
+
+#### [新中国联邦创始人传奇的人生之父母的影响是一切的根基](/content/gnews/2658493.md)
+ `cindy`
+
 #### [亚马逊将关闭中共国的Kindle商店](/content/gnews/2658471.md)
  `秘密翻譯組G-Translators`
 
@@ -53,20 +65,11 @@
 #### [文贵先生参加《联邦杯》诗歌朗诵总决赛直播精要2022/06/02](/content/gnews/2658332.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [【G时新闻】中共军机多次挑衅干扰加拿大巡逻机](/content/gnews/2658329.md)
- `G-时新闻`
-
 #### [纽约洲通过立法打击比特币开采](/content/gnews/2658306.md)
  `秘密翻譯組G-Translators`
 
-#### [【G时新闻】多伦多警方解除疫苗令 警官雇员可返回岗位](/content/gnews/2658282.md)
- `G-时新闻`
-
 #### [西媒头条 — 第219期](/content/gnews/2658232.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [《中共宪法本质》](/content/gnews/2658125.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [中共国经济因支出暴跌而支离破碎，政府缺乏现金](/content/gnews/2658101.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -93,9 +96,6 @@
  `蓝莲花农场`
 
 #### [“八九六四”惨案见证人的真实描述](/content/gnews/2657358.md)
- `NFSC News`
-
-#### [中共病毒患者确诊一年后仍有三成具有后遗症](/content/gnews/2657357.md)
  `NFSC News`
 
 #### [数字货币市场第一例内幕交易操纵者被指控](/content/gnews/2657068.md)
