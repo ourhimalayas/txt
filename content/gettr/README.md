@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/1/2022 8:11 PM UTC  - :tv:直播](/content/gettr/p1cajs02c77.md)
+
+2022-06-01 4k测试新中国联邦战友相聚纽约
+
+<img src="https://media.gettr.com/group47/origin/2022/06/01/20/634b3e3d-a2ab-2e9c-aa96-c094391b72f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/3/2022 2:18 PM UTC  - :tv:直播](/content/gettr/p1cib1e03fe.md)
 
 4K郭先生战友见面会
@@ -12,11 +20,11 @@
 
 ---
 
-[@miles 6/3/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p1cinmj316f.md)
+[@miles 6/3/2022 2:23 PM UTC  - :tv:直播](/content/gettr/p1ciwc98af1.md)
 
 2022.06.03 郭先生战友见面会
 
-<img src="https://media.gettr.com/group11/origin/2022/06/03/14/89e22987-0228-6c61-067c-e8adfa66962c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/06/03/14/23e05270-a36d-2cd6-5d87-3a9e1c47724e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 2022-6-1《鸡血王喜币大作战》 第二百一十三集 嘉宾：齐天二圣、Nick
 
 <img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 2:23 PM UTC  - :tv:直播](/content/gettr/p1ciwc98af1.md)
-
-2022.06.03 郭先生战友见面会
-
-<img src="https://media.gettr.com/group34/origin/2022/06/03/14/23e05270-a36d-2cd6-5d87-3a9e1c47724e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
