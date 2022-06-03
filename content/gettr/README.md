@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/3/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1cgc8z85fb.md)
+
+飞飞秀 六四篇 谈谈家和才能万事兴
+
+For English:gettr.com/streaming/p1cgeyb837f
+
+
+
+<img src="https://media.gettr.com/group18/origin/2022/06/03/01/5f3afdc6-0e59-36a2-4e44-d657960945c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@himalayaathena 6/2/2022 8:03 AM UTC ](/content/gettr/p1cd0l54ea1.md)
 
 在南太平洋岛国启动“#一带一路”倡议时，建设赌场是中共的第一要务。中共控制的南太平洋赌场，除了深入地影响当地的政治和经济，更大的功能是为“一带一路”筹资，通过吸收澳洲毒枭黑钱，最后再通过赌场将脏钱洗白后完成整个闭环。
@@ -82,15 +94,9 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@miles 6/3/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1cgc8z85fb.md)
+[@miles 6/3/2022 2:50 AM UTC ](/content/gettr/p1cgiop8738.md)
 
-飞飞秀 六四篇 谈谈家和才能万事兴
-
-For English:gettr.com/streaming/p1cgeyb837f
-
-
-
-<img src="https://media.gettr.com/group18/origin/2022/06/03/01/5f3afdc6-0e59-36a2-4e44-d657960945c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gettr.com/streaming/p1cg6f52936
 
 ---
 
@@ -177,14 +183,6 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 
 
 <img src="https://media.gettr.com/group5/origin/2022/06/01/02/87927751-33e7-69c3-3c48-c61073565c2c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/31/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1c602l3e58.md)
-
-5/31/2022 Miles Guo's GETTR: There is a sharp rise in the monthly new cases of cancer, myocarditis and myocardial infarction in the world! Our fellow fighters’ family members in mainland China already got myocarditis and leukemia a...
-
-<img src="https://media.gettr.com/group39/getter/2022/05/31/22/eb30b023-12c3-cef1-2eda-ecc4301e47cf/out.jpg" width="506" height="284">
 
 ---
 
