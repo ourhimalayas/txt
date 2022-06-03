@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/2/2022 7:01 PM UTC ](/content/gettr/p1cezaf60f5.md)
+
+2022-6-2《避风港》(55)  疫苗导致严重的神经系统疾病
+
+---
+
 [@miles 6/2/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1ce1wt7c68.md)
 
 千声万籁·承载辉煌  首届《联邦杯》诗歌朗诵大赛总决赛
@@ -58,9 +64,11 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@miles 6/2/2022 7:01 PM UTC ](/content/gettr/p1cezaf60f5.md)
+[@miles 6/3/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1cg10ma804.md)
 
-2022-6-2《避风港》(55)  疫苗导致严重的神经系统疾病
+Nicolas, representative of the Camp Medyka Management Committee said the New Federal State of China was one of the first on-site in Medyka, and worked with UNICEF, IOM, and the Polish Red Cross as a big family, offering great assis...
+
+<img src="https://media.gettr.com/group4/origin/2022/06/03/00/d702c36a-fc5b-2faa-9bf0-848c5e85551c/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 5/31/2022 Miles Guo's GETTR: There is a sharp rise in the monthly new cases of cancer, myocarditis and myocardial infarction in the world! Our fellow fighters’ family members in mainland China already got myocarditis and leukemia a...
 
 <img src="https://media.gettr.com/group39/getter/2022/05/31/22/eb30b023-12c3-cef1-2eda-ecc4301e47cf/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/31/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1c6ffq0a34.md)
-
-Sergio is a French volunteer who came to help Ukrainian on the 26 of April. He shared his memorable experience with King, a New Federal State of China and Rule of Law Foundation volunteer. Sergio praised and thanked the NFSC coffee...
-
-<img src="https://media.gettr.com/group29/origin/2022/05/31/22/68ca4450-2747-2da6-d757-270654da748c/out.jpg" width="506" height="284">
 
 ---
 
