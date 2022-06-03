@@ -14,6 +14,34 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
+[@miles 6/3/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1cjou62845.md)
+
+新中国联邦成立2周年庆典
+
+地点：纽约
+
+时间：2022年6月4号美东时间早上9:57
+
+
+
+2nd Anniversary of The New Federal State of China 
+
+Location： New York
+
+Time： 9:57AM EST  June 4th 2022
+
+
+
+#新中国联邦 #NFSC  #ROLF #法治基金 
+
+
+
+
+
+<img src="https://media.gettr.com/group36/getter/2022/06/03/15/e8a7174a-6d5c-f950-3584-4abbad91c902/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/3/2022 2:18 PM UTC  - :tv:直播](/content/gettr/p1cib1e03fe.md)
 
 4K郭先生战友见面会
@@ -197,14 +225,6 @@ Official tweet of the U.S. Embassy and Consulates in China shows CCP's Blocking 
 The official twitter of the U.S. Embassy and Consulates in Beijing posted a message on May 31 that the Chinese C...
 
 <img src="https://media.gettr.com/group40/origin/2022/06/01/23/355c5803-ece0-d22b-5268-e6c0ab3f8846/f808e34c429bedb3e2b1e529948cdc42.jpg" width="506" height="284">
-
----
-
-[@miles 6/1/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1cbnhi6643.md)
-
-2022-06-01 新中国联邦战友相聚纽约4k
-
-<img src="https://media.gettr.com/group47/origin/2022/06/01/20/634b3e3d-a2ab-2e9c-aa96-c094391b72f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
