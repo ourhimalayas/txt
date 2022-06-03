@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/3/2022 2:50 AM UTC ](/content/gettr/p1cgiop8738.md)
+
+https://gettr.com/streaming/p1cg6f52936
+
+---
+
 [@miles 6/3/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1cgc8z85fb.md)
 
 飞飞秀 六四篇 谈谈家和才能万事兴
@@ -94,9 +100,9 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@miles 6/3/2022 2:50 AM UTC ](/content/gettr/p1cgiop8738.md)
+[@miles 6/3/2022 3:03 AM UTC ](/content/gettr/p1cgpmibb8d.md)
 
-https://gettr.com/streaming/p1cg6f52936
+2022-6-2《鸡血王喜币大作战》 第二百一十四集 嘉宾：无双柳薇薇、文空、TEX
 
 ---
 
@@ -165,14 +171,6 @@ The official twitter of the U.S. Embassy and Consulates in Beijing posted a mess
 Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica, Poland, and reported that volunteers from almost all over the world gathered at the Medica camp in Poland to support the Ukrainian people in their ow...
 
 <img src="https://media.gettr.com/group43/origin/2022/06/01/05/1f1f8f06-3d1f-951e-74f2-f2e50de1b638/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/1/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1c70u88aa2.md)
-
-2022-5-31《鸡血王喜币大作战》 第二百一十二集 嘉宾：文空、Happy
-
-<img src="https://media.gettr.com/group19/origin/2022/05/18/03/323fd27c-dd83-7122-9483-f4148d4531c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
