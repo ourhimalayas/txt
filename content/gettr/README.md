@@ -2,6 +2,14 @@
 ---
 
 
+[@globalalliance 6/3/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1cj2zp89d9.md)
+
+2022.06.03 新中国联邦 | 军情室 再谈海马斯以及多管火箭炮在未来台海战争中的作用
+
+<img src="https://media.gettr.com/group28/origin/2022/06/03/10/c2f9c546-ba3f-c642-8ea3-8c6cfb562705/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/3/2022 4:52 AM UTC  - :tv:直播](/content/gettr/p1chhtc0233.md)
 
 64两周年，迎接战友看看是不是开林宝捷妮来的
@@ -114,11 +122,31 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@globalalliance 6/3/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1cj2zp89d9.md)
+[@miles 6/3/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p1cij1fb367.md)
 
-2022.06.03 新中国联邦 | 军情室 再谈海马斯以及多管火箭炮在未来台海战争中的作用
+在新中国联邦成立两周年之际，纽约香草山农场也迎来两周岁生日。
 
-<img src="https://media.gettr.com/group28/origin/2022/06/03/10/c2f9c546-ba3f-c642-8ea3-8c6cfb562705/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+在此，我谨代表香草山农场管理委员会所有委员衷心感谢各位战友的相伴和付出。谢谢！ 
+
+
+
+过去的一年，我们一起经历风雨，同舟共济，见证了香草山村晋级为香草山市！但我们并未因此自满而停止脚步，而是百尺竿头更进一步，继续保持高调做事、低调做人的风格，直面更多挑战！
+
+ 
+
+消灭中共、传播爆料革命和服务战友始终是我们的使命！念念不忘，必有回响！
+
+
+
+接下来的路，愿我们继续相伴而行🤝
+
+
+
+香草山...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/03/13/26ca8237-be19-927c-792c-c244709fee55/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +199,6 @@ The official twitter of the U.S. Embassy and Consulates in Beijing posted a mess
 2022年6月1日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group26/origin/2022/06/01/16/d7740669-072b-abed-b0c2-f400fc316dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/1/2022 11:04 AM UTC  - :tv:直播](/content/gettr/p1c98r0f2a7.md)
-
-2022.06.01 新中国联邦 | 军情室 六四特辑 八九六四后西方对中共的军事禁运
-
-<img src="https://media.gettr.com/group40/origin/2022/06/01/10/723c6232-d5e4-7cf2-32aa-fe95a0f34b9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
