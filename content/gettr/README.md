@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/3/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1cg10ma804.md)
+
+Nicolas, representative of the Camp Medyka Management Committee said the New Federal State of China was one of the first on-site in Medyka, and worked with UNICEF, IOM, and the Polish Red Cross as a big family, offering great assis...
+
+<img src="https://media.gettr.com/group4/origin/2022/06/03/00/d702c36a-fc5b-2faa-9bf0-848c5e85551c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/2/2022 7:01 PM UTC ](/content/gettr/p1cezaf60f5.md)
 
 2022-6-2《避风港》(55)  疫苗导致严重的神经系统疾病
@@ -64,11 +72,13 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@miles 6/3/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1cg10ma804.md)
+[@himalayaathena 6/2/2022 8:03 AM UTC ](/content/gettr/p1cd0l54ea1.md)
 
-Nicolas, representative of the Camp Medyka Management Committee said the New Federal State of China was one of the first on-site in Medyka, and worked with UNICEF, IOM, and the Polish Red Cross as a big family, offering great assis...
+在南太平洋岛国启动“#一带一路”倡议时，建设赌场是中共的第一要务。中共控制的南太平洋赌场，除了深入地影响当地的政治和经济，更大的功能是为“一带一路”筹资，通过吸收澳洲毒枭黑钱，最后再通过赌场将脏钱洗白后完成整个闭环。
 
-<img src="https://media.gettr.com/group4/origin/2022/06/03/00/d702c36a-fc5b-2faa-9bf0-848c5e85551c/out.jpg" width="506" height="284">
+这笔大买卖由澳门黑帮老大 #尹国驹 操盘，他已皈依红教，确切地说是“孟老板”的人。此君正在东南亚建立了一个强大的商业网络，涉及加密货币、房地产的开发和销售，还成立一家专门保护“一带一路”投资的安保公司。
+
+此外， #所罗门群岛 总理 #索加瓦...
 
 ---
 
@@ -155,14 +165,6 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 
 
 <img src="https://media.gettr.com/group5/origin/2022/06/01/02/87927751-33e7-69c3-3c48-c61073565c2c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/31/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1c6bja32b9.md)
-
-5/30/2022 Miles Guo’s GETTR: Wang Yi's so-called 10-nation tour of the southern hemisphere is bullshit! The U.S. will definitely destroy those who are in cahoots with the CCP in these countries, such as the president of Solomon Isl...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/31/23/b3ffd9ba-5b0f-47cc-aacc-9d518d54b161/out.jpg" width="506" height="284">
 
 ---
 
