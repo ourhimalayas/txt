@@ -2,6 +2,52 @@
 ---
 
 
+[@miles 6/3/2022 2:18 PM UTC  - :tv:直播](/content/gettr/p1cib1e03fe.md)
+
+4K郭先生战友见面会
+
+
+
+<img src="https://media.gettr.com/group19/origin/2022/06/03/14/4ace9192-fb66-617d-7170-fe07cac2528c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/3/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p1cinmj316f.md)
+
+2022.06.03 郭先生战友见面会
+
+<img src="https://media.gettr.com/group11/origin/2022/06/03/14/89e22987-0228-6c61-067c-e8adfa66962c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/3/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p1cij1fb367.md)
+
+在新中国联邦成立两周年之际，纽约香草山农场也迎来两周岁生日。
+
+
+
+在此，我谨代表香草山农场管理委员会所有委员衷心感谢各位战友的相伴和付出。谢谢！ 
+
+
+
+过去的一年，我们一起经历风雨，同舟共济，见证了香草山村晋级为香草山市！但我们并未因此自满而停止脚步，而是百尺竿头更进一步，继续保持高调做事、低调做人的风格，直面更多挑战！
+
+ 
+
+消灭中共、传播爆料革命和服务战友始终是我们的使命！念念不忘，必有回响！
+
+
+
+接下来的路，愿我们继续相伴而行🤝
+
+
+
+香草山...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/03/13/26ca8237-be19-927c-792c-c244709fee55/out.jpg" width="506" height="284">
+
+---
+
 [@globalalliance 6/3/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1cj2zp89d9.md)
 
 2022.06.03 新中国联邦 | 军情室 再谈海马斯以及多管火箭炮在未来台海战争中的作用
@@ -122,31 +168,11 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@miles 6/3/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p1cij1fb367.md)
+[@miles 6/3/2022 2:23 PM UTC  - :tv:直播](/content/gettr/p1ciwc98af1.md)
 
-在新中国联邦成立两周年之际，纽约香草山农场也迎来两周岁生日。
+2022.06.03 郭先生战友见面会
 
-
-
-在此，我谨代表香草山农场管理委员会所有委员衷心感谢各位战友的相伴和付出。谢谢！ 
-
-
-
-过去的一年，我们一起经历风雨，同舟共济，见证了香草山村晋级为香草山市！但我们并未因此自满而停止脚步，而是百尺竿头更进一步，继续保持高调做事、低调做人的风格，直面更多挑战！
-
- 
-
-消灭中共、传播爆料革命和服务战友始终是我们的使命！念念不忘，必有回响！
-
-
-
-接下来的路，愿我们继续相伴而行🤝
-
-
-
-香草山...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/03/13/26ca8237-be19-927c-792c-c244709fee55/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/06/03/14/23e05270-a36d-2cd6-5d87-3a9e1c47724e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,30 +201,6 @@ The official twitter of the U.S. Embassy and Consulates in Beijing posted a mess
 2022-06-01 新中国联邦战友相聚纽约4k
 
 <img src="https://media.gettr.com/group47/origin/2022/06/01/20/634b3e3d-a2ab-2e9c-aa96-c094391b72f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/1/2022 8:11 PM UTC  - :tv:直播](/content/gettr/p1cajs02c77.md)
-
-2022-06-01 4k测试新中国联邦战友相聚纽约
-
-<img src="https://media.gettr.com/group47/origin/2022/06/01/20/634b3e3d-a2ab-2e9c-aa96-c094391b72f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/1/2022 7:44 PM UTC  - 6圖](/content/gettr/p1cale02ab4.md)
-
- 6月1号：尊敬的战友们好．衷心地祝愿．全天下的儿童们节日快乐，为所有天下的儿童．未来的安全．健康．快乐．祈福！吃饺子喽，这是七哥的过儿童节的方式！
-
-<img src="https://media.gettr.com/group5/getter/2022/06/01/19/64e2025a-8b00-f7d1-3a31-06f8a8ffe183/2e1934d30bf74c17da7196a27cd2c800.jpg" width="506" height="284">
-
----
-
-[@miles 6/1/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1c9xef3a69.md)
-
-2022年6月1日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group26/origin/2022/06/01/16/d7740669-072b-abed-b0c2-f400fc316dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
