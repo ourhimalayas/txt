@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/3/2022 4:52 AM UTC  - :tv:直播](/content/gettr/p1chhtc0233.md)
+
+64两周年，迎接战友看看是不是开林宝捷妮来的
+
+<img src="https://media.gettr.com/group17/getter/2022/06/03/04/fa8ace4b-665d-7f19-531a-03e59e386915/4fc14b3ed462f6f6601c93de38eb03db.jpg" width="506" height="284">
+
+---
+
 [@miles 6/3/2022 3:03 AM UTC ](/content/gettr/p1cgpmibb8d.md)
 
 2022-6-2《鸡血王喜币大作战》 第二百一十四集 嘉宾：无双柳薇薇、文空、TEX
@@ -106,11 +114,11 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@miles 6/3/2022 4:52 AM UTC  - :tv:直播](/content/gettr/p1chhtc0233.md)
+[@globalalliance 6/3/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1cj2zp89d9.md)
 
-64两周年，迎接战友看看是不是开林宝捷妮来的
+2022.06.03 新中国联邦 | 军情室 再谈海马斯以及多管火箭炮在未来台海战争中的作用
 
-<img src="https://media.gettr.com/group17/getter/2022/06/03/04/fa8ace4b-665d-7f19-531a-03e59e386915/4fc14b3ed462f6f6601c93de38eb03db.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/06/03/10/c2f9c546-ba3f-c642-8ea3-8c6cfb562705/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ The official twitter of the U.S. Embassy and Consulates in Beijing posted a mess
 2022.06.01 新中国联邦 | 军情室 六四特辑 八九六四后西方对中共的军事禁运
 
 <img src="https://media.gettr.com/group40/origin/2022/06/01/10/723c6232-d5e4-7cf2-32aa-fe95a0f34b9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/1/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1c7yos80e2.md)
-
-Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica, Poland, and reported that volunteers from almost all over the world gathered at the Medica camp in Poland to support the Ukrainian people in their ow...
-
-<img src="https://media.gettr.com/group43/origin/2022/06/01/05/1f1f8f06-3d1f-951e-74f2-f2e50de1b638/out.jpg" width="506" height="284">
 
 ---
 
