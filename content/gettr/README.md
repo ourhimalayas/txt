@@ -2,6 +2,16 @@
 ---
 
 
+[@himalayaathena 6/2/2022 8:03 AM UTC ](/content/gettr/p1cd0l54ea1.md)
+
+在南太平洋岛国启动“#一带一路”倡议时，建设赌场是中共的第一要务。中共控制的南太平洋赌场，除了深入地影响当地的政治和经济，更大的功能是为“一带一路”筹资，通过吸收澳洲毒枭黑钱，最后再通过赌场将脏钱洗白后完成整个闭环。
+
+这笔大买卖由澳门黑帮老大 #尹国驹 操盘，他已皈依红教，确切地说是“孟老板”的人。此君正在东南亚建立了一个强大的商业网络，涉及加密货币、房地产的开发和销售，还成立一家专门保护“一带一路”投资的安保公司。
+
+此外， #所罗门群岛 总理 #索加瓦...
+
+---
+
 [@miles 6/3/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1cg10ma804.md)
 
 Nicolas, representative of the Camp Medyka Management Committee said the New Federal State of China was one of the first on-site in Medyka, and worked with UNICEF, IOM, and the Polish Red Cross as a big family, offering great assis...
@@ -72,13 +82,15 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@himalayaathena 6/2/2022 8:03 AM UTC ](/content/gettr/p1cd0l54ea1.md)
+[@miles 6/3/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1cgc8z85fb.md)
 
-在南太平洋岛国启动“#一带一路”倡议时，建设赌场是中共的第一要务。中共控制的南太平洋赌场，除了深入地影响当地的政治和经济，更大的功能是为“一带一路”筹资，通过吸收澳洲毒枭黑钱，最后再通过赌场将脏钱洗白后完成整个闭环。
+飞飞秀 六四篇 谈谈家和才能万事兴
 
-这笔大买卖由澳门黑帮老大 #尹国驹 操盘，他已皈依红教，确切地说是“孟老板”的人。此君正在东南亚建立了一个强大的商业网络，涉及加密货币、房地产的开发和销售，还成立一家专门保护“一带一路”投资的安保公司。
+For English:gettr.com/streaming/p1cgeyb837f
 
-此外， #所罗门群岛 总理 #索加瓦...
+
+
+<img src="https://media.gettr.com/group18/origin/2022/06/03/01/5f3afdc6-0e59-36a2-4e44-d657960945c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica
 
 
 <img src="https://media.gettr.com/group5/origin/2022/06/01/02/87927751-33e7-69c3-3c48-c61073565c2c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/31/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1c645w5f4e.md)
-
-5/30/2022 Miles Guo’s GETTR: Unlike the CCP, which only seeks to seize other people’s properties and monopolize all resources, citizens of the New Federal State of China own Himalaya Coins and are getting rich together, enjoying th...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/31/23/fa9ffea3-0430-6364-8751-f0afcb4e1e47/out.jpg" width="506" height="284">
 
 ---
 
