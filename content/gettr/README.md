@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/3/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1cl4d7d59f.md)
+
+Nicholas, a commander-in-chief of the Medyka Rescue Camp Management Committee, was interviewed by Nicole and praised the fast and effective cooperation of the NFSC with his counterparts during the war crisis, which was very encoura...
+
+<img src="https://media.gettr.com/group48/origin/2022/06/03/23/19896b9c-3501-77ac-59ad-81c8834bcc0f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/3/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1cjou62845.md)
 
 新中国联邦成立2周年庆典
@@ -42,11 +50,11 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/3/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1cl4d7d59f.md)
+[@miles 6/3/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1ckayofbfb.md)
 
-Nicholas, a commander-in-chief of the Medyka Rescue Camp Management Committee, was interviewed by Nicole and praised the fast and effective cooperation of the NFSC with his counterparts during the war crisis, which was very encoura...
+6/3/2022 Miles Guo: The rivalry between the US and Communist China is inevitable! The CCP wants to wait till its GDP surpasses that of the US, then Taiwan will voluntarily submit to Communist China. Now "Xi the Sun" has completely ...
 
-<img src="https://media.gettr.com/group48/origin/2022/06/03/23/19896b9c-3501-77ac-59ad-81c8834bcc0f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/06/03/23/8d4dee40-502f-d8ea-8993-37830febeab3/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,14 +213,6 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 七哥真的是太让人感动，什么事情都亲力亲为，对人掏心掏肺的好，七哥用他的行动教...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/31/02/6d53371d-88c2-2b43-784a-c0c7abeaeb94/d6cad938e2b02d17086e92adedacd938.jpg" width="506" height="284">
-
----
-
-[@miles 6/2/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1cc4ay3410.md)
-
-2022-6-1《鸡血王喜币大作战》 第二百一十三集 嘉宾：齐天二圣、Nick
-
-<img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
