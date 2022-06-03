@@ -2,18 +2,6 @@
 ---
 
 
-[@miles 6/3/2022 3:41 PM UTC  - :tv:直播](/content/gettr/p1cjqzo438d.md)
-
-Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him that PLA faked the burned soldier news, which shocked the whole world at that time.
-
-
-
-郭文贵先生于2019年6月22日回顾8964时表示, 一位军队的干部给他讲述了解放军是如何制造军人被烧的假新闻，当时震惊了世界。
-
-<img src="https://media.gettr.com/group37/getter/2022/06/03/15/66daf5a7-a841-2934-f5da-da79e664194e/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/3/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1cjou62845.md)
 
 新中国联邦成立2周年庆典
@@ -39,6 +27,26 @@ Time： 9:57AM EST  June 4th 2022
 
 
 <img src="https://media.gettr.com/group36/getter/2022/06/03/15/e8a7174a-6d5c-f950-3584-4abbad91c902/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/3/2022 3:41 PM UTC  - :tv:直播](/content/gettr/p1cjqzo438d.md)
+
+Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him that PLA faked the burned soldier news, which shocked the whole world at that time.
+
+
+
+郭文贵先生于2019年6月22日回顾8964时表示, 一位军队的干部给他讲述了解放军是如何制造军人被烧的假新闻，当时震惊了世界。
+
+<img src="https://media.gettr.com/group37/getter/2022/06/03/15/66daf5a7-a841-2934-f5da-da79e664194e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/3/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1cl4d7d59f.md)
+
+Nicholas, a commander-in-chief of the Medyka Rescue Camp Management Committee, was interviewed by Nicole and praised the fast and effective cooperation of the NFSC with his counterparts during the war crisis, which was very encoura...
+
+<img src="https://media.gettr.com/group48/origin/2022/06/03/23/19896b9c-3501-77ac-59ad-81c8834bcc0f/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,18 +221,6 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 2022.06.01 新中国联邦 | 喜财经  第66期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天
 
 <img src="https://media.gettr.com/group44/origin/2022/06/02/02/49454417-10a3-3edd-a4d9-e8d6a82c677d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/1/2022 11:59 PM UTC ](/content/gettr/p1cb25f3b85.md)
-
-Official tweet of the U.S. Embassy and Consulates in China shows CCP's Blocking of Blinken's speech on China policy
-
-
-
-The official twitter of the U.S. Embassy and Consulates in Beijing posted a message on May 31 that the Chinese C...
-
-<img src="https://media.gettr.com/group40/origin/2022/06/01/23/355c5803-ece0-d22b-5268-e6c0ab3f8846/f808e34c429bedb3e2b1e529948cdc42.jpg" width="506" height="284">
 
 ---
 
