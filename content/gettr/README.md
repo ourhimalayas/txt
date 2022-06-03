@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/3/2022 3:03 AM UTC ](/content/gettr/p1cgpmibb8d.md)
+
+2022-6-2《鸡血王喜币大作战》 第二百一十四集 嘉宾：无双柳薇薇、文空、TEX
+
+---
+
 [@miles 6/3/2022 2:50 AM UTC ](/content/gettr/p1cgiop8738.md)
 
 https://gettr.com/streaming/p1cg6f52936
@@ -100,9 +106,11 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 
 ---
 
-[@miles 6/3/2022 3:03 AM UTC ](/content/gettr/p1cgpmibb8d.md)
+[@miles 6/3/2022 4:52 AM UTC  - :tv:直播](/content/gettr/p1chhtc0233.md)
 
-2022-6-2《鸡血王喜币大作战》 第二百一十四集 嘉宾：无双柳薇薇、文空、TEX
+64两周年，迎接战友看看是不是开林宝捷妮来的
+
+<img src="https://media.gettr.com/group17/getter/2022/06/03/04/fa8ace4b-665d-7f19-531a-03e59e386915/4fc14b3ed462f6f6601c93de38eb03db.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ The official twitter of the U.S. Embassy and Consulates in Beijing posted a mess
 Natalia Zhukovska, a reporter from ICTV news station, interviewed live in Medica, Poland, and reported that volunteers from almost all over the world gathered at the Medica camp in Poland to support the Ukrainian people in their ow...
 
 <img src="https://media.gettr.com/group43/origin/2022/06/01/05/1f1f8f06-3d1f-951e-74f2-f2e50de1b638/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 6/1/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1c7b5ad93b.md)
-
-2022.05.31  新中国联邦 | 喜财经  第65期 血流成河，Luna2.0 借尸还魂，重新上线各大数字交易所；上海解封始于愚人节，止于儿童节
-
-
-
-<img src="https://media.gettr.com/group5/origin/2022/06/01/02/87927751-33e7-69c3-3c48-c61073565c2c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
