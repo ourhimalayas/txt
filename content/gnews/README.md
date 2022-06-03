@@ -2,11 +2,41 @@
 ---
 
 
-#### [中共否认上海“封城”，无耻胆怯无下限](/content/gnews/2657212.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
+#### [06/03/22 香港快讯 康文署晚上11时起封闭维园足球场及草坪直至6月5日](/content/gnews/2657447.md)
+ `英喜-粵語組`
 
-#### [六四33周年 美呼吁中共直面共军实施的对内屠杀](/content/gnews/2657211.md)
+#### [谁在遗忘六四？铁证如山，历史不容篡改](/content/gnews/2657397.md)
  `东京樱花团`
+
+#### [The Level of Brainwashing of Taiwanese by the Taiwan Kleptocrats Is No Less Than That of the Mainlanders](/content/gnews/2657374.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [六四全球将遍地开花纪念、抗议](/content/gnews/2657363.md)
+ `东京樱花团`
+
+#### [美国确认对乌新军援 计划出售武装无人机](/content/gnews/2657352.md)
+ `NFSC News`
+
+#### [有声&#124;中共称其在台湾周边进行“战备巡逻”](/content/gnews/2657306.md)
+ `MOSREC`
+
+#### [台湾人被卖台贼洗脑的程度不亚于大陆人](/content/gnews/2657300.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [日本2021年出生率创历史新低](/content/gnews/2657270.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [为中共唱一首葬歌](/content/gnews/2657269.md)
+ `亚伦YALUN`
+
+#### [​​解放軍造假64軍人被燒](/content/gnews/2657266.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [有声&#124;英国防部表示俄军初级军官正遭受毁灭性打击](/content/gnews/2657255.md)
+ `MOSREC`
+
+#### [美国防部长重申对台湾的武装承诺](/content/gnews/2657208.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [今日盖特大V推荐 — 里奥·特雷尔（LeoTerrell）](/content/gnews/2657201.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -17,32 +47,17 @@
 #### [中共国的新冠快筛检测制造商在美国德州遭到起诉](/content/gnews/2657171.md)
  `秘密翻译组-原创组`
 
-#### [加拿大央行警告，基准利率回调可能超过3%既定目标](/content/gnews/2657157.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [有声&#124;新中国联邦两周年庆广告登陆奥克兰市中心](/content/gnews/2657138.md)
  `MOSREC`
 
 #### [今日盖特大V推荐 — 传统基金会（Heritage Foundation）](/content/gnews/2657137.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [【 蓝枫法律 】 第三十期 喜币白皮书解读（二）- PPT展示](/content/gnews/2657103.md)
- `加拿大温哥华扬帆农场蓝枫法律`
-
-#### [加拿大旅游航空业等各界人士呼吁特鲁多取消旅行限制令](/content/gnews/2657101.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [乌东城市北顿内茨克战事告急](/content/gnews/2657102.md)
+ `NFSC News`
 
 #### [数字货币市场第一例内幕交易操纵者被指控](/content/gnews/2657068.md)
  `银河歌舞厅`
-
-#### [有声｜日本修改《资金结算法》保护数字货币使用者](/content/gnews/2657004.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [前美联储理事凯文·沃什：我们本可以早点解决这个问题，当时通胀率只有 3%](/content/gnews/2657001.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [有声｜联合国将与俄罗斯官员会面推动农产品出口](/content/gnews/2656986.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [6/03/2022银河快讯：法日继续在制裁俄罗斯和援助乌克兰进行合作；四艘中共国海警船闯入日本领海](/content/gnews/2656978.md)
  `日本银河系农场-阿尔法星球`
@@ -77,9 +92,6 @@
 #### [乌克兰战争或推动亚洲向绿色能源转型](/content/gnews/2656773.md)
  `波士顿五月花农场金融部`
 
-#### [多伦多警署取消了中共病毒疫苗强制政策](/content/gnews/2656747.md)
- `银河歌舞厅`
-
 #### [有声｜亚马逊电子书业务分三阶段退出中共国](/content/gnews/2656739.md)
  `秘密翻译组-即时新闻播报组`
 
@@ -94,9 +106,6 @@
 
 #### [秘翻在线：美国应与中共国尽快脱钩](/content/gnews/2656694.md)
  `秘密翻譯組G-Translators`
-
-#### [加密公司表示数千种数字货币将崩溃](/content/gnews/2656655.md)
- `波士顿五月花农场金融部`
 
 #### [秘翻在线: 达沃斯的暗黑术:10年内在小学生大脑被植入微芯片](/content/gnews/2656653.md)
  `秘密翻譯組G-Translators`
@@ -119,9 +128,6 @@
 #### [上海刚解封 因多地区阳性病例再现又被封控 ｜粤时报](/content/gnews/2656565.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [【全字幕+视频】 郭文贵2021年6月8日盖特](/content/gnews/2656436.md)
- `郭文贵全文字幕&#38;视频`
-
 #### [报税表的下降 香港移民潮的体现｜粤时报](/content/gnews/2656415.md)
  `秘密翻译组-即时新闻播报组`
 
@@ -136,12 +142,6 @@
 
 #### [中共国TA413 APT黑客组织正在利用微软Follina漏洞进行疯狂攻击](/content/gnews/2655868.md)
  `温哥华扬帆农场`
-
-#### [秘翻在线：俄罗斯决定限制出口包括氖气在内的惰性气体](/content/gnews/2655860.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：泽连斯基称 与俄交战100天内被占领五分之一的国土](/content/gnews/2655814.md)
- `秘密翻譯組G-Translators`
 
 #### [美国计划向乌克兰出售装备空地导弹的无人机](/content/gnews/2655216.md)
  `TokyoSakura Politics/樱花时政`
