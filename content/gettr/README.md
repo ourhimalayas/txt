@@ -2,11 +2,15 @@
 ---
 
 
-[@miles 6/1/2022 8:11 PM UTC  - :tv:直播](/content/gettr/p1cajs02c77.md)
+[@miles 6/3/2022 3:41 PM UTC  - :tv:直播](/content/gettr/p1cjqzo438d.md)
 
-2022-06-01 4k测试新中国联邦战友相聚纽约
+Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him that PLA faked the burned soldier news, which shocked the whole world at that time.
 
-<img src="https://media.gettr.com/group47/origin/2022/06/01/20/634b3e3d-a2ab-2e9c-aa96-c094391b72f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+郭文贵先生于2019年6月22日回顾8964时表示, 一位军队的干部给他讲述了解放军是如何制造军人被烧的假新闻，当时震惊了世界。
+
+<img src="https://media.gettr.com/group37/getter/2022/06/03/15/66daf5a7-a841-2934-f5da-da79e664194e/out.jpg" width="506" height="284">
 
 ---
 
