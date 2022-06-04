@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/4/2022 11:28 AM UTC  - 3圖](/content/gettr/p1cobyo469b.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China： the celebration is about to begin, are you ready, fellow fighters?
+
+
+
+2022年6月4日新中国联邦成立两周年—— 盛宴即将开始，战友们准备好了吗？
+
+
+
+#新中国联邦 #NFSC  #ROLF #法治基金 #纪念六四 #rememberjune4th...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/04/07/66ca0224-9bfa-2b2e-2e8e-2cab82c35082/e1752f6db40b350fa2d6e789b7e9cbbf.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 10:48 AM UTC  - :tv:直播](/content/gettr/p1com7u1d82.md)
 
 郭文贵先生油管账号数据被篡改实证
@@ -22,19 +38,17 @@ Evidence of YouTube manipulating and tampering the data of Mr Miles Guo’s acco
 
 ---
 
-[@miles 6/4/2022 11:28 AM UTC  - 3圖](/content/gettr/p1cobyo469b.md)
+[@miles 6/4/2022 11:32 AM UTC  - 4圖](/content/gettr/p1cof7d419d.md)
 
-June 4th, 2022, the 2nd anniversary of the New Federal State of China： the celebration is about to begin, are you ready, fellow fighters?
+June 4, 2022, the 2nd anniversary of the New Federal State of China : 
 
-
-
-2022年6月4日新中国联邦成立两周年—— 盛宴即将开始，战友们准备好了吗？
+the live streaming team is working intensively.
 
 
 
-#新中国联邦 #NFSC  #ROLF #法治基金 #纪念六四 #rememberjune4th...
+2022年6月4日新中国联邦成立两周年—— 直播团队压力山大
 
-<img src="https://media.gettr.com/group47/getter/2022/06/04/07/66ca0224-9bfa-2b2e-2e8e-2cab82c35082/e1752f6db40b350fa2d6e789b7e9cbbf.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/06/04/11/f957d8c8-7267-31c9-fc80-f9f9d5a6925e/bc413eac696bcdcd67f11cd3c2273e27.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +217,6 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 郭文贵先生于2019年6月22日回顾8964时表示, 一位军队的干部给他讲述了解放军是如何制造军人被烧的假新闻，当时震惊了世界。
 
 <img src="https://media.gettr.com/group37/getter/2022/06/03/15/66daf5a7-a841-2934-f5da-da79e664194e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 2:23 PM UTC  - :tv:直播](/content/gettr/p1ciwc98af1.md)
-
-2022.06.03 郭先生战友见面会
-
-<img src="https://media.gettr.com/group34/origin/2022/06/03/14/23e05270-a36d-2cd6-5d87-3a9e1c47724e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
