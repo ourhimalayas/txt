@@ -2,11 +2,39 @@
 ---
 
 
+[@miles 6/4/2022 6:23 PM UTC ](/content/gettr/p1cpiid7b7b.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: For the first time in history, the NFSC rallied the Chinese people together in unison to take down the CCP, thanks to every single donor to the Rule of Law Foun...
+
+<img src="https://media.gettr.com/group35/getter/2022/06/04/18/a0660bae-4071-9562-4283-49d483f4e710/e470d3f5b6da0bd2226d5ec88090db98.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1coz8aa4e2.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Thank every citizen of the New Federal State of China and every fellow fighter of the Whistleblowers’ Movement for the efforts you made! We are celebrating not only the second anniversa...
 
 <img src="https://media.gettr.com/group27/getter/2022/06/04/18/55ef3c01-352f-1d11-9a6b-c08817235a5b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 6:27 PM UTC  - 6圖](/content/gettr/p1coxxp327c.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whistleblowers' Movement fellow fighters walking the red carpet, the most unique and beautiful scenery in the world - New Federal State of China 
+
+
+
+2022年6月...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/04/18/a00354f0-0886-5141-beae-206603fcdad1/20feabb982d7dec8cdad20d7861ad361.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_2 6/4/2022 5:52 PM UTC  - :tv:直播](/content/gettr/p1cowx33d68.md)
+
+22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
+
+<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -31,14 +59,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whist
 June 4th, 2022, the 2nd anniversary of the New Federal State of China : All fellow fighters, as long as you guard the red line of the law and the red line of the extermination of the CCP, there is no barrier that cannot be overcome...
 
 <img src="https://media.gettr.com/group34/getter/2022/06/04/17/39e6612d-83d0-859d-fdcb-effa480e8c49/88ed1c421f46bbab764468cc9d60d88a.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 6/4/2022 5:52 PM UTC  - :tv:直播](/content/gettr/p1cowx33d68.md)
-
-22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
-
-<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -209,30 +229,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : Gratitud
 ...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/04/14/0b2b03e4-b17c-b816-b4b4-eeda479e4544/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 6/4/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1conu6547e.md)
-
-SIMULTANEOUS INTERPRETATION⎢2ND ANNIVERSARY OF THE NEW FEDERAL STATE OF CHINA - 22.06.04
-
-<img src="https://media.gettr.com/group18/origin/2022/06/04/09/dc7e56b5-cbe8-1688-b36c-ceccbd3d8b4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 1:43 PM UTC  - 3圖](/content/gettr/p1co82fb6b3.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: A wonderful day starts with breakfast.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 美好的一天，从早餐开始。
-
-
-
-#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
-
-<img src="https://media.gettr.com/group39/getter/2022/06/04/13/4234ac66-7580-5190-2e3a-792afe1a9d87/42057e44bf683be6426f160ae48c4b87.jpg" width="506" height="284">
 
 ---
 
