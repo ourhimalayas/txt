@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/3/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1ckayofbfb.md)
+
+6/3/2022 Miles Guo: The rivalry between the US and Communist China is inevitable! The CCP wants to wait till its GDP surpasses that of the US, then Taiwan will voluntarily submit to Communist China. Now "Xi the Sun" has completely ...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/03/23/8d4dee40-502f-d8ea-8993-37830febeab3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1coiggcf4e.md)
+
+2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
+
+<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 12:11 PM UTC  - 2圖](/content/gettr/p1co2si3129.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China:
@@ -17,14 +33,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China:
 #新中国联邦 #NFSC #ROLF...
 
 <img src="https://media.gettr.com/group20/getter/2022/06/04/12/d5e4df22-c56d-c1c5-1a09-330b8969fd6e/2911a54316eb8d8a5c4cbb6ad4710545.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1coiggcf4e.md)
-
-2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
-
-<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -53,20 +61,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : Supporte
 2022年6月4日新中国联邦成立两周年——  战友视角 #走红毯，从酒店...
 
 <img src="https://media.gettr.com/group35/getter/2022/06/04/11/f3698463-bed1-e434-a149-6d3c3263f0aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 11:32 AM UTC  - 4圖](/content/gettr/p1cof7d419d.md)
-
-June 4, 2022, the 2nd anniversary of the New Federal State of China : 
-
-the live streaming team is working intensively.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 直播团队压力山大
-
-<img src="https://media.gettr.com/group15/getter/2022/06/04/11/f957d8c8-7267-31c9-fc80-f9f9d5a6925e/bc413eac696bcdcd67f11cd3c2273e27.jpg" width="506" height="284">
 
 ---
 
