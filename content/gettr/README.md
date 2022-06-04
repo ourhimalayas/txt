@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 6/4/2022 9:30 PM UTC  - :tv:直播](/content/gettr/p1cq2xk6994.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: The NFSC people have set an example to the Chinese people all over the world, and I feel empowered to be with you.
+
+
+
+【新中国联邦2周年】06/04/2022 史蒂夫·班农：新中国联邦人给全世界的华人做出了榜样，和你们在一起我深受鼓舞。
+
+
+
+#新...
+
+<img src="https://media.gettr.com/group20/getter/2022/06/04/21/f3f2d2d4-eb1c-b2ca-ddbe-012a4796e8cb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1cq0e73114.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Mr. Steve Bannon: 99.9% of the American people are unaware that the CCP is a very small organization, although it controls the entire China. One of the most powerful things that Miles Guo has accomp...
+
+<img src="https://media.gettr.com/group3/getter/2022/06/04/21/20347c1a-4c8b-9e02-e951-816f34444542/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 9:15 PM UTC  - 3圖](/content/gettr/p1cq2un9832.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China: Thanks to the silent fellow fighters behind the camera, who have beautiful hearts and present the celebration feast to everyone.
@@ -11,6 +35,14 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: Thanks to
 2022年6月4日新中国联邦成立两周年—— 感谢镜头背后...
 
 <img src="https://media.gettr.com/group13/getter/2022/06/04/21/5cc8b273-598d-2dfd-aa14-f51edf09d1bb/25eec43fe6fc04c2e67da1c9e6d98e21.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:42 PM UTC  - :tv:直播](/content/gettr/p1cpnonb719.md)
+
+2022年6月4日 新中国联邦两周年庆典 战友大连线 4K版
+
+<img src="https://media.gettr.com/group18/origin/2022/06/04/21/d30bd007-7ac1-9f58-24a0-a63e79c8f0c0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -50,19 +82,19 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China celebratio
 
 ---
 
-[@miles 6/4/2022 9:08 PM UTC  - 2圖](/content/gettr/p1cq28l2078.md)
-
-June 4th,2022, the 2nd anniversary of the New Federal State of China: Every fellow fighter experienced a lack of understanding and tears in the process of extinguishing the CCP. At this moment, we need a hug, and the NFSC is the ho...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/04/21/ffd83785-8a49-6f82-12ec-74928c51c0d6/1f6c3839a1f8a96eace83aa17c0f8fce.jpg" width="506" height="284">
-
----
-
 [@miles 6/4/2022 9:28 PM UTC  - :tv:直播](/content/gettr/p1cq4bfa85a.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon expresses with emotion that the achievements of the NFSC in the past two years are incomparable and that we have proved that the CCP's claim that the Chinese cannot handle freedom and ca...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/04/21/69d4964b-852a-8510-76bb-f084fdc0de4b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:08 PM UTC  - 2圖](/content/gettr/p1cq28l2078.md)
+
+June 4th,2022, the 2nd anniversary of the New Federal State of China: Every fellow fighter experienced a lack of understanding and tears in the process of extinguishing the CCP. At this moment, we need a hug, and the NFSC is the ho...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/04/21/ffd83785-8a49-6f82-12ec-74928c51c0d6/1f6c3839a1f8a96eace83aa17c0f8fce.jpg" width="506" height="284">
 
 ---
 
@@ -179,34 +211,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : All fell
 June 4th, 2022, the 2nd anniversary of the New Federal State of China: Representative of the NFSC Farm Alliance. Why does the NFSC need to establish so many farms? A vertical system is bound to foster corruption. The NFSC Farm Alli...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/04/17/83d1c222-16f6-0dbc-de5b-a50348611e75/23eee85383cf7ca64278e828508cb0f7.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 5:27 PM UTC  - :tv:直播](/content/gettr/p1cpd428b8d.md)
-
-2022年6月4日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！祝贺新中国联邦成立2周年！
-
-
-
-06/04/2022 Rule of Law Foundation and Society donors messages collection. Rule of Law Foundation and Society appreciate all of our supporters and donors! Celebra...
-
-<img src="https://media.gettr.com/group16/getter/2022/06/04/17/ec3425c9-b764-0840-e7ad-85209c4abac2/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 5:01 PM UTC  - :tv:直播](/content/gettr/p1coq745db3.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China:  The Whistleblowers’ Movement Iron-Blood Team (Mulan and Grassroots Brother are represented), salute to the heaven, to the earth, to all  the fellow fighters 🌹...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/04/17/4ffab38e-8a87-8ea8-78d5-36296d9551fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 4:50 PM UTC  - :tv:直播](/content/gettr/p1cphex8c28.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Jason Miller, GETTR CEO: We have to separate very clearly the Chinese people from the Chinese Communist Party. The CCP is a thuggish mob like dictatorship. But it all comes down to free speech. We ...
-
-<img src="https://media.gettr.com/group4/getter/2022/06/04/16/cabc9d73-4c41-2aa4-685a-76e086c802cc/out.jpg" width="506" height="284">
 
 ---
 
