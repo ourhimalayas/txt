@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 6/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1co5lv7bf3.md)
+
+ June 4th, 2022, the 2nd anniversary of the New Federal State of China - Fellow Fighters chorus LIVE version of "A Roar of the Vast Sea", the NFSC people will never be enslaved!
+
+
+
+2022年6月4日新中国联邦成立两周年—— 战友合唱LIVE版《沧海一声笑》新中国联邦人永不为奴
+
+...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/04/14/0b2b03e4-b17c-b816-b4b4-eeda479e4544/out.jpg" width="506" height="284">
+
+---
+
 [@gtranslators_1 6/4/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1conu6547e.md)
 
 SIMULTANEOUS INTERPRETATION⎢2ND ANNIVERSARY OF THE NEW FEDERAL STATE OF CHINA - 22.06.04
@@ -28,17 +42,11 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China - The fell
 
 ---
 
-[@miles 6/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1co5lv7bf3.md)
+[@gtranslators_2 6/4/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1cok992017.md)
 
- June 4th, 2022, the 2nd anniversary of the New Federal State of China - Fellow Fighters chorus LIVE version of "A Roar of the Vast Sea", the NFSC people will never be enslaved!
+22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
 
-
-
-2022年6月4日新中国联邦成立两周年—— 战友合唱LIVE版《沧海一声笑》新中国联邦人永不为奴
-
-...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/04/14/0b2b03e4-b17c-b816-b4b4-eeda479e4544/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ Student protests are ineffective and the combined factors can take down the Chin
 On May 29, Mr. Miles Guo blew the whistle that the student protests are ineffective in China, and will eventually sap soci...
 
 <img src="https://media.gettr.com/group11/origin/2022/06/04/07/9d350e03-adaa-9785-c51a-9fe58dd1e23c/15c3212dd4dc48bbcd8c92140356e415.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 3:21 AM UTC  - :tv:直播](/content/gettr/p1cliu78b64.md)
-
-6/3/2022 Miles Guo: The Himalaya Coin is the only digital coin in the world that was paid for by the institutional investors prior to its launch. The Himalaya Coin is backed by the New Federal State of China, which brings it the bi...
-
-<img src="https://media.gettr.com/group48/getter/2022/06/04/03/4f4a3b83-a917-d0a1-a30d-c48ee1c4490f/out.jpg" width="506" height="284">
 
 ---
 
