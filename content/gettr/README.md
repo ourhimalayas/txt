@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/4/2022 3:43 PM UTC  - 2圖](/content/gettr/p1cp7wf7dc8.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China : The NFSC has saved hundreds of millions of lives, all on-site luxury goods coming from G-Series investors' donations. Today, we have invited a famous Japanese ...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/04/15/424b412e-f81d-84e3-ffd8-fa630db66950/6fb5d93c4cc228128d0791de75d90adf.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 3:04 PM UTC ](/content/gettr/p1cotgx2ada.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC people share prosperity year after year.
@@ -18,11 +26,11 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC 
 
 ---
 
-[@miles 6/4/2022 3:43 PM UTC  - 2圖](/content/gettr/p1cp7wf7dc8.md)
+[@miles 6/4/2022 4:50 PM UTC  - :tv:直播](/content/gettr/p1cphex8c28.md)
 
-June 4th, 2022, the 2nd anniversary of the New Federal State of China : The NFSC has saved hundreds of millions of lives, all on-site luxury goods coming from G-Series investors' donations. Today, we have invited a famous Japanese ...
+【NFSC 2nd Anniversary 】06/04/2022 Jason Miller, GETTR CEO: We have to separate very clearly the Chinese people from the Chinese Communist Party. The CCP is a thuggish mob like dictatorship. But it all comes down to free speech. We ...
 
-<img src="https://media.gettr.com/group25/getter/2022/06/04/15/424b412e-f81d-84e3-ffd8-fa630db66950/6fb5d93c4cc228128d0791de75d90adf.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/06/04/16/cabc9d73-4c41-2aa4-685a-76e086c802cc/out.jpg" width="506" height="284">
 
 ---
 
@@ -251,18 +259,6 @@ June 4th,  2022, the 2nd anniversary of the New Federal State of China:  Feel th
 #新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th  
 
 <img src="https://media.gettr.com/group37/getter/2022/06/04/12/4bbdbf27-37ca-10e1-6f29-32ed0acede76/06d0f2887c030b4d03a23269fe0b8fa8.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 11:45 AM UTC  - :tv:直播](/content/gettr/p1cnxuh62c6.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China : Supporter’s View # Walking the red carpet, from the hotel, walking into the 3C building, the NFSC live broadcast venue.
-
-
-
-2022年6月4日新中国联邦成立两周年——  战友视角 #走红毯，从酒店...
-
-<img src="https://media.gettr.com/group35/getter/2022/06/04/11/f3698463-bed1-e434-a149-6d3c3263f0aa/out.jpg" width="506" height="284">
 
 ---
 
