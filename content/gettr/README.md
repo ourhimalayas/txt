@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/4/2022 12:11 PM UTC  - 2圖](/content/gettr/p1co2si3129.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China:
+
+ A festival of revelry for the fellow fighters, cheers, to finish off the evil CCP!
+
+
+
+2022年6月4日新中国联邦成立两周年—— 战友们狂欢的节日，干杯，不醉不归，只为干掉邪恶的共产党！
+
+
+
+#新中国联邦 #NFSC #ROLF...
+
+<img src="https://media.gettr.com/group20/getter/2022/06/04/12/d5e4df22-c56d-c1c5-1a09-330b8969fd6e/2911a54316eb8d8a5c4cbb6ad4710545.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 11:45 AM UTC  - :tv:直播](/content/gettr/p1cnxuh62c6.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China : Supporter’s View # Walking the red carpet, from the hotel, walking into the 3C building, the NFSC live broadcast venue.
@@ -11,6 +29,30 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : Supporte
 2022年6月4日新中国联邦成立两周年——  战友视角 #走红毯，从酒店...
 
 <img src="https://media.gettr.com/group35/getter/2022/06/04/11/f3698463-bed1-e434-a149-6d3c3263f0aa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 12:13 PM UTC  - 4圖](/content/gettr/p1co7vyaaef.md)
+
+June 4th,  2022, the 2nd anniversary of the New Federal State of China:  Feel the red carpet, the New Federal State of China welcomes you!
+
+
+
+2022年6月4日新中国联邦成立两周年—— 感受红毯，新中国联邦欢迎您!
+
+
+
+#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th  
+
+<img src="https://media.gettr.com/group37/getter/2022/06/04/12/4bbdbf27-37ca-10e1-6f29-32ed0acede76/06d0f2887c030b4d03a23269fe0b8fa8.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 11:47 AM UTC  - :tv:直播](/content/gettr/p1coga62d0a.md)
+
+2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
+
+<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -61,14 +103,6 @@ Evidence of YouTube manipulating and tampering the data of Mr Miles Guo’s acco
 2022年6月4日 4K纽约香草山农场庆祝新中国联邦成立两周年
 
 <img src="https://media.gettr.com/group11/origin/2022/06/04/10/5b271cff-6a92-1b3c-5497-4aa1fccdfbfa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 11:47 AM UTC  - :tv:直播](/content/gettr/p1coga62d0a.md)
-
-2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
-
-<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,22 +215,6 @@ During the 81 short days of the rescue in Medyka , people from the New Federal S
 6/3/2022 Miles Guo: If the CCP exists, China will eventually break into many independent territories, followed by refugee crisis and famine; only when the CCP is taken down and a federalism system is established in China, will Chin...
 
 <img src="https://media.gettr.com/group50/getter/2022/06/03/23/b1adc332-d0da-953e-762f-58d26b242cd9/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1ckayofbfb.md)
-
-6/3/2022 Miles Guo: The rivalry between the US and Communist China is inevitable! The CCP wants to wait till its GDP surpasses that of the US, then Taiwan will voluntarily submit to Communist China. Now "Xi the Sun" has completely ...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/03/23/8d4dee40-502f-d8ea-8993-37830febeab3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1cl4d7d59f.md)
-
-Nicholas, a commander-in-chief of the Medyka Rescue Camp Management Committee, was interviewed by Nicole and praised the fast and effective cooperation of the NFSC with his counterparts during the war crisis, which was very encoura...
-
-<img src="https://media.gettr.com/group48/origin/2022/06/03/23/19896b9c-3501-77ac-59ad-81c8834bcc0f/out.jpg" width="506" height="284">
 
 ---
 
