@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/4/2022 2:46 PM UTC ](/content/gettr/p1co4ol69db.md)
+
+June 4th，2022, the 2nd anniversary of the New Federal State of China： Interview with GETTR CEO Mr. Jason Miller:  GETTER platform follows the will of heaven and helps the NFSC to take down the evil CCP!
+
+
+
+2022年6月4日新中国联邦成立两周年—— 采访G...
+
+<img src="https://media.gettr.com/group45/getter/2022/06/04/14/6bd88e05-b4c6-c53b-2add-caf3cb264ac1/b8cf9b633cb26164bc6acf704e31aaf2.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 2:31 PM UTC  - 4圖](/content/gettr/p1colnn67d5.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China - Opening Poem “To CCP” by Miles Guo
@@ -18,6 +30,14 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China - Opening 
 
 ---
 
+[@miles 6/4/2022 2:56 PM UTC ](/content/gettr/p1cotgu2a9e.md)
+
+June 4th 2022, the 2nd anniversary of the New Federal State of China: Interview with Mr. Bannon, the co-founder of the New Federal State of China. The NFSC is the most powerful communist exterminator. Everything about it is so beau...
+
+<img src="https://media.gettr.com/group45/getter/2022/06/04/14/3cb98204-0416-a619-aac0-927ae98d9028/03961274dade78dfa259c7bc970f1824.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 2:32 PM UTC ](/content/gettr/p1cny1k3510.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China : Gratitude to Mr. Bannon, the eternal friend of the New Federal State of China 
@@ -31,6 +51,14 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : Gratitud
 #新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #re...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/04/14/db086e5f-6f39-58a4-43d5-c11449df7ade/48f6a2193118c4897da26087d00d0162.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_2 6/4/2022 2:42 PM UTC  - :tv:直播](/content/gettr/p1co7dzff6a.md)
+
+22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
+
+<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -79,14 +107,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China - The fell
 #新中国...
 
 <img src="https://media.gettr.com/group43/getter/2022/06/04/13/b2aee1ed-3948-45f3-8014-df2ba23a9422/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 6/4/2022 2:42 PM UTC  - :tv:直播](/content/gettr/p1co7dzff6a.md)
-
-22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
-
-<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -222,27 +242,11 @@ Evidence of YouTube manipulating and tampering the data of Mr Miles Guo’s acco
 
 ---
 
-[@miles 6/4/2022 10:35 AM UTC  - :tv:直播](/content/gettr/p1co305d1d7.md)
-
-2022年6月4日 4K纽约香草山农场庆祝新中国联邦成立两周年
-
-<img src="https://media.gettr.com/group11/origin/2022/06/04/10/5b271cff-6a92-1b3c-5497-4aa1fccdfbfa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/4/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p1coj7e9dd8.md)
 
 2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
 
 <img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:18 AM UTC  - :tv:直播](/content/gettr/p1cn5mxb490.md)
-
-06/04/2022 Mr. Miles Guo congratulates the 2nd anniversary of the New Federal State of China! On this wonderful day, may all gods bless the New Federal State of China, all our fellow fighters and families with peace and health! Vic...
-
-<img src="https://media.gettr.com/group36/getter/2022/06/04/10/e2db97f8-3e32-ab41-1198-9fe5ee187705/out.jpg" width="506" height="284">
 
 ---
 
