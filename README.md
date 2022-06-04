@@ -11,29 +11,38 @@
 
 ---
 
+#### [美国国务院发表《天安门广场33周年》声明](/content/gnews/2660302.md)
+ `温哥华扬帆农场`
+
+#### [20220603郭文贵战友见面会直播 ：从法国马赛曲谈到马克龙亲共](/content/gnews/2660287.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220603郭文贵战友见面会直播 ：能够控制情绪的人才能在党内的官位安全，家人的支持使战友更坚定](/content/gnews/2660286.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共过去对日本加入G7和入常的叫嚣和恐惧](/content/gnews/2660283.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [【说事儿】中共应对中共病毒的方法就是隐瞒真实病亡人数](/content/gnews/2660252.md)
+ `TokyoSakuraDesignGroup`
+
 #### [王毅说中共国将与俄罗斯共同促进世界“真正的民主”](/content/gnews/2660244.md)
  `秘密翻譯組G-Translators`
 
 #### [【说事儿】中共治下有孝不能尽、有家不能回的悲剧永不止息](/content/gnews/2660231.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】中共科兴疫苗导致国内各地心肌炎、癌症急增](/content/gnews/2660222.md)
- `TokyoSakuraDesignGroup`
-
 #### [梅迪卡营地管理委员会代表与新中国联邦志愿者合作无间](/content/gnews/2660203.md)
  `墨尔本雅典娜农场`
+
+#### [希望·信仰·我的国 —致新中国联邦2周年](/content/gnews/2660202.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [6/04/2022 银河快讯：九成在沪日企预计业绩恶化；日美韩8日在首尔进行外长级会谈，应对朝鲜问题等](/content/gnews/2660193.md)
  `日本银河系农场-阿尔法星球`
 
-#### [6月3日文贵直播要点（图片1-5）](/content/gnews/2660173.md)
- `波士顿五月花农场`
-
 #### [【全文字幕】2021年10月3日 文贵大直播：再谈恒大及毒疫苗 中美经济与中共高层](/content/gnews/2660121.md)
  `文贵视频字幕全集`
-
-#### [【说事儿】中共官方回应60岁以上老人不打疫苗停办居保](/content/gnews/2660120.md)
- `TokyoSakuraDesignGroup`
 
 #### [美国国务卿布林肯表示六四事件不应该被忘记](/content/gnews/2660111.md)
  `澳喜农场`
@@ -88,15 +97,6 @@
 
 #### [20220603郭文贵战友见面会直播 ：美国的一家独大的战略板块已经彻底改变](/content/gnews/2659834.md)
  `Tokyo Sakura Video Group`
-
-#### [20220603郭文贵战友见面会直播 ：文贵先生介绍曼哈顿的天圆地方风水](/content/gnews/2659832.md)
- `Tokyo Sakura Video Group`
-
-#### [【封城】](/content/gnews/2659821.md)
- `SpicyWorld`
-
-#### [6/3/2022 文贵直播：喜币是世界上唯一在上市前就有机构投资者付钱的数字货币，喜币有新中国联邦是其最大价值所在](/content/gnews/2659743.md)
- `秘密翻译组-北美组`
 
 #### [“眼中风”上央视综合频道：中共在部署疫苗后遗症宣传引导](/content/gnews/2659591.md)
  `英国牛津梦想`
