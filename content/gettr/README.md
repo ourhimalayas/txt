@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/3/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1cle39da5b.md)
+
+6/3/2022 Miles Guo: If the CCP exists, China will eventually break into many independent territories, followed by refugee crisis and famine; only when the CCP is taken down and a federalism system is established in China, will Chin...
+
+<img src="https://media.gettr.com/group50/getter/2022/06/03/23/b1adc332-d0da-953e-762f-58d26b242cd9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/3/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1ckayofbfb.md)
 
 6/3/2022 Miles Guo: The rivalry between the US and Communist China is inevitable! The CCP wants to wait till its GDP surpasses that of the US, then Taiwan will voluntarily submit to Communist China. Now "Xi the Sun" has completely ...
@@ -58,11 +66,11 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/3/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1cle39da5b.md)
+[@miles 6/4/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1ckvje1d74.md)
 
-6/3/2022 Miles Guo: If the CCP exists, China will eventually break into many independent territories, followed by refugee crisis and famine; only when the CCP is taken down and a federalism system is established in China, will Chin...
+6/3/2022  Miles Guo: I mentioned Sun Deshun, the former manager of China CITIC group, in my live broadcast in 2017. Sun had tried more than 20 times to make deals with me, but I turned him down and didn't meet him in person at all....
 
-<img src="https://media.gettr.com/group50/getter/2022/06/03/23/b1adc332-d0da-953e-762f-58d26b242cd9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/06/04/00/c932d6f9-320a-583c-2f02-f975beab1bf7/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,30 +205,6 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 64两周年深夜机场接战友，猜猜我们来接谁？
 
 <img src="https://media.gettr.com/group13/getter/2022/06/02/04/9b450dd5-c087-618f-8f56-106d60c54d1a/b75bc9359652d8b851a1d839d6dd8133.jpg" width="506" height="284">
-
----
-
-[@shinchan777 5/31/2022 2:47 AM UTC  - 6圖](/content/gettr/p1c2jbf5d0d.md)
-
-2022年5月30日
-
-
-
-七哥来办公室和亲爱的战友们一起布置六四庆典的会场。七哥什么事情都会亲力亲为。
-
-
-
-当七哥看到搬玻璃窗的战友没有带手套可能会伤到手，赶快小跑着去拿了几双gfashion的皮手套，像一个大哥哥，像一个父亲，像一个兄长，心疼战友们疼到心里。 
-
-
-
-之后又看到搬玻璃门不方便，告诉战友们说：你们啥都别动啊等我等我，然后小跑着去拿了一块布，方便战友们搬运。
-
-
-
-七哥真的是太让人感动，什么事情都亲力亲为，对人掏心掏肺的好，七哥用他的行动教...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/31/02/6d53371d-88c2-2b43-784a-c0c7abeaeb94/d6cad938e2b02d17086e92adedacd938.jpg" width="506" height="284">
 
 ---
 
