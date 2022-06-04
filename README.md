@@ -11,6 +11,9 @@
 
 ---
 
+#### [希望·信仰·我的國 —致新中國聯邦2周年](/content/gnews/2660488.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [奇迹](/content/gnews/2660475.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -58,9 +61,6 @@
 
 #### [中共过去对日本加入G7和入常的叫嚣和恐惧](/content/gnews/2660283.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [八九六四&#8211;魂去魂来](/content/gnews/2660281.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [王毅说中共国将与俄罗斯共同促进世界“真正的民主”](/content/gnews/2660244.md)
  `秘密翻譯組G-Translators`
