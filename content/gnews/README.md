@@ -2,8 +2,32 @@
 ---
 
 
+#### [2022年06月04日新中国联邦两周年庆典（美东上午部分）](/content/gnews/2663914.md)
+ `Mr. Miles Guo's News Briefing`
+
+#### [多国指责俄对乌的战争是种族灭绝](/content/gnews/2663891.md)
+ `NFSC News`
+
+#### [NFSC两周年庆典&#8211;郭先生谈金砖金融系统](/content/gnews/2663890.md)
+ `波士顿五月花农场`
+
+#### [我的六四记忆——1989（上）](/content/gnews/2663886.md)
+ `喜马拉雅纽约磐石农场`
+
+#### [美国力挺菲律宾反对中共南海禁捕令](/content/gnews/2663863.md)
+ `NFSC News`
+
+#### [美针对俄再行新制裁 ｜粤时报](/content/gnews/2663850.md)
+ `秘密翻译组-即时新闻播报组`
+
 #### [NFSC两周年庆典&#8211;郭先生谈15年茅台](/content/gnews/2663849.md)
  `波士顿五月花农场`
+
+#### [驻沪日本公司加紧转移投资](/content/gnews/2663848.md)
+ `NFSC News`
+
+#### [为阻止“六四”纪念活动 港府提前关闭部分维园](/content/gnews/2663838.md)
+ `NFSC News`
 
 #### [NFSC两周年庆典&#8211;郭先生与铁血组对谈](/content/gnews/2663831.md)
  `波士顿五月花农场`
@@ -11,20 +35,8 @@
 #### [任何到前线救战友的战友掉一根汗毛都会被冷酷地踢出去](/content/gnews/2663820.md)
  `喜马拉雅日本银河系农场`
 
-#### [七哥以一切的一切告诉世界2022不会再有普京和习近平](/content/gnews/2663808.md)
- `喜马拉雅日本银河系农场`
-
-#### [战争大赢家是一不取钱二不取命三不害人的新中国联邦人](/content/gnews/2663793.md)
- `喜马拉雅日本银河系农场`
-
-#### [06/04/22 香港快讯 六四事件33周年　有穿黑衣人士在铜锣湾被带入封锁范围](/content/gnews/2663780.md)
- `英喜-粵語組`
-
 #### [台湾经济部长：中共不应干涉台湾与欧盟的交往](/content/gnews/2663738.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [1000 亿欧元特别预算：德国联邦国防军想购买什么武器？](/content/gnews/2663736.md)
- `澳喜特战旅Gnews`
 
 #### [新加坡狮城农场纪念六四短片——不能忘却的日子](/content/gnews/2663733.md)
  `新加坡狮城农场 Himalaya Singapore`
@@ -34,9 +46,6 @@
 
 #### [新中国联邦人要过有品质的生活](/content/gnews/2663673.md)
  `秘密翻譯組G-Translators`
-
-#### [从陈毅《梅岭三章》看中共的洗脑话术](/content/gnews/2663625.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [谴责中共天安门大屠杀！布林肯发表八九六四事件33周年声明](/content/gnews/2663483.md)
  `TokyoSakura Politics/樱花时政`
@@ -53,6 +62,18 @@
 #### [有声&#124;日本民众与军方积极应对中共侵台](/content/gnews/2663273.md)
  `MOSREC`
 
+#### [中国人民的未来掌握在自己手中](/content/gnews/2663236.md)
+ `NFSC News`
+
+#### [内斗清洗是中共官员的宿命](/content/gnews/2663235.md)
+ `NFSC News`
+
+#### [中共公开撒谎掩盖“六四”屠杀](/content/gnews/2663234.md)
+ `NFSC News`
+
+#### [爆料革命始于1989年](/content/gnews/2663233.md)
+ `NFSC News`
+
 #### [路透社称因马斯克要裁员10%，特斯拉暂停招聘](/content/gnews/2663203.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -64,9 +85,6 @@
 
 #### [巴基斯坦前总理警告该国可发生内战分裂并失去其核威慑力](/content/gnews/2663172.md)
  `波士顿五月花农场金融部`
-
-#### [八九六四 中国人民的梦魇](/content/gnews/2663158.md)
- `NFSC News`
 
 #### [有声&#124;布林肯重申，美国的长期挑战来自中共国](/content/gnews/2663140.md)
  `MOSREC`
