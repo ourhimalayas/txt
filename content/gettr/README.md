@@ -10,11 +10,37 @@
 
 ---
 
+[@miles 6/4/2022 7:22 AM UTC ](/content/gettr/p1cn6oke7a2.md)
+
+Student protests are ineffective and the combined factors can take down the Chinese Communist Party (CCP)
+
+
+
+On May 29, Mr. Miles Guo blew the whistle that the student protests are ineffective in China, and will eventually sap soci...
+
+<img src="https://media.gettr.com/group11/origin/2022/06/04/07/9d350e03-adaa-9785-c51a-9fe58dd1e23c/15c3212dd4dc48bbcd8c92140356e415.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 3:23 AM UTC  - :tv:直播](/content/gettr/p1cl9oe6f3f.md)
 
 6/3/2022 Miles Guo: Sun Deshun's family once wanted to join the New Federal State of China! The ultimate target of Sun Deshun's case is to take out a certain Standing Committee member before the 20th National Congress of the CCP. C...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/04/03/691b9364-196b-8b61-11fb-9d4c96c72c7f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 3:28 AM UTC ](/content/gettr/p1clcor8790.md)
+
+June 4, 2020 The “Declaration of the New Federal State of China” 【Multiple Languages】
+
+
+
+English,Chinese,Japanese,French,Spanish, Russian, Danish, Korean, Arabic, Dutch, Hungarian, German, Polish, Ukrainian 
+
+
+
+https://gnews.org/22...
 
 ---
 
@@ -128,20 +154,6 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/4/2022 3:28 AM UTC ](/content/gettr/p1clcor8790.md)
-
-June 4, 2020 The “Declaration of the New Federal State of China” 【Multiple Languages】
-
-
-
-English,Chinese,Japanese,French,Spanish, Russian, Danish, Korean, Arabic, Dutch, Hungarian, German, Polish, Ukrainian 
-
-
-
-https://gnews.org/22...
-
----
-
 [@miles 6/3/2022 2:18 PM UTC  - :tv:直播](/content/gettr/p1cib1e03fe.md)
 
 4K郭先生战友见面会
@@ -207,12 +219,6 @@ https://gnews.org/22...
 [@miles 6/3/2022 3:03 AM UTC ](/content/gettr/p1cgpmibb8d.md)
 
 2022-6-2《鸡血王喜币大作战》 第二百一十四集 嘉宾：无双柳薇薇、文空、TEX
-
----
-
-[@miles 6/3/2022 2:50 AM UTC ](/content/gettr/p1cgiop8738.md)
-
-https://gettr.com/streaming/p1cg6f52936
 
 ---
 
