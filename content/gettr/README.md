@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/4/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1ckwkcc843.md)
+
+During the 81 short days of the rescue in Medyka , people from the New Federal State of China have formed deep friendships with members of rescue organizations from all over the world who share a common goal that is: to fight for f...
+
+<img src="https://media.gettr.com/group21/origin/2022/06/04/01/3196ae11-630a-54bf-9892-5f1316309268/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1ckw633dbe.md)
 
 6/3/2022 Miles Guo: We have been commemorating Qu Yuan, who was wronged and committed suicide by jumping into the Miluo River, for thousands of years. However, no Chinese have asked how many people have committed suicide by jumping...
@@ -82,11 +90,19 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/4/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1ckwkcc843.md)
+[@miles 6/4/2022 2:31 AM UTC ](/content/gettr/p1cl47b3d96.md)
 
-During the 81 short days of the rescue in Medyka , people from the New Federal State of China have formed deep friendships with members of rescue organizations from all over the world who share a common goal that is: to fight for f...
+How to join the Whistleblower Movement
 
-<img src="https://media.gettr.com/group21/origin/2022/06/04/01/3196ae11-630a-54bf-9892-5f1316309268/out.jpg" width="506" height="284">
+Step 1: Register Gmail, download Gettr app and Discord software
+
+Step 2: Search in Discord: "喜马拉雅联盟大使馆客服中心"
+
+           Search in Gettr: "全球喜马拉雅农场联盟委员会" 
+
+Step 3: Choose any farm you like and...
+
+<img src="https://media.gettr.com/group18/origin/2022/06/04/02/ed4456da-41f0-bf49-9297-8b422cf23811/38618ff5454687c7b97956c9f49d02fc.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +213,6 @@ Nicolas, representative of the Camp Medyka Management Committee said the New Fed
 [@miles 6/2/2022 7:01 PM UTC ](/content/gettr/p1cezaf60f5.md)
 
 2022-6-2《避风港》(55)  疫苗导致严重的神经系统疾病
-
----
-
-[@miles 6/2/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1ce1wt7c68.md)
-
-千声万籁·承载辉煌  首届《联邦杯》诗歌朗诵大赛总决赛
-
-<img src="https://media.gettr.com/group44/origin/2022/06/02/11/4caa9d42-c380-ad05-6ef8-eb211444d45d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
