@@ -2,11 +2,63 @@
 ---
 
 
+[@miles 6/4/2022 1:39 PM UTC  - :tv:直播](/content/gettr/p1cnxvy94ba.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China - The fellow fighters are preparing meticulously, time travels and the celebration is about to begin 🥳
+
+
+
+2022年6月4日新中国联邦成立两周年—— 战友们细致的准备，时光穿梭，庆典即将开始🥳
+
+
+
+
+
+#新中国...
+
+<img src="https://media.gettr.com/group43/getter/2022/06/04/13/b2aee1ed-3948-45f3-8014-df2ba23a9422/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1co0te172d.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China - Panoramic 360 of the celebration venue, bursting with the heady tide of the Whistleblowers' Movement.
+
+
+
+2022年6月4日新中国联邦成立两周年—— 庆典会场全景360，爆料革命滔滔灭共潮
+
+
+
+
+
+#新中国联邦 ...
+
+<img src="https://media.gettr.com/group31/getter/2022/06/04/13/c1bdb89f-9eec-42f2-287d-2e98b39ea809/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 1:27 PM UTC  - :tv:直播](/content/gettr/p1co340ce2b.md)
 
 2022年6月4日 新中国联邦两周年庆典4K
 
 <img src="https://media.gettr.com/group17/origin/2022/06/04/13/2e4940b2-602a-9abb-270c-a1836960f2b4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 1:43 PM UTC  - 3圖](/content/gettr/p1co82fb6b3.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: A wonderful day starts with breakfast.
+
+
+
+2022年6月4日新中国联邦成立两周年—— 美好的一天，从早餐开始。
+
+
+
+#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
+
+<img src="https://media.gettr.com/group39/getter/2022/06/04/13/4234ac66-7580-5190-2e3a-792afe1a9d87/42057e44bf683be6426f160ae48c4b87.jpg" width="506" height="284">
 
 ---
 
@@ -185,30 +237,6 @@ Step 2: Search in Discord: "喜马拉雅联盟大使馆客服中心"
 Step 3: Choose any farm you like and...
 
 <img src="https://media.gettr.com/group18/origin/2022/06/04/02/ed4456da-41f0-bf49-9297-8b422cf23811/38618ff5454687c7b97956c9f49d02fc.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1ckwkcc843.md)
-
-During the 81 short days of the rescue in Medyka , people from the New Federal State of China have formed deep friendships with members of rescue organizations from all over the world who share a common goal that is: to fight for f...
-
-<img src="https://media.gettr.com/group21/origin/2022/06/04/01/3196ae11-630a-54bf-9892-5f1316309268/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1ckw633dbe.md)
-
-6/3/2022 Miles Guo: We have been commemorating Qu Yuan, who was wronged and committed suicide by jumping into the Miluo River, for thousands of years. However, no Chinese have asked how many people have committed suicide by jumping...
-
-<img src="https://media.gettr.com/group17/getter/2022/06/04/00/15b0cf09-ff3d-d7bf-949b-8b41e28b0346/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1ckvje1d74.md)
-
-6/3/2022  Miles Guo: I mentioned Sun Deshun, the former manager of China CITIC group, in my live broadcast in 2017. Sun had tried more than 20 times to make deals with me, but I turned him down and didn't meet him in person at all....
-
-<img src="https://media.gettr.com/group16/getter/2022/06/04/00/c932d6f9-320a-583c-2f02-f975beab1bf7/out.jpg" width="506" height="284">
 
 ---
 
