@@ -2,11 +2,67 @@
 ---
 
 
+[@miles 6/4/2022 9:15 PM UTC  - 3圖](/content/gettr/p1cq2un9832.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: Thanks to the silent fellow fighters behind the camera, who have beautiful hearts and present the celebration feast to everyone.
+
+
+
+2022年6月4日新中国联邦成立两周年—— 感谢镜头背后...
+
+<img src="https://media.gettr.com/group13/getter/2022/06/04/21/5cc8b273-598d-2dfd-aa14-f51edf09d1bb/25eec43fe6fc04c2e67da1c9e6d98e21.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:17 PM UTC  - :tv:直播](/content/gettr/p1cq08g80c7.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: Thanks to the dedicated fellow fighters in the background, who withstood the greatest pressure and presented the perfect celebration broadcast.
+
+
+
+2022年6月4日新中国联...
+
+<img src="https://media.gettr.com/group29/getter/2022/06/04/21/c43258c8-9914-c380-fbca-fc790e786d75/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:19 PM UTC ](/content/gettr/p1cq6y81d66.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China celebration is now successfully completed.
+
+
+
+2022年6月4日新中国联邦成立两周年庆典圆满结束
+
+
+
+#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
+
+<img src="https://media.gettr.com/group19/getter/2022/06/04/21/e3269e23-0f92-e9da-8d9f-2d2fe997be53/1bc0aafc9da5eeaf7a797ca43490f817.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:25 PM UTC  - :tv:直播](/content/gettr/p1cpggk8cde.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: The New Federal States of China will be the future of Chinese people. CCP is the root cause of all the catastrophes in the world, the NFSC got the greatest ability for taking down the...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/04/21/99a85b94-aac4-8db6-97a8-fe4f4ee91df6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 9:08 PM UTC  - 2圖](/content/gettr/p1cq28l2078.md)
 
 June 4th,2022, the 2nd anniversary of the New Federal State of China: Every fellow fighter experienced a lack of understanding and tears in the process of extinguishing the CCP. At this moment, we need a hug, and the NFSC is the ho...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/04/21/ffd83785-8a49-6f82-12ec-74928c51c0d6/1f6c3839a1f8a96eace83aa17c0f8fce.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:28 PM UTC  - :tv:直播](/content/gettr/p1cq4bfa85a.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon expresses with emotion that the achievements of the NFSC in the past two years are incomparable and that we have proved that the CCP's claim that the Chinese cannot handle freedom and ca...
+
+<img src="https://media.gettr.com/group29/getter/2022/06/04/21/69d4964b-852a-8510-76bb-f084fdc0de4b/out.jpg" width="506" height="284">
 
 ---
 
@@ -26,14 +82,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: Mr. Peter
 
 ---
 
-[@miles 6/4/2022 8:04 PM UTC  - 2圖](/content/gettr/p1cpyty6e3a.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: Ukraine Rescue frontline representatives, Nicole, Renee, and Dr Wen Zi, are the most beautiful flowers of the NFSC. Practicality, and the ability to execute is ...
-
-<img src="https://media.gettr.com/group43/getter/2022/06/04/20/185980c5-478e-4c97-2a58-90b35981fd5f/48fa4cd0de66b327781ece4988422447.jpg" width="506" height="284">
-
----
-
 [@miles 6/4/2022 9:13 PM UTC ](/content/gettr/p1cq6eg5ac3.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China: The 91-year-old Mr. Morgan never does interviews, so Mrs. Morgan is interviewed by Mr. Miles Guo.
@@ -47,6 +95,14 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The 91-ye
 #新中国联...
 
 <img src="https://media.gettr.com/group34/getter/2022/06/04/21/26e71a9c-ebd4-2b5d-3194-73349ad2dbd0/f35a595dafa6984ec2b24880cfcab27e.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 8:04 PM UTC  - 2圖](/content/gettr/p1cpyty6e3a.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: Ukraine Rescue frontline representatives, Nicole, Renee, and Dr Wen Zi, are the most beautiful flowers of the NFSC. Practicality, and the ability to execute is ...
+
+<img src="https://media.gettr.com/group43/getter/2022/06/04/20/185980c5-478e-4c97-2a58-90b35981fd5f/48fa4cd0de66b327781ece4988422447.jpg" width="506" height="284">
 
 ---
 
@@ -151,78 +207,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China:  The Whis
 【NFSC 2nd Anniversary 】06/04/2022 Jason Miller, GETTR CEO: We have to separate very clearly the Chinese people from the Chinese Communist Party. The CCP is a thuggish mob like dictatorship. But it all comes down to free speech. We ...
 
 <img src="https://media.gettr.com/group4/getter/2022/06/04/16/cabc9d73-4c41-2aa4-685a-76e086c802cc/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 3:43 PM UTC  - 2圖](/content/gettr/p1cp7wf7dc8.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China : The NFSC has saved hundreds of millions of lives, all on-site luxury goods coming from G-Series investors' donations. Today, we have invited a famous Japanese ...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/04/15/424b412e-f81d-84e3-ffd8-fa630db66950/6fb5d93c4cc228128d0791de75d90adf.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 3:04 PM UTC ](/content/gettr/p1cotgx2ada.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC people share prosperity year after year.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 新中国联邦人是共富者——年年有余
-
-
-
-#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
-
-<img src="https://media.gettr.com/group29/getter/2022/06/04/15/ccff6de7-3778-0ade-24ed-e41a642acc82/3997626e508150b61a35203c7161a12c.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 3:09 PM UTC  - :tv:直播](/content/gettr/p1co2j3e050.md)
-
-【NFSC 2nd Anniversary 】06/04/2022  Opening Poem “To CCP” by Miles Guo
-
-
-
-【新中国联邦2周年】06/04/2022 郭文贵先生开场配乐诗《致CCP》
-
-
-
-《致CCP》
-
-  To CCP
-
-
-
-只剩下了你 没听过我的歌
-
-You're the only one who hasn't heard my song
-
-也只剩下了你 不曾爱过我
-
-You’re the only one who...
-
-<img src="https://media.gettr.com/group11/getter/2022/06/04/15/a3cd6bd1-382f-13ef-1748-b637e4d2be2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 2:46 PM UTC ](/content/gettr/p1co4ol69db.md)
-
-June 4th，2022, the 2nd anniversary of the New Federal State of China： Interview with GETTR CEO Mr. Jason Miller:  GETTER platform follows the will of heaven and helps the NFSC to take down the evil CCP!
-
-
-
-2022年6月4日新中国联邦成立两周年—— 采访G...
-
-<img src="https://media.gettr.com/group45/getter/2022/06/04/14/6bd88e05-b4c6-c53b-2add-caf3cb264ac1/b8cf9b633cb26164bc6acf704e31aaf2.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 2:56 PM UTC ](/content/gettr/p1cotgu2a9e.md)
-
-June 4th 2022, the 2nd anniversary of the New Federal State of China: Interview with Mr. Bannon, the co-founder of the New Federal State of China. The NFSC is the most powerful communist exterminator. Everything about it is so beau...
-
-<img src="https://media.gettr.com/group45/getter/2022/06/04/14/3cb98204-0416-a619-aac0-927ae98d9028/03961274dade78dfa259c7bc970f1824.jpg" width="506" height="284">
 
 ---
 
