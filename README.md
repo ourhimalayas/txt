@@ -11,20 +11,35 @@
 
 ---
 
+#### [COVID-19疫苗副作用集萃（2022.6.04）第三针加强针](/content/gnews/2659092.md)
+ `墨尔本雅典娜农场`
+
+#### [加拿大央行警告全球经济的衰退](/content/gnews/2659070.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [【樱话】中共治下有孝不能尽、有家不能回的悲剧永不止息](/content/gnews/2659061.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】中共科兴疫苗导致国内各地心肌炎、癌症急增](/content/gnews/2659054.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】中共官方回应60岁以上老人不打疫苗停办居保](/content/gnews/2659047.md)
+ `TokyoSakuraDesignGroup`
+
 #### [乔·拜登：粮食和汽油价格将不会在短期内下降](/content/gnews/2659039.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [乌军赫尔松取得战果，俄军顿巴斯发动反攻](/content/gnews/2659020.md)
  `墨尔本雅典娜农场`
 
+#### [【樱话】香港维园烛光已灭 港人心中烛光更亮](/content/gnews/2659008.md)
+ `TokyoSakuraDesignGroup`
+
 #### [【樱话】国内核酸检测常态化 老百姓需自掏腰包](/content/gnews/2658998.md)
  `TokyoSakuraDesignGroup`
 
 #### [解封后的上海依旧排队做核酸](/content/gnews/2658996.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【樱话】“全球QT” 前所未有　 一场“飓风”即将来临](/content/gnews/2658992.md)
- `TokyoSakuraDesignGroup`
 
 #### [亚马逊将关闭中共国的Kindle商店](/content/gnews/2658957.md)
  `NFSC News`
@@ -95,9 +110,6 @@
 #### [泽伦斯基说乌克兰军队在赫尔松和哈尔科夫取得了进展](/content/gnews/2658081.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [2022/06/03 英喜时事速递](/content/gnews/2657975.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [聚焦：美国家庭储蓄将在今年底耗尽](/content/gnews/2657747.md)
  `蓝莲花农场`
 
@@ -133,9 +145,6 @@
 
 #### [中共外交部发言人汪文斌指责美国忽视美国人民的人权](/content/gnews/2656582.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [上海刚解封 因多地区阳性病例再现又被封控 ｜粤时报](/content/gnews/2656565.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [文编&#124;中国人就医买药是价格导向 而不是遵从医嘱事实 即使疫苗灾难爆发中国人仍然会怪罪美国却不会怀疑科兴](/content/gnews/2656456.md)
  `KarmaLabs`
