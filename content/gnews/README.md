@@ -2,6 +2,21 @@
 ---
 
 
+#### [美国对中共的政策会先考虑其金融集团的利益](/content/gnews/2660353.md)
+ `墨尔本雅典娜农场`
+
+#### [“六四33周年”天安门母亲继续为死去的英灵发声｜粤时报](/content/gnews/2660342.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [安徽阜阳，有村民发现自家农田里的麦子，突然冒起浓烟](/content/gnews/2660322.md)
+ `Tokyo Sakura Video Group`
+
+#### [办张银行卡还要有担保人？](/content/gnews/2660320.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国拍摄现场，死了爹妈的大白，演的不错！](/content/gnews/2660318.md)
+ `Tokyo Sakura Video Group`
+
 #### [美国国务院发表《天安门广场33周年》声明](/content/gnews/2660302.md)
  `温哥华扬帆农场`
 
@@ -71,9 +86,6 @@
 #### [33年来香港官方首次不再举办纪念六四活动](/content/gnews/2659907.md)
  `喜马拉雅纽约磐石农场`
 
-#### [20220603郭文贵战友见面会直播 ：中美国运之战在台湾，双方都在为此做准备](/content/gnews/2659896.md)
- `Tokyo Sakura Video Group`
-
 #### [德国总理指责俄罗斯应为全球粮食危机负责](/content/gnews/2659892.md)
  `GTV News Talk`
 
@@ -82,12 +94,6 @@
 
 #### [使带状疱疹正常化、更多的癌症和自身免疫性疾病：这些针剂/疫苗在将人们变成人肉提款机](/content/gnews/2659846.md)
  `加拿大温哥华扬帆农场视频组`
-
-#### [20220603郭文贵战友见面会直播 ：整个金融时代面临的巨大改变-数字化时代](/content/gnews/2659836.md)
- `Tokyo Sakura Video Group`
-
-#### [20220603郭文贵战友见面会直播 ：美国的一家独大的战略板块已经彻底改变](/content/gnews/2659834.md)
- `Tokyo Sakura Video Group`
 
 #### [“眼中风”上央视综合频道：中共在部署疫苗后遗症宣传引导](/content/gnews/2659591.md)
  `英国牛津梦想`
@@ -125,20 +131,14 @@
 #### [美国FBI局长：中共意图利用黑客力量统治全球科技行业](/content/gnews/2659214.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [美国取代中共，成为台湾农产品第一大出口国](/content/gnews/2659179.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [COVID-19疫苗副作用集萃（2022.6.04）第三针加强针](/content/gnews/2659092.md)
  `墨尔本雅典娜农场`
 
-#### [亚马逊将关闭中共国的Kindle商店](/content/gnews/2658957.md)
- `NFSC News`
-
-#### [不一样的新中国联邦](/content/gnews/2658938.md)
- `NFSC News`
-
 #### [新中国联邦创始人传奇的人生之凤凰涅槃浴火重生（下）](/content/gnews/2658522.md)
  `cindy`
-
-#### [新中国联邦乌克兰人道救援收获满满](/content/gnews/2658277.md)
- `NFSC News`
 
 #### [数字货币市场第一例内幕交易操纵者被指控](/content/gnews/2657068.md)
  `银河歌舞厅`
