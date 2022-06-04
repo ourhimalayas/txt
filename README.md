@@ -26,9 +26,6 @@
 #### [【樱话】“全球QT” 前所未有　 一场“飓风”即将来临](/content/gnews/2658992.md)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】比特币跌破3万美元](/content/gnews/2658968.md)
- `TokyoSakuraDesignGroup`
-
 #### [亚马逊将关闭中共国的Kindle商店](/content/gnews/2658957.md)
  `NFSC News`
 
@@ -56,14 +53,8 @@
 #### [六四前夕香港政府提前关闭烛光晚会场地](/content/gnews/2658643.md)
  `日本东京方舟农场`
 
-#### [2022.04.01很傻——2022.06.01很天真（上：傻）](/content/gnews/2658636.md)
- `喜马拉雅纽约磐石农场`
-
 #### [新中国联邦创始人传奇的人生之吹响爆料革命的号角（上）](/content/gnews/2658624.md)
  `cindy`
-
-#### [【粤语配音】2022年6月03日：中国的未来走向新中国联邦制](/content/gnews/2658618.md)
- `MOS香港部`
 
 #### [韩国将废除未接种疫苗旅客入境隔离7天的规定](/content/gnews/2658594.md)
  `日本东京方舟农场`
