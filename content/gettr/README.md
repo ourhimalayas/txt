@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/4/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1ckvje1d74.md)
+
+6/3/2022  Miles Guo: I mentioned Sun Deshun, the former manager of China CITIC group, in my live broadcast in 2017. Sun had tried more than 20 times to make deals with me, but I turned him down and didn't meet him in person at all....
+
+<img src="https://media.gettr.com/group16/getter/2022/06/04/00/c932d6f9-320a-583c-2f02-f975beab1bf7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/3/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1cle39da5b.md)
 
 6/3/2022 Miles Guo: If the CCP exists, China will eventually break into many independent territories, followed by refugee crisis and famine; only when the CCP is taken down and a federalism system is established in China, will Chin...
@@ -66,11 +74,11 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/4/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1ckvje1d74.md)
+[@miles 6/4/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1ckw633dbe.md)
 
-6/3/2022  Miles Guo: I mentioned Sun Deshun, the former manager of China CITIC group, in my live broadcast in 2017. Sun had tried more than 20 times to make deals with me, but I turned him down and didn't meet him in person at all....
+6/3/2022 Miles Guo: We have been commemorating Qu Yuan, who was wronged and committed suicide by jumping into the Miluo River, for thousands of years. However, no Chinese have asked how many people have committed suicide by jumping...
 
-<img src="https://media.gettr.com/group16/getter/2022/06/04/00/c932d6f9-320a-583c-2f02-f975beab1bf7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/06/04/00/15b0cf09-ff3d-d7bf-949b-8b41e28b0346/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ Nicolas, representative of the Camp Medyka Management Committee said the New Fed
 The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to an end. Nicole interviewed Mr. Leo, who has been leading all the NFSC volunteers and fellow fighters to provide services on Medyka frontline since March 2...
 
 <img src="https://media.gettr.com/group46/origin/2022/06/02/10/6d616032-eb95-bd98-895e-b987067722dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/2/2022 6:25 AM UTC  - :tv:直播](/content/gettr/p1ccvjtb894.md)
-
-64两周年深夜机场接战友，猜猜我们来接谁？
-
-<img src="https://media.gettr.com/group13/getter/2022/06/02/04/9b450dd5-c087-618f-8f56-106d60c54d1a/b75bc9359652d8b851a1d839d6dd8133.jpg" width="506" height="284">
 
 ---
 
