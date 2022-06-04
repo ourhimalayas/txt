@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 6/4/2022 10:35 AM UTC  - :tv:直播](/content/gettr/p1co305d1d7.md)
-
-2022年6月4日 4K纽约香草山农场庆祝新中国联邦成立两周年
-
-<img src="https://media.gettr.com/group11/origin/2022/06/04/10/5b271cff-6a92-1b3c-5497-4aa1fccdfbfa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/4/2022 10:48 AM UTC  - :tv:直播](/content/gettr/p1com7u1d82.md)
 
 郭文贵先生油管账号数据被篡改实证
@@ -19,6 +11,30 @@
 Evidence of YouTube manipulating and tampering the data of Mr Miles Guo’s account 
 
 <img src="https://media.gettr.com/group23/getter/2022/06/04/10/c1725114-84c8-e644-26a4-04993adefd17/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 10:35 AM UTC  - :tv:直播](/content/gettr/p1co305d1d7.md)
+
+2022年6月4日 4K纽约香草山农场庆祝新中国联邦成立两周年
+
+<img src="https://media.gettr.com/group11/origin/2022/06/04/10/5b271cff-6a92-1b3c-5497-4aa1fccdfbfa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 11:28 AM UTC  - 3圖](/content/gettr/p1cobyo469b.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China： the celebration is about to begin, are you ready, fellow fighters?
+
+
+
+2022年6月4日新中国联邦成立两周年—— 盛宴即将开始，战友们准备好了吗？
+
+
+
+#新中国联邦 #NFSC  #ROLF #法治基金 #纪念六四 #rememberjune4th...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/04/07/66ca0224-9bfa-2b2e-2e8e-2cab82c35082/e1752f6db40b350fa2d6e789b7e9cbbf.jpg" width="506" height="284">
 
 ---
 
@@ -187,16 +203,6 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 郭文贵先生于2019年6月22日回顾8964时表示, 一位军队的干部给他讲述了解放军是如何制造军人被烧的假新闻，当时震惊了世界。
 
 <img src="https://media.gettr.com/group37/getter/2022/06/03/15/66daf5a7-a841-2934-f5da-da79e664194e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 2:18 PM UTC  - :tv:直播](/content/gettr/p1cib1e03fe.md)
-
-4K郭先生战友见面会
-
-
-
-<img src="https://media.gettr.com/group19/origin/2022/06/03/14/4ace9192-fb66-617d-7170-fe07cac2528c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
