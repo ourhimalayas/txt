@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 6/4/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p1cpymla7c4.md)
+
+【NFSC 2nd Anniversary 】06/04/2022  Mr. Steve Bannon believes that we are heading towards an economic catastrophe, and the Chinese Communist Party is the root cause of everything. However, the elites around the world won't hold the ...
+
+<img src="https://media.gettr.com/group28/getter/2022/06/04/22/262b2c9c-c979-c2df-44e1-1c8c9ffa3ac3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1cpxk62fda.md)
+
+【NFSC 2nd Anniversary 】06/04/2022：Mr. Steve Bannon suggested we use GETTR everyday to record our real life and spread our voice of justice! This is unbearable for the CCP. In fact, it means that we are strangling the legitimacy of ...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/04/22/03baf6eb-096a-7764-f675-84b0e0d0c4b4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 10:25 PM UTC  - :tv:直播](/content/gettr/p1cptebf82b.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Every new Chinese needs to build their own followings on GETTR. You will learn alot but will also teach a lot. Spread the word out there about the Chinese Communist Party, of the evils ...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/04/22/9d6160fa-8792-192f-ab7b-9ba4b3531c7e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:47 PM UTC  - :tv:直播](/content/gettr/p1cq5kc8ed6.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 When asked about his views on the prospect of the NFSC getting formal recognition, Mr. Steve Bannon suggested that the NFSC can get it by promoting itself to NGOs and other organizations, as well a...
+
+<img src="https://media.gettr.com/group30/getter/2022/06/04/21/2ab9233f-d7d2-4d96-19b0-e253046dc225/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 9:30 PM UTC  - :tv:直播](/content/gettr/p1cq2xk6994.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: The NFSC people have set an example to the Chinese people all over the world, and I feel empowered to be with you.
@@ -18,11 +50,11 @@
 
 ---
 
-[@miles 6/4/2022 9:47 PM UTC  - :tv:直播](/content/gettr/p1cq5kc8ed6.md)
+[@miles 6/4/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1cpl29f24a.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 When asked about his views on the prospect of the NFSC getting formal recognition, Mr. Steve Bannon suggested that the NFSC can get it by promoting itself to NGOs and other organizations, as well a...
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Chinese Communist Party has been planning for their families to prepare for the aftermath of the collapse of the Party. They have been planning for the assets of their children and g...
 
-<img src="https://media.gettr.com/group30/getter/2022/06/04/21/2ab9233f-d7d2-4d96-19b0-e253046dc225/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/06/04/22/fcd1e785-f43d-f7c1-8998-bb816d95929b/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,46 +203,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whist
 2022年6月...
 
 <img src="https://media.gettr.com/group25/getter/2022/06/04/18/a00354f0-0886-5141-beae-206603fcdad1/20feabb982d7dec8cdad20d7861ad361.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1coz8aa4e2.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Thank every citizen of the New Federal State of China and every fellow fighter of the Whistleblowers’ Movement for the efforts you made! We are celebrating not only the second anniversa...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/04/18/55ef3c01-352f-1d11-9a6b-c08817235a5b/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 6/4/2022 5:52 PM UTC  - :tv:直播](/content/gettr/p1cowx33d68.md)
-
-22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
-
-<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 5:46 PM UTC ](/content/gettr/p1coy2p10a9.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whistleblowers' Movement 64 special edition whistle, blowing the strongest sound to take down the CCP.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 爆料革命64特制款哨子，吹响灭共的最强音。
-
-
-
-#新中...
-
-<img src="https://media.gettr.com/group3/getter/2022/06/04/17/81552b37-5ce1-a25f-8762-34732aa9c5fc/8a1fa6decad76d3a15fccba72d9fca45.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 5:41 PM UTC ](/content/gettr/p1coxx2c0fb.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: Representative of the NFSC Farm Alliance. Why does the NFSC need to establish so many farms? A vertical system is bound to foster corruption. The NFSC Farm Alli...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/04/17/83d1c222-16f6-0dbc-de5b-a50348611e75/23eee85383cf7ca64278e828508cb0f7.jpg" width="506" height="284">
 
 ---
 
