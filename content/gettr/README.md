@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 6/4/2022 3:21 AM UTC  - :tv:直播](/content/gettr/p1cliu78b64.md)
+
+6/3/2022 Miles Guo: The Himalaya Coin is the only digital coin in the world that was paid for by the institutional investors prior to its launch. The Himalaya Coin is backed by the New Federal State of China, which brings it the bi...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/04/03/4f4a3b83-a917-d0a1-a30d-c48ee1c4490f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 3:23 AM UTC  - :tv:直播](/content/gettr/p1cl9oe6f3f.md)
+
+6/3/2022 Miles Guo: Sun Deshun's family once wanted to join the New Federal State of China! The ultimate target of Sun Deshun's case is to take out a certain Standing Committee member before the 20th National Congress of the CCP. C...
+
+<img src="https://media.gettr.com/group29/getter/2022/06/04/03/691b9364-196b-8b61-11fb-9d4c96c72c7f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 3:02 AM UTC ](/content/gettr/p1cl0en4f7a.md)
+
+2022-6-3《鸡血王喜币大作战》 第二百一十五集 嘉宾：青藤, Happy
+
+---
+
 [@miles 6/4/2022 2:31 AM UTC ](/content/gettr/p1cl47b3d96.md)
 
 How to join the Whistleblower Movement
@@ -106,9 +128,17 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/4/2022 3:02 AM UTC ](/content/gettr/p1cl0en4f7a.md)
+[@miles 6/4/2022 3:28 AM UTC ](/content/gettr/p1clcor8790.md)
 
-2022-6-3《鸡血王喜币大作战》 第二百一十五集 嘉宾：青藤, Happy
+June 4, 2020 The “Declaration of the New Federal State of China” 【Multiple Languages】
+
+
+
+English,Chinese,Japanese,French,Spanish, Russian, Danish, Korean, Arabic, Dutch, Hungarian, German, Polish, Ukrainian 
+
+
+
+https://gnews.org/22...
 
 ---
 
@@ -183,36 +213,6 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 [@miles 6/3/2022 2:50 AM UTC ](/content/gettr/p1cgiop8738.md)
 
 https://gettr.com/streaming/p1cg6f52936
-
----
-
-[@miles 6/3/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1cgc8z85fb.md)
-
-飞飞秀 六四篇 谈谈家和才能万事兴
-
-For English:gettr.com/streaming/p1cgeyb837f
-
-
-
-<img src="https://media.gettr.com/group18/origin/2022/06/03/01/5f3afdc6-0e59-36a2-4e44-d657960945c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayaathena 6/2/2022 8:03 AM UTC ](/content/gettr/p1cd0l54ea1.md)
-
-在南太平洋岛国启动“#一带一路”倡议时，建设赌场是中共的第一要务。中共控制的南太平洋赌场，除了深入地影响当地的政治和经济，更大的功能是为“一带一路”筹资，通过吸收澳洲毒枭黑钱，最后再通过赌场将脏钱洗白后完成整个闭环。
-
-这笔大买卖由澳门黑帮老大 #尹国驹 操盘，他已皈依红教，确切地说是“孟老板”的人。此君正在东南亚建立了一个强大的商业网络，涉及加密货币、房地产的开发和销售，还成立一家专门保护“一带一路”投资的安保公司。
-
-此外， #所罗门群岛 总理 #索加瓦...
-
----
-
-[@miles 6/3/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1cg10ma804.md)
-
-Nicolas, representative of the Camp Medyka Management Committee said the New Federal State of China was one of the first on-site in Medyka, and worked with UNICEF, IOM, and the Polish Red Cross as a big family, offering great assis...
-
-<img src="https://media.gettr.com/group4/origin/2022/06/03/00/d702c36a-fc5b-2faa-9bf0-848c5e85551c/out.jpg" width="506" height="284">
 
 ---
 
