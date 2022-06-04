@@ -2,6 +2,46 @@
 ---
 
 
+[@miles 6/4/2022 2:31 PM UTC  - 4圖](/content/gettr/p1colnn67d5.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China - Opening Poem “To CCP” by Miles Guo
+
+
+
+2022年6月4日新中国联邦成立两周年——郭文贵先生开场配乐诗《致CCP》
+
+
+
+#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
+
+<img src="https://media.gettr.com/group45/getter/2022/06/04/14/1d03c0b7-0ed2-61b7-9bef-ba25e7242edc/35ac59e854508cbf91690a960c5cf7a1.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 2:32 PM UTC ](/content/gettr/p1cny1k3510.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China : Gratitude to Mr. Bannon, the eternal friend of the New Federal State of China 
+
+
+
+2022年6月4日新中国联邦成立两周年—— 感恩新中国联邦永远的朋友，班农先生
+
+
+
+#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #re...
+
+<img src="https://media.gettr.com/group29/getter/2022/06/04/14/db086e5f-6f39-58a4-43d5-c11449df7ade/48f6a2193118c4897da26087d00d0162.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_2 6/4/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1cok992017.md)
+
+22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
+
+<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1co5lv7bf3.md)
 
  June 4th, 2022, the 2nd anniversary of the New Federal State of China - Fellow Fighters chorus LIVE version of "A Roar of the Vast Sea", the NFSC people will never be enslaved!
@@ -42,7 +82,7 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China - The fell
 
 ---
 
-[@gtranslators_2 6/4/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1cok992017.md)
+[@gtranslators_2 6/4/2022 2:42 PM UTC  - :tv:直播](/content/gettr/p1co7dzff6a.md)
 
 22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
 
@@ -203,40 +243,6 @@ Evidence of YouTube manipulating and tampering the data of Mr Miles Guo’s acco
 06/04/2022 Mr. Miles Guo congratulates the 2nd anniversary of the New Federal State of China! On this wonderful day, may all gods bless the New Federal State of China, all our fellow fighters and families with peace and health! Vic...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/04/10/e2db97f8-3e32-ab41-1198-9fe5ee187705/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 7:22 AM UTC ](/content/gettr/p1cn6oke7a2.md)
-
-Student protests are ineffective and the combined factors can take down the Chinese Communist Party (CCP)
-
-
-
-On May 29, Mr. Miles Guo blew the whistle that the student protests are ineffective in China, and will eventually sap soci...
-
-<img src="https://media.gettr.com/group11/origin/2022/06/04/07/9d350e03-adaa-9785-c51a-9fe58dd1e23c/15c3212dd4dc48bbcd8c92140356e415.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 3:23 AM UTC  - :tv:直播](/content/gettr/p1cl9oe6f3f.md)
-
-6/3/2022 Miles Guo: Sun Deshun's family once wanted to join the New Federal State of China! The ultimate target of Sun Deshun's case is to take out a certain Standing Committee member before the 20th National Congress of the CCP. C...
-
-<img src="https://media.gettr.com/group29/getter/2022/06/04/03/691b9364-196b-8b61-11fb-9d4c96c72c7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 3:28 AM UTC ](/content/gettr/p1clcor8790.md)
-
-June 4, 2020 The “Declaration of the New Federal State of China” 【Multiple Languages】
-
-
-
-English,Chinese,Japanese,French,Spanish, Russian, Danish, Korean, Arabic, Dutch, Hungarian, German, Polish, Ukrainian 
-
-
-
-https://gnews.org/22...
 
 ---
 
