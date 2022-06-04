@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/4/2022 2:31 AM UTC ](/content/gettr/p1cl47b3d96.md)
+
+How to join the Whistleblower Movement
+
+Step 1: Register Gmail, download Gettr app and Discord software
+
+Step 2: Search in Discord: "喜马拉雅联盟大使馆客服中心"
+
+           Search in Gettr: "全球喜马拉雅农场联盟委员会" 
+
+Step 3: Choose any farm you like and...
+
+<img src="https://media.gettr.com/group18/origin/2022/06/04/02/ed4456da-41f0-bf49-9297-8b422cf23811/38618ff5454687c7b97956c9f49d02fc.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1ckwkcc843.md)
 
 During the 81 short days of the rescue in Medyka , people from the New Federal State of China have formed deep friendships with members of rescue organizations from all over the world who share a common goal that is: to fight for f...
@@ -90,19 +106,9 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/4/2022 2:31 AM UTC ](/content/gettr/p1cl47b3d96.md)
+[@miles 6/4/2022 3:02 AM UTC ](/content/gettr/p1cl0en4f7a.md)
 
-How to join the Whistleblower Movement
-
-Step 1: Register Gmail, download Gettr app and Discord software
-
-Step 2: Search in Discord: "喜马拉雅联盟大使馆客服中心"
-
-           Search in Gettr: "全球喜马拉雅农场联盟委员会" 
-
-Step 3: Choose any farm you like and...
-
-<img src="https://media.gettr.com/group18/origin/2022/06/04/02/ed4456da-41f0-bf49-9297-8b422cf23811/38618ff5454687c7b97956c9f49d02fc.jpg" width="506" height="284">
+2022-6-3《鸡血王喜币大作战》 第二百一十五集 嘉宾：青藤, Happy
 
 ---
 
@@ -207,12 +213,6 @@ For English:gettr.com/streaming/p1cgeyb837f
 Nicolas, representative of the Camp Medyka Management Committee said the New Federal State of China was one of the first on-site in Medyka, and worked with UNICEF, IOM, and the Polish Red Cross as a big family, offering great assis...
 
 <img src="https://media.gettr.com/group4/origin/2022/06/03/00/d702c36a-fc5b-2faa-9bf0-848c5e85551c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/2/2022 7:01 PM UTC ](/content/gettr/p1cezaf60f5.md)
-
-2022-6-2《避风港》(55)  疫苗导致严重的神经系统疾病
 
 ---
 
