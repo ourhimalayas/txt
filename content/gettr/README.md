@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 6/4/2022 9:08 PM UTC  - 2圖](/content/gettr/p1cq28l2078.md)
+
+June 4th,2022, the 2nd anniversary of the New Federal State of China: Every fellow fighter experienced a lack of understanding and tears in the process of extinguishing the CCP. At this moment, we need a hug, and the NFSC is the ho...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/04/21/ffd83785-8a49-6f82-12ec-74928c51c0d6/1f6c3839a1f8a96eace83aa17c0f8fce.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:11 PM UTC  - 3圖](/content/gettr/p1cq6v60c28.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: Mr. Peter Navarro, the spokesman of the NFSC and a friend of the Chinese forever.
+
+
+
+2022年6月4日新中国联邦成立两周年—— 皮特·纳瓦罗先生，新中国联邦形象代言人，中国人永远的朋友。
+
+
+
+#新中国联邦 #NFSC #ROLF #...
+
+<img src="https://media.gettr.com/group28/getter/2022/06/04/21/d7a03298-3966-ee25-8ccd-b4dcb0188448/c21e77d076f1dca37eda479aa4f60724.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 8:04 PM UTC  - 2圖](/content/gettr/p1cpyty6e3a.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China: Ukraine Rescue frontline representatives, Nicole, Renee, and Dr Wen Zi, are the most beautiful flowers of the NFSC. Practicality, and the ability to execute is ...
@@ -10,11 +34,19 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: Ukraine R
 
 ---
 
-[@miles 6/4/2022 6:23 PM UTC ](/content/gettr/p1cpiid7b7b.md)
+[@miles 6/4/2022 9:13 PM UTC ](/content/gettr/p1cq6eg5ac3.md)
 
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: For the first time in history, the NFSC rallied the Chinese people together in unison to take down the CCP, thanks to every single donor to the Rule of Law Foun...
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: The 91-year-old Mr. Morgan never does interviews, so Mrs. Morgan is interviewed by Mr. Miles Guo.
 
-<img src="https://media.gettr.com/group35/getter/2022/06/04/18/a0660bae-4071-9562-4283-49d483f4e710/e470d3f5b6da0bd2226d5ec88090db98.jpg" width="506" height="284">
+
+
+2022年6月4日新中国联邦成立两周年—— 91岁的摩根先生从不接受采访，摩根夫人接受文贵先生专访。
+
+
+
+#新中国联...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/04/21/26e71a9c-ebd4-2b5d-3194-73349ad2dbd0/f35a595dafa6984ec2b24880cfcab27e.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +55,14 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: For the f
 【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: The efforts of the fellow fighters of the New Federal State of China in the Ukraine rescue operation and New York City have shown the world the image of the new China and the new Chinese...
 
 <img src="https://media.gettr.com/group17/getter/2022/06/04/20/9fc93df4-8589-7eec-31d0-dba41bd56947/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 6:23 PM UTC ](/content/gettr/p1cpiid7b7b.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: For the first time in history, the NFSC rallied the Chinese people together in unison to take down the CCP, thanks to every single donor to the Rule of Law Foun...
+
+<img src="https://media.gettr.com/group35/getter/2022/06/04/18/a0660bae-4071-9562-4283-49d483f4e710/e470d3f5b6da0bd2226d5ec88090db98.jpg" width="506" height="284">
 
 ---
 
@@ -183,46 +223,6 @@ June 4th，2022, the 2nd anniversary of the New Federal State of China： Interv
 June 4th 2022, the 2nd anniversary of the New Federal State of China: Interview with Mr. Bannon, the co-founder of the New Federal State of China. The NFSC is the most powerful communist exterminator. Everything about it is so beau...
 
 <img src="https://media.gettr.com/group45/getter/2022/06/04/14/3cb98204-0416-a619-aac0-927ae98d9028/03961274dade78dfa259c7bc970f1824.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 2:31 PM UTC  - 4圖](/content/gettr/p1colnn67d5.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China - Opening Poem “To CCP” by Miles Guo
-
-
-
-2022年6月4日新中国联邦成立两周年——郭文贵先生开场配乐诗《致CCP》
-
-
-
-#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
-
-<img src="https://media.gettr.com/group45/getter/2022/06/04/14/1d03c0b7-0ed2-61b7-9bef-ba25e7242edc/35ac59e854508cbf91690a960c5cf7a1.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 2:32 PM UTC ](/content/gettr/p1cny1k3510.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China : Gratitude to Mr. Bannon, the eternal friend of the New Federal State of China 
-
-
-
-2022年6月4日新中国联邦成立两周年—— 感恩新中国联邦永远的朋友，班农先生
-
-
-
-#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #re...
-
-<img src="https://media.gettr.com/group29/getter/2022/06/04/14/db086e5f-6f39-58a4-43d5-c11449df7ade/48f6a2193118c4897da26087d00d0162.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 6/4/2022 2:42 PM UTC  - :tv:直播](/content/gettr/p1co7dzff6a.md)
-
-22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
-
-<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
