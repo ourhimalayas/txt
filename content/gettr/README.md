@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 6/4/2022 3:21 AM UTC  - :tv:直播](/content/gettr/p1cliu78b64.md)
-
-6/3/2022 Miles Guo: The Himalaya Coin is the only digital coin in the world that was paid for by the institutional investors prior to its launch. The Himalaya Coin is backed by the New Federal State of China, which brings it the bi...
-
-<img src="https://media.gettr.com/group48/getter/2022/06/04/03/4f4a3b83-a917-d0a1-a30d-c48ee1c4490f/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/4/2022 7:22 AM UTC ](/content/gettr/p1cn6oke7a2.md)
 
 Student protests are ineffective and the combined factors can take down the Chinese Communist Party (CCP)
@@ -19,6 +11,22 @@ Student protests are ineffective and the combined factors can take down the Chin
 On May 29, Mr. Miles Guo blew the whistle that the student protests are ineffective in China, and will eventually sap soci...
 
 <img src="https://media.gettr.com/group11/origin/2022/06/04/07/9d350e03-adaa-9785-c51a-9fe58dd1e23c/15c3212dd4dc48bbcd8c92140356e415.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 3:21 AM UTC  - :tv:直播](/content/gettr/p1cliu78b64.md)
+
+6/3/2022 Miles Guo: The Himalaya Coin is the only digital coin in the world that was paid for by the institutional investors prior to its launch. The Himalaya Coin is backed by the New Federal State of China, which brings it the bi...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/04/03/4f4a3b83-a917-d0a1-a30d-c48ee1c4490f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 10:18 AM UTC  - :tv:直播](/content/gettr/p1cn5mxb490.md)
+
+06/04/2022 Mr. Miles Guo congratulates the 2nd anniversary of the New Federal State of China! On this wonderful day, may all gods bless the New Federal State of China, all our fellow fighters and families with peace and health! Vic...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/04/10/e2db97f8-3e32-ab41-1198-9fe5ee187705/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,12 +221,6 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 64两周年，迎接战友看看是不是开林宝捷妮来的
 
 <img src="https://media.gettr.com/group17/getter/2022/06/03/04/fa8ace4b-665d-7f19-531a-03e59e386915/4fc14b3ed462f6f6601c93de38eb03db.jpg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 3:03 AM UTC ](/content/gettr/p1cgpmibb8d.md)
-
-2022-6-2《鸡血王喜币大作战》 第二百一十四集 嘉宾：无双柳薇薇、文空、TEX
 
 ---
 
