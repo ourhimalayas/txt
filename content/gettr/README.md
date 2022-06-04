@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/4/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1ckw633dbe.md)
+
+6/3/2022 Miles Guo: We have been commemorating Qu Yuan, who was wronged and committed suicide by jumping into the Miluo River, for thousands of years. However, no Chinese have asked how many people have committed suicide by jumping...
+
+<img src="https://media.gettr.com/group17/getter/2022/06/04/00/15b0cf09-ff3d-d7bf-949b-8b41e28b0346/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1ckvje1d74.md)
 
 6/3/2022  Miles Guo: I mentioned Sun Deshun, the former manager of China CITIC group, in my live broadcast in 2017. Sun had tried more than 20 times to make deals with me, but I turned him down and didn't meet him in person at all....
@@ -74,11 +82,11 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/4/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1ckw633dbe.md)
+[@miles 6/4/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1ckwkcc843.md)
 
-6/3/2022 Miles Guo: We have been commemorating Qu Yuan, who was wronged and committed suicide by jumping into the Miluo River, for thousands of years. However, no Chinese have asked how many people have committed suicide by jumping...
+During the 81 short days of the rescue in Medyka , people from the New Federal State of China have formed deep friendships with members of rescue organizations from all over the world who share a common goal that is: to fight for f...
 
-<img src="https://media.gettr.com/group17/getter/2022/06/04/00/15b0cf09-ff3d-d7bf-949b-8b41e28b0346/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/06/04/01/3196ae11-630a-54bf-9892-5f1316309268/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ Nicolas, representative of the Camp Medyka Management Committee said the New Fed
 千声万籁·承载辉煌  首届《联邦杯》诗歌朗诵大赛总决赛
 
 <img src="https://media.gettr.com/group44/origin/2022/06/02/11/4caa9d42-c380-ad05-6ef8-eb211444d45d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/2/2022 10:35 AM UTC  - :tv:直播](/content/gettr/p1ce7ll4c41.md)
-
-The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to an end. Nicole interviewed Mr. Leo, who has been leading all the NFSC volunteers and fellow fighters to provide services on Medyka frontline since March 2...
-
-<img src="https://media.gettr.com/group46/origin/2022/06/02/10/6d616032-eb95-bd98-895e-b987067722dd/out.jpg" width="506" height="284">
 
 ---
 
