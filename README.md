@@ -11,6 +11,18 @@
 
 ---
 
+#### [奇迹](/content/gnews/2660475.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [纪念六四战友书法](/content/gnews/2660473.md)
+ `波士顿五月花农场`
+
+#### [拜登向驻日美军基地授予使用核打击的战争权力](/content/gnews/2660467.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [新中国联邦2周年战友书法](/content/gnews/2660452.md)
+ `波士顿五月花农场`
+
 #### [G fashion照片合集](/content/gnews/2660438.md)
  `【🌹玫瑰新闻】`
 
@@ -20,17 +32,8 @@
 #### [2022年6月3日郭先生战友见面会谈数字货币：货币发展史回顾 信用是货币的本质](/content/gnews/2660418.md)
  `秘密翻译组-原创组`
 
-#### [【说事儿】华尔街与中共将很快决裂](/content/gnews/2660409.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】中共试图让海外反共活动家闭嘴](/content/gnews/2660402.md)
- `TokyoSakuraDesignGroup`
-
 #### [20220603郭文贵战友见面会直播 ：曼哈顿新金融城的重建（华尔街）](/content/gnews/2660395.md)
  `Tokyo Sakura Video Group`
-
-#### [【说事儿】立陶宛外长希望由G7取代联合国安理会常任理事国](/content/gnews/2660389.md)
- `TokyoSakuraDesignGroup`
 
 #### [中日财经爆｜美国游说下 英国审查中共公司对英国晶圆厂的收购交易](/content/gnews/2660385.md)
  `东京樱花团`
@@ -76,9 +79,6 @@
 
 #### [俄乌战争百天致使最少1570万人急需援助，泽连斯基发表讲话](/content/gnews/2660094.md)
  `澳喜农场`
-
-#### [89.6.4：不能忘却的记忆](/content/gnews/2660078.md)
- `日本东京方舟农场`
 
 #### [中国外长王毅在太平洋最后一站东帝汶签署协议](/content/gnews/2660070.md)
  `澳喜农场`
