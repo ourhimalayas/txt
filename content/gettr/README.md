@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/4/2022 5:36 PM UTC ](/content/gettr/p1cpfsi4fd2.md)
+[@miles 6/4/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1coz8aa4e2.md)
 
-June 4th, 2022, the 2nd anniversary of the New Federal State of China : All fellow fighters, as long as you guard the red line of the law and the red line of the extermination of the CCP, there is no barrier that cannot be overcome...
+【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Thank every citizen of the New Federal State of China and every fellow fighter of the Whistleblowers’ Movement for the efforts you made! We are celebrating not only the second anniversa...
 
-<img src="https://media.gettr.com/group34/getter/2022/06/04/17/39e6612d-83d0-859d-fdcb-effa480e8c49/88ed1c421f46bbab764468cc9d60d88a.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/06/04/18/55ef3c01-352f-1d11-9a6b-c08817235a5b/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,22 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whist
 #新中...
 
 <img src="https://media.gettr.com/group3/getter/2022/06/04/17/81552b37-5ce1-a25f-8762-34732aa9c5fc/8a1fa6decad76d3a15fccba72d9fca45.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 5:36 PM UTC ](/content/gettr/p1cpfsi4fd2.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China : All fellow fighters, as long as you guard the red line of the law and the red line of the extermination of the CCP, there is no barrier that cannot be overcome...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/04/17/39e6612d-83d0-859d-fdcb-effa480e8c49/88ed1c421f46bbab764468cc9d60d88a.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_2 6/4/2022 5:52 PM UTC  - :tv:直播](/content/gettr/p1cowx33d68.md)
+
+22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
+
+<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -201,42 +217,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : Gratitud
 SIMULTANEOUS INTERPRETATION⎢2ND ANNIVERSARY OF THE NEW FEDERAL STATE OF CHINA - 22.06.04
 
 <img src="https://media.gettr.com/group18/origin/2022/06/04/09/dc7e56b5-cbe8-1688-b36c-ceccbd3d8b4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 1:39 PM UTC  - :tv:直播](/content/gettr/p1cnxvy94ba.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China - The fellow fighters are preparing meticulously, time travels and the celebration is about to begin 🥳
-
-
-
-2022年6月4日新中国联邦成立两周年—— 战友们细致的准备，时光穿梭，庆典即将开始🥳
-
-
-
-
-
-#新中国...
-
-<img src="https://media.gettr.com/group43/getter/2022/06/04/13/b2aee1ed-3948-45f3-8014-df2ba23a9422/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1co0te172d.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China - Panoramic 360 of the celebration venue, bursting with the heady tide of the Whistleblowers' Movement.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 庆典会场全景360，爆料革命滔滔灭共潮
-
-
-
-
-
-#新中国联邦 ...
-
-<img src="https://media.gettr.com/group31/getter/2022/06/04/13/c1bdb89f-9eec-42f2-287d-2e98b39ea809/out.jpg" width="506" height="284">
 
 ---
 
