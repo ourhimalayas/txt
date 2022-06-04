@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/4/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1cq5n43153.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo talks about and reveals the CCP’s plan to create  a "Gold Brick Financial System" with a few rogue banks overseas which is actually a system for the CCP to hide their wealth overseas. He ...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/04/22/a1fcda7f-a039-8709-b92d-5787b79b3181/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1cpxk62fda.md)
 
 【NFSC 2nd Anniversary 】06/04/2022：Mr. Steve Bannon suggested we use GETTR everyday to record our real life and spread our voice of justice! This is unbearable for the CCP. In fact, it means that we are strangling the legitimacy of ...
@@ -23,6 +31,14 @@
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Every new Chinese needs to build their own followings on GETTR. You will learn alot but will also teach a lot. Spread the word out there about the Chinese Communist Party, of the evils ...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/04/22/9d6160fa-8792-192f-ab7b-9ba4b3531c7e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1cpl29f24a.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Chinese Communist Party has been planning for their families to prepare for the aftermath of the collapse of the Party. They have been planning for the assets of their children and g...
+
+<img src="https://media.gettr.com/group26/getter/2022/06/04/22/fcd1e785-f43d-f7c1-8998-bb816d95929b/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,14 +63,6 @@
 #新...
 
 <img src="https://media.gettr.com/group20/getter/2022/06/04/21/f3f2d2d4-eb1c-b2ca-ddbe-012a4796e8cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1cpl29f24a.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Chinese Communist Party has been planning for their families to prepare for the aftermath of the collapse of the Party. They have been planning for the assets of their children and g...
-
-<img src="https://media.gettr.com/group26/getter/2022/06/04/22/fcd1e785-f43d-f7c1-8998-bb816d95929b/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: Ukraine R
 【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: The efforts of the fellow fighters of the New Federal State of China in the Ukraine rescue operation and New York City have shown the world the image of the new China and the new Chinese...
 
 <img src="https://media.gettr.com/group17/getter/2022/06/04/20/9fc93df4-8589-7eec-31d0-dba41bd56947/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 6:23 PM UTC ](/content/gettr/p1cpiid7b7b.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: For the first time in history, the NFSC rallied the Chinese people together in unison to take down the CCP, thanks to every single donor to the Rule of Law Foun...
-
-<img src="https://media.gettr.com/group35/getter/2022/06/04/18/a0660bae-4071-9562-4283-49d483f4e710/e470d3f5b6da0bd2226d5ec88090db98.jpg" width="506" height="284">
 
 ---
 
