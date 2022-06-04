@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 6/4/2022 11:45 AM UTC  - :tv:直播](/content/gettr/p1cnxuh62c6.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China : Supporter’s View # Walking the red carpet, from the hotel, walking into the 3C building, the NFSC live broadcast venue.
+
+
+
+2022年6月4日新中国联邦成立两周年——  战友视角 #走红毯，从酒店...
+
+<img src="https://media.gettr.com/group35/getter/2022/06/04/11/f3698463-bed1-e434-a149-6d3c3263f0aa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 11:32 AM UTC  - 4圖](/content/gettr/p1cof7d419d.md)
+
+June 4, 2022, the 2nd anniversary of the New Federal State of China : 
+
+the live streaming team is working intensively.
+
+
+
+2022年6月4日新中国联邦成立两周年—— 直播团队压力山大
+
+<img src="https://media.gettr.com/group15/getter/2022/06/04/11/f957d8c8-7267-31c9-fc80-f9f9d5a6925e/bc413eac696bcdcd67f11cd3c2273e27.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 11:28 AM UTC  - 3圖](/content/gettr/p1cobyo469b.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China： the celebration is about to begin, are you ready, fellow fighters?
@@ -38,17 +64,11 @@ Evidence of YouTube manipulating and tampering the data of Mr Miles Guo’s acco
 
 ---
 
-[@miles 6/4/2022 11:32 AM UTC  - 4圖](/content/gettr/p1cof7d419d.md)
+[@miles 6/4/2022 11:47 AM UTC  - :tv:直播](/content/gettr/p1coga62d0a.md)
 
-June 4, 2022, the 2nd anniversary of the New Federal State of China : 
+2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
 
-the live streaming team is working intensively.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 直播团队压力山大
-
-<img src="https://media.gettr.com/group15/getter/2022/06/04/11/f957d8c8-7267-31c9-fc80-f9f9d5a6925e/bc413eac696bcdcd67f11cd3c2273e27.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,46 +197,6 @@ During the 81 short days of the rescue in Medyka , people from the New Federal S
 Nicholas, a commander-in-chief of the Medyka Rescue Camp Management Committee, was interviewed by Nicole and praised the fast and effective cooperation of the NFSC with his counterparts during the war crisis, which was very encoura...
 
 <img src="https://media.gettr.com/group48/origin/2022/06/03/23/19896b9c-3501-77ac-59ad-81c8834bcc0f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1cjou62845.md)
-
-新中国联邦成立2周年庆典
-
-地点：纽约
-
-时间：2022年6月4号美东时间早上9:57
-
-
-
-2nd Anniversary of The New Federal State of China 
-
-Location： New York
-
-Time： 9:57AM EST  June 4th 2022
-
-
-
-#新中国联邦 #NFSC  #ROLF #法治基金 
-
-
-
-
-
-<img src="https://media.gettr.com/group36/getter/2022/06/03/15/e8a7174a-6d5c-f950-3584-4abbad91c902/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 3:41 PM UTC  - :tv:直播](/content/gettr/p1cjqzo438d.md)
-
-Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him that PLA faked the burned soldier news, which shocked the whole world at that time.
-
-
-
-郭文贵先生于2019年6月22日回顾8964时表示, 一位军队的干部给他讲述了解放军是如何制造军人被烧的假新闻，当时震惊了世界。
-
-<img src="https://media.gettr.com/group37/getter/2022/06/03/15/66daf5a7-a841-2934-f5da-da79e664194e/out.jpg" width="506" height="284">
 
 ---
 
