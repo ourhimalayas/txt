@@ -11,6 +11,12 @@
 
 ---
 
+#### [《灭共的勇气》- MV](/content/gnews/2664180.md)
+ `秘密翻译组-北美组`
+
+#### [美房市现重大转折点：库存三年来首次上升](/content/gnews/2664155.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
 #### [六月四日注定成为中华民族重要的纪念日](/content/gnews/2664133.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -92,17 +98,11 @@
 #### [2022/05/30 墙内世界](/content/gnews/2663360.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [有声&#124;苹果将iPad产能从中共国转移至越南](/content/gnews/2663306.md)
- `MOSREC`
-
 #### [中国人民的未来掌握在自己手中](/content/gnews/2663236.md)
  `NFSC News`
 
 #### [内斗清洗是中共官员的宿命](/content/gnews/2663235.md)
  `NFSC News`
-
-#### [现在更多的乌克兰人返回家园而不是逃离](/content/gnews/2663015.md)
- `xiaobaige`
 
 #### [美欧日经济周报（5月30日～6月3日）](/content/gnews/2663013.md)
  `经济小组`
