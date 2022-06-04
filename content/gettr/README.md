@@ -18,15 +18,11 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC 
 
 ---
 
-[@miles 6/4/2022 2:46 PM UTC ](/content/gettr/p1co4ol69db.md)
+[@miles 6/4/2022 3:43 PM UTC  - 2圖](/content/gettr/p1cp7wf7dc8.md)
 
-June 4th，2022, the 2nd anniversary of the New Federal State of China： Interview with GETTR CEO Mr. Jason Miller:  GETTER platform follows the will of heaven and helps the NFSC to take down the evil CCP!
+June 4th, 2022, the 2nd anniversary of the New Federal State of China : The NFSC has saved hundreds of millions of lives, all on-site luxury goods coming from G-Series investors' donations. Today, we have invited a famous Japanese ...
 
-
-
-2022年6月4日新中国联邦成立两周年—— 采访G...
-
-<img src="https://media.gettr.com/group45/getter/2022/06/04/14/6bd88e05-b4c6-c53b-2add-caf3cb264ac1/b8cf9b633cb26164bc6acf704e31aaf2.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/06/04/15/424b412e-f81d-84e3-ffd8-fa630db66950/6fb5d93c4cc228128d0791de75d90adf.jpg" width="506" height="284">
 
 ---
 
@@ -55,6 +51,18 @@ You're the only one who hasn't heard my song
 You’re the only one who...
 
 <img src="https://media.gettr.com/group11/getter/2022/06/04/15/a3cd6bd1-382f-13ef-1748-b637e4d2be2b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 2:46 PM UTC ](/content/gettr/p1co4ol69db.md)
+
+June 4th，2022, the 2nd anniversary of the New Federal State of China： Interview with GETTR CEO Mr. Jason Miller:  GETTER platform follows the will of heaven and helps the NFSC to take down the evil CCP!
+
+
+
+2022年6月4日新中国联邦成立两周年—— 采访G...
+
+<img src="https://media.gettr.com/group45/getter/2022/06/04/14/6bd88e05-b4c6-c53b-2add-caf3cb264ac1/b8cf9b633cb26164bc6acf704e31aaf2.jpg" width="506" height="284">
 
 ---
 
@@ -255,22 +263,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : Supporte
 2022年6月4日新中国联邦成立两周年——  战友视角 #走红毯，从酒店...
 
 <img src="https://media.gettr.com/group35/getter/2022/06/04/11/f3698463-bed1-e434-a149-6d3c3263f0aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 11:28 AM UTC  - 3圖](/content/gettr/p1cobyo469b.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China： the celebration is about to begin, are you ready, fellow fighters?
-
-
-
-2022年6月4日新中国联邦成立两周年—— 盛宴即将开始，战友们准备好了吗？
-
-
-
-#新中国联邦 #NFSC  #ROLF #法治基金 #纪念六四 #rememberjune4th...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/04/07/66ca0224-9bfa-2b2e-2e8e-2cab82c35082/e1752f6db40b350fa2d6e789b7e9cbbf.jpg" width="506" height="284">
 
 ---
 
