@@ -20,15 +20,11 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China:
 
 ---
 
-[@miles 6/4/2022 11:45 AM UTC  - :tv:直播](/content/gettr/p1cnxuh62c6.md)
+[@miles 6/4/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1coiggcf4e.md)
 
-June 4th, 2022, the 2nd anniversary of the New Federal State of China : Supporter’s View # Walking the red carpet, from the hotel, walking into the 3C building, the NFSC live broadcast venue.
+2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
 
-
-
-2022年6月4日新中国联邦成立两周年——  战友视角 #走红毯，从酒店...
-
-<img src="https://media.gettr.com/group35/getter/2022/06/04/11/f3698463-bed1-e434-a149-6d3c3263f0aa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -48,11 +44,15 @@ June 4th,  2022, the 2nd anniversary of the New Federal State of China:  Feel th
 
 ---
 
-[@miles 6/4/2022 11:47 AM UTC  - :tv:直播](/content/gettr/p1coga62d0a.md)
+[@miles 6/4/2022 11:45 AM UTC  - :tv:直播](/content/gettr/p1cnxuh62c6.md)
 
-2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
+June 4th, 2022, the 2nd anniversary of the New Federal State of China : Supporter’s View # Walking the red carpet, from the hotel, walking into the 3C building, the NFSC live broadcast venue.
 
-<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年6月4日新中国联邦成立两周年——  战友视角 #走红毯，从酒店...
+
+<img src="https://media.gettr.com/group35/getter/2022/06/04/11/f3698463-bed1-e434-a149-6d3c3263f0aa/out.jpg" width="506" height="284">
 
 ---
 
