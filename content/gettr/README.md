@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/4/2022 10:35 AM UTC  - :tv:直播](/content/gettr/p1co305d1d7.md)
+
+2022年6月4日 4K纽约香草山农场庆祝新中国联邦成立两周年
+
+<img src="https://media.gettr.com/group11/origin/2022/06/04/10/5b271cff-6a92-1b3c-5497-4aa1fccdfbfa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 10:18 AM UTC  - :tv:直播](/content/gettr/p1cn5mxb490.md)
+
+06/04/2022 Mr. Miles Guo congratulates the 2nd anniversary of the New Federal State of China! On this wonderful day, may all gods bless the New Federal State of China, all our fellow fighters and families with peace and health! Vic...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/04/10/e2db97f8-3e32-ab41-1198-9fe5ee187705/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 7:22 AM UTC ](/content/gettr/p1cn6oke7a2.md)
 
 Student protests are ineffective and the combined factors can take down the Chinese Communist Party (CCP)
@@ -22,11 +38,11 @@ On May 29, Mr. Miles Guo blew the whistle that the student protests are ineffect
 
 ---
 
-[@miles 6/4/2022 10:18 AM UTC  - :tv:直播](/content/gettr/p1cn5mxb490.md)
+[@miles 6/4/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p1coj7e9dd8.md)
 
-06/04/2022 Mr. Miles Guo congratulates the 2nd anniversary of the New Federal State of China! On this wonderful day, may all gods bless the New Federal State of China, all our fellow fighters and families with peace and health! Vic...
+2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
 
-<img src="https://media.gettr.com/group36/getter/2022/06/04/10/e2db97f8-3e32-ab41-1198-9fe5ee187705/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -205,22 +221,6 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 香草山...
 
 <img src="https://media.gettr.com/group25/getter/2022/06/03/13/26ca8237-be19-927c-792c-c244709fee55/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 6/3/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1cj2zp89d9.md)
-
-2022.06.03 新中国联邦 | 军情室 再谈海马斯以及多管火箭炮在未来台海战争中的作用
-
-<img src="https://media.gettr.com/group28/origin/2022/06/03/10/c2f9c546-ba3f-c642-8ea3-8c6cfb562705/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 4:52 AM UTC  - :tv:直播](/content/gettr/p1chhtc0233.md)
-
-64两周年，迎接战友看看是不是开林宝捷妮来的
-
-<img src="https://media.gettr.com/group17/getter/2022/06/03/04/fa8ace4b-665d-7f19-531a-03e59e386915/4fc14b3ed462f6f6601c93de38eb03db.jpg" width="506" height="284">
 
 ---
 
