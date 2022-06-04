@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/4/2022 5:01 PM UTC  - :tv:直播](/content/gettr/p1coq745db3.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China:  The Whistleblowers’ Movement Iron-Blood Team (Mulan and Grassroots Brother are represented), salute to the heaven, to the earth, to all  the fellow fighters 🌹...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/04/17/4ffab38e-8a87-8ea8-78d5-36296d9551fc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 4:50 PM UTC  - :tv:直播](/content/gettr/p1cphex8c28.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Jason Miller, GETTR CEO: We have to separate very clearly the Chinese people from the Chinese Communist Party. The CCP is a thuggish mob like dictatorship. But it all comes down to free speech. We ...
@@ -34,11 +42,15 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC 
 
 ---
 
-[@miles 6/4/2022 5:01 PM UTC  - :tv:直播](/content/gettr/p1coq745db3.md)
+[@miles 6/4/2022 5:27 PM UTC  - :tv:直播](/content/gettr/p1cpd428b8d.md)
 
-June 4th, 2022, the 2nd anniversary of the New Federal State of China:  The Whistleblowers’ Movement Iron-Blood Team (Mulan and Grassroots Brother are represented), salute to the heaven, to the earth, to all  the fellow fighters 🌹...
+2022年6月4日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！祝贺新中国联邦成立2周年！
 
-<img src="https://media.gettr.com/group19/getter/2022/06/04/17/4ffab38e-8a87-8ea8-78d5-36296d9551fc/out.jpg" width="506" height="284">
+
+
+06/04/2022 Rule of Law Foundation and Society donors messages collection. Rule of Law Foundation and Society appreciate all of our supporters and donors! Celebra...
+
+<img src="https://media.gettr.com/group16/getter/2022/06/04/17/ec3425c9-b764-0840-e7ad-85209c4abac2/out.jpg" width="506" height="284">
 
 ---
 
@@ -233,22 +245,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: A wonderf
 2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
 
 <img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 12:13 PM UTC  - 4圖](/content/gettr/p1co7vyaaef.md)
-
-June 4th,  2022, the 2nd anniversary of the New Federal State of China:  Feel the red carpet, the New Federal State of China welcomes you!
-
-
-
-2022年6月4日新中国联邦成立两周年—— 感受红毯，新中国联邦欢迎您!
-
-
-
-#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th  
-
-<img src="https://media.gettr.com/group37/getter/2022/06/04/12/4bbdbf27-37ca-10e1-6f29-32ed0acede76/06d0f2887c030b4d03a23269fe0b8fa8.jpg" width="506" height="284">
 
 ---
 
