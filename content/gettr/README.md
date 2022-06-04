@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/4/2022 3:04 PM UTC ](/content/gettr/p1cotgx2ada.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC people share prosperity year after year.
+
+
+
+2022年6月4日新中国联邦成立两周年—— 新中国联邦人是共富者——年年有余
+
+
+
+#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
+
+<img src="https://media.gettr.com/group29/getter/2022/06/04/15/ccff6de7-3778-0ade-24ed-e41a642acc82/3997626e508150b61a35203c7161a12c.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 2:46 PM UTC ](/content/gettr/p1co4ol69db.md)
 
 June 4th，2022, the 2nd anniversary of the New Federal State of China： Interview with GETTR CEO Mr. Jason Miller:  GETTER platform follows the will of heaven and helps the NFSC to take down the evil CCP!
@@ -11,6 +27,42 @@ June 4th，2022, the 2nd anniversary of the New Federal State of China： Interv
 2022年6月4日新中国联邦成立两周年—— 采访G...
 
 <img src="https://media.gettr.com/group45/getter/2022/06/04/14/6bd88e05-b4c6-c53b-2add-caf3cb264ac1/b8cf9b633cb26164bc6acf704e31aaf2.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 3:09 PM UTC  - :tv:直播](/content/gettr/p1co2j3e050.md)
+
+【NFSC 2nd Anniversary 】06/04/2022  Opening Poem “To CCP” by Miles Guo
+
+
+
+【新中国联邦2周年】06/04/2022 郭文贵先生开场配乐诗《致CCP》
+
+
+
+《致CCP》
+
+  To CCP
+
+
+
+只剩下了你 没听过我的歌
+
+You're the only one who hasn't heard my song
+
+也只剩下了你 不曾爱过我
+
+You’re the only one who...
+
+<img src="https://media.gettr.com/group11/getter/2022/06/04/15/a3cd6bd1-382f-13ef-1748-b637e4d2be2b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 2:56 PM UTC ](/content/gettr/p1cotgu2a9e.md)
+
+June 4th 2022, the 2nd anniversary of the New Federal State of China: Interview with Mr. Bannon, the co-founder of the New Federal State of China. The NFSC is the most powerful communist exterminator. Everything about it is so beau...
+
+<img src="https://media.gettr.com/group45/getter/2022/06/04/14/3cb98204-0416-a619-aac0-927ae98d9028/03961274dade78dfa259c7bc970f1824.jpg" width="506" height="284">
 
 ---
 
@@ -27,14 +79,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China - Opening 
 #新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
 
 <img src="https://media.gettr.com/group45/getter/2022/06/04/14/1d03c0b7-0ed2-61b7-9bef-ba25e7242edc/35ac59e854508cbf91690a960c5cf7a1.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 2:56 PM UTC ](/content/gettr/p1cotgu2a9e.md)
-
-June 4th 2022, the 2nd anniversary of the New Federal State of China: Interview with Mr. Bannon, the co-founder of the New Federal State of China. The NFSC is the most powerful communist exterminator. Everything about it is so beau...
-
-<img src="https://media.gettr.com/group45/getter/2022/06/04/14/3cb98204-0416-a619-aac0-927ae98d9028/03961274dade78dfa259c7bc970f1824.jpg" width="506" height="284">
 
 ---
 
@@ -227,26 +271,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China： the cel
 #新中国联邦 #NFSC  #ROLF #法治基金 #纪念六四 #rememberjune4th...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/04/07/66ca0224-9bfa-2b2e-2e8e-2cab82c35082/e1752f6db40b350fa2d6e789b7e9cbbf.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:48 AM UTC  - :tv:直播](/content/gettr/p1com7u1d82.md)
-
-郭文贵先生油管账号数据被篡改实证
-
-
-
-Evidence of YouTube manipulating and tampering the data of Mr Miles Guo’s account 
-
-<img src="https://media.gettr.com/group23/getter/2022/06/04/10/c1725114-84c8-e644-26a4-04993adefd17/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p1coj7e9dd8.md)
-
-2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
-
-<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
