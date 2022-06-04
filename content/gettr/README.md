@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 6/3/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1ckayofbfb.md)
+[@miles 6/4/2022 1:27 PM UTC  - :tv:直播](/content/gettr/p1co340ce2b.md)
 
-6/3/2022 Miles Guo: The rivalry between the US and Communist China is inevitable! The CCP wants to wait till its GDP surpasses that of the US, then Taiwan will voluntarily submit to Communist China. Now "Xi the Sun" has completely ...
+2022年6月4日 新中国联邦两周年庆典4K
 
-<img src="https://media.gettr.com/group47/getter/2022/06/03/23/8d4dee40-502f-d8ea-8993-37830febeab3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/06/04/13/2e4940b2-602a-9abb-270c-a1836960f2b4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 1:28 PM UTC  - :tv:直播](/content/gettr/p1co1t64099.md)
+
+2022年6月4日 新中国联邦两周年庆典
+
+<img src="https://media.gettr.com/group9/origin/2022/06/04/13/c1cd2c49-783f-cf36-05e1-dfd3c5c867f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ During the 81 short days of the rescue in Medyka , people from the New Federal S
 6/3/2022  Miles Guo: I mentioned Sun Deshun, the former manager of China CITIC group, in my live broadcast in 2017. Sun had tried more than 20 times to make deals with me, but I turned him down and didn't meet him in person at all....
 
 <img src="https://media.gettr.com/group16/getter/2022/06/04/00/c932d6f9-320a-583c-2f02-f975beab1bf7/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1cle39da5b.md)
-
-6/3/2022 Miles Guo: If the CCP exists, China will eventually break into many independent territories, followed by refugee crisis and famine; only when the CCP is taken down and a federalism system is established in China, will Chin...
-
-<img src="https://media.gettr.com/group50/getter/2022/06/03/23/b1adc332-d0da-953e-762f-58d26b242cd9/out.jpg" width="506" height="284">
 
 ---
 
