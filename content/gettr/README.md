@@ -10,6 +10,30 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : All fell
 
 ---
 
+[@miles 6/4/2022 5:46 PM UTC ](/content/gettr/p1coy2p10a9.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whistleblowers' Movement 64 special edition whistle, blowing the strongest sound to take down the CCP.
+
+
+
+2022年6月4日新中国联邦成立两周年—— 爆料革命64特制款哨子，吹响灭共的最强音。
+
+
+
+#新中...
+
+<img src="https://media.gettr.com/group3/getter/2022/06/04/17/81552b37-5ce1-a25f-8762-34732aa9c5fc/8a1fa6decad76d3a15fccba72d9fca45.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 5:41 PM UTC ](/content/gettr/p1coxx2c0fb.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: Representative of the NFSC Farm Alliance. Why does the NFSC need to establish so many farms? A vertical system is bound to foster corruption. The NFSC Farm Alli...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/04/17/83d1c222-16f6-0dbc-de5b-a50348611e75/23eee85383cf7ca64278e828508cb0f7.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 5:27 PM UTC  - :tv:直播](/content/gettr/p1cpd428b8d.md)
 
 2022年6月4日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！祝贺新中国联邦成立2周年！
@@ -59,14 +83,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC 
 #新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
 
 <img src="https://media.gettr.com/group29/getter/2022/06/04/15/ccff6de7-3778-0ade-24ed-e41a642acc82/3997626e508150b61a35203c7161a12c.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 5:41 PM UTC ](/content/gettr/p1coxx2c0fb.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: Representative of the NFSC Farm Alliance. Why does the NFSC need to establish so many farms? A vertical system is bound to foster corruption. The NFSC Farm Alli...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/04/17/83d1c222-16f6-0dbc-de5b-a50348611e75/23eee85383cf7ca64278e828508cb0f7.jpg" width="506" height="284">
 
 ---
 
@@ -237,14 +253,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: A wonderf
 #新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
 
 <img src="https://media.gettr.com/group39/getter/2022/06/04/13/4234ac66-7580-5190-2e3a-792afe1a9d87/42057e44bf683be6426f160ae48c4b87.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 1:28 PM UTC  - :tv:直播](/content/gettr/p1co1t64099.md)
-
-2022年6月4日 新中国联邦两周年庆典
-
-<img src="https://media.gettr.com/group9/origin/2022/06/04/13/c1cd2c49-783f-cf36-05e1-dfd3c5c867f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
