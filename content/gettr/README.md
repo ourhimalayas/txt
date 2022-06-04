@@ -20,6 +20,14 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China - The fell
 
 ---
 
+[@gtranslators_1 6/4/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1conu6547e.md)
+
+SIMULTANEOUS INTERPRETATION⎢2ND ANNIVERSARY OF THE NEW FEDERAL STATE OF CHINA - 22.06.04
+
+<img src="https://media.gettr.com/group18/origin/2022/06/04/09/dc7e56b5-cbe8-1688-b36c-ceccbd3d8b4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1co0te172d.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China - Panoramic 360 of the celebration venue, bursting with the heady tide of the Whistleblowers' Movement.
@@ -38,14 +46,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China - Panorami
 
 ---
 
-[@miles 6/4/2022 1:27 PM UTC  - :tv:直播](/content/gettr/p1co340ce2b.md)
-
-2022年6月4日 新中国联邦两周年庆典4K
-
-<img src="https://media.gettr.com/group17/origin/2022/06/04/13/2e4940b2-602a-9abb-270c-a1836960f2b4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 6/4/2022 1:43 PM UTC  - 3圖](/content/gettr/p1co82fb6b3.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China: A wonderful day starts with breakfast.
@@ -59,6 +59,14 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: A wonderf
 #新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
 
 <img src="https://media.gettr.com/group39/getter/2022/06/04/13/4234ac66-7580-5190-2e3a-792afe1a9d87/42057e44bf683be6426f160ae48c4b87.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 1:27 PM UTC  - :tv:直播](/content/gettr/p1co340ce2b.md)
+
+2022年6月4日 新中国联邦两周年庆典4K
+
+<img src="https://media.gettr.com/group17/origin/2022/06/04/13/2e4940b2-602a-9abb-270c-a1836960f2b4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -221,22 +229,6 @@ https://gnews.org/22...
 [@miles 6/4/2022 3:02 AM UTC ](/content/gettr/p1cl0en4f7a.md)
 
 2022-6-3《鸡血王喜币大作战》 第二百一十五集 嘉宾：青藤, Happy
-
----
-
-[@miles 6/4/2022 2:31 AM UTC ](/content/gettr/p1cl47b3d96.md)
-
-How to join the Whistleblower Movement
-
-Step 1: Register Gmail, download Gettr app and Discord software
-
-Step 2: Search in Discord: "喜马拉雅联盟大使馆客服中心"
-
-           Search in Gettr: "全球喜马拉雅农场联盟委员会" 
-
-Step 3: Choose any farm you like and...
-
-<img src="https://media.gettr.com/group18/origin/2022/06/04/02/ed4456da-41f0-bf49-9297-8b422cf23811/38618ff5454687c7b97956c9f49d02fc.jpg" width="506" height="284">
 
 ---
 
