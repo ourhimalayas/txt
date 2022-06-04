@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/3/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1ckayofbfb.md)
+
+6/3/2022 Miles Guo: The rivalry between the US and Communist China is inevitable! The CCP wants to wait till its GDP surpasses that of the US, then Taiwan will voluntarily submit to Communist China. Now "Xi the Sun" has completely ...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/03/23/8d4dee40-502f-d8ea-8993-37830febeab3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/3/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1cl4d7d59f.md)
 
 Nicholas, a commander-in-chief of the Medyka Rescue Camp Management Committee, was interviewed by Nicole and praised the fast and effective cooperation of the NFSC with his counterparts during the war crisis, which was very encoura...
@@ -50,11 +58,11 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 
 ---
 
-[@miles 6/3/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1ckayofbfb.md)
+[@miles 6/3/2022 11:59 PM UTC  - :tv:直播](/content/gettr/p1cle39da5b.md)
 
-6/3/2022 Miles Guo: The rivalry between the US and Communist China is inevitable! The CCP wants to wait till its GDP surpasses that of the US, then Taiwan will voluntarily submit to Communist China. Now "Xi the Sun" has completely ...
+6/3/2022 Miles Guo: If the CCP exists, China will eventually break into many independent territories, followed by refugee crisis and famine; only when the CCP is taken down and a federalism system is established in China, will Chin...
 
-<img src="https://media.gettr.com/group47/getter/2022/06/03/23/8d4dee40-502f-d8ea-8993-37830febeab3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/06/03/23/b1adc332-d0da-953e-762f-58d26b242cd9/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ The NFSC and the ROLF’s humanitarian rescue operation in Medyka is coming to a
 七哥真的是太让人感动，什么事情都亲力亲为，对人掏心掏肺的好，七哥用他的行动教...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/31/02/6d53371d-88c2-2b43-784a-c0c7abeaeb94/d6cad938e2b02d17086e92adedacd938.jpg" width="506" height="284">
-
----
-
-[@globalalliance 6/2/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1cc47pd9e3.md)
-
-2022.06.01 新中国联邦 | 喜财经  第66期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天
-
-<img src="https://media.gettr.com/group44/origin/2022/06/02/02/49454417-10a3-3edd-a4d9-e8d6a82c677d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
