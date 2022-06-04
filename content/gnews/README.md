@@ -2,8 +2,41 @@
 ---
 
 
+#### [G fashion照片合集](/content/gnews/2660438.md)
+ `【🌹玫瑰新闻】`
+
+#### [6月4日凌晨的一个梦](/content/gnews/2660429.md)
+ `波士顿五月花农场`
+
+#### [2022年6月3日郭先生战友见面会谈数字货币：货币发展史回顾 信用是货币的本质](/content/gnews/2660418.md)
+ `秘密翻译组-原创组`
+
+#### [【说事儿】华尔街与中共将很快决裂](/content/gnews/2660409.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】中共试图让海外反共活动家闭嘴](/content/gnews/2660402.md)
+ `TokyoSakuraDesignGroup`
+
+#### [20220603郭文贵战友见面会直播 ：曼哈顿新金融城的重建（华尔街）](/content/gnews/2660395.md)
+ `Tokyo Sakura Video Group`
+
+#### [【说事儿】立陶宛外长希望由G7取代联合国安理会常任理事国](/content/gnews/2660389.md)
+ `TokyoSakuraDesignGroup`
+
+#### [中日财经爆｜美国游说下 英国审查中共公司对英国晶圆厂的收购交易](/content/gnews/2660385.md)
+ `东京樱花团`
+
 #### [美国对中共的政策会先考虑其金融集团的利益](/content/gnews/2660353.md)
  `墨尔本雅典娜农场`
+
+#### [这是在威胁全世界吗？](/content/gnews/2660351.md)
+ `Tokyo Sakura Video Group`
+
+#### [智利新任社会主义总统的社会主义誓言](/content/gnews/2660350.md)
+ `Tokyo Sakura Video Group`
+
+#### [外国女士的背后有一个强大的国家！](/content/gnews/2660348.md)
+ `Tokyo Sakura Video Group`
 
 #### [“六四33周年”天安门母亲继续为死去的英灵发声｜粤时报](/content/gnews/2660342.md)
  `秘密翻译组-即时新闻播报组`
@@ -11,17 +44,11 @@
 #### [安徽阜阳，有村民发现自家农田里的麦子，突然冒起浓烟](/content/gnews/2660322.md)
  `Tokyo Sakura Video Group`
 
-#### [办张银行卡还要有担保人？](/content/gnews/2660320.md)
- `Tokyo Sakura Video Group`
-
-#### [中共国拍摄现场，死了爹妈的大白，演的不错！](/content/gnews/2660318.md)
- `Tokyo Sakura Video Group`
-
-#### [美国国务院发表《天安门广场33周年》声明](/content/gnews/2660302.md)
- `温哥华扬帆农场`
-
 #### [中共过去对日本加入G7和入常的叫嚣和恐惧](/content/gnews/2660283.md)
  `喜马拉雅-华盛顿DC农场`
+
+#### [八九六四&#8211;魂去魂来](/content/gnews/2660281.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [王毅说中共国将与俄罗斯共同促进世界“真正的民主”](/content/gnews/2660244.md)
  `秘密翻譯組G-Translators`
@@ -100,9 +127,6 @@
 
 #### [多伦多警方撤销疫苗强制](/content/gnews/2659362.md)
  `温哥华扬帆农场`
-
-#### [2022年6月4日《樱花简报》：热烈庆祝新中国联邦建立两周年](/content/gnews/2659216.md)
- `东京樱花团`
 
 #### [美国FBI局长：中共意图利用黑客力量统治全球科技行业](/content/gnews/2659214.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
