@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/4/2022 8:04 PM UTC  - 2圖](/content/gettr/p1cpyty6e3a.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: Ukraine Rescue frontline representatives, Nicole, Renee, and Dr Wen Zi, are the most beautiful flowers of the NFSC. Practicality, and the ability to execute is ...
+
+<img src="https://media.gettr.com/group43/getter/2022/06/04/20/185980c5-478e-4c97-2a58-90b35981fd5f/48fa4cd0de66b327781ece4988422447.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 6:23 PM UTC ](/content/gettr/p1cpiid7b7b.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China: For the first time in history, the NFSC rallied the Chinese people together in unison to take down the CCP, thanks to every single donor to the Rule of Law Foun...
@@ -10,11 +18,11 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: For the f
 
 ---
 
-[@miles 6/4/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1coz8aa4e2.md)
+[@miles 6/4/2022 8:10 PM UTC  - :tv:直播](/content/gettr/p1cptcq3baf.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Thank every citizen of the New Federal State of China and every fellow fighter of the Whistleblowers’ Movement for the efforts you made! We are celebrating not only the second anniversa...
+【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: The efforts of the fellow fighters of the New Federal State of China in the Ukraine rescue operation and New York City have shown the world the image of the new China and the new Chinese...
 
-<img src="https://media.gettr.com/group27/getter/2022/06/04/18/55ef3c01-352f-1d11-9a6b-c08817235a5b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/06/04/20/9fc93df4-8589-7eec-31d0-dba41bd56947/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +35,14 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whist
 2022年6月...
 
 <img src="https://media.gettr.com/group25/getter/2022/06/04/18/a00354f0-0886-5141-beae-206603fcdad1/20feabb982d7dec8cdad20d7861ad361.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1coz8aa4e2.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Thank every citizen of the New Federal State of China and every fellow fighter of the Whistleblowers’ Movement for the efforts you made! We are celebrating not only the second anniversa...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/04/18/55ef3c01-352f-1d11-9a6b-c08817235a5b/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,28 +223,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China : Gratitud
 22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
 
 <img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtranslators_2 6/4/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1cok992017.md)
-
-22年6月4日美东上午同声传译⎢新中国联邦成立2周年庆典
-
-<img src="https://media.gettr.com/group38/origin/2022/06/04/12/7be2fcaf-471b-73ac-b6ce-93fd875ba7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1co5lv7bf3.md)
-
- June 4th, 2022, the 2nd anniversary of the New Federal State of China - Fellow Fighters chorus LIVE version of "A Roar of the Vast Sea", the NFSC people will never be enslaved!
-
-
-
-2022年6月4日新中国联邦成立两周年—— 战友合唱LIVE版《沧海一声笑》新中国联邦人永不为奴
-
-...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/04/14/0b2b03e4-b17c-b816-b4b4-eeda479e4544/out.jpg" width="506" height="284">
 
 ---
 
