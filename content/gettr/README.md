@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 6/4/2022 5:36 PM UTC ](/content/gettr/p1cpfsi4fd2.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China : All fellow fighters, as long as you guard the red line of the law and the red line of the extermination of the CCP, there is no barrier that cannot be overcome...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/04/17/39e6612d-83d0-859d-fdcb-effa480e8c49/88ed1c421f46bbab764468cc9d60d88a.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 5:27 PM UTC  - :tv:直播](/content/gettr/p1cpd428b8d.md)
+
+2022年6月4日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！祝贺新中国联邦成立2周年！
+
+
+
+06/04/2022 Rule of Law Foundation and Society donors messages collection. Rule of Law Foundation and Society appreciate all of our supporters and donors! Celebra...
+
+<img src="https://media.gettr.com/group16/getter/2022/06/04/17/ec3425c9-b764-0840-e7ad-85209c4abac2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 5:01 PM UTC  - :tv:直播](/content/gettr/p1coq745db3.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China:  The Whistleblowers’ Movement Iron-Blood Team (Mulan and Grassroots Brother are represented), salute to the heaven, to the earth, to all  the fellow fighters 🌹...
@@ -42,15 +62,11 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC 
 
 ---
 
-[@miles 6/4/2022 5:27 PM UTC  - :tv:直播](/content/gettr/p1cpd428b8d.md)
+[@miles 6/4/2022 5:41 PM UTC ](/content/gettr/p1coxx2c0fb.md)
 
-2022年6月4日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！祝贺新中国联邦成立2周年！
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: Representative of the NFSC Farm Alliance. Why does the NFSC need to establish so many farms? A vertical system is bound to foster corruption. The NFSC Farm Alli...
 
-
-
-06/04/2022 Rule of Law Foundation and Society donors messages collection. Rule of Law Foundation and Society appreciate all of our supporters and donors! Celebra...
-
-<img src="https://media.gettr.com/group16/getter/2022/06/04/17/ec3425c9-b764-0840-e7ad-85209c4abac2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/06/04/17/83d1c222-16f6-0dbc-de5b-a50348611e75/23eee85383cf7ca64278e828508cb0f7.jpg" width="506" height="284">
 
 ---
 
@@ -224,27 +240,11 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: A wonderf
 
 ---
 
-[@miles 6/4/2022 1:27 PM UTC  - :tv:直播](/content/gettr/p1co340ce2b.md)
-
-2022年6月4日 新中国联邦两周年庆典4K
-
-<img src="https://media.gettr.com/group17/origin/2022/06/04/13/2e4940b2-602a-9abb-270c-a1836960f2b4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 6/4/2022 1:28 PM UTC  - :tv:直播](/content/gettr/p1co1t64099.md)
 
 2022年6月4日 新中国联邦两周年庆典
 
 <img src="https://media.gettr.com/group9/origin/2022/06/04/13/c1cd2c49-783f-cf36-05e1-dfd3c5c867f9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1coiggcf4e.md)
-
-2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
-
-<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
