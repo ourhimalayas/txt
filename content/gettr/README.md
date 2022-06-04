@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/4/2022 4:50 PM UTC  - :tv:直播](/content/gettr/p1cphex8c28.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Jason Miller, GETTR CEO: We have to separate very clearly the Chinese people from the Chinese Communist Party. The CCP is a thuggish mob like dictatorship. But it all comes down to free speech. We ...
+
+<img src="https://media.gettr.com/group4/getter/2022/06/04/16/cabc9d73-4c41-2aa4-685a-76e086c802cc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 3:43 PM UTC  - 2圖](/content/gettr/p1cp7wf7dc8.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China : The NFSC has saved hundreds of millions of lives, all on-site luxury goods coming from G-Series investors' donations. Today, we have invited a famous Japanese ...
@@ -26,11 +34,11 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The NFSC 
 
 ---
 
-[@miles 6/4/2022 4:50 PM UTC  - :tv:直播](/content/gettr/p1cphex8c28.md)
+[@miles 6/4/2022 5:01 PM UTC  - :tv:直播](/content/gettr/p1coq745db3.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 Jason Miller, GETTR CEO: We have to separate very clearly the Chinese people from the Chinese Communist Party. The CCP is a thuggish mob like dictatorship. But it all comes down to free speech. We ...
+June 4th, 2022, the 2nd anniversary of the New Federal State of China:  The Whistleblowers’ Movement Iron-Blood Team (Mulan and Grassroots Brother are represented), salute to the heaven, to the earth, to all  the fellow fighters 🌹...
 
-<img src="https://media.gettr.com/group4/getter/2022/06/04/16/cabc9d73-4c41-2aa4-685a-76e086c802cc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/06/04/17/4ffab38e-8a87-8ea8-78d5-36296d9551fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -225,24 +233,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: A wonderf
 2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
 
 <img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 12:11 PM UTC  - 2圖](/content/gettr/p1co2si3129.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China:
-
- A festival of revelry for the fellow fighters, cheers, to finish off the evil CCP!
-
-
-
-2022年6月4日新中国联邦成立两周年—— 战友们狂欢的节日，干杯，不醉不归，只为干掉邪恶的共产党！
-
-
-
-#新中国联邦 #NFSC #ROLF...
-
-<img src="https://media.gettr.com/group20/getter/2022/06/04/12/d5e4df22-c56d-c1c5-1a09-330b8969fd6e/2911a54316eb8d8a5c4cbb6ad4710545.jpg" width="506" height="284">
 
 ---
 
