@@ -2,6 +2,14 @@
 ---
 
 
+[@gtranslators_1 6/4/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1conu6547e.md)
+
+SIMULTANEOUS INTERPRETATION⎢2ND ANNIVERSARY OF THE NEW FEDERAL STATE OF CHINA - 22.06.04
+
+<img src="https://media.gettr.com/group18/origin/2022/06/04/09/dc7e56b5-cbe8-1688-b36c-ceccbd3d8b4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 1:39 PM UTC  - :tv:直播](/content/gettr/p1cnxvy94ba.md)
 
 June 4th, 2022, the 2nd anniversary of the New Federal State of China - The fellow fighters are preparing meticulously, time travels and the celebration is about to begin 🥳
@@ -20,11 +28,17 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China - The fell
 
 ---
 
-[@gtranslators_1 6/4/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1conu6547e.md)
+[@miles 6/4/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1co5lv7bf3.md)
 
-SIMULTANEOUS INTERPRETATION⎢2ND ANNIVERSARY OF THE NEW FEDERAL STATE OF CHINA - 22.06.04
+ June 4th, 2022, the 2nd anniversary of the New Federal State of China - Fellow Fighters chorus LIVE version of "A Roar of the Vast Sea", the NFSC people will never be enslaved!
 
-<img src="https://media.gettr.com/group18/origin/2022/06/04/09/dc7e56b5-cbe8-1688-b36c-ceccbd3d8b4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年6月4日新中国联邦成立两周年—— 战友合唱LIVE版《沧海一声笑》新中国联邦人永不为奴
+
+...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/04/14/0b2b03e4-b17c-b816-b4b4-eeda479e4544/out.jpg" width="506" height="284">
 
 ---
 
@@ -223,12 +237,6 @@ English,Chinese,Japanese,French,Spanish, Russian, Danish, Korean, Arabic, Dutch,
 
 
 https://gnews.org/22...
-
----
-
-[@miles 6/4/2022 3:02 AM UTC ](/content/gettr/p1cl0en4f7a.md)
-
-2022-6-3《鸡血王喜币大作战》 第二百一十五集 嘉宾：青藤, Happy
 
 ---
 
