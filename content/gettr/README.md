@@ -18,11 +18,27 @@
 
 ---
 
+[@miles 6/4/2022 9:47 PM UTC  - :tv:直播](/content/gettr/p1cq5kc8ed6.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 When asked about his views on the prospect of the NFSC getting formal recognition, Mr. Steve Bannon suggested that the NFSC can get it by promoting itself to NGOs and other organizations, as well a...
+
+<img src="https://media.gettr.com/group30/getter/2022/06/04/21/2ab9233f-d7d2-4d96-19b0-e253046dc225/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1cq0e73114.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Mr. Steve Bannon: 99.9% of the American people are unaware that the CCP is a very small organization, although it controls the entire China. One of the most powerful things that Miles Guo has accomp...
 
 <img src="https://media.gettr.com/group3/getter/2022/06/04/21/20347c1a-4c8b-9e02-e951-816f34444542/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 9:42 PM UTC  - :tv:直播](/content/gettr/p1cpnonb719.md)
+
+2022年6月4日 新中国联邦两周年庆典 战友大连线 4K版
+
+<img src="https://media.gettr.com/group18/origin/2022/06/04/21/d30bd007-7ac1-9f58-24a0-a63e79c8f0c0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -35,14 +51,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: Thanks to
 2022年6月4日新中国联邦成立两周年—— 感谢镜头背后...
 
 <img src="https://media.gettr.com/group13/getter/2022/06/04/21/5cc8b273-598d-2dfd-aa14-f51edf09d1bb/25eec43fe6fc04c2e67da1c9e6d98e21.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:42 PM UTC  - :tv:直播](/content/gettr/p1cpnonb719.md)
-
-2022年6月4日 新中国联邦两周年庆典 战友大连线 4K版
-
-<img src="https://media.gettr.com/group18/origin/2022/06/04/21/d30bd007-7ac1-9f58-24a0-a63e79c8f0c0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whist
 #新中...
 
 <img src="https://media.gettr.com/group3/getter/2022/06/04/17/81552b37-5ce1-a25f-8762-34732aa9c5fc/8a1fa6decad76d3a15fccba72d9fca45.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 5:36 PM UTC ](/content/gettr/p1cpfsi4fd2.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China : All fellow fighters, as long as you guard the red line of the law and the red line of the extermination of the CCP, there is no barrier that cannot be overcome...
-
-<img src="https://media.gettr.com/group34/getter/2022/06/04/17/39e6612d-83d0-859d-fdcb-effa480e8c49/88ed1c421f46bbab764468cc9d60d88a.jpg" width="506" height="284">
 
 ---
 
