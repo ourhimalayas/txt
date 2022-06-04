@@ -10,6 +10,26 @@
 
 ---
 
+[@miles 6/4/2022 10:48 AM UTC  - :tv:直播](/content/gettr/p1com7u1d82.md)
+
+郭文贵先生油管账号数据被篡改实证
+
+
+
+Evidence of YouTube manipulating and tampering the data of Mr Miles Guo’s account 
+
+<img src="https://media.gettr.com/group23/getter/2022/06/04/10/c1725114-84c8-e644-26a4-04993adefd17/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p1coj7e9dd8.md)
+
+2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
+
+<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 10:18 AM UTC  - :tv:直播](/content/gettr/p1cn5mxb490.md)
 
 06/04/2022 Mr. Miles Guo congratulates the 2nd anniversary of the New Federal State of China! On this wonderful day, may all gods bless the New Federal State of China, all our fellow fighters and families with peace and health! Vic...
@@ -35,14 +55,6 @@ On May 29, Mr. Miles Guo blew the whistle that the student protests are ineffect
 6/3/2022 Miles Guo: The Himalaya Coin is the only digital coin in the world that was paid for by the institutional investors prior to its launch. The Himalaya Coin is backed by the New Federal State of China, which brings it the bi...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/04/03/4f4a3b83-a917-d0a1-a30d-c48ee1c4490f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p1coj7e9dd8.md)
-
-2022年6月4日 纽约香草山农场庆祝新中国联邦成立两周年
-
-<img src="https://media.gettr.com/group14/origin/2022/06/04/10/82662ee0-97e4-7786-342f-c501cc3428c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,34 +205,6 @@ Recalling 8964 on June 22, 2019, Miles Guo says that an army officer told him th
 2022.06.03 郭先生战友见面会
 
 <img src="https://media.gettr.com/group34/origin/2022/06/03/14/23e05270-a36d-2cd6-5d87-3a9e1c47724e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/3/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p1cij1fb367.md)
-
-在新中国联邦成立两周年之际，纽约香草山农场也迎来两周岁生日。
-
-
-
-在此，我谨代表香草山农场管理委员会所有委员衷心感谢各位战友的相伴和付出。谢谢！ 
-
-
-
-过去的一年，我们一起经历风雨，同舟共济，见证了香草山村晋级为香草山市！但我们并未因此自满而停止脚步，而是百尺竿头更进一步，继续保持高调做事、低调做人的风格，直面更多挑战！
-
- 
-
-消灭中共、传播爆料革命和服务战友始终是我们的使命！念念不忘，必有回响！
-
-
-
-接下来的路，愿我们继续相伴而行🤝
-
-
-
-香草山...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/03/13/26ca8237-be19-927c-792c-c244709fee55/out.jpg" width="506" height="284">
 
 ---
 
