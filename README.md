@@ -11,6 +11,12 @@
 
 ---
 
+#### [NFSC两周年庆典&#8211;郭先生谈15年茅台](/content/gnews/2663849.md)
+ `波士顿五月花农场`
+
+#### [NFSC两周年庆典&#8211;郭先生与铁血组对谈](/content/gnews/2663831.md)
+ `波士顿五月花农场`
+
 #### [任何到前线救战友的战友掉一根汗毛都会被冷酷地踢出去](/content/gnews/2663820.md)
  `喜马拉雅日本银河系农场`
 
@@ -32,17 +38,8 @@
 #### [新加坡狮城农场纪念六四短片——不能忘却的日子](/content/gnews/2663733.md)
  `新加坡狮城农场 Himalaya Singapore`
 
-#### [狮城快讯：通过物价涨落，看到抗疫的失败](/content/gnews/2663726.md)
- `新加坡狮城农场 Himalaya Singapore`
-
 #### [中共国要求美国停止与台湾的贸易谈判](/content/gnews/2663716.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [2022.6.4新中国联邦建立2周年庆典 爆料革命快乐灭共、健康灭共、享受灭共](/content/gnews/2663706.md)
- `秘密翻译组-原创组`
-
-#### [狮城快讯：战友有苗无苗都可入境泰国方案](/content/gnews/2663693.md)
- `新加坡狮城农场 Himalaya Singapore`
 
 #### [新中国联邦人要过有品质的生活](/content/gnews/2663673.md)
  `秘密翻譯組G-Translators`
@@ -50,17 +47,11 @@
 #### [从陈毅《梅岭三章》看中共的洗脑话术](/content/gnews/2663625.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年6月4日早](/content/gnews/2663536.md)
- `纽约香草山MOS01`
-
 #### [谴责中共天安门大屠杀！布林肯发表八九六四事件33周年声明](/content/gnews/2663483.md)
  `TokyoSakura Politics/樱花时政`
 
 #### [2022年6月4日，全球中共病毒疫情情况汇总](/content/gnews/2663442.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [聚焦：以六.四作为新中国联邦建国日的意义](/content/gnews/2663401.md)
- `蓝莲花农场`
 
 #### [2022/05/30 墙内世界](/content/gnews/2663360.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -94,15 +85,6 @@
 
 #### [俄罗斯侵乌第100天，袭击东部城市，乌克兰人坚守阵地](/content/gnews/2663113.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [不能忘却的记忆](/content/gnews/2663108.md)
- `NFSC News`
-
-#### [有声&#124;美新发表联合声明，正视来自中共的威胁](/content/gnews/2663087.md)
- `MOSREC`
-
-#### [分析师：伊朗距离 4 枚“粗制”核武器仅 3 个月的时间](/content/gnews/2663072.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [现在更多的乌克兰人返回家园而不是逃离](/content/gnews/2663015.md)
  `xiaobaige`
