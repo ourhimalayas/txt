@@ -11,6 +11,21 @@
 
 ---
 
+#### [新中国联邦人逆流而上营救乌克兰儿童](/content/gnews/2670317.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [贝莱德CEO表示通胀将持续数年](/content/gnews/2670313.md)
+ `NFSC News`
+
+#### [执行联合国任务的加拿大军机遭中共拦截](/content/gnews/2670305.md)
+ `NFSC News`
+
+#### [韩国解除未接种疫苗旅客入境隔离措施](/content/gnews/2670300.md)
+ `NFSC News`
+
+#### [贵广线高铁出轨致1死8伤](/content/gnews/2670289.md)
+ `NFSC News`
+
 #### [COVID-19疫苗副作用集萃（2022.6.6B）新冠疫苗膝盖，关节疼](/content/gnews/2670278.md)
  `墨尔本雅典娜农场`
 
@@ -19,6 +34,9 @@
 
 #### [COVID-19疫苗副作用集萃（2022.6.5A）第三针加强针](/content/gnews/2670224.md)
  `墨尔本雅典娜农场`
+
+#### [中共控制的公司欲收购美国福布斯媒体](/content/gnews/2670215.md)
+ `mayflowertranslate`
 
 #### [回望六四:自由思想启蒙&amp;民众觉醒&amp;高层政斗&amp;国际推动](/content/gnews/2670206.md)
  `mary202064`
@@ -65,9 +83,6 @@
 #### [美国将允许两家公司将委内瑞拉石油运往欧洲](/content/gnews/2669930.md)
  `波士顿五月花农场金融部`
 
-#### [西喜时事新闻简报 — 台海局势时事篇](/content/gnews/2669912.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [台湾数百人集会纪念天安门事件](/content/gnews/2669887.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -89,19 +104,10 @@
 #### [美国经济衰退迫在眉睫，不可避免？（一）](/content/gnews/2669738.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [美韩在朝鲜可能进行核试验前联合军演](/content/gnews/2669690.md)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [多国驻港澳总领馆云纪念8964](/content/gnews/2669635.md)
  `NFSC News`
 
 #### [班农先生称新中国联邦将成为中流砥柱](/content/gnews/2669634.md)
- `NFSC News`
-
-#### [全球农场制度是新中国联邦的基石](/content/gnews/2669633.md)
- `NFSC News`
-
-#### [爆料革命战友应牢记灭共使命](/content/gnews/2669632.md)
  `NFSC News`
 
 #### [有声&#124;高血压患者的健身注意事项以及运动种类的选择](/content/gnews/2669606.md)
@@ -118,9 +124,6 @@
 
 #### [中共军机企图在南中国海制造事端](/content/gnews/2668813.md)
  `秘密翻譯組G-Translators`
-
-#### [喜联储创始人谈Terra 稳定币崩溃带来的思考](/content/gnews/2668802.md)
- `NFSC News`
 
 #### [冠状病毒和疫苗就是中共的蠱：恐怖的二元毒剂（下）](/content/gnews/2668785.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -142,9 +145,6 @@
 
 #### [俄罗斯军队导弹攻击基辅 乌克兰军队进行反击](/content/gnews/2668329.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [六四发生的原因依然存在](/content/gnews/2668170.md)
- `NFSC News`
 
 #### [关于6.4的诗《牙痛》（外一首）](/content/gnews/2668032.md)
  `秘密翻譯組G-Translators`
