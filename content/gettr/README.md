@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 6/5/2022 6:30 AM UTC  - :tv:直播](/content/gettr/p1crr9r2f09.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo: To all those in Communist China, members of the CCP, and those in the CCP's system, you will be rewarded with Himalaya Coins as long as you can provide the information that is helpful for...
+
+<img src="https://media.gettr.com/group26/getter/2022/06/05/06/3fa18205-4581-a9e8-8865-564ee3ccce37/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 6:32 AM UTC  - :tv:直播](/content/gettr/p1cripa761a.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The farm system of the New Federal State of China is a two-tier parallel system, which is different from the vertical system that can easily breeds corruption and bureaucracy. The design...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/05/06/9943f494-f13a-111f-4e81-457039de589c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 6:36 AM UTC  - :tv:直播](/content/gettr/p1craix701b.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The CCP has been frantically deleting data from social media world wide. This is absolutely a state level act! The CCP is so fearful! It was the June 4th incident in 1989 that sowed the s...
+
+<img src="https://media.gettr.com/group39/getter/2022/06/05/06/75d544f6-d78e-3a2f-bcf6-2862d9ef4176/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 5:25 AM UTC  - :tv:直播](/content/gettr/p1crskp2589.md)
 
 《往事不再如烟》
@@ -49,6 +73,14 @@
 荡...
 
 <img src="https://media.gettr.com/group25/origin/2022/06/05/05/8be75a30-f63b-b3e5-f5a1-d3229675bfa8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 6:38 AM UTC  - :tv:直播](/content/gettr/p1crqyo88ae.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: No other organization in the world has been able to achieve as much remarkable success within a year or two as the New Federal State of China, despite the constant attacks from the CCP! ...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/05/06/0c84485b-8481-40c3-efea-bd44ed690a34/out.jpg" width="506" height="284">
 
 ---
 
@@ -229,46 +261,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 【NFSC 2nd Anniversary 】06/04/2022 When asked about his views on the prospect of the NFSC getting formal recognition, Mr. Steve Bannon suggested that the NFSC can get it by promoting itself to NGOs and other organizations, as well a...
 
 <img src="https://media.gettr.com/group30/getter/2022/06/04/21/2ab9233f-d7d2-4d96-19b0-e253046dc225/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:30 PM UTC  - :tv:直播](/content/gettr/p1cq2xk6994.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: The NFSC people have set an example to the Chinese people all over the world, and I feel empowered to be with you.
-
-
-
-【新中国联邦2周年】06/04/2022 史蒂夫·班农：新中国联邦人给全世界的华人做出了榜样，和你们在一起我深受鼓舞。
-
-
-
-#新...
-
-<img src="https://media.gettr.com/group20/getter/2022/06/04/21/f3f2d2d4-eb1c-b2ca-ddbe-012a4796e8cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1cq0e73114.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Mr. Steve Bannon: 99.9% of the American people are unaware that the CCP is a very small organization, although it controls the entire China. One of the most powerful things that Miles Guo has accomp...
-
-<img src="https://media.gettr.com/group3/getter/2022/06/04/21/20347c1a-4c8b-9e02-e951-816f34444542/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:42 PM UTC  - :tv:直播](/content/gettr/p1cpnonb719.md)
-
-2022年6月4日 新中国联邦两周年庆典 战友大连线 4K版
-
-<img src="https://media.gettr.com/group18/origin/2022/06/04/21/d30bd007-7ac1-9f58-24a0-a63e79c8f0c0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:28 PM UTC  - :tv:直播](/content/gettr/p1cq4bfa85a.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon expresses with emotion that the achievements of the NFSC in the past two years are incomparable and that we have proved that the CCP's claim that the Chinese cannot handle freedom and ca...
-
-<img src="https://media.gettr.com/group29/getter/2022/06/04/21/69d4964b-852a-8510-76bb-f084fdc0de4b/out.jpg" width="506" height="284">
 
 ---
 
