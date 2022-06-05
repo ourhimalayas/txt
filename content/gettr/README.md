@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 6/4/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1cqii7dd68.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have b...
-
-<img src="https://media.gettr.com/group8/getter/2022/06/04/23/c172f056-223e-2871-5ba6-becce703c082/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/5/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1cqvbe56ee.md)
 
 【NFSC 2nd Anniversary】06/04/2022: Connie H. Morgan: The Himalaya Coin is very clean. That's why it was so stable when the rest of the cryptocurrencies were falling.
@@ -23,6 +15,22 @@
 #...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/05/01/b4ebcfd8-b4ac-3bef-cc8e-537187fa6867/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1cqii7dd68.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have b...
+
+<img src="https://media.gettr.com/group8/getter/2022/06/04/23/c172f056-223e-2871-5ba6-becce703c082/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1cqv6q4c7e.md)
+
+Brothers and sisters of the Taiwanese farm wish a happy birthday on the second anniversary of the new federation of China! We will definitely eliminate the evil Communist Party as soon as possible, realize our Himalayas together, a...
+
+<img src="https://media.gettr.com/group50/origin/2022/06/05/03/eedfd33d-2cd9-5b32-a504-1436509fa73c/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,22 +183,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China celebratio
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon expresses with emotion that the achievements of the NFSC in the past two years are incomparable and that we have proved that the CCP's claim that the Chinese cannot handle freedom and ca...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/04/21/69d4964b-852a-8510-76bb-f084fdc0de4b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:11 PM UTC  - 3圖](/content/gettr/p1cq6v60c28.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: Mr. Peter Navarro, the spokesman of the NFSC and a friend of the Chinese forever.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 皮特·纳瓦罗先生，新中国联邦形象代言人，中国人永远的朋友。
-
-
-
-#新中国联邦 #NFSC #ROLF #...
-
-<img src="https://media.gettr.com/group28/getter/2022/06/04/21/d7a03298-3966-ee25-8ccd-b4dcb0188448/c21e77d076f1dca37eda479aa4f60724.jpg" width="506" height="284">
 
 ---
 
