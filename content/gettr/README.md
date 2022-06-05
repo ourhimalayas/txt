@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/5/2022 7:32 AM UTC  - :tv:直播](/content/gettr/p1crgv3e3da.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: I believe that the CCP will actually fall before the NFSC has to get recognition from the American government. I actually think with this economic collapse and what they've done on th...
+
+<img src="https://media.gettr.com/group10/getter/2022/06/05/07/7671527e-4fd8-f643-58ed-5cd2966994be/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1crpfc21ea.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/5/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p1crxtoddf8.md)
+[@miles 6/5/2022 7:39 AM UTC  - :tv:直播](/content/gettr/p1cryit109f.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
+【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo pointed out the three features that distinguish HCN from other tokens in the crypto market: 1. It carries a value and the hope of the Chinese people to take down the CCP; 2. it is mat...
 
-<img src="https://media.gettr.com/group41/getter/2022/06/05/07/284811e2-e4fb-9b6f-416f-7e17dee37218/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/06/05/07/4ebe03c2-ca37-9edc-f25d-db75d96d5421/out.jpg" width="506" height="284">
 
 ---
 
@@ -26,19 +34,19 @@
 
 ---
 
+[@miles 6/5/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p1crxtoddf8.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
+
+<img src="https://media.gettr.com/group41/getter/2022/06/05/07/284811e2-e4fb-9b6f-416f-7e17dee37218/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 7:05 AM UTC  - :tv:直播](/content/gettr/p1cru7g0038.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. The Chinese should be treated as ...
 
 <img src="https://media.gettr.com/group35/getter/2022/06/05/07/07b031b5-c56f-33f4-3a24-c97245e3eaa2/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 7:09 AM UTC  - :tv:直播](/content/gettr/p1cs1ji8520.md)
-
-【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
-
-<img src="https://media.gettr.com/group36/getter/2022/06/05/07/e62acbae-8bbe-14ae-faed-244558f1eab6/out.jpg" width="506" height="284">
 
 ---
 
@@ -253,14 +261,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 【NFSC 2nd Anniversary 】06/04/2022：Japan has made it very clear that they will set up offices of governmental organizations in Taiwan. The U.S. told the CCP clearly that Japan will surely join the UN and become a permanent member, a...
 
 <img src="https://media.gettr.com/group13/getter/2022/06/04/23/107fdca1-b519-e5c3-17ad-121bebb1b2e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1cq5n43153.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo talks about and reveals the CCP’s plan to create  a "Gold Brick Financial System" with a few rogue banks overseas which is actually a system for the CCP to hide their wealth overseas. He ...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/04/22/a1fcda7f-a039-8709-b92d-5787b79b3181/out.jpg" width="506" height="284">
 
 ---
 
