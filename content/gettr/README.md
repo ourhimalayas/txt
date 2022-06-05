@@ -2,6 +2,36 @@
 ---
 
 
+[@miles 6/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1cu9vt9834.md)
+
+2022年6月5日 七哥与爆二代乱聊直播
+
+<img src="https://media.gettr.com/group27/origin/2022/06/05/23/b8f7c68c-defd-c5e3-ee12-2a7c3a238e39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1cupqz0ff7.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. The Chinese should be treated as ...
+
+<img src="https://media.gettr.com/group6/getter/2022/06/05/23/43d1c5f5-6f65-4447-b7b5-bb003aec3a3c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1cud4j071f.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 The first elevator I took to go upstairs was hacked and stopped working. The world's top-notch bankruptcy law firm, where my bankruptcy attorney works, was also hacked and blacked out. The CCP woul...
+
+<img src="https://media.gettr.com/group20/getter/2022/06/05/23/22c2e7ce-7a63-f69c-8517-98f616b770cf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 6:37 PM UTC ](/content/gettr/p1ctiq7708e.md)
+
+2022-6-5「Together」——NFSC 2️⃣周年纪念特辑🏅 #小小尼莫音乐会 🎼第十四期，我們心在一起💗，音樂在一起🎶，未來在一起⛳️，We are 「Together」🌟
+
+---
+
 [@miles 6/5/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1ct90c6d9e.md)
 
 2022年6月5日 战友纽约现场走秀和穿船游
@@ -18,9 +48,11 @@
 
 ---
 
-[@miles 6/5/2022 6:37 PM UTC ](/content/gettr/p1ctiq7708e.md)
+[@miles 6/5/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p1cudkt6bbd.md)
 
-2022-6-5「Together」——NFSC 2️⃣周年纪念特辑🏅 #小小尼莫音乐会 🎼第十四期，我們心在一起💗，音樂在一起🎶，未來在一起⛳️，We are 「Together」🌟
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: On the 2nd anniversary of the New Federal State of China, Mrs. Morgan had an interview with me. This is her first ever public interview, and insiders will understand what it means; Mrs. ...
+
+<img src="https://media.gettr.com/group15/getter/2022/06/05/23/d9f89af3-f8d4-6ee0-4285-62cdf585cff0/out.jpg" width="506" height="284">
 
 ---
 
@@ -102,35 +134,11 @@
 
 ---
 
-[@miles 6/5/2022 7:05 AM UTC  - :tv:直播](/content/gettr/p1cru7g0038.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. The Chinese should be treated as ...
-
-<img src="https://media.gettr.com/group35/getter/2022/06/05/07/07b031b5-c56f-33f4-3a24-c97245e3eaa2/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/5/2022 7:11 AM UTC  - :tv:直播](/content/gettr/p1crq1q5be0.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Republican Party is projected tol win the Midterm Election. He agrees with what Mr. Steve Bannon said at the NFSC 2nd anniversary celebration that the first thing the New Federal Sta...
 
 <img src="https://media.gettr.com/group15/getter/2022/06/05/07/f24bff51-8cd0-e566-ddde-5324ac5e1274/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 6:30 AM UTC  - :tv:直播](/content/gettr/p1crr9r2f09.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo: To all those in Communist China, members of the CCP, and those in the CCP's system, you will be rewarded with Himalaya Coins as long as you can provide the information that is helpful for...
-
-<img src="https://media.gettr.com/group26/getter/2022/06/05/06/3fa18205-4581-a9e8-8865-564ee3ccce37/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 6:32 AM UTC  - :tv:直播](/content/gettr/p1cripa761a.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The farm system of the New Federal State of China is a two-tier parallel system, which is different from the vertical system that can easily breeds corruption and bureaucracy. The design...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/05/06/9943f494-f13a-111f-4e81-457039de589c/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,56 +155,6 @@
 【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: No other organization in the world has been able to achieve as much remarkable success within a year or two as the New Federal State of China, despite the constant attacks from the CCP! ...
 
 <img src="https://media.gettr.com/group19/getter/2022/06/05/06/0c84485b-8481-40c3-efea-bd44ed690a34/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 5:25 AM UTC  - :tv:直播](/content/gettr/p1crskp2589.md)
-
-《往事不再如烟》
-
-
-
-演唱：Qmay Superman Bunny 文空 作曲：Qmay 作词：Ryan 制作：Qmay 编曲：A.W 吉他：Ryan
-
-
-
-问一声早熟的麦子哟
-
-为何会变得沉甸甸
-
-是不是六月的惊雷
-
-把你唤醒又闭上眼
-
-
-
-问一声哭泣的孩子哟
-
-为何又变得沉默寡言
-
-是不是青春的广场上
-
-子弹横飞过血红的天
-
-
-
-远去的孩子啊
-
-你在天上能否看见
-
-大地上的苦难
-
-重复一遍又一遍
-
-长大的孩子啊
-
-已经让全世界看见
-
-许下同个心愿
-
-荡...
-
-<img src="https://media.gettr.com/group25/origin/2022/06/05/05/8be75a30-f63b-b3e5-f5a1-d3229675bfa8/out.jpg" width="506" height="284">
 
 ---
 

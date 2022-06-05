@@ -2,9 +2,9 @@
 ---
 
 
-`@miles 6/5/2022 7:05 AM UTC`
+`@miles 6/5/2022 11:04 PM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p1cru7g0038)
+[轉發自GETTR](https://gettr.com/post/p1cupqz0ff7)
 
 【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. The Chinese should be treated as real human beings, and social class divisions are never allowed to exist in the New Federal State of China!
 
@@ -12,4 +12,4 @@
 
 #新中国联邦 #NFSC  #ROLF #法治基金 #纪念六四 #rememberjune4th
 
-![img](https://media.gettr.com/group35/getter/2022/06/05/07/07b031b5-c56f-33f4-3a24-c97245e3eaa2/out.jpg)
+![img](https://media.gettr.com/group6/getter/2022/06/05/23/43d1c5f5-6f65-4447-b7b5-bb003aec3a3c/out.jpg)
