@@ -11,19 +11,19 @@
 
 ---
 
-#### [北朝鲜发射“8枚弹道导弹” 岸防卫相：“短时间内从3处以上发射是破例”](/content/gnews/2665908.md)
- `西班牙巴塞罗那喜悦农场`
+#### [伊丽莎白女王因身体“不适”将缺席周年纪念活动](/content/gnews/2665939.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [几位共和党众议员认为枪支法不能阻止大规模枪击](/content/gnews/2665929.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [联合国同意土耳其的更名请求](/content/gnews/2665915.md)
+ `TokyoSakura Politics/樱花时政`
 
 #### [“够了”，拜登敦促国会通过枪支管制法](/content/gnews/2665907.md)
  `TokyoSakura Politics/樱花时政`
 
 #### [世界可能正朝着1970年代的能源危机发展或者更糟](/content/gnews/2665893.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【长相思】](/content/gnews/2665867.md)
- `SpicyWorld`
-
-#### [中共国的太平洋野心是否受挫？](/content/gnews/2665852.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [【西朝鲜】](/content/gnews/2665849.md)
