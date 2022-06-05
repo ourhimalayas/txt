@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 6/4/2022 9:13 PM UTC ](/content/gettr/p1cq6eg5ac3.md)
+
+June 4th, 2022, the 2nd anniversary of the New Federal State of China: The 91-year-old Mr. Morgan never does interviews, so Mrs. Morgan is interviewed by Mr. Miles Guo.
+
+
+
+2022年6月4日新中国联邦成立两周年—— 91岁的摩根先生从不接受采访，摩根夫人接受文贵先生专访。
+
+
+
+#新中国联...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/04/21/26e71a9c-ebd4-2b5d-3194-73349ad2dbd0/f35a595dafa6984ec2b24880cfcab27e.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 4:05 AM UTC ](/content/gettr/p1cr1l4cf17.md)
+
+If Republicans win midterm elections, Congress will legislate to recognize the New Federal State of China
+
+On June 4, Mr.  Miles Guo blew the whistle that Peter Navarro was arrested on June 3, but he is coming to attend the 2nd ann...
+
+<img src="https://media.gettr.com/group29/origin/2022/06/05/04/73784b4a-541d-3918-ecea-a65caa85e78c/3dd779ee50a4cf9ffcbc5f9b079cdc0c.png" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1cqv6q4c7e.md)
 
 Brothers and sisters of the Taiwanese farm wish a happy birthday on the second anniversary of the new federation of China! We will definitely eliminate the evil Communist Party as soon as possible, realize our Himalayas together, a...
@@ -31,16 +57,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have b...
 
 <img src="https://media.gettr.com/group8/getter/2022/06/04/23/c172f056-223e-2871-5ba6-becce703c082/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 4:05 AM UTC ](/content/gettr/p1cr1l4cf17.md)
-
-If Republicans win midterm elections, Congress will legislate to recognize the New Federal State of China
-
-On June 4, Mr.  Miles Guo blew the whistle that Peter Navarro was arrested on June 3, but he is coming to attend the 2nd ann...
-
-<img src="https://media.gettr.com/group29/origin/2022/06/05/04/73784b4a-541d-3918-ecea-a65caa85e78c/3dd779ee50a4cf9ffcbc5f9b079cdc0c.png" width="506" height="284">
 
 ---
 
@@ -149,18 +165,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: Thanks to
 2022年6月4日新中国联邦成立两周年—— 感谢镜头背后...
 
 <img src="https://media.gettr.com/group13/getter/2022/06/04/21/5cc8b273-598d-2dfd-aa14-f51edf09d1bb/25eec43fe6fc04c2e67da1c9e6d98e21.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:17 PM UTC  - :tv:直播](/content/gettr/p1cq08g80c7.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: Thanks to the dedicated fellow fighters in the background, who withstood the greatest pressure and presented the perfect celebration broadcast.
-
-
-
-2022年6月4日新中国联...
-
-<img src="https://media.gettr.com/group29/getter/2022/06/04/21/c43258c8-9914-c380-fbca-fc790e786d75/out.jpg" width="506" height="284">
 
 ---
 
