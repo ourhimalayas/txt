@@ -2,19 +2,71 @@
 ---
 
 
-[@miles 6/4/2022 9:13 PM UTC ](/content/gettr/p1cq6eg5ac3.md)
+[@qmay007 6/4/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1cq3p7c481.md)
 
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: The 91-year-old Mr. Morgan never does interviews, so Mrs. Morgan is interviewed by Mr. Miles Guo.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 91岁的摩根先生从不接受采访，摩根夫人接受文贵先生专访。
+《往事不再如烟》
 
 
 
-#新中国联...
+演唱：QMay  Superman Bunny  文空
 
-<img src="https://media.gettr.com/group34/getter/2022/06/04/21/26e71a9c-ebd4-2b5d-3194-73349ad2dbd0/f35a595dafa6984ec2b24880cfcab27e.jpg" width="506" height="284">
+作曲：QMay      
+
+作词：Ryan
+
+制作人：QMay
+
+编曲/混音：A.W
+
+吉他：    Ryan 
+
+
+
+问一声早熟的麦子哟
+
+为何会变得沉甸甸
+
+是不是六月的惊雷
+
+把你唤醒又闭上眼
+
+
+
+问一声哭泣的孩子哟
+
+为何又变得沉默寡言
+
+是不是青春的广场上
+
+子弹横飞过血红的天
+
+
+
+远去的孩子啊
+
+你在天上能否看见
+
+大地上的苦难
+
+重复一遍又一遍
+
+长大的孩子...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/04/21/fa0aba84-e740-24f1-3c4f-5bfdcd61c842/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 4:39 AM UTC ](/content/gettr/p1crmmk0b6b.md)
+
+2022-6-4《鸡血王喜币大作战》 第二百一十六集 嘉宾：卡丽熙, 风雨之中
+
+---
+
+[@miles 6/5/2022 4:41 AM UTC  - :tv:直播](/content/gettr/p1crtq33935.md)
+
+2022年6月4日 新中国联邦两周年视频大联播
+
+<img src="https://media.gettr.com/group40/origin/2022/06/05/04/662a3a11-b13b-bf36-1740-d629144fd8c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,34 +205,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 2022年6月4日 新中国联邦两周年庆典 战友大连线 4K版
 
 <img src="https://media.gettr.com/group18/origin/2022/06/04/21/d30bd007-7ac1-9f58-24a0-a63e79c8f0c0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:15 PM UTC  - 3圖](/content/gettr/p1cq2un9832.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: Thanks to the silent fellow fighters behind the camera, who have beautiful hearts and present the celebration feast to everyone.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 感谢镜头背后...
-
-<img src="https://media.gettr.com/group13/getter/2022/06/04/21/5cc8b273-598d-2dfd-aa14-f51edf09d1bb/25eec43fe6fc04c2e67da1c9e6d98e21.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:19 PM UTC ](/content/gettr/p1cq6y81d66.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China celebration is now successfully completed.
-
-
-
-2022年6月4日新中国联邦成立两周年庆典圆满结束
-
-
-
-#新中国联邦 #NFSC #ROLF #法治基金 #纪念六四 #rememberjune4th 
-
-<img src="https://media.gettr.com/group19/getter/2022/06/04/21/e3269e23-0f92-e9da-8d9f-2d2fe997be53/1bc0aafc9da5eeaf7a797ca43490f817.jpg" width="506" height="284">
 
 ---
 
