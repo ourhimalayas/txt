@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/5/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1cssgbc42f.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 In the interview with Mrs. Morgan, Mr. Miles Guo states that the birth of the NFSC was in accordance with God's will to eliminate the CCP, an unprecedented cancer on the earth; and, very fortunatel...
+
+<img src="https://media.gettr.com/group45/getter/2022/06/05/10/9c5ac649-eabe-4cba-ea47-1b317e835d3a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 7:32 AM UTC  - :tv:直播](/content/gettr/p1crgv3e3da.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: I believe that the CCP will actually fall before the NFSC has to get recognition from the American government. I actually think with this economic collapse and what they've done on th...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/5/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1cssgbc42f.md)
+[@miles 6/5/2022 1:20 PM UTC  - :tv:直播](/content/gettr/p1csdwke926.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 In the interview with Mrs. Morgan, Mr. Miles Guo states that the birth of the NFSC was in accordance with God's will to eliminate the CCP, an unprecedented cancer on the earth; and, very fortunatel...
+【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo sings the song "Chained Dream" live and says: We have been fighting for 5 years. To this day, we are the only ones who dare to say overthrow the Communist Party. We must overthrow the...
 
-<img src="https://media.gettr.com/group45/getter/2022/06/05/10/9c5ac649-eabe-4cba-ea47-1b317e835d3a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/06/05/13/d4aaf16d-5742-8ed3-15b3-8769bbd5a8a6/out.jpg" width="506" height="284">
 
 ---
 
@@ -253,14 +261,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 #...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/05/01/b4ebcfd8-b4ac-3bef-cc8e-537187fa6867/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 11:49 PM UTC  - :tv:直播](/content/gettr/p1cpl2ua86d.md)
-
-【NFSC 2nd Anniversary 】06/04/2022：Japan has made it very clear that they will set up offices of governmental organizations in Taiwan. The U.S. told the CCP clearly that Japan will surely join the UN and become a permanent member, a...
-
-<img src="https://media.gettr.com/group13/getter/2022/06/04/23/107fdca1-b519-e5c3-17ad-121bebb1b2e4/out.jpg" width="506" height="284">
 
 ---
 
