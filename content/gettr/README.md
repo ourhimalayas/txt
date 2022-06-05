@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 6/4/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p1cpymla7c4.md)
+[@miles 6/4/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1cqii7dd68.md)
 
-【NFSC 2nd Anniversary 】06/04/2022  Mr. Steve Bannon believes that we are heading towards an economic catastrophe, and the Chinese Communist Party is the root cause of everything. However, the elites around the world won't hold the ...
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have b...
 
-<img src="https://media.gettr.com/group28/getter/2022/06/04/22/262b2c9c-c979-c2df-44e1-1c8c9ffa3ac3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/06/04/23/c172f056-223e-2871-5ba6-becce703c082/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 11:49 PM UTC  - :tv:直播](/content/gettr/p1cpl2ua86d.md)
+
+【NFSC 2nd Anniversary 】06/04/2022：Japan has made it very clear that they will set up offices of governmental organizations in Taiwan. The U.S. told the CCP clearly that Japan will surely join the UN and become a permanent member, a...
+
+<img src="https://media.gettr.com/group13/getter/2022/06/04/23/107fdca1-b519-e5c3-17ad-121bebb1b2e4/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +23,22 @@
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo talks about and reveals the CCP’s plan to create  a "Gold Brick Financial System" with a few rogue banks overseas which is actually a system for the CCP to hide their wealth overseas. He ...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/04/22/a1fcda7f-a039-8709-b92d-5787b79b3181/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p1cpymla7c4.md)
+
+【NFSC 2nd Anniversary 】06/04/2022  Mr. Steve Bannon believes that we are heading towards an economic catastrophe, and the Chinese Communist Party is the root cause of everything. However, the elites around the world won't hold the ...
+
+<img src="https://media.gettr.com/group28/getter/2022/06/04/22/262b2c9c-c979-c2df-44e1-1c8c9ffa3ac3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p1cq4tk9054.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
+
+<img src="https://media.gettr.com/group41/getter/2022/06/04/23/bfcb1f70-a50e-e482-395a-80f3591e6b46/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,34 +199,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China: The 91-ye
 #新中国联...
 
 <img src="https://media.gettr.com/group34/getter/2022/06/04/21/26e71a9c-ebd4-2b5d-3194-73349ad2dbd0/f35a595dafa6984ec2b24880cfcab27e.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 8:04 PM UTC  - 2圖](/content/gettr/p1cpyty6e3a.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: Ukraine Rescue frontline representatives, Nicole, Renee, and Dr Wen Zi, are the most beautiful flowers of the NFSC. Practicality, and the ability to execute is ...
-
-<img src="https://media.gettr.com/group43/getter/2022/06/04/20/185980c5-478e-4c97-2a58-90b35981fd5f/48fa4cd0de66b327781ece4988422447.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 8:10 PM UTC  - :tv:直播](/content/gettr/p1cptcq3baf.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: The efforts of the fellow fighters of the New Federal State of China in the Ukraine rescue operation and New York City have shown the world the image of the new China and the new Chinese...
-
-<img src="https://media.gettr.com/group17/getter/2022/06/04/20/9fc93df4-8589-7eec-31d0-dba41bd56947/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 6:27 PM UTC  - 6圖](/content/gettr/p1coxxp327c.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: The Whistleblowers' Movement fellow fighters walking the red carpet, the most unique and beautiful scenery in the world - New Federal State of China 
-
-
-
-2022年6月...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/04/18/a00354f0-0886-5141-beae-206603fcdad1/20feabb982d7dec8cdad20d7861ad361.jpg" width="506" height="284">
 
 ---
 
