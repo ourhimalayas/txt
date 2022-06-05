@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 6/5/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1crpfc21ea.md)
+[@miles 6/5/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1cssgbc42f.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
+【NFSC 2nd Anniversary 】06/04/2022 In the interview with Mrs. Morgan, Mr. Miles Guo states that the birth of the NFSC was in accordance with God's will to eliminate the CCP, an unprecedented cancer on the earth; and, very fortunatel...
 
-<img src="https://media.gettr.com/group7/getter/2022/06/05/07/9d22743a-2e82-7958-a3b7-80f0bfa13e8d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/06/05/10/9c5ac649-eabe-4cba-ea47-1b317e835d3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo pointed out the three features that distinguish HCN from other tokens in the crypto market: 1. It carries a value and the hope of the Chinese people to take down the CCP; 2. it is mat...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/05/07/4ebe03c2-ca37-9edc-f25d-db75d96d5421/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1crpfc21ea.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
+
+<img src="https://media.gettr.com/group7/getter/2022/06/05/07/9d22743a-2e82-7958-a3b7-80f0bfa13e8d/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,14 +253,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 #...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/05/01/b4ebcfd8-b4ac-3bef-cc8e-537187fa6867/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1cqii7dd68.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have b...
-
-<img src="https://media.gettr.com/group8/getter/2022/06/04/23/c172f056-223e-2871-5ba6-becce703c082/out.jpg" width="506" height="284">
 
 ---
 
