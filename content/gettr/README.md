@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/5/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1crqia131e.md)
+
+【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/05/06/8d532ea6-4f4d-8b91-386a-260edf4e2579/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 6:32 AM UTC  - :tv:直播](/content/gettr/p1cripa761a.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The farm system of the New Federal State of China is a two-tier parallel system, which is different from the vertical system that can easily breeds corruption and bureaucracy. The design...
@@ -23,6 +31,14 @@
 【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The CCP has been frantically deleting data from social media world wide. This is absolutely a state level act! The CCP is so fearful! It was the June 4th incident in 1989 that sowed the s...
 
 <img src="https://media.gettr.com/group39/getter/2022/06/05/06/75d544f6-d78e-3a2f-bcf6-2862d9ef4176/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 6:38 AM UTC  - :tv:直播](/content/gettr/p1crqyo88ae.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: No other organization in the world has been able to achieve as much remarkable success within a year or two as the New Federal State of China, despite the constant attacks from the CCP! ...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/05/06/0c84485b-8481-40c3-efea-bd44ed690a34/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,14 +89,6 @@
 荡...
 
 <img src="https://media.gettr.com/group25/origin/2022/06/05/05/8be75a30-f63b-b3e5-f5a1-d3229675bfa8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 6:38 AM UTC  - :tv:直播](/content/gettr/p1crqyo88ae.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: No other organization in the world has been able to achieve as much remarkable success within a year or two as the New Federal State of China, despite the constant attacks from the CCP! ...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/05/06/0c84485b-8481-40c3-efea-bd44ed690a34/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,14 +213,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 【NFSC 2nd Anniversary 】06/04/2022：Japan has made it very clear that they will set up offices of governmental organizations in Taiwan. The U.S. told the CCP clearly that Japan will surely join the UN and become a permanent member, a...
 
 <img src="https://media.gettr.com/group13/getter/2022/06/04/23/107fdca1-b519-e5c3-17ad-121bebb1b2e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p1cq4tk9054.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
-
-<img src="https://media.gettr.com/group41/getter/2022/06/04/23/bfcb1f70-a50e-e482-395a-80f3591e6b46/out.jpg" width="506" height="284">
 
 ---
 
