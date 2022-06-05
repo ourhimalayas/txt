@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/5/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1ct90c6d9e.md)
+
+2022年6月5日 战友纽约现场走秀和穿船游
+
+<img src="https://media.gettr.com/group21/origin/2022/06/05/17/c1a4c08d-9b48-9d9c-49e7-ad6516327d46/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p1csnprf813.md)
 
 6月5号：尊敬的战友们好．新中国联邦建国两周年的纪念日．开启了个新的时代！任何事物在相对公平，客观的对比情况下．得出的结果就是真理，昨天我们证明了真理是存在的．人性．人格．人命，是可以改变的，我们已经做到了，我们还会做得更好，更多……我们还会让更多人．和我们一样，万佛万神的护佑，我们再一次创造了奇迹，感谢全球的所有的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都已经开始！
@@ -10,11 +18,9 @@
 
 ---
 
-[@miles 6/5/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1ct90c6d9e.md)
+[@miles 6/5/2022 6:37 PM UTC ](/content/gettr/p1ctiq7708e.md)
 
-2022年6月5日 战友纽约现场走秀和穿船游
-
-<img src="https://media.gettr.com/group21/origin/2022/06/05/17/c1a4c08d-9b48-9d9c-49e7-ad6516327d46/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022-6-5「Together」——NFSC 2️⃣周年纪念特辑🏅 #小小尼莫音乐会 🎼第十四期，我們心在一起💗，音樂在一起🎶，未來在一起⛳️，We are 「Together」🌟
 
 ---
 
@@ -191,66 +197,6 @@
 荡...
 
 <img src="https://media.gettr.com/group25/origin/2022/06/05/05/8be75a30-f63b-b3e5-f5a1-d3229675bfa8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1cs47ub3a5.md)
-
-《喜马拉雅·希望之光》
-
-词/曲/编曲：舒文 
-
-
-
-演唱： Fiona，Daniel， Helen，
-
-             Nicole， Tenten，Tiger
-
-
-
-MV：小灯
-
-
-
-混音：SFG
-
-
-
-翻译：山上的城
-
-
-
-监制：唐平
-
-
-
-夜尽初曦蕴光明 坚守自由信仰 
-
-
-
-秉天赋平等 不退让
-
-
-
-家国父兄历浩劫 惜荣耀尽失光
-
-
-
-问我辈如何  浴火重生希望
-
-
-
-小小萤火聚成海 勇敢对决黑暗
-
-
-
-看喜马拉雅  升起希望之光
-
-
-
-...
-
-<img src="https://media.gettr.com/group11/origin/2022/06/05/04/4e5f256e-99cd-9f84-03ba-cbb8ed71e337/out.jpg" width="506" height="284">
 
 ---
 
