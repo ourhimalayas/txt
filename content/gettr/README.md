@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/5/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1csmuzdc05.md)
+
+【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
+
+<img src="https://media.gettr.com/group50/getter/2022/06/05/14/543363b1-1068-5cb3-c745-e53b857d6d28/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 1:20 PM UTC  - :tv:直播](/content/gettr/p1csdwke926.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo sings the song "Chained Dream" live and says: We have been fighting for 5 years. To this day, we are the only ones who dare to say overthrow the Communist Party. We must overthrow the...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/5/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1csmuzdc05.md)
+[@miles 6/5/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1csihd5760.md)
 
-【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
+ 5月5号：尊敬的战友们好．新中国联邦建国两周年的纪念日．开启了个新的时代！任何事物在相对公平，客观的对比情况下．得出的结果就是真理，昨天我们证明了真理是存在的．人性．人格．人命，是可以改变的，我们已经做到了，我们还会做得更好，更多……我们还会让更多人．和我们一样，万佛万神的护佑，我们再一次创造了奇迹，感谢全球的所有的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都已经开始！
 
-<img src="https://media.gettr.com/group50/getter/2022/06/05/14/543363b1-1068-5cb3-c745-e53b857d6d28/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/06/05/14/b1fc2747-c056-9f31-cbe1-009f81804a68/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,14 +253,6 @@ If Republicans win midterm elections, Congress will legislate to recognize the N
 On June 4, Mr.  Miles Guo blew the whistle that Peter Navarro was arrested on June 3, but he is coming to attend the 2nd ann...
 
 <img src="https://media.gettr.com/group29/origin/2022/06/05/04/73784b4a-541d-3918-ecea-a65caa85e78c/3dd779ee50a4cf9ffcbc5f9b079cdc0c.png" width="506" height="284">
-
----
-
-[@miles 6/5/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1cqv6q4c7e.md)
-
-Brothers and sisters of the Taiwanese farm wish a happy birthday on the second anniversary of the new federation of China! We will definitely eliminate the evil Communist Party as soon as possible, realize our Himalayas together, a...
-
-<img src="https://media.gettr.com/group50/origin/2022/06/05/03/eedfd33d-2cd9-5b32-a504-1436509fa73c/out.jpg" width="506" height="284">
 
 ---
 
