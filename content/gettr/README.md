@@ -2,11 +2,53 @@
 ---
 
 
-[@miles 6/4/2022 9:25 PM UTC  - :tv:直播](/content/gettr/p1cpggk8cde.md)
+[@miles 6/5/2022 5:25 AM UTC  - :tv:直播](/content/gettr/p1crskp2589.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: The New Federal States of China will be the future of Chinese people. CCP is the root cause of all the catastrophes in the world, the NFSC got the greatest ability for taking down the...
+《往事不再如烟》
 
-<img src="https://media.gettr.com/group19/getter/2022/06/04/21/99a85b94-aac4-8db6-97a8-fe4f4ee91df6/out.jpg" width="506" height="284">
+
+
+演唱：Qmay Superman Bunny 文空 作曲：Qmay 作词：Ryan 制作：Qmay 编曲：A.W 吉他：Ryan
+
+
+
+问一声早熟的麦子哟
+
+为何会变得沉甸甸
+
+是不是六月的惊雷
+
+把你唤醒又闭上眼
+
+
+
+问一声哭泣的孩子哟
+
+为何又变得沉默寡言
+
+是不是青春的广场上
+
+子弹横飞过血红的天
+
+
+
+远去的孩子啊
+
+你在天上能否看见
+
+大地上的苦难
+
+重复一遍又一遍
+
+长大的孩子啊
+
+已经让全世界看见
+
+许下同个心愿
+
+荡...
+
+<img src="https://media.gettr.com/group25/origin/2022/06/05/05/8be75a30-f63b-b3e5-f5a1-d3229675bfa8/out.jpg" width="506" height="284">
 
 ---
 
