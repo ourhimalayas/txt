@@ -10,11 +10,35 @@
 
 ---
 
+[@miles 6/5/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1cqvbe56ee.md)
+
+【NFSC 2nd Anniversary】06/04/2022: Connie H. Morgan: The Himalaya Coin is very clean. That's why it was so stable when the rest of the cryptocurrencies were falling.
+
+
+
+【新中国联邦2周年】06/04/2022 摩根夫人：喜币非常干净。 这就是为什么数字货币价格大跌时，喜币的价格很稳定
+
+
+
+#...
+
+<img src="https://media.gettr.com/group40/getter/2022/06/05/01/b4ebcfd8-b4ac-3bef-cc8e-537187fa6867/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/4/2022 11:49 PM UTC  - :tv:直播](/content/gettr/p1cpl2ua86d.md)
 
 【NFSC 2nd Anniversary 】06/04/2022：Japan has made it very clear that they will set up offices of governmental organizations in Taiwan. The U.S. told the CCP clearly that Japan will surely join the UN and become a permanent member, a...
 
 <img src="https://media.gettr.com/group13/getter/2022/06/04/23/107fdca1-b519-e5c3-17ad-121bebb1b2e4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/4/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p1cq4tk9054.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
+
+<img src="https://media.gettr.com/group41/getter/2022/06/04/23/bfcb1f70-a50e-e482-395a-80f3591e6b46/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,14 +55,6 @@
 【NFSC 2nd Anniversary 】06/04/2022  Mr. Steve Bannon believes that we are heading towards an economic catastrophe, and the Chinese Communist Party is the root cause of everything. However, the elites around the world won't hold the ...
 
 <img src="https://media.gettr.com/group28/getter/2022/06/04/22/262b2c9c-c979-c2df-44e1-1c8c9ffa3ac3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p1cq4tk9054.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
-
-<img src="https://media.gettr.com/group41/getter/2022/06/04/23/bfcb1f70-a50e-e482-395a-80f3591e6b46/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +175,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China celebratio
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon expresses with emotion that the achievements of the NFSC in the past two years are incomparable and that we have proved that the CCP's claim that the Chinese cannot handle freedom and ca...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/04/21/69d4964b-852a-8510-76bb-f084fdc0de4b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:08 PM UTC  - 2圖](/content/gettr/p1cq28l2078.md)
-
-June 4th,2022, the 2nd anniversary of the New Federal State of China: Every fellow fighter experienced a lack of understanding and tears in the process of extinguishing the CCP. At this moment, we need a hug, and the NFSC is the ho...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/04/21/ffd83785-8a49-6f82-12ec-74928c51c0d6/1f6c3839a1f8a96eace83aa17c0f8fce.jpg" width="506" height="284">
 
 ---
 
