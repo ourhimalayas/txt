@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/5/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1cqv6q4c7e.md)
+
+Brothers and sisters of the Taiwanese farm wish a happy birthday on the second anniversary of the new federation of China! We will definitely eliminate the evil Communist Party as soon as possible, realize our Himalayas together, a...
+
+<img src="https://media.gettr.com/group50/origin/2022/06/05/03/eedfd33d-2cd9-5b32-a504-1436509fa73c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1cqvbe56ee.md)
 
 【NFSC 2nd Anniversary】06/04/2022: Connie H. Morgan: The Himalaya Coin is very clean. That's why it was so stable when the rest of the cryptocurrencies were falling.
@@ -26,11 +34,57 @@
 
 ---
 
-[@miles 6/5/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1cqv6q4c7e.md)
+[@qmay007 6/4/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1cq3p7c481.md)
 
-Brothers and sisters of the Taiwanese farm wish a happy birthday on the second anniversary of the new federation of China! We will definitely eliminate the evil Communist Party as soon as possible, realize our Himalayas together, a...
+《往事不再如烟》
 
-<img src="https://media.gettr.com/group50/origin/2022/06/05/03/eedfd33d-2cd9-5b32-a504-1436509fa73c/out.jpg" width="506" height="284">
+
+
+演唱：QMay  Superman Bunny  文空
+
+作曲：QMay      
+
+作词：Ryan
+
+制作人：QMay
+
+编曲/混音：A.W
+
+吉他：    Ryan 
+
+
+
+问一声早熟的麦子哟
+
+为何会变得沉甸甸
+
+是不是六月的惊雷
+
+把你唤醒又闭上眼
+
+
+
+问一声哭泣的孩子哟
+
+为何又变得沉默寡言
+
+是不是青春的广场上
+
+子弹横飞过血红的天
+
+
+
+远去的孩子啊
+
+你在天上能否看见
+
+大地上的苦难
+
+重复一遍又一遍
+
+长大的孩子...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/04/21/fa0aba84-e740-24f1-3c4f-5bfdcd61c842/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,22 +237,6 @@ June 4th, 2022, the 2nd anniversary of the New Federal State of China celebratio
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon expresses with emotion that the achievements of the NFSC in the past two years are incomparable and that we have proved that the CCP's claim that the Chinese cannot handle freedom and ca...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/04/21/69d4964b-852a-8510-76bb-f084fdc0de4b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:13 PM UTC ](/content/gettr/p1cq6eg5ac3.md)
-
-June 4th, 2022, the 2nd anniversary of the New Federal State of China: The 91-year-old Mr. Morgan never does interviews, so Mrs. Morgan is interviewed by Mr. Miles Guo.
-
-
-
-2022年6月4日新中国联邦成立两周年—— 91岁的摩根先生从不接受采访，摩根夫人接受文贵先生专访。
-
-
-
-#新中国联...
-
-<img src="https://media.gettr.com/group34/getter/2022/06/04/21/26e71a9c-ebd4-2b5d-3194-73349ad2dbd0/f35a595dafa6984ec2b24880cfcab27e.jpg" width="506" height="284">
 
 ---
 
