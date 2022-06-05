@@ -10,9 +10,25 @@
 
 ---
 
+[@miles 6/5/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1ct90c6d9e.md)
+
+2022年6月5日 战友纽约现场走秀和穿船游
+
+<img src="https://media.gettr.com/group21/origin/2022/06/05/17/c1a4c08d-9b48-9d9c-49e7-ad6516327d46/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 2:48 PM UTC ](/content/gettr/p1cslvhce18.md)
 
  6月5号：此时此刻的台湾农场的直播太棒了，快去看吧……
+
+---
+
+[@miles 6/5/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1cs7rjb4f6.md)
+
+6月5号：感谢西班牙农场为此付出的一切．请代表新中国联邦持续关注和照顾这些孩子。【站长，不知道七哥是否看到了我们做的那个96孩子的视频，有点长，4分多钟，重点其实是最后面的这个10秒，他们祝福新中国联邦生日的，特地录的，你觉得有必要给七哥私下传过去吗？】
+
+<img src="https://media.gettr.com/group23/getter/2022/06/05/14/4005d0ca-9d92-1368-3a0e-4f87dae303ec/out.jpg" width="506" height="284">
 
 ---
 
@@ -45,14 +61,6 @@
 【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: I believe that the CCP will actually fall before the NFSC has to get recognition from the American government. I actually think with this economic collapse and what they've done on th...
 
 <img src="https://media.gettr.com/group10/getter/2022/06/05/07/7671527e-4fd8-f643-58ed-5cd2966994be/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1cs7rjb4f6.md)
-
-6月5号：感谢西班牙农场为此付出的一切．请代表新中国联邦持续关注和照顾这些孩子。【站长，不知道七哥是否看到了我们做的那个96孩子的视频，有点长，4分多钟，重点其实是最后面的这个10秒，他们祝福新中国联邦生日的，特地录的，你觉得有必要给七哥私下传过去吗？】
-
-<img src="https://media.gettr.com/group23/getter/2022/06/05/14/4005d0ca-9d92-1368-3a0e-4f87dae303ec/out.jpg" width="506" height="284">
 
 ---
 
@@ -243,14 +251,6 @@ MV：小灯
 ...
 
 <img src="https://media.gettr.com/group11/origin/2022/06/05/04/4e5f256e-99cd-9f84-03ba-cbb8ed71e337/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 4:41 AM UTC  - :tv:直播](/content/gettr/p1crtq33935.md)
-
-2022年6月4日 新中国联邦两周年视频大联播
-
-<img src="https://media.gettr.com/group40/origin/2022/06/05/04/662a3a11-b13b-bf36-1740-d629144fd8c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
