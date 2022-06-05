@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 6/5/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p1crxtoddf8.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
+
+<img src="https://media.gettr.com/group41/getter/2022/06/05/07/284811e2-e4fb-9b6f-416f-7e17dee37218/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 7:05 AM UTC  - :tv:直播](/content/gettr/p1cru7g0038.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. The Chinese should be treated as ...
+
+<img src="https://media.gettr.com/group35/getter/2022/06/05/07/07b031b5-c56f-33f4-3a24-c97245e3eaa2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 7:09 AM UTC  - :tv:直播](/content/gettr/p1cs1ji8520.md)
+
+【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/05/07/e62acbae-8bbe-14ae-faed-244558f1eab6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 6:30 AM UTC  - :tv:直播](/content/gettr/p1crr9r2f09.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Miles Guo: To all those in Communist China, members of the CCP, and those in the CCP's system, you will be rewarded with Himalaya Coins as long as you can provide the information that is helpful for...
@@ -10,11 +34,11 @@
 
 ---
 
-[@miles 6/5/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1crqia131e.md)
+[@miles 6/5/2022 7:11 AM UTC  - :tv:直播](/content/gettr/p1crq1q5be0.md)
 
-【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Republican Party is projected tol win the Midterm Election. He agrees with what Mr. Steve Bannon said at the NFSC 2nd anniversary celebration that the first thing the New Federal Sta...
 
-<img src="https://media.gettr.com/group12/getter/2022/06/05/06/8d532ea6-4f4d-8b91-386a-260edf4e2579/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/06/05/07/f24bff51-8cd0-e566-ddde-5324ac5e1274/out.jpg" width="506" height="284">
 
 ---
 
@@ -224,22 +248,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 
 ---
 
-[@miles 6/4/2022 10:18 PM UTC  - :tv:直播](/content/gettr/p1cpymla7c4.md)
-
-【NFSC 2nd Anniversary 】06/04/2022  Mr. Steve Bannon believes that we are heading towards an economic catastrophe, and the Chinese Communist Party is the root cause of everything. However, the elites around the world won't hold the ...
-
-<img src="https://media.gettr.com/group28/getter/2022/06/04/22/262b2c9c-c979-c2df-44e1-1c8c9ffa3ac3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1cpxk62fda.md)
-
-【NFSC 2nd Anniversary 】06/04/2022：Mr. Steve Bannon suggested we use GETTR everyday to record our real life and spread our voice of justice! This is unbearable for the CCP. In fact, it means that we are strangling the legitimacy of ...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/04/22/03baf6eb-096a-7764-f675-84b0e0d0c4b4/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/4/2022 10:25 PM UTC  - :tv:直播](/content/gettr/p1cptebf82b.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Every new Chinese needs to build their own followings on GETTR. You will learn alot but will also teach a lot. Spread the word out there about the Chinese Communist Party, of the evils ...
@@ -253,14 +261,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Chinese Communist Party has been planning for their families to prepare for the aftermath of the collapse of the Party. They have been planning for the assets of their children and g...
 
 <img src="https://media.gettr.com/group26/getter/2022/06/04/22/fcd1e785-f43d-f7c1-8998-bb816d95929b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:47 PM UTC  - :tv:直播](/content/gettr/p1cq5kc8ed6.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 When asked about his views on the prospect of the NFSC getting formal recognition, Mr. Steve Bannon suggested that the NFSC can get it by promoting itself to NGOs and other organizations, as well a...
-
-<img src="https://media.gettr.com/group30/getter/2022/06/04/21/2ab9233f-d7d2-4d96-19b0-e253046dc225/out.jpg" width="506" height="284">
 
 ---
 
