@@ -2,31 +2,49 @@
 ---
 
 
-#### [台湾接力香港 举办“天安门纪念日”活动](/content/gnews/2666443.md)
+#### [史蒂夫·班农：我认为中共会在美国政府承认新中国联邦之前就垮台](/content/gnews/2666586.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【樱话】中共否认上海“封城”，无耻胆怯无下限](/content/gnews/2666585.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】原文转发: 求救信!600多孩子接种后集体确诊1型糖尿病](/content/gnews/2666574.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】罗冠聪推特发文 继续燃亮香港人反抗极权的抗争精神](/content/gnews/2666557.md)
+ `TokyoSakuraDesignGroup`
+
+#### [因接种中共疫苗导致白血病糖尿病甚至致死的186人名单](/content/gnews/2666549.md)
+ `NewFOC`
+
+#### [在近几年内让新中国联邦得到承认将会非常困难。但是我们需要继续努力工作，并将其做为我们的优先事项](/content/gnews/2666541.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [分析师称Terra的Mirror协议据称遭受了第二次攻击并濒临崩溃](/content/gnews/2666540.md)
  `墨尔本雅典娜农场`
+
+#### [6.4中共惊慌的背后——港人遭严查 ｜粤时报](/content/gnews/2666523.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [郭文贵：我们要打破阶级性，实现平等](/content/gnews/2666502.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中共003号航母并未在端午节如期而至](/content/gnews/2666501.md)
+ `澳喜农场`
+
+#### [新中国联邦将努力获得官方承认](/content/gnews/2666483.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [新加坡与金融业合作探索数字货币使用案例](/content/gnews/2666323.md)
  `墨尔本雅典娜农场`
 
-#### [人世间相聚，完美人生](/content/gnews/2666267.md)
- `秘密翻譯組G-Translators`
-
 #### [中美继续脱钩：香港与美国终止互任会计协议](/content/gnews/2666250.md)
  `墨尔本雅典娜农场`
-
-#### [许多身背房贷的澳洲人正焦急的等待下周二央行的加息结果](/content/gnews/2666240.md)
- `澳喜农场`
 
 #### [贵州动车脱轨导致多人受伤和司机死亡](/content/gnews/2666218.md)
  `澳喜农场`
 
-#### [每日快报：美国务卿布林肯发声明，将持续追究中共暴行](/content/gnews/2666217.md)
- `喜马拉雅-华盛顿DC农场`
-
 #### [中日财经爆｜中国船厂又有6艘集装箱船合同被取消](/content/gnews/2666207.md)
- `东京樱花团`
-
-#### [中日财经爆┃因经济复苏强劲，社保医保体系破产预期减弱](/content/gnews/2666205.md)
  `东京樱花团`
 
 #### [白宫可能在6月21日前为5岁以下儿童注射Covid-19疫苗](/content/gnews/2666167.md)
@@ -41,22 +59,10 @@
 #### [吴部长为乌克兰捐款400万美元。台湾人民与乌克兰站在一起](/content/gnews/2666022.md)
  `Tokyo Sakura Video Group`
 
-#### [“普京是战犯！”、“普京是杀人犯！” 一位勇敢的俄罗斯市民表达自己的意见](/content/gnews/2666010.md)
- `Tokyo Sakura Video Group`
-
 #### [研究表明，奥密克戎变种有能力感染那些已产生抗体的人](/content/gnews/2666006.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [在国际儿童节，波兰政府为乌克兰和波兰儿童组织了一次“游戏约会日”](/content/gnews/2665978.md)
- `Tokyo Sakura Video Group`
-
-#### [昆明康希诺可吸入疫苗，屏住呼吸5秒 接种完成](/content/gnews/2665977.md)
- `Tokyo Sakura Video Group`
-
 #### [疫苗让你更容易感染病毒](/content/gnews/2665976.md)
- `Tokyo Sakura Video Group`
-
-#### [济南最大核酸检测区落成！1小时内可同时满足2000人检测](/content/gnews/2665954.md)
  `Tokyo Sakura Video Group`
 
 #### [北朝鲜发射“8枚弹道导弹” 岸防卫相：“短时间内从3处以上发射是破例”](/content/gnews/2665908.md)
@@ -116,9 +122,6 @@
 #### [有声&#124;中共要求香港中小学定期考核普通话引担忧](/content/gnews/2664687.md)
  `MOSREC`
 
-#### [北京天安门广场抗议活动33年后，要求对事件负责的呼声仍被压制](/content/gnews/2664654.md)
- `TokyoSakura Politics/樱花时政`
-
 #### [有声&#124;中共的封城政策，恐懼感超越六四](/content/gnews/2664653.md)
  `MOSREC`
 
@@ -136,9 +139,6 @@
 
 #### [共和党赢得今年中期选举后 国会将率先官方承认新中国联邦](/content/gnews/2663682.md)
  `秘密翻译组-原创组`
-
-#### [中国人民的未来掌握在自己手中](/content/gnews/2663236.md)
- `NFSC News`
 
 #### [世界维吾尔代表大会纪念天安门大屠杀33周年](/content/gnews/2662665.md)
  `温哥华扬帆农场`
