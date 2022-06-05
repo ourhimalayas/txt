@@ -11,6 +11,27 @@
 
 ---
 
+#### [马斯克将裁员十分之一特斯拉员工](/content/gnews/2666206.md)
+ `澳喜农场`
+
+#### [白宫可能在6月21日前为5岁以下儿童注射Covid-19疫苗](/content/gnews/2666167.md)
+ `东京樱花团`
+
+#### [中日财经爆┃美国5月新增39万个就业岗位，招聘依然强劲](/content/gnews/2666163.md)
+ `东京樱花团`
+
+#### [喜联储创始人谈所谓“算法稳定币”和唯一真稳定币喜美元](/content/gnews/2666146.md)
+ `澳喜农场`
+
+#### [谈古论今 &#124; 往事不如烟——8964点滴回忆](/content/gnews/2666023.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [吴部长为乌克兰捐款400万美元。台湾人民与乌克兰站在一起](/content/gnews/2666022.md)
+ `Tokyo Sakura Video Group`
+
+#### [“普京是战犯！”、“普京是杀人犯！” 一位勇敢的俄罗斯市民表达自己的意见](/content/gnews/2666010.md)
+ `Tokyo Sakura Video Group`
+
 #### [研究表明，奥密克戎变种有能力感染那些已产生抗体的人](/content/gnews/2666006.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -18,6 +39,9 @@
  `Tokyo Sakura Video Group`
 
 #### [昆明康希诺可吸入疫苗，屏住呼吸5秒 接种完成](/content/gnews/2665977.md)
+ `Tokyo Sakura Video Group`
+
+#### [疫苗让你更容易感染病毒](/content/gnews/2665976.md)
  `Tokyo Sakura Video Group`
 
 #### [济南最大核酸检测区落成！1小时内可同时满足2000人检测](/content/gnews/2665954.md)
@@ -32,28 +56,13 @@
 #### [伊丽莎白女王因身体“不适”将缺席周年纪念活动](/content/gnews/2665939.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [几位共和党众议员认为枪支法不能阻止大规模枪击](/content/gnews/2665929.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [联合国同意土耳其的更名请求](/content/gnews/2665915.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [【西朝鲜】](/content/gnews/2665849.md)
- `SpicyWorld`
-
 #### [同胞快醒来，从此要站着活，我们砸碎这铁锁！](/content/gnews/2665847.md)
  `雅典娜GNotes`
-
-#### [【操纵】](/content/gnews/2665838.md)
- `SpicyWorld`
 
 #### [我们就是不想当锁链女，我们就是不想让共产党囚禁我们所有的家人](/content/gnews/2665837.md)
  `雅典娜GNotes`
 
 #### [七哥和战友们欢迎好朋友新中国联邦形象代言人皮特纳瓦罗先生](/content/gnews/2665836.md)
- `雅典娜GNotes`
-
-#### [约翰摩根先生和夫人康妮来到了新中国联邦2周年庆典现场](/content/gnews/2665832.md)
  `雅典娜GNotes`
 
 #### [前中信银行行长孙德顺在海外藏匿天文数字级资产](/content/gnews/2665820.md)
@@ -128,14 +137,8 @@
 #### [六月四日注定成为中华民族重要的纪念日](/content/gnews/2664133.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [币圈大佬文克莱沃斯兄弟宣布裁员10%：加密货币寒冬降临](/content/gnews/2664082.md)
- `加拿大温哥华英里农场`
-
 #### [2022年6月4日新中国联邦建立2周年庆典采访班农先生：只有1%的中国人知道天安门大屠杀](/content/gnews/2664066.md)
  `秘密翻译组-原创组`
-
-#### [摩根太太接受郭文贵先生的采访](/content/gnews/2663998.md)
- `秘密翻譯組G-Translators`
 
 #### [多伦多警署取消中共病毒疫苗强制政策](/content/gnews/2663986.md)
  `NFSC News`
@@ -163,9 +166,6 @@
 
 #### [数字货币市场第一例内幕交易操纵者被指控](/content/gnews/2657068.md)
  `银河歌舞厅`
-
-#### [日本：80%入境旅客免检测隔离](/content/gnews/2656252.md)
- `喜马拉雅纽约磐石农场`
 
 #### [史蒂夫·班农：必须停止像Steve Wynn这样的中共严重渗透事件](/content/gnews/2628241.md)
  `墨尔本雅典娜农场`
