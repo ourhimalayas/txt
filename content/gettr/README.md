@@ -2,11 +2,27 @@
 ---
 
 
+[@miles 6/5/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1cuooi60d0.md)
+
+6/05/2022 Miles Guo’ GETTR: The celebration of the New Federal State of China’s second anniversary concluded successfully, with the new faces from each Himalaya Farm being the biggest highlights. The New Federal State of China is g...
+
+<img src="https://media.gettr.com/group16/getter/2022/06/05/23/e9238c18-57d8-79f6-7dca-b10a8c2ea995/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1cu9vt9834.md)
 
 2022年6月5日 七哥与爆二代乱聊直播
 
 <img src="https://media.gettr.com/group27/origin/2022/06/05/23/b8f7c68c-defd-c5e3-ee12-2a7c3a238e39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p1cujaoa34c.md)
+
+6/05/2022 Miles Guo’ GETTR: All our fellow fighters who attended yesterday’s ceremony, either on-site or online, showed the 1.4 billion Chinese and people all over the world that we, the Chinese people, can and deserve to live a ha...
+
+<img src="https://media.gettr.com/group11/getter/2022/06/05/23/fd6c003f-dbaa-572d-1912-cf8a77537175/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +39,14 @@
 【NFSC 2nd Anniversary 】06/04/2022 The first elevator I took to go upstairs was hacked and stopped working. The world's top-notch bankruptcy law firm, where my bankruptcy attorney works, was also hacked and blacked out. The CCP woul...
 
 <img src="https://media.gettr.com/group20/getter/2022/06/05/23/22c2e7ce-7a63-f69c-8517-98f616b770cf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p1cudkt6bbd.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: On the 2nd anniversary of the New Federal State of China, Mrs. Morgan had an interview with me. This is her first ever public interview, and insiders will understand what it means; Mrs. ...
+
+<img src="https://media.gettr.com/group15/getter/2022/06/05/23/d9f89af3-f8d4-6ee0-4285-62cdf585cff0/out.jpg" width="506" height="284">
 
 ---
 
@@ -45,14 +69,6 @@
 6月5号：尊敬的战友们好．新中国联邦建国两周年的纪念日．开启了个新的时代！任何事物在相对公平，客观的对比情况下．得出的结果就是真理，昨天我们证明了真理是存在的．人性．人格．人命，是可以改变的，我们已经做到了，我们还会做得更好，更多……我们还会让更多人．和我们一样，万佛万神的护佑，我们再一次创造了奇迹，感谢全球的所有的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都已经开始！
 
 <img src="https://media.gettr.com/group38/getter/2022/06/05/14/97afa396-16d4-a20b-c12e-37de5b5697c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p1cudkt6bbd.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: On the 2nd anniversary of the New Federal State of China, Mrs. Morgan had an interview with me. This is her first ever public interview, and insiders will understand what it means; Mrs. ...
-
-<img src="https://media.gettr.com/group15/getter/2022/06/05/23/d9f89af3-f8d4-6ee0-4285-62cdf585cff0/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,22 +155,6 @@
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Republican Party is projected tol win the Midterm Election. He agrees with what Mr. Steve Bannon said at the NFSC 2nd anniversary celebration that the first thing the New Federal Sta...
 
 <img src="https://media.gettr.com/group15/getter/2022/06/05/07/f24bff51-8cd0-e566-ddde-5324ac5e1274/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 6:36 AM UTC  - :tv:直播](/content/gettr/p1craix701b.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The CCP has been frantically deleting data from social media world wide. This is absolutely a state level act! The CCP is so fearful! It was the June 4th incident in 1989 that sowed the s...
-
-<img src="https://media.gettr.com/group39/getter/2022/06/05/06/75d544f6-d78e-3a2f-bcf6-2862d9ef4176/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 6:38 AM UTC  - :tv:直播](/content/gettr/p1crqyo88ae.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon: No other organization in the world has been able to achieve as much remarkable success within a year or two as the New Federal State of China, despite the constant attacks from the CCP! ...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/05/06/0c84485b-8481-40c3-efea-bd44ed690a34/out.jpg" width="506" height="284">
 
 ---
 
