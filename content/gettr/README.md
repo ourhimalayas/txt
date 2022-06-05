@@ -2,11 +2,27 @@
 ---
 
 
+[@miles 6/5/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1crpfc21ea.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
+
+<img src="https://media.gettr.com/group7/getter/2022/06/05/07/9d22743a-2e82-7958-a3b7-80f0bfa13e8d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p1crxtoddf8.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
 
 <img src="https://media.gettr.com/group41/getter/2022/06/05/07/284811e2-e4fb-9b6f-416f-7e17dee37218/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 7:28 AM UTC  - :tv:直播](/content/gettr/p1crxtw137f.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: It's an effort we have to undertake to get the New Federal State of China recognized within the near future. It’s going to be very difficult. But look at how many accomplishments the ...
+
+<img src="https://media.gettr.com/group14/getter/2022/06/05/07/ee4cf80a-0f58-d419-491b-488ad3b9ce47/out.jpg" width="506" height="284">
 
 ---
 
@@ -26,19 +42,19 @@
 
 ---
 
-[@miles 6/5/2022 6:30 AM UTC  - :tv:直播](/content/gettr/p1crr9r2f09.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo: To all those in Communist China, members of the CCP, and those in the CCP's system, you will be rewarded with Himalaya Coins as long as you can provide the information that is helpful for...
-
-<img src="https://media.gettr.com/group26/getter/2022/06/05/06/3fa18205-4581-a9e8-8865-564ee3ccce37/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/5/2022 7:11 AM UTC  - :tv:直播](/content/gettr/p1crq1q5be0.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Republican Party is projected tol win the Midterm Election. He agrees with what Mr. Steve Bannon said at the NFSC 2nd anniversary celebration that the first thing the New Federal Sta...
 
 <img src="https://media.gettr.com/group15/getter/2022/06/05/07/f24bff51-8cd0-e566-ddde-5324ac5e1274/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 6:30 AM UTC  - :tv:直播](/content/gettr/p1crr9r2f09.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo: To all those in Communist China, members of the CCP, and those in the CCP's system, you will be rewarded with Himalaya Coins as long as you can provide the information that is helpful for...
+
+<img src="https://media.gettr.com/group26/getter/2022/06/05/06/3fa18205-4581-a9e8-8865-564ee3ccce37/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,22 +261,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo talks about and reveals the CCP’s plan to create  a "Gold Brick Financial System" with a few rogue banks overseas which is actually a system for the CCP to hide their wealth overseas. He ...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/04/22/a1fcda7f-a039-8709-b92d-5787b79b3181/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:25 PM UTC  - :tv:直播](/content/gettr/p1cptebf82b.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Mr. Bannon: Every new Chinese needs to build their own followings on GETTR. You will learn alot but will also teach a lot. Spread the word out there about the Chinese Communist Party, of the evils ...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/04/22/9d6160fa-8792-192f-ab7b-9ba4b3531c7e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1cpl29f24a.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Chinese Communist Party has been planning for their families to prepare for the aftermath of the collapse of the Party. They have been planning for the assets of their children and g...
-
-<img src="https://media.gettr.com/group26/getter/2022/06/04/22/fcd1e785-f43d-f7c1-8998-bb816d95929b/out.jpg" width="506" height="284">
 
 ---
 
