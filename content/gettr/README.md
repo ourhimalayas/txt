@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/5/2022 1:20 PM UTC  - :tv:直播](/content/gettr/p1csdwke926.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo sings the song "Chained Dream" live and says: We have been fighting for 5 years. To this day, we are the only ones who dare to say overthrow the Communist Party. We must overthrow the...
+
+<img src="https://media.gettr.com/group15/getter/2022/06/05/13/d4aaf16d-5742-8ed3-15b3-8769bbd5a8a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1cssgbc42f.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 In the interview with Mrs. Morgan, Mr. Miles Guo states that the birth of the NFSC was in accordance with God's will to eliminate the CCP, an unprecedented cancer on the earth; and, very fortunatel...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/5/2022 1:20 PM UTC  - :tv:直播](/content/gettr/p1csdwke926.md)
+[@miles 6/5/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1csmuzdc05.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo sings the song "Chained Dream" live and says: We have been fighting for 5 years. To this day, we are the only ones who dare to say overthrow the Communist Party. We must overthrow the...
+【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
 
-<img src="https://media.gettr.com/group15/getter/2022/06/05/13/d4aaf16d-5742-8ed3-15b3-8769bbd5a8a6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/06/05/14/543363b1-1068-5cb3-c745-e53b857d6d28/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,22 +253,6 @@ On June 4, Mr.  Miles Guo blew the whistle that Peter Navarro was arrested on Ju
 Brothers and sisters of the Taiwanese farm wish a happy birthday on the second anniversary of the new federation of China! We will definitely eliminate the evil Communist Party as soon as possible, realize our Himalayas together, a...
 
 <img src="https://media.gettr.com/group50/origin/2022/06/05/03/eedfd33d-2cd9-5b32-a504-1436509fa73c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1cqvbe56ee.md)
-
-【NFSC 2nd Anniversary】06/04/2022: Connie H. Morgan: The Himalaya Coin is very clean. That's why it was so stable when the rest of the cryptocurrencies were falling.
-
-
-
-【新中国联邦2周年】06/04/2022 摩根夫人：喜币非常干净。 这就是为什么数字货币价格大跌时，喜币的价格很稳定
-
-
-
-#...
-
-<img src="https://media.gettr.com/group40/getter/2022/06/05/01/b4ebcfd8-b4ac-3bef-cc8e-537187fa6867/out.jpg" width="506" height="284">
 
 ---
 
