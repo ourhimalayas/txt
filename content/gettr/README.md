@@ -56,6 +56,66 @@
 
 ---
 
+[@miles 6/5/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1cs47ub3a5.md)
+
+《喜马拉雅·希望之光》
+
+词/曲/编曲：舒文 
+
+
+
+演唱： Fiona，Daniel， Helen，
+
+             Nicole， Tenten，Tiger
+
+
+
+MV：小灯
+
+
+
+混音：SFG
+
+
+
+翻译：山上的城
+
+
+
+监制：唐平
+
+
+
+夜尽初曦蕴光明 坚守自由信仰 
+
+
+
+秉天赋平等 不退让
+
+
+
+家国父兄历浩劫 惜荣耀尽失光
+
+
+
+问我辈如何  浴火重生希望
+
+
+
+小小萤火聚成海 勇敢对决黑暗
+
+
+
+看喜马拉雅  升起希望之光
+
+
+
+...
+
+<img src="https://media.gettr.com/group11/origin/2022/06/05/04/4e5f256e-99cd-9f84-03ba-cbb8ed71e337/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/5/2022 4:39 AM UTC ](/content/gettr/p1crmmk0b6b.md)
 
 2022-6-4《鸡血王喜币大作战》 第二百一十六集 嘉宾：卡丽熙, 风雨之中
@@ -205,14 +265,6 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 2022年6月4日 新中国联邦两周年庆典 战友大连线 4K版
 
 <img src="https://media.gettr.com/group18/origin/2022/06/04/21/d30bd007-7ac1-9f58-24a0-a63e79c8f0c0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/4/2022 9:25 PM UTC  - :tv:直播](/content/gettr/p1cpggk8cde.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: The New Federal States of China will be the future of Chinese people. CCP is the root cause of all the catastrophes in the world, the NFSC got the greatest ability for taking down the...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/04/21/99a85b94-aac4-8db6-97a8-fe4f4ee91df6/out.jpg" width="506" height="284">
 
 ---
 
