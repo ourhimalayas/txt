@@ -34,57 +34,13 @@ Brothers and sisters of the Taiwanese farm wish a happy birthday on the second a
 
 ---
 
-[@qmay007 6/4/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1cq3p7c481.md)
+[@miles 6/5/2022 4:05 AM UTC ](/content/gettr/p1cr1l4cf17.md)
 
-《往事不再如烟》
+If Republicans win midterm elections, Congress will legislate to recognize the New Federal State of China
 
+On June 4, Mr.  Miles Guo blew the whistle that Peter Navarro was arrested on June 3, but he is coming to attend the 2nd ann...
 
-
-演唱：QMay  Superman Bunny  文空
-
-作曲：QMay      
-
-作词：Ryan
-
-制作人：QMay
-
-编曲/混音：A.W
-
-吉他：    Ryan 
-
-
-
-问一声早熟的麦子哟
-
-为何会变得沉甸甸
-
-是不是六月的惊雷
-
-把你唤醒又闭上眼
-
-
-
-问一声哭泣的孩子哟
-
-为何又变得沉默寡言
-
-是不是青春的广场上
-
-子弹横飞过血红的天
-
-
-
-远去的孩子啊
-
-你在天上能否看见
-
-大地上的苦难
-
-重复一遍又一遍
-
-长大的孩子...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/04/21/fa0aba84-e740-24f1-3c4f-5bfdcd61c842/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/06/05/04/73784b4a-541d-3918-ecea-a65caa85e78c/3dd779ee50a4cf9ffcbc5f9b079cdc0c.png" width="506" height="284">
 
 ---
 
