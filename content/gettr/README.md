@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/6/2022 12:08 PM UTC  - :tv:直播](/content/gettr/p1cx9t4d271.md)
+
+20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
+
+
+
+<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/6/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p1cx4eo8e82.md)
 
 20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
@@ -66,13 +76,11 @@
 
 ---
 
-[@miles 6/6/2022 12:08 PM UTC  - :tv:直播](/content/gettr/p1cx9t4d271.md)
+[@miles 6/6/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1cwij94054.md)
 
-20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
+ 6月6号：尊敬的战友们好……祝今天离开曼哈顿纽约的战友们……一路平安，今天的短暂别离，是为了我们永久的相聚，永远珍惜和感恩……我们一起度过美好的无与伦比的时刻……万分万分的感谢感谢，在这次两周年．新中国联邦的庆祝活动当中无数个．背后的默默的奉献．和所有在后台工作的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏🙏
 
-
-
-<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/06/06/14/2593d7f8-cfd7-83d0-391b-e26bb67630bd/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@
 【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
 
 <img src="https://media.gettr.com/group50/getter/2022/06/05/14/543363b1-1068-5cb3-c745-e53b857d6d28/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 1:20 PM UTC  - :tv:直播](/content/gettr/p1csdwke926.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo sings the song "Chained Dream" live and says: We have been fighting for 5 years. To this day, we are the only ones who dare to say overthrow the Communist Party. We must overthrow the...
-
-<img src="https://media.gettr.com/group15/getter/2022/06/05/13/d4aaf16d-5742-8ed3-15b3-8769bbd5a8a6/out.jpg" width="506" height="284">
 
 ---
 
