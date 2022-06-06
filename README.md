@@ -11,6 +11,30 @@
 
 ---
 
+#### [韩美联军等量回敬朝鲜试射导弹](/content/gnews/2672179.md)
+ `日本东京方舟农场`
+
+#### [【樱话】2022.6.4新中国联邦建立2周年庆典 爆料革命快乐灭共、健康灭共、享受灭共](/content/gnews/2672165.md)
+ `TokyoSakuraDesignGroup`
+
+#### [对抗通货膨胀 美考虑取消部分对中共国加征关税](/content/gnews/2672154.md)
+ `日本东京方舟农场`
+
+#### [回顾新中国联邦成立2周年](/content/gnews/2672148.md)
+ `NFSC News`
+
+#### [自美国将大疆列入黑名单以来英国首次公开采购该中共国品牌无人机](/content/gnews/2672143.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【樱话】新中国联邦人要过有品质的生活](/content/gnews/2672138.md)
+ `TokyoSakuraDesignGroup`
+
+#### [NBA因中共国多年不转播比赛而损失“数亿美元”](/content/gnews/2672134.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [台湾数百人集会纪念天安门事件](/content/gnews/2672133.md)
+ `topnews`
+
 #### [郭文贵： 我们敢对摩根先生说喜币是世界上唯一的真正的稳定币](/content/gnews/2672127.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -29,6 +53,12 @@
 #### [贵州发生动车事故，造成1人死亡和8人受伤](/content/gnews/2672097.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
+#### [唐纳德·川普有望重回美国的权力中心](/content/gnews/2672086.md)
+ `秘密翻译组-原创组`
+
+#### [喜马拉雅币一周分析与总结（5月30日-6月5日）](/content/gnews/2672075.md)
+ `NFSC News`
+
 #### [万豪退出俄罗斯市场](/content/gnews/2672065.md)
  `NFSC News`
 
@@ -41,23 +71,14 @@
 #### [台湾各界人士在中正纪念堂悼念六四事件](/content/gnews/2672029.md)
  `NFSC News`
 
-#### [摩根夫人谈喜币](/content/gnews/2671981.md)
- `NFSC News`
-
 #### [梅迪卡营地管理委员会代表称赞法治基金志愿者工作专业](/content/gnews/2671966.md)
  `墨尔本雅典娜农场`
-
-#### [澳大利亚指控中国战斗机进行危险操作 拦截澳大利亚侦察机](/content/gnews/2671942.md)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（九）](/content/gnews/2671928.md)
  `墨尔本雅典娜农场`
 
 #### [【视频/字幕】2022年6月5日文贵先生盖特全文字版](/content/gnews/2671919.md)
  `Mr. Miles Guo's News Briefing`
-
-#### [共产党不能代表我们所有中国人](/content/gnews/2671870.md)
- `墨尔本雅典娜农场`
 
 #### [Coinbase无限期延长其招聘冻结期，北美大厂纷纷裁员过冬](/content/gnews/2671860.md)
  `澳喜农场`
@@ -80,29 +101,14 @@
 #### [专家警告澳洲食品杂货价格或将大幅上涨](/content/gnews/2671792.md)
  `澳喜农场`
 
-#### [6月5日七哥乱聊（图片1-9）](/content/gnews/2671777.md)
- `波士顿五月花农场`
-
-#### [【畜生·贱货】](/content/gnews/2671736.md)
- `SpicyWorld`
-
 #### [【战·六四】](/content/gnews/2671721.md)
  `SpicyWorld`
-
-#### [摩根夫人赞赏喜币的理念，喜币价格稳定因为它非常干净](/content/gnews/2671688.md)
- `墨尔本雅典娜农场`
 
 #### [【清零计划】六](/content/gnews/2671680.md)
  `SpicyWorld`
 
-#### [【清零计划】七](/content/gnews/2671678.md)
- `SpicyWorld`
-
 #### [由于与零件短缺有关的盗窃增加，汽车“在数小时内被抢走”](/content/gnews/2671672.md)
  `波士顿五月花农场金融部`
-
-#### [视频&#124;喜联储创始人谈Terra 稳定币崩溃带来的思考](/content/gnews/2671664.md)
- `MOSVIDEO`
 
 #### [六人因天安门大屠杀纪念活动在香港被捕](/content/gnews/2671638.md)
  `喜马拉雅-华盛顿DC农场`
@@ -122,9 +128,6 @@
 #### [英国再援助乌克兰M270远程火箭系统](/content/gnews/2671348.md)
  `纽约香草山MOS02`
 
-#### [魁北克正式颁布新的法语使用法案](/content/gnews/2671300.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [中共在福建兴建点防空阵地](/content/gnews/2671185.md)
  `TokyoSakura Politics/樱花时政`
 
@@ -133,9 +136,6 @@
 
 #### [参议员比尔·哈格蒂：中共正对台湾虎视眈眈](/content/gnews/2671146.md)
  `美国政要直译推`
-
-#### [中日财经爆&#124;美国考虑取消部分中共国关税以对抗通胀](/content/gnews/2671120.md)
- `东京樱花团`
 
 #### [研究人员：关于新冠病毒疫苗，“我们犯了一个大错误”](/content/gnews/2670935.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
