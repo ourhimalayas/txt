@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 6/5/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1cuooi60d0.md)
-
-6/05/2022 Miles Guo’ GETTR: The celebration of the New Federal State of China’s second anniversary concluded successfully, with the new faces from each Himalaya Farm being the biggest highlights. The New Federal State of China is g...
-
-<img src="https://media.gettr.com/group16/getter/2022/06/05/23/e9238c18-57d8-79f6-7dca-b10a8c2ea995/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/6/2022 12:09 AM UTC  - :tv:直播](/content/gettr/p1cuaub4949.md)
 
 【NFSC 2nd Anniversary】06/04/2022: Connie H. Morgan: The Himalaya Coin is very clean. That’s why it was so stable when the rest of the cryptocurrencies were falling.
@@ -23,6 +15,22 @@
 #...
 
 <img src="https://media.gettr.com/group4/getter/2022/06/06/00/1607f84e-6be7-41c4-6fb1-dea2523c52fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1cuooi60d0.md)
+
+6/05/2022 Miles Guo’ GETTR: The celebration of the New Federal State of China’s second anniversary concluded successfully, with the new faces from each Himalaya Farm being the biggest highlights. The New Federal State of China is g...
+
+<img src="https://media.gettr.com/group16/getter/2022/06/05/23/e9238c18-57d8-79f6-7dca-b10a8c2ea995/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/6/2022 12:53 AM UTC  - :tv:直播](/content/gettr/p1cunxyfead.md)
+
+2022年6月5日 飞飞秀 战友眼中的两周年国庆
+
+<img src="https://media.gettr.com/group11/origin/2022/06/06/00/afdd2a12-a8d6-b394-4286-348712eda141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@
 【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: It's an effort we have to undertake to get the New Federal State of China recognized within the near future. It’s going to be very difficult. But look at how many accomplishments the ...
 
 <img src="https://media.gettr.com/group14/getter/2022/06/05/07/ee4cf80a-0f58-d419-491b-488ad3b9ce47/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 7:11 AM UTC  - :tv:直播](/content/gettr/p1crq1q5be0.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The Republican Party is projected tol win the Midterm Election. He agrees with what Mr. Steve Bannon said at the NFSC 2nd anniversary celebration that the first thing the New Federal Sta...
-
-<img src="https://media.gettr.com/group15/getter/2022/06/05/07/f24bff51-8cd0-e566-ddde-5324ac5e1274/out.jpg" width="506" height="284">
 
 ---
 
