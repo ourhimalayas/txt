@@ -10,11 +10,19 @@
 
 ---
 
-[@miles 6/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1cu9vt9834.md)
+[@miles 6/6/2022 12:09 AM UTC  - :tv:直播](/content/gettr/p1cuaub4949.md)
 
-2022年6月5日 七哥与爆二代乱聊直播
+【NFSC 2nd Anniversary】06/04/2022: Connie H. Morgan: The Himalaya Coin is very clean. That’s why it was so stable when the rest of the cryptocurrencies were falling.
 
-<img src="https://media.gettr.com/group27/origin/2022/06/05/23/b8f7c68c-defd-c5e3-ee12-2a7c3a238e39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+【新中国联邦2周年】06/04/2022 摩根夫人：喜币非常干净。 这就是为什么数字货币价格大跌时，喜币的价格很稳定
+
+
+
+#...
+
+<img src="https://media.gettr.com/group4/getter/2022/06/06/00/1607f84e-6be7-41c4-6fb1-dea2523c52fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@
 6/05/2022 Miles Guo’ GETTR: All our fellow fighters who attended yesterday’s ceremony, either on-site or online, showed the 1.4 billion Chinese and people all over the world that we, the Chinese people, can and deserve to live a ha...
 
 <img src="https://media.gettr.com/group11/getter/2022/06/05/23/fd6c003f-dbaa-572d-1912-cf8a77537175/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1cu9vt9834.md)
+
+2022年6月5日 七哥与爆二代乱聊直播
+
+<img src="https://media.gettr.com/group27/origin/2022/06/05/23/b8f7c68c-defd-c5e3-ee12-2a7c3a238e39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -139,14 +155,6 @@
 【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: It's an effort we have to undertake to get the New Federal State of China recognized within the near future. It’s going to be very difficult. But look at how many accomplishments the ...
 
 <img src="https://media.gettr.com/group14/getter/2022/06/05/07/ee4cf80a-0f58-d419-491b-488ad3b9ce47/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p1crxtoddf8.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: The most important mission for all the Chinese around the world is to prevent anti-Chinese movements similar to the Indonesian mass killings of the Chinese from happening. The No. 1 requ...
-
-<img src="https://media.gettr.com/group41/getter/2022/06/05/07/284811e2-e4fb-9b6f-416f-7e17dee37218/out.jpg" width="506" height="284">
 
 ---
 
