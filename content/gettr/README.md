@@ -2,17 +2,19 @@
 ---
 
 
+[@miles 6/5/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1ct90c6d9e.md)
+
+2022年6月5日 战友纽约现场走秀和船游
+
+<img src="https://media.gettr.com/group21/origin/2022/06/05/17/c1a4c08d-9b48-9d9c-49e7-ad6516327d46/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@globalalliance 6/5/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1cqjdr0dce.md)
 
 2022.06.04 新中国联邦 | 喜财经  数字货币专栏：庆祝新中国联邦成立两周年 喜币和躺平币成为世界第一数字货币的资质 量子计算的到来对加密货币的影响
 
 <img src="https://media.gettr.com/group46/liveorigin/2022/06/05/02/63990473-41f8-28b5-0750-c93dd6d3078a/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@wenfeng2020 6/6/2022 4:46 PM UTC ](/content/gettr/p1cy74n99ae.md)
-
-活不过6月，这真就来了。。。
 
 ---
 
