@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/5/2022 5:54 PM UTC  - :tv:直播](/content/gettr/p1ct90c6d9e.md)
+[@fuckccpandcpc 6/6/2022 5:23 PM UTC  - :tv:直播](/content/gettr/p1cxrns5fc2.md)
 
-2022年6月5日 战友纽约现场走秀和船游
 
-<img src="https://media.gettr.com/group21/origin/2022/06/05/17/c1a4c08d-9b48-9d9c-49e7-ad6516327d46/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+<img src="https://media.gettr.com/group9/gvision/2022/06/06/17/0671c98b-2139-253d-b762-d7c2f9dc9de7/out.jpg" width="506" height="284">
 
 ---
 
