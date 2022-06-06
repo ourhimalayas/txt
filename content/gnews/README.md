@@ -2,20 +2,32 @@
 ---
 
 
-#### [【樱话】荷兰航空飞行员协会赢得反对荷航强制疫苗诉讼](/content/gnews/2671206.md)
+#### [文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（八）](/content/gnews/2671289.md)
+ `墨尔本雅典娜农场`
+
+#### [俄罗斯外长被迫取消对塞尔维亚的访问 因周边国家关闭领空](/content/gnews/2671281.md)
+ `秘密翻譯組G-Translators`
+
+#### [【樱话】班农先生谈灭共的信心和对年轻人的建议](/content/gnews/2671274.md)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】广西发通告指偷渡致疫情可判死刑](/content/gnews/2671199.md)
+#### [中共病毒日平均死亡人数为1209人 大流行开始以来最低水平](/content/gnews/2671267.md)
+ `秘密翻譯組G-Translators`
+
+#### [【樱话】美国发现两种不同的猴痘变种，增加了爆发的谜团](/content/gnews/2671263.md)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】北京“64”：当局以隐匿的数据透露疫苗死难者皆为当局祭牲品](/content/gnews/2671192.md)
- `TokyoSakuraDesignGroup`
+#### [普京警告说若西方给乌克兰提供长程导弹的话就攻击对方](/content/gnews/2671239.md)
+ `秘密翻譯組G-Translators`
+
+#### [县域建设一盘棋，CCP黑帮的新经济](/content/gnews/2671238.md)
+ `喜马拉雅纽约磐石农场`
+
+#### [中共在福建兴建点防空阵地](/content/gnews/2671185.md)
+ `TokyoSakura Politics/樱花时政`
 
 #### [【粤语配音】2022年6月04日：新中国联邦负有使命&#8211;推翻邪恶的中国共产党](/content/gnews/2671176.md)
  `MOS香港部`
-
-#### [“天安门事件”让中国失去了民主的机会](/content/gnews/2671163.md)
- `TokyoSakuraDesignGroup`
 
 #### [德国因俄罗斯的制裁每年增加50亿欧元额外支出](/content/gnews/2671153.md)
  `TokyoSakura Politics/樱花时政`
@@ -31,9 +43,6 @@
 
 #### [日媒头条 — 第7期](/content/gnews/2671107.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [跑鞋项目币STEPN5月暴跌也是中共操控](/content/gnews/2671084.md)
- `TokyoSakuraDesignGroup`
 
 #### [新中国联邦两周年庆典，郭先生与康妮女士的精彩对白](/content/gnews/2671080.md)
  `墨尔本雅典娜农场`
@@ -65,9 +74,6 @@
 #### [2022年6月6日《樱花快报》：普京威胁将攻击新目标 以阻止美国向乌克兰提供远程导弹](/content/gnews/2670873.md)
  `东京樱花团`
 
-#### [2022年06月06日七哥和爆二代乱聊直播](/content/gnews/2670863.md)
- `Mr. Miles Guo's News Briefing`
-
 #### [【新中国联邦2周年庆典】八九六四 新中国联邦灭共的起点](/content/gnews/2670860.md)
  `蓝莲花农场`
 
@@ -85,9 +91,6 @@
 
 #### [荷兰反 2030 年议程，反政府， 时间到了，要么觉醒或要么死亡](/content/gnews/2670748.md)
  `Tokyo Sakura Video Group`
-
-#### [韩国和美国发射八枚导弹以回应朝鲜导弹试验](/content/gnews/2670718.md)
- `波士顿五月花农场金融部`
 
 #### [俄罗斯穷人在买过期好几年的食品，底层人深受战争影响，独裁者造孽，百姓遭殃！](/content/gnews/2670717.md)
  `Tokyo Sakura Video Group`
@@ -128,13 +131,10 @@
 #### [菲律宾联合银行通过区块链支持的债券发行筹资2.08亿美元](/content/gnews/2670270.md)
  `墨尔本雅典娜农场`
 
-#### [回望六四:自由思想启蒙&amp;民众觉醒&amp;高层政斗&amp;国际推动](/content/gnews/2670206.md)
- `mary202064`
+#### [中共控制的公司欲收购美国福布斯媒体](/content/gnews/2670215.md)
+ `mayflowertranslate`
 
 #### [多国驻港澳总领馆云纪念8964](/content/gnews/2669635.md)
- `NFSC News`
-
-#### [班农先生称新中国联邦将成为中流砥柱](/content/gnews/2669634.md)
  `NFSC News`
 
 #### [关于6.4的诗《牙痛》（外一首）](/content/gnews/2668032.md)
