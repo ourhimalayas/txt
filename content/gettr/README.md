@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/6/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p1cx4eo8e82.md)
+
+20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
+
+
+
+<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/6/2022 9:21 AM UTC  - :tv:直播](/content/gettr/p1cw2ow363f.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
@@ -56,7 +66,7 @@
 
 ---
 
-[@miles 6/6/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p1cx4eo8e82.md)
+[@miles 6/6/2022 12:08 PM UTC  - :tv:直播](/content/gettr/p1cx9t4d271.md)
 
 20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
 
@@ -155,14 +165,6 @@
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo sings the song "Chained Dream" live and says: We have been fighting for 5 years. To this day, we are the only ones who dare to say overthrow the Communist Party. We must overthrow the...
 
 <img src="https://media.gettr.com/group15/getter/2022/06/05/13/d4aaf16d-5742-8ed3-15b3-8769bbd5a8a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1cssgbc42f.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 In the interview with Mrs. Morgan, Mr. Miles Guo states that the birth of the NFSC was in accordance with God's will to eliminate the CCP, an unprecedented cancer on the earth; and, very fortunatel...
-
-<img src="https://media.gettr.com/group45/getter/2022/06/05/10/9c5ac649-eabe-4cba-ea47-1b317e835d3a/out.jpg" width="506" height="284">
 
 ---
 
