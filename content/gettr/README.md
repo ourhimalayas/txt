@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/6/2022 12:53 AM UTC  - :tv:直播](/content/gettr/p1cunxyfead.md)
+
+2022年6月5日 飞飞秀 战友眼中的两周年国庆
+
+<img src="https://media.gettr.com/group11/origin/2022/06/06/00/afdd2a12-a8d6-b394-4286-348712eda141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/6/2022 12:09 AM UTC  - :tv:直播](/content/gettr/p1cuaub4949.md)
 
 【NFSC 2nd Anniversary】06/04/2022: Connie H. Morgan: The Himalaya Coin is very clean. That’s why it was so stable when the rest of the cryptocurrencies were falling.
@@ -26,11 +34,9 @@
 
 ---
 
-[@miles 6/6/2022 12:53 AM UTC  - :tv:直播](/content/gettr/p1cunxyfead.md)
+[@miles 6/6/2022 3:01 AM UTC ](/content/gettr/p1cuwkeb94a.md)
 
-2022年6月5日 飞飞秀 战友眼中的两周年国庆
-
-<img src="https://media.gettr.com/group11/origin/2022/06/06/00/afdd2a12-a8d6-b394-4286-348712eda141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022-6-5《鸡血王喜币大作战》 第二百一十七集 嘉宾：七里香、封神榜
 
 ---
 
@@ -147,14 +153,6 @@
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo pointed out the three features that distinguish HCN from other tokens in the crypto market: 1. It carries a value and the hope of the Chinese people to take down the CCP; 2. it is mat...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/05/07/4ebe03c2-ca37-9edc-f25d-db75d96d5421/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1crpfc21ea.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
-
-<img src="https://media.gettr.com/group7/getter/2022/06/05/07/9d22743a-2e82-7958-a3b7-80f0bfa13e8d/out.jpg" width="506" height="284">
 
 ---
 
