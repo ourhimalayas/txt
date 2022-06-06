@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/6/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1cxorh1d7e.md)
+
+20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
+
+
+
+<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/6/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1cwij94054.md)
+
+ 6月6号：尊敬的战友们好……祝今天离开曼哈顿纽约的战友们……一路平安，今天的短暂别离，是为了我们永久的相聚，永远珍惜和感恩……我们一起度过美好的无与伦比的时刻……万分万分的感谢感谢，在这次两周年．新中国联邦的庆祝活动当中无数个．背后的默默的奉献．和所有在后台工作的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏🙏
+
+<img src="https://media.gettr.com/group15/getter/2022/06/06/14/2593d7f8-cfd7-83d0-391b-e26bb67630bd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/6/2022 12:08 PM UTC  - :tv:直播](/content/gettr/p1cx9t4d271.md)
 
 20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
@@ -76,11 +94,11 @@
 
 ---
 
-[@miles 6/6/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1cwij94054.md)
+[@miles 6/6/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1cxltyb57d.md)
 
- 6月6号：尊敬的战友们好……祝今天离开曼哈顿纽约的战友们……一路平安，今天的短暂别离，是为了我们永久的相聚，永远珍惜和感恩……我们一起度过美好的无与伦比的时刻……万分万分的感谢感谢，在这次两周年．新中国联邦的庆祝活动当中无数个．背后的默默的奉献．和所有在后台工作的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏🙏
+MILES GUO 直播 2022-06-06
 
-<img src="https://media.gettr.com/group15/getter/2022/06/06/14/2593d7f8-cfd7-83d0-391b-e26bb67630bd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/06/06/15/e3d66f30-4346-e08f-6d1b-8a7ede179764/a92beaa8bb49527a615bc7acbc1f563c.jpg" width="506" height="284">
 
 ---
 
@@ -138,14 +156,6 @@
 
 ---
 
-[@miles 6/5/2022 2:46 PM UTC  - :tv:直播](/content/gettr/p1csnprf813.md)
-
-6月5号：尊敬的战友们好．新中国联邦建国两周年的纪念日．开启了个新的时代！任何事物在相对公平，客观的对比情况下．得出的结果就是真理，昨天我们证明了真理是存在的．人性．人格．人命，是可以改变的，我们已经做到了，我们还会做得更好，更多……我们还会让更多人．和我们一样，万佛万神的护佑，我们再一次创造了奇迹，感谢全球的所有的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都已经开始！
-
-<img src="https://media.gettr.com/group38/getter/2022/06/05/14/97afa396-16d4-a20b-c12e-37de5b5697c2/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/5/2022 2:48 PM UTC ](/content/gettr/p1cslvhce18.md)
 
  6月5号：此时此刻的台湾农场的直播太棒了，快去看吧……
@@ -157,14 +167,6 @@
 6月5号：感谢西班牙农场为此付出的一切．请代表新中国联邦持续关注和照顾这些孩子。【站长，不知道七哥是否看到了我们做的那个96孩子的视频，有点长，4分多钟，重点其实是最后面的这个10秒，他们祝福新中国联邦生日的，特地录的，你觉得有必要给七哥私下传过去吗？】
 
 <img src="https://media.gettr.com/group23/getter/2022/06/05/14/4005d0ca-9d92-1368-3a0e-4f87dae303ec/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 2:13 PM UTC  - :tv:直播](/content/gettr/p1csmuzdc05.md)
-
-【NFSC 2nd Anniversary 】06/04/2022  Mr. Peter Navarro said that he already pointed out the trade deal that a faction in the White House was trying to make with the Communist China was meaningless. He also found out the trade deficit...
-
-<img src="https://media.gettr.com/group50/getter/2022/06/05/14/543363b1-1068-5cb3-c745-e53b857d6d28/out.jpg" width="506" height="284">
 
 ---
 
