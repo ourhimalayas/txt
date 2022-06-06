@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/6/2022 3:01 AM UTC ](/content/gettr/p1cuwkeb94a.md)
+
+2022-6-5《鸡血王喜币大作战》 第二百一十七集 嘉宾：七里香、封神榜
+
+---
+
 [@miles 6/6/2022 12:53 AM UTC  - :tv:直播](/content/gettr/p1cunxyfead.md)
 
 2022年6月5日 飞飞秀 战友眼中的两周年国庆
@@ -34,9 +40,11 @@
 
 ---
 
-[@miles 6/6/2022 3:01 AM UTC ](/content/gettr/p1cuwkeb94a.md)
+[@miles 6/6/2022 8:15 AM UTC  - :tv:直播](/content/gettr/p1cw5zxb5c0.md)
 
-2022-6-5《鸡血王喜币大作战》 第二百一十七集 嘉宾：七里香、封神榜
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We can confidently tell Mr. Morgan, who is the creator of global finance, that the HCoin is the only real stable coin in the world. Mr. Morgan has provided consulting and tech for the HC...
+
+<img src="https://media.gettr.com/group30/getter/2022/06/06/08/a3b3352e-f411-9dc4-9e1c-ca6a18fe4030/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@
 【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo pointed out the three features that distinguish HCN from other tokens in the crypto market: 1. It carries a value and the hope of the Chinese people to take down the CCP; 2. it is mat...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/05/07/4ebe03c2-ca37-9edc-f25d-db75d96d5421/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 7:28 AM UTC  - :tv:直播](/content/gettr/p1crxtw137f.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Steve Bannon: It's an effort we have to undertake to get the New Federal State of China recognized within the near future. It’s going to be very difficult. But look at how many accomplishments the ...
-
-<img src="https://media.gettr.com/group14/getter/2022/06/05/07/ee4cf80a-0f58-d419-491b-488ad3b9ce47/out.jpg" width="506" height="284">
 
 ---
 
