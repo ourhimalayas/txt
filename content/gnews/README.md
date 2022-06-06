@@ -2,6 +2,15 @@
 ---
 
 
+#### [【樱话】荷兰航空飞行员协会赢得反对荷航强制疫苗诉讼](/content/gnews/2671206.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】广西发通告指偷渡致疫情可判死刑](/content/gnews/2671199.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】北京“64”：当局以隐匿的数据透露疫苗死难者皆为当局祭牲品](/content/gnews/2671192.md)
+ `TokyoSakuraDesignGroup`
+
 #### [【粤语配音】2022年6月04日：新中国联邦负有使命&#8211;推翻邪恶的中国共产党](/content/gnews/2671176.md)
  `MOS香港部`
 
@@ -29,9 +38,6 @@
 #### [新中国联邦两周年庆典，郭先生与康妮女士的精彩对白](/content/gnews/2671080.md)
  `墨尔本雅典娜农场`
 
-#### [印度向台湾伸出橄榄枝，预打造半导体制造中心](/content/gnews/2671033.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [美韩发射8枚地对地导弹，对应北朝鲜连射导弹](/content/gnews/2671027.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -41,17 +47,11 @@
 #### [研究人员：关于新冠病毒疫苗，“我们犯了一个大错误”](/content/gnews/2670935.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [猴痘再次验证了中共的邪恶](/content/gnews/2670928.md)
- `TokyoSakuraDesignGroup`
-
 #### [谈古论今 &#124; 升级版的悲惨世界](/content/gnews/2670926.md)
  `东京樱花团`
 
 #### [六月五号郭文贵先生盖特全文字版](/content/gnews/2670925.md)
  `东京樱花团`
-
-#### [枫叶快讯 – 6月6日午间新闻播报稿](/content/gnews/2670914.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [因面临巨罚款，国际特奥会取消参赛者疫苗接种要求](/content/gnews/2670910.md)
  `日本东京方舟农场`
