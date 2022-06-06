@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/6/2022 9:21 AM UTC  - :tv:直播](/content/gettr/p1cw2ow363f.md)
+
+【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/06/09/44fc2d57-ab55-6a7d-af79-3673b4a9c31f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/6/2022 8:15 AM UTC  - :tv:直播](/content/gettr/p1cw5zxb5c0.md)
 
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We can confidently tell Mr. Morgan, who is the creator of global finance, that the HCoin is the only real stable coin in the world. Mr. Morgan has provided consulting and tech for the HC...
@@ -48,11 +56,13 @@
 
 ---
 
-[@miles 6/6/2022 9:21 AM UTC  - :tv:直播](/content/gettr/p1cw2ow363f.md)
+[@miles 6/6/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p1cx4eo8e82.md)
 
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
+20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
 
-<img src="https://media.gettr.com/group38/getter/2022/06/06/09/44fc2d57-ab55-6a7d-af79-3673b4a9c31f/out.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@
 【NFSC 2nd Anniversary 】06/04/2022 In the interview with Mrs. Morgan, Mr. Miles Guo states that the birth of the NFSC was in accordance with God's will to eliminate the CCP, an unprecedented cancer on the earth; and, very fortunatel...
 
 <img src="https://media.gettr.com/group45/getter/2022/06/05/10/9c5ac649-eabe-4cba-ea47-1b317e835d3a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 7:39 AM UTC  - :tv:直播](/content/gettr/p1cryit109f.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Mr. Miles Guo pointed out the three features that distinguish HCN from other tokens in the crypto market: 1. It carries a value and the hope of the Chinese people to take down the CCP; 2. it is mat...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/05/07/4ebe03c2-ca37-9edc-f25d-db75d96d5421/out.jpg" width="506" height="284">
 
 ---
 
