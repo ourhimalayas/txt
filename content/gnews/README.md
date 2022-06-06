@@ -2,6 +2,24 @@
 ---
 
 
+#### [【樱话】布林肯6.4声明强调：中共是血腥镇压](/content/gnews/2672565.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃六四33周年 美呼吁中共直面共军实施的对内屠杀](/content/gnews/2672561.md)
+ `樱花FM`
+
+#### [【樱话】“专政之下争取民主，牺牲是值得的” 邹幸彤6.4抗议入狱](/content/gnews/2672538.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃Novavax股价暴跌 FDA称其疫苗存在风险](/content/gnews/2672537.md)
+ `樱花FM`
+
+#### [樱花FM┃灵商决定人生成败](/content/gnews/2672530.md)
+ `樱花FM`
+
+#### [樱花FM┃FTC：加密货币骗局致4.6万人损失超10亿美元](/content/gnews/2672529.md)
+ `樱花FM`
+
 #### [【樱话】港府为与疫苗有关的死亡支付25.5万美元](/content/gnews/2672509.md)
  `TokyoSakuraDesignGroup`
 
@@ -20,26 +38,8 @@
 #### [中共计划打造海外“金砖金融系统” ｜粤时报](/content/gnews/2672470.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [樱花FM┃巴切莱特正在毁掉联合国的信誉](/content/gnews/2672459.md)
- `樱花FM`
-
-#### [樱花FM┃俄军攻击东部北顿涅茨克 乌军南部发起反击](/content/gnews/2672449.md)
- `樱花FM`
-
-#### [樱花FM┃美国计划向乌克兰出售装备空地导弹的无人机](/content/gnews/2672442.md)
- `樱花FM`
-
-#### [樱花FM┃恒大完了！ 惠誉撤销恒大评级不再分析](/content/gnews/2672407.md)
- `樱花FM`
-
-#### [樱花FM┃对灭共后社会平稳过渡的初步思考之“经济篇”](/content/gnews/2672396.md)
- `樱花FM`
-
 #### [2022年6月4日 新中国联邦两周年庆典摘要和音频](/content/gnews/2672365.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [【樱话】对灭共后社会平稳过渡的初步思考之“国体篇”](/content/gnews/2672301.md)
- `TokyoSakuraDesignGroup`
 
 #### [郭先生解析美中博弈的始末](/content/gnews/2672292.md)
  `NFSC News`
