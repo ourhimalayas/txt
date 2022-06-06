@@ -11,13 +11,37 @@
 
 ---
 
+#### [澳防长表示，澳洲空军将继续在南海国际空域巡航](/content/gnews/2671841.md)
+ `走进澳洲`
+
+#### [澳洲政府表示不会被中共在南海的行为所吓到](/content/gnews/2671838.md)
+ `澳喜农场`
+
+#### [俄罗斯将军在乌克兰东部被击毙](/content/gnews/2671830.md)
+ `墨尔本雅典娜农场`
+
+#### [澳大利亚是解决全球粮食短缺的重要一环](/content/gnews/2671824.md)
+ `澳喜农场`
+
+#### [专家警告澳洲食品杂货价格或将大幅上涨](/content/gnews/2671792.md)
+ `澳喜农场`
+
+#### [6月5日七哥乱聊（图片1-9）](/content/gnews/2671777.md)
+ `波士顿五月花农场`
+
+#### [【畜生·贱货】](/content/gnews/2671736.md)
+ `SpicyWorld`
+
+#### [【战·六四】](/content/gnews/2671721.md)
+ `SpicyWorld`
+
 #### [摩根夫人赞赏喜币的理念，喜币价格稳定因为它非常干净](/content/gnews/2671688.md)
  `墨尔本雅典娜农场`
 
-#### [【六四有感】](/content/gnews/2671677.md)
+#### [【清零计划】六](/content/gnews/2671680.md)
  `SpicyWorld`
 
-#### [【六四有感】](/content/gnews/2671673.md)
+#### [【清零计划】七](/content/gnews/2671678.md)
  `SpicyWorld`
 
 #### [由于与零件短缺有关的盗窃增加，汽车“在数小时内被抢走”](/content/gnews/2671672.md)
@@ -25,12 +49,6 @@
 
 #### [视频&#124;喜联储创始人谈Terra 稳定币崩溃带来的思考](/content/gnews/2671664.md)
  `MOSVIDEO`
-
-#### [六人因天安门大屠杀纪念活动在香港被捕](/content/gnews/2671638.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [【中国梦】](/content/gnews/2671600.md)
- `SpicyWorld`
 
 #### [【新中国联邦成立2周年留言板】](/content/gnews/2671599.md)
  `SpicyWorld`
@@ -41,20 +59,11 @@
 #### [“里程碑式”象牙禁令今天生效——但它来得太晚了吗？](/content/gnews/2671587.md)
  `波士顿五月花农场金融部`
 
-#### [视频&#124;多国驻港澳总领馆云纪念8964](/content/gnews/2671583.md)
- `MOSVIDEO`
-
-#### [视频&#124;班农先生称新中国联邦将成为中流砥柱](/content/gnews/2671567.md)
- `MOSVIDEO`
-
 #### [【全文字幕】2021年9月20日郭文贵先生会议休息时间在山上直播](/content/gnews/2671535.md)
  `文贵视频字幕全集`
 
 #### [端午节应纪念伍子胥 伍子胥懂善恶却不得善终](/content/gnews/2671500.md)
  `墨尔本雅典娜农场`
-
-#### [香港六四纪念活动遭港警镇压，《国安法》摧毁香港法制](/content/gnews/2671477.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [中共外交的死皮赖脸](/content/gnews/2671460.md)
  `日本东京方舟农场`
@@ -74,20 +83,11 @@
 #### [郭先生与爆二代乱聊直播要点（2022年6月5日）](/content/gnews/2671332.md)
  `波士顿五月花农场`
 
-#### [【话说六四】](/content/gnews/2671330.md)
- `SpicyWorld`
-
 #### [美国嘉吉公司将购买的5千吨玉米顺利运出乌克兰](/content/gnews/2671316.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [英国预计提供乌克兰3套M270多管火箭](/content/gnews/2671307.md)
  `TokyoSakura Politics/樱花时政`
 
 #### [魁北克正式颁布新的法语使用法案](/content/gnews/2671300.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [中共病毒日平均死亡人数为1209人 大流行开始以来最低水平](/content/gnews/2671267.md)
- `秘密翻譯組G-Translators`
 
 #### [中共在福建兴建点防空阵地](/content/gnews/2671185.md)
  `TokyoSakura Politics/樱花时政`
