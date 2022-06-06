@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/6/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p1cywyabfbb.md)
+
+2022.06.06   G｜Clubs 会员游船活动 
+
+<img src="https://media.gettr.com/group26/origin/2022/06/06/21/42c87d9b-c727-4cbf-6c6f-c1ab9931ce13/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@globalalliance 6/5/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1cqjdr0dce.md)
 
 2022.06.04 新中国联邦 | 喜财经  数字货币专栏：庆祝新中国联邦成立两周年 喜币和躺平币成为世界第一数字货币的资质 量子计算的到来对加密货币的影响
@@ -163,12 +171,6 @@ MILES GUO 直播 2022-06-06
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: On the 2nd anniversary of the New Federal State of China, Mrs. Morgan had an interview with me. This is her first ever public interview, and insiders will understand what it means; Mrs. ...
 
 <img src="https://media.gettr.com/group15/getter/2022/06/05/23/d9f89af3-f8d4-6ee0-4285-62cdf585cff0/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 6:37 PM UTC ](/content/gettr/p1ctiq7708e.md)
-
-2022-6-5「Together」——NFSC 2️⃣周年纪念特辑🏅 #小小尼莫音乐会 🎼第十四期，我們心在一起💗，音樂在一起🎶，未來在一起⛳️，We are 「Together」🌟
 
 ---
 
