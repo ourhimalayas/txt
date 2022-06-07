@@ -11,21 +11,6 @@
 
 ---
 
-#### [我们不能忘掉我们的初衷（二）](/content/gnews/2676762.md)
- `雅典娜GNotes`
-
-#### [我们不能忘掉我们的初衷（一）](/content/gnews/2676755.md)
- `雅典娜GNotes`
-
-#### [我们对世界的认知对金融的认知是很浅薄的（三）](/content/gnews/2676754.md)
- `雅典娜GNotes`
-
-#### [我们对世界的认知对金融的认知是很浅薄的（二）](/content/gnews/2676749.md)
- `雅典娜GNotes`
-
-#### [我们对世界的认知对金融的认知是很浅薄的（一）](/content/gnews/2676748.md)
- `雅典娜GNotes`
-
 #### [日本将密切关注基地和核电站附近的土地销售情况](/content/gnews/2676672.md)
  `TokyoSakura Politics/樱花时政`
 
@@ -80,14 +65,8 @@
 #### [为反制朝鲜挑衅 韩美向日本海发射多枚导弹](/content/gnews/2676469.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [Pierre Poilievre 议员提交个人议员提案：取消全部（现有）疫苗强制规定并禁止未来所有的疫苗强制令](/content/gnews/2676435.md)
- `加拿大温哥华扬帆农场视频组`
-
 #### [国际特奥会取消美国特奥会疫苗接种要求](/content/gnews/2676431.md)
  `NFSC News`
-
-#### [有声&#124;英国再援助乌克兰M270远程火箭系统](/content/gnews/2676430.md)
- `MOSREC`
 
 #### [中共通过茶壶石油计划帮助伊朗躲避制裁](/content/gnews/2676357.md)
  `mayflowertranslate`
