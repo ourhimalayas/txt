@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 6/7/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1d47ng68bb.md)
+
+6月7号：七哥在所有的人……都担心染毒的情况下，与战友们以命相见……证明了我们新中国联邦人的真情真意，同时我们得到上天万福外省的护佑……🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏最重要的事实是．七哥不会．战友也不会．有任何的侥幸和自私的心理和行为……不顾战友的健康．和安危．我们都很小心，我们都很在意，彼此的健康和安全，谢谢所有兄弟姐妹们！
+
+<img src="https://media.gettr.com/group47/getter/2022/06/07/23/83e54a70-5f75-ea60-2dff-bf14720d94ca/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1d419c9015.md)
 
 In the face of the ongoing shelling of their homeland, the young Ukrainian girls showed courage, strength, and the belief that they would never give up. They were making naturally beautiful headdresses out of dandelion flowers as t...
 
 <img src="https://media.gettr.com/group17/origin/2022/06/07/23/de62b8d8-23eb-862d-f127-7fff0a54df98/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/7/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1d4a437419.md)
+
+6/7/2022 Miles Guo’s GETTR: Foreign entrepreneurs are all fleeing Communist China and leaving everything behind! They believe what happened to Miles Guo can happen to them as well; Those who took the COVID vaccines really regret th...
+
+<img src="https://media.gettr.com/group20/getter/2022/06/07/23/54b1d775-dc08-665e-fb3c-ba9588bf15ab/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/7/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1d48ca25ee.md)
+
+6/7/2022 Miles Guo’s GETTR: The Taiwanese, Japanese, and other foreign businesspersons who set up factories in Qingdao, Shanghai, Henan, and other places have recently experienced the same tricks of the CCP - first, the CCP would i...
+
+<img src="https://media.gettr.com/group49/getter/2022/06/07/23/14ab2a61-98ec-6932-09d8-a1bd6f06cc49/out.jpg" width="506" height="284">
 
 ---
 
@@ -112,14 +136,6 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@miles 6/7/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1d48ca25ee.md)
-
-6/7/2022 Miles Guo’s GETTR: The Taiwanese, Japanese, and other foreign businesspersons who set up factories in Qingdao, Shanghai, Henan, and other places have recently experienced the same tricks of the CCP - first, the CCP would i...
-
-<img src="https://media.gettr.com/group49/getter/2022/06/07/23/14ab2a61-98ec-6932-09d8-a1bd6f06cc49/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/7/2022 4:51 AM UTC ](/content/gettr/p1d0wfc008c.md)
 
 https://gettr.com/streaming/p1cs2mv9b7e
@@ -135,14 +151,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 [@miles 6/7/2022 3:04 AM UTC ](/content/gettr/p1czexzdebb.md)
 
 2022-6-6《鸡血王喜币大作战》 第二百一十八集 嘉宾：青藤、NICK
-
----
-
-[@miles 6/7/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1czcyw27f4.md)
-
-6/06/2022 Miles Guo: The Communist Party cannot get away from the vaccine disaster, world probe for origin of the CCP virus, and the natural disaster plus food crisis; the U.S. has to face its own economic crisis, but it has suffic...
-
-<img src="https://media.gettr.com/group18/getter/2022/06/07/00/2360b0e0-b28e-0fd8-a951-a8d9e526a9bb/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 6/6/2022 Miles Guo’s GETTR: We will soon face crazy retaliation and challenges from the CCP. Yesterday I told one of my American friends that Mother Jones, the CCP's running dog, would publish an article attacking us, and sure enou...
 
 <img src="https://media.gettr.com/group34/getter/2022/06/07/00/196cfc54-87e1-2b1b-74ff-891c29fd0aef/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1cz59vbfc1.md)
-
-6/5/2022 Mile Guo: The Republican Party will win both the House and Senate in the midterm elections. Donald Trump will soon announce his run for the 2024 presidential election; Polls show that 56% of Americans between the age of 18...
-
-<img src="https://media.gettr.com/group40/getter/2022/06/06/23/228c461d-6cdd-445c-d8a8-14872eef64f9/out.jpg" width="506" height="284">
 
 ---
 
