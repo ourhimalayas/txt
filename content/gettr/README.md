@@ -2,6 +2,16 @@
 ---
 
 
+[@himalayaukclub 6/4/2022 8:54 AM UTC  - :tv:直播](/content/gettr/p1cnb3w054a.md)
+
+2022/06/04 《分享時刻》之历史篇：今天，永恆的話題64
+
+
+
+<img src="https://media.gettr.com/group4/origin/2022/06/03/23/11472cf7-45b9-0c17-3044-4960cf33344b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1d1r9n1866.md)
 
 6月7日：尊敬的战友们好，全球在华投资者……都在从中国大陆撤出生产线……和全面的撤回投资的资金。这是共产党灭亡前．必然发生的现象！和当年大清朝倒闭时．所有的皇亲贵族．把钱转到美国花旗银行情形是一样的！
@@ -40,13 +50,11 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@himalayaukclub 6/4/2022 8:54 AM UTC  - :tv:直播](/content/gettr/p1cnb3w054a.md)
+[@miles 6/7/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1d31l66286.md)
 
-2022/06/04 《分享時刻》之历史篇：今天，永恆的話題64
+2022年06月07日 送战友，明年见
 
-
-
-<img src="https://media.gettr.com/group4/origin/2022/06/03/23/11472cf7-45b9-0c17-3044-4960cf33344b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/liveorigin/2022/06/07/15/8467add5-9eff-6dd6-b31e-e6097a045ebc/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 2022.06.05 新中国联邦 | 喜财经  周日沙龙第四期——躺平币怎么玩（续）
 
 <img src="https://media.gettr.com/group30/origin/2022/06/05/09/c6667a07-b93d-dd2d-8ea3-7fb06192c55e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/6/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1cxltyb57d.md)
-
-MILES GUO 直播 2022-06-06
-
-<img src="https://media.gettr.com/group11/getter/2022/06/06/15/e3d66f30-4346-e08f-6d1b-8a7ede179764/a92beaa8bb49527a615bc7acbc1f563c.jpg" width="506" height="284">
 
 ---
 
