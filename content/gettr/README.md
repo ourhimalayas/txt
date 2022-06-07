@@ -2,11 +2,11 @@
 ---
 
 
-[@fuckccpandcpc 6/6/2022 5:23 PM UTC  - :tv:直播](/content/gettr/p1cxrns5fc2.md)
+[@miles 6/6/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1cz8i4ce2c.md)
 
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. Social class divisions are never ...
 
-
-<img src="https://media.gettr.com/group9/gvision/2022/06/06/17/0671c98b-2139-253d-b762-d7c2f9dc9de7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/06/06/23/9219c7f3-9086-e37f-3d2c-0ee103504604/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 2022.06.06   G｜Clubs 会员游船活动 
 
 <img src="https://media.gettr.com/group26/origin/2022/06/06/21/42c87d9b-c727-4cbf-6c6f-c1ab9931ce13/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@fuckccpandcpc 6/6/2022 5:23 PM UTC  - :tv:直播](/content/gettr/p1cxrns5fc2.md)
+
+
+
+<img src="https://media.gettr.com/group9/gvision/2022/06/06/17/0671c98b-2139-253d-b762-d7c2f9dc9de7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/6/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1cz59vbfc1.md)
+
+6/5/2022 Mile Guo: The Republican Party will win both the House and Senate in the midterm elections. Donald Trump will soon announce his run for the 2024 presidential election; Polls show that 56% of Americans between the age of 18...
+
+<img src="https://media.gettr.com/group40/getter/2022/06/06/23/228c461d-6cdd-445c-d8a8-14872eef64f9/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,22 +155,6 @@ MILES GUO 直播 2022-06-06
 6/05/2022 Miles Guo’ GETTR: All our fellow fighters who attended yesterday’s ceremony, either on-site or online, showed the 1.4 billion Chinese and people all over the world that we, the Chinese people, can and deserve to live a ha...
 
 <img src="https://media.gettr.com/group11/getter/2022/06/05/23/fd6c003f-dbaa-572d-1912-cf8a77537175/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1cu9vt9834.md)
-
-2022年6月5日 七哥与爆二代乱聊直播
-
-<img src="https://media.gettr.com/group27/origin/2022/06/05/23/b8f7c68c-defd-c5e3-ee12-2a7c3a238e39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1cupqz0ff7.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. The Chinese should be treated as ...
-
-<img src="https://media.gettr.com/group6/getter/2022/06/05/23/43d1c5f5-6f65-4447-b7b5-bb003aec3a3c/out.jpg" width="506" height="284">
 
 ---
 
