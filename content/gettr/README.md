@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/7/2022 7:17 PM UTC ](/content/gettr/p1d39pd4151.md)
+
+2022-6-7《避风港》(56)  疫苗引发的心血管病紧急呼叫增加25%
+
+---
+
 [@miles 6/7/2022 7:00 PM UTC  - 6圖](/content/gettr/p1d2e6zd2ce.md)
 
  6月7号：尊敬的战友们好．第一个病毒的测试结果．
@@ -78,9 +84,23 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@miles 6/7/2022 7:17 PM UTC ](/content/gettr/p1d39pd4151.md)
+[@miles 6/7/2022 8:54 PM UTC  - :tv:直播](/content/gettr/p1d3rucdba3.md)
 
-2022-6-7《避风港》(56)  疫苗引发的心血管病紧急呼叫增加25%
+6月7号：尊敬的战友们好．第一个病毒的测试结果．
+
+
+
+
+
+
+
+已经出来．阴性！
+
+
+
+血液化验结果还在等待中！
+
+<img src="https://media.gettr.com/group16/getter/2022/06/07/20/f65020cd-5bce-1177-296d-4e4624067378/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +175,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 2022.06.06   G｜Clubs 会员游船活动 
 
 <img src="https://media.gettr.com/group26/origin/2022/06/06/21/42c87d9b-c727-4cbf-6c6f-c1ab9931ce13/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@fuckccpandcpc 6/6/2022 5:23 PM UTC  - :tv:直播](/content/gettr/p1cxrns5fc2.md)
-
-
-
-<img src="https://media.gettr.com/group9/gvision/2022/06/06/17/0671c98b-2139-253d-b762-d7c2f9dc9de7/out.jpg" width="506" height="284">
 
 ---
 
