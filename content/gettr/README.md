@@ -2,17 +2,25 @@
 ---
 
 
+[@miles 6/7/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1d1xjxaa7d.md)
+
+20220607 NFSCニュース　新中国連邦政権を実現する可能か
+
+<img src="https://media.gettr.com/group23/origin/2022/06/07/11/2b3af18c-447d-d770-68a9-8c10c262e5d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 4:51 AM UTC ](/content/gettr/p1d111w4b06.md)
 
 https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@miles 6/7/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1d1xjxaa7d.md)
+[@miles 6/7/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1d1l2fb5cc.md)
 
-20220607 NFSCニュース　新中国連邦政権を実現する可能か
+2022年06月07日 送战友，明年见
 
-<img src="https://media.gettr.com/group23/origin/2022/06/07/11/2b3af18c-447d-d770-68a9-8c10c262e5d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/06/07/12/476ce6ff-b925-632c-3fa7-10cbb6d16c58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,16 +149,6 @@ MILES GUO 直播 2022-06-06
 ---
 
 [@miles 6/6/2022 12:08 PM UTC  - :tv:直播](/content/gettr/p1cx9t4d271.md)
-
-20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
-
-
-
-<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 11:57 AM UTC  - :tv:直播](/content/gettr/p1cx4eo8e82.md)
 
 20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
 
