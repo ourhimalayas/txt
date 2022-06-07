@@ -8,9 +8,23 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
+[@miles 6/7/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1d1xjxaa7d.md)
+
+20220607 NFSCニュース　新中国連邦政権を実現する可能か
+
+<img src="https://media.gettr.com/group23/origin/2022/06/07/11/2b3af18c-447d-d770-68a9-8c10c262e5d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 4:51 AM UTC ](/content/gettr/p1d0wfc008c.md)
 
 https://gettr.com/streaming/p1cs2mv9b7e
+
+---
+
+[@miles 6/7/2022 4:54 AM UTC ](/content/gettr/p1d18rsf505.md)
+
+https://gettr.com/streaming/p1cqjdr0dce
 
 ---
 
@@ -25,12 +39,6 @@ https://gettr.com/streaming/p1cs2mv9b7e
 6/06/2022 Miles Guo: The Communist Party cannot get away from the vaccine disaster, world probe for origin of the CCP virus, and the natural disaster plus food crisis; the U.S. has to face its own economic crisis, but it has suffic...
 
 <img src="https://media.gettr.com/group18/getter/2022/06/07/00/2360b0e0-b28e-0fd8-a951-a8d9e526a9bb/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 4:54 AM UTC ](/content/gettr/p1d18rsf505.md)
-
-https://gettr.com/streaming/p1cqjdr0dce
 
 ---
 
@@ -149,14 +157,6 @@ MILES GUO 直播 2022-06-06
 
 
 <img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 9:21 AM UTC  - :tv:直播](/content/gettr/p1cw2ow363f.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/06/09/44fc2d57-ab55-6a7d-af79-3673b4a9c31f/out.jpg" width="506" height="284">
 
 ---
 
