@@ -11,8 +11,47 @@
 
 ---
 
+#### [【该死的中共】](/content/gnews/2678718.md)
+ `SpicyWorld`
+
+#### [文·贵天成——文贵先生谈“六四”（九）](/content/gnews/2678704.md)
+ `墨尔本雅典娜农场`
+
+#### [上海 进过方舱的根本无法找工作，被歧视，把人逼到绝境](/content/gnews/2678696.md)
+ `Tokyo Sakura Video Group`
+
+#### [COVID疫苗的引入使永久性残疾人数惊人地增加](/content/gnews/2678692.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [视频&#124;面向商业的企业级高性能计算的进展和前景](/content/gnews/2678684.md)
+ `MOSVIDEO`
+
+#### [中共制造人祸，上海，这位姑娘喃喃自语，精神已经不正常了](/content/gnews/2678683.md)
+ `Tokyo Sakura Video Group`
+
+#### [视频&#124;有望用于量子计算机的量子时间晶体](/content/gnews/2678664.md)
+ `MOSVIDEO`
+
+#### [中日财经爆&#124; 纽约法官下令扣押阿布拉莫维奇两架豪华飞机](/content/gnews/2678651.md)
+ `东京樱花团`
+
+#### [中共摆拍，过生日订蛋糕摆拍，丧事喜办鼻祖](/content/gnews/2678646.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国某医院里,因妻子患上绝症无钱继续医治,绝望的老公躺在地上挣扎](/content/gnews/2678645.md)
+ `Tokyo Sakura Video Group`
+
+#### [《往事不再如烟》&#124;MV](/content/gnews/2678603.md)
+ `喜马拉雅德国纽伦堡正义农场`
+
 #### [中共卫健委“进一步加强核酸检测监管”的通知意味着什么](/content/gnews/2678549.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [拜登将对东南亚四国太阳能板免征24个月关税](/content/gnews/2678515.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [【 给羊测核酸】](/content/gnews/2678507.md)
+ `SpicyWorld`
 
 #### [中共在印太地区的第一个秘密海军基地9日举行奠基仪式](/content/gnews/2678503.md)
  `波士顿五月花农场金融部`
@@ -20,26 +59,14 @@
 #### [中日财经爆&#124; 突发重磅！美国SEC调查币安赵长鹏](/content/gnews/2678446.md)
  `东京樱花团`
 
-#### [【 全国DNA数据库】](/content/gnews/2678445.md)
- `SpicyWorld`
-
-#### [英国将向乌克兰提供远程移动火箭发射器](/content/gnews/2678429.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [为备战中共正强迫18周岁以上奴隶都要兵役登记](/content/gnews/2678427.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【难兄难弟】](/content/gnews/2678420.md)
- `SpicyWorld`
 
 #### [美国FDA对Novavax疫苗的心肌炎风险表示担忧](/content/gnews/2678415.md)
  `东京樱花团`
 
 #### [气候变化：即使今天所有排放都停止，地球仍有 42% 的机会被锁定在 1.5C 的升温中 &#8211; 研究](/content/gnews/2678404.md)
  `波士顿五月花农场金融部`
-
-#### [埃隆·马斯克科技公司裁员是由于糟糕的“经济”](/content/gnews/2678396.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [郭先生18楼阳台直播要点（2022年6月6日）](/content/gnews/2678384.md)
  `波士顿五月花农场`
@@ -53,26 +80,14 @@
 #### [梅干有抑制新冠病毒增殖的效果](/content/gnews/2678371.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [中共放毒之后活人保质期只有两三天真荒唐](/content/gnews/2678367.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [新中国联邦两周年庆典后共产党开始疯狂报复](/content/gnews/2678347.md)
  `墨尔本雅典娜农场`
-
-#### [七哥建议爆二代愿意情况下谈恋爱和提升自身能力](/content/gnews/2678330.md)
- `雅典娜GNotes`
 
 #### [喜联储必将给世界金融带来巨大变革](/content/gnews/2678329.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [美官员称若朝鲜进行核试验将作出强硬反应](/content/gnews/2678322.md)
  `波士顿五月花农场金融部`
-
-#### [只有一件事情是有面子，就是你的实力](/content/gnews/2678306.md)
- `雅典娜GNotes`
-
-#### [七哥最喜欢有个性的孩子，超级不喜欢圆滑的孩子](/content/gnews/2678296.md)
- `雅典娜GNotes`
 
 #### [《中共辟谣术》](/content/gnews/2678274.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -86,10 +101,7 @@
 #### [秘翻在线：美选民对拜登政府欲取消部份对中关税应对通胀的认可率极低](/content/gnews/2678172.md)
  `秘密翻譯組G-Translators`
 
-#### [【我本爆料人】](/content/gnews/2678071.md)
- `SpicyWorld`
-
-#### [【 赵立坚喊话】](/content/gnews/2678070.md)
+#### [【 你家羊核酸检测呈“羊”性】](/content/gnews/2678064.md)
  `SpicyWorld`
 
 #### [美拟降低中共国商品部分关税，以应对国内高通胀局面](/content/gnews/2677803.md)
@@ -143,23 +155,11 @@
 #### [耶伦否认敦促缩小救济计划](/content/gnews/2675944.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [无人问津的钱堆积在中共的银行里](/content/gnews/2675812.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [乌军确认击毙俄军少将库图佐夫](/content/gnews/2675641.md)
- `日本东京方舟农场`
-
-#### [中共又添新仇：尼日尼亚教堂枪击事件至少50人死亡](/content/gnews/2675512.md)
  `日本东京方舟农场`
 
 #### [日本宣布在小行星样本中首次发现氨基酸](/content/gnews/2675488.md)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [新中国联邦两岁生日](/content/gnews/2675384.md)
- `东京樱花团`
-
-#### [英国为调查俄罗斯在乌克兰的战争罪行提供进一步支持](/content/gnews/2675343.md)
- `波士顿五月花农场金融部`
 
 #### [1972-2022中美恩仇](/content/gnews/2674035.md)
  `东京樱花团`
