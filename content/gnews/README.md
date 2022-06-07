@@ -2,6 +2,39 @@
 ---
 
 
+#### [6/6/2022 文贵盖特：我们将很快面临中共的疯狂报复和挑战](/content/gnews/2677251.md)
+ `秘密翻译组-北美组`
+
+#### [有声&#124;郭先生解析美中博弈的始末](/content/gnews/2677214.md)
+ `MOSREC`
+
+#### [GETTR最新功能Vision上线 将与大型科技恐龙竞争](/content/gnews/2677213.md)
+ `日本东京方舟农场`
+
+#### [王毅的太平洋岛国之旅遇挫](/content/gnews/2677211.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [新疆的内部文件曝光，中共镇压维吾尔族铁证如山](/content/gnews/2677162.md)
+ `温哥华圆成农场🇨🇦`
+
+#### [朝鲜发射8枚短程弹道导弹](/content/gnews/2677148.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [英国无视普京警告，向乌克兰提供远程导弹](/content/gnews/2677141.md)
+ `GTV News Talk`
+
+#### [6/6/2022 文贵直播：因为爆料革命和新中国联邦，我们得到了世界级大佬的支持，获得了世界顶级投资机构、金融大家族的投资](/content/gnews/2677137.md)
+ `秘密翻译组-北美组`
+
+#### [美国务卿布林肯称俄罗斯窃取乌克兰粮食的报道“可信”](/content/gnews/2677129.md)
+ `波士顿五月花农场金融部`
+
+#### [想做一件事，就是专心的行动、行动](/content/gnews/2677110.md)
+ `Tokyo Sakura Video Group`
+
+#### [文贵先生告诉爆二代们一定要吃早餐](/content/gnews/2677109.md)
+ `Tokyo Sakura Video Group`
+
 #### [每日快报：德州总检察长对Twitter展开机器人账户调查](/content/gnews/2677104.md)
  `喜马拉雅-华盛顿DC农场`
 
@@ -11,34 +44,16 @@
 #### [中共战机拦截澳大利亚军机](/content/gnews/2677085.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
+#### [有声&#124;摩根夫人谈喜币](/content/gnews/2677084.md)
+ `MOSREC`
+
+#### [社交媒体的时代怎样活出自己](/content/gnews/2677083.md)
+ `Tokyo Sakura Video Group`
+
 #### [“在共产中国，蛋糕能冰封你” 李佳琦事件引争议](/content/gnews/2677068.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [文贵先生畅谈去年和今年对六四庆典的不同感受](/content/gnews/2677057.md)
- `Tokyo Sakura Video Group`
-
-#### [DC大中华时事：63岁毕福剑近照曝光！双鬓斑白脖子皱纹明显](/content/gnews/2677041.md)
- `喜马拉雅-华盛顿DC农场`
-
-#### [有声&#124;躺平币——彻底瓦解共匪金融](/content/gnews/2677040.md)
- `MOSREC`
-
-#### [六四庆典的一切都是我们新中国联邦人创造出来的 是不可想象的](/content/gnews/2677035.md)
- `Tokyo Sakura Video Group`
-
-#### [把痛苦和仇恨化成力量 才能成为人生的赢家](/content/gnews/2677018.md)
- `Tokyo Sakura Video Group`
-
-#### [文贵先生谈自己的锻炼方式](/content/gnews/2677017.md)
- `Tokyo Sakura Video Group`
-
-#### [6/6/2022文贵直播：有人把恒大正式被宣布债务违约的消息提前告诉了我，但我从不做投机生意，文贵坚守的人生原则就是永不赚快钱、不买卖股票、不向穷人伸手](/content/gnews/2677016.md)
- `秘密翻译组-北美组`
-
-#### [美国前100家公司都在学安利传销法](/content/gnews/2676994.md)
- `Tokyo Sakura Video Group`
-
-#### [文贵先生谈罗马的建筑](/content/gnews/2676993.md)
  `Tokyo Sakura Video Group`
 
 #### [摩根夫人赞赏喜币理念，价格稳定因为非常干净](/content/gnews/2676977.md)
@@ -53,26 +68,20 @@
 #### [极右翼骄傲男孩组织的前老板因被控密谋推翻美国政府而面临最高 20 年的监禁](/content/gnews/2676933.md)
  `波士顿五月花农场金融部`
 
-#### [2022年6月7日《樱花简报》：日美联合训练 对抗朝导弹发射](/content/gnews/2676894.md)
- `东京樱花团`
-
 #### [食物用完的食物银行——因为人们再也负担不起捐赠](/content/gnews/2676891.md)
  `波士顿五月花农场金融部`
 
 #### [加拿大首例：卑诗省一男子因中共病毒疫苗伤害获得赔偿](/content/gnews/2676824.md)
  `蓝莲花农场`
 
+#### [C-11法案将消极改变加拿大意识形态](/content/gnews/2676687.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
 #### [日本将密切关注基地和核电站附近的土地销售情况](/content/gnews/2676672.md)
  `TokyoSakura Politics/樱花时政`
 
 #### [维多利亚州政府试图隐藏其新设数据监控部门](/content/gnews/2676632.md)
  `走进澳洲`
-
-#### [中共政府威胁要对越境进入中共国的新冠感染者处以死刑](/content/gnews/2676577.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [安大略省创下选举历史上最低选民投票率](/content/gnews/2676563.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [即将到来的闹剧：自己出钱酸自己](/content/gnews/2676562.md)
  `澳喜农场`
@@ -98,12 +107,6 @@
 #### [国际特奥会取消美国特奥会疫苗接种要求](/content/gnews/2676431.md)
  `NFSC News`
 
-#### [中共通过茶壶石油计划帮助伊朗躲避制裁](/content/gnews/2676357.md)
- `mayflowertranslate`
-
-#### [联合国人权主任在访问中共国后被敦促辞职](/content/gnews/2676322.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [耶伦否认敦促缩小救济计划](/content/gnews/2675944.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -115,6 +118,9 @@
 
 #### [中共国叫车巨头滴滴出行大涨50%](/content/gnews/2675756.md)
  `西班牙巴塞罗那喜悦农场`
+
+#### [皮特-纳瓦罗呼吁必须与中共经济脱钩](/content/gnews/2675752.md)
+ `NFSC News`
 
 #### [乌军确认击毙俄军少将库图佐夫](/content/gnews/2675641.md)
  `日本东京方舟农场`
@@ -143,17 +149,11 @@
 #### [继美国之后，英国向乌克兰发送多管火箭系统](/content/gnews/2675083.md)
  `波士顿五月花农场金融部`
 
-#### [美联储雄风不再 世界货币秩序要变天 喜马拉雅币和躺平币将崛起](/content/gnews/2674663.md)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [1972-2022中美恩仇](/content/gnews/2674035.md)
  `东京樱花团`
 
 #### [1972-2022中美恩仇](/content/gnews/2673827.md)
  `东京樱花团`
-
-#### [巴拿马银行Towerbank 将支持密货币服务](/content/gnews/2673188.md)
- `澳喜农场`
 
 #### [参议员比尔·哈格蒂：中共正对台湾虎视眈眈](/content/gnews/2671146.md)
  `美国政要直译推`
