@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 6/7/2022 7:00 PM UTC  - 6圖](/content/gettr/p1d2e6zd2ce.md)
+
+ 6月7号：尊敬的战友们好．第一个病毒的测试结果．
+
+
+
+
+
+
+
+已经出来．阴性！
+
+
+
+血液化验结果还在等待中！
+
+<img src="https://media.gettr.com/group21/getter/2022/06/07/18/8ba1db96-0f9b-148c-b0c4-ebc741d1d26c/c93b8027ae9ecdb163860ca276c2b1c3.jpg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1d31l66286.md)
 
 2022年06月07日 送战友，明年见
@@ -58,23 +78,9 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@miles 6/7/2022 7:00 PM UTC  - 6圖](/content/gettr/p1d2e6zd2ce.md)
+[@miles 6/7/2022 7:17 PM UTC ](/content/gettr/p1d39pd4151.md)
 
- 6月7号：尊敬的战友们好．第一个病毒的测试结果．
-
-
-
-
-
-
-
-已经出来．阴性！
-
-
-
-血液化验结果还在等待中！
-
-<img src="https://media.gettr.com/group21/getter/2022/06/07/18/8ba1db96-0f9b-148c-b0c4-ebc741d1d26c/c93b8027ae9ecdb163860ca276c2b1c3.jpg" width="506" height="284">
+2022-6-7《避风港》(56)  疫苗引发的心血管病紧急呼叫增加25%
 
 ---
 
@@ -157,14 +163,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 
 
 <img src="https://media.gettr.com/group9/gvision/2022/06/06/17/0671c98b-2139-253d-b762-d7c2f9dc9de7/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 6/5/2022 10:00 AM UTC  - :tv:直播](/content/gettr/p1cs2mv9b7e.md)
-
-2022.06.05 新中国联邦 | 喜财经  周日沙龙第四期——躺平币怎么玩（续）
-
-<img src="https://media.gettr.com/group30/origin/2022/06/05/09/c6667a07-b93d-dd2d-8ea3-7fb06192c55e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
