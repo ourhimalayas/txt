@@ -2,11 +2,20 @@
 ---
 
 
+#### [【全文字幕】2021月11日5日 文贵18楼参观直播 一](/content/gnews/2682968.md)
+ `文贵视频字幕全集`
+
+#### [新中国联邦的强大令中共恐惧](/content/gnews/2682948.md)
+ `NFSC News`
+
 #### [六月七号七哥盖特全文字版](/content/gnews/2682928.md)
  `东京樱花团`
 
 #### [俄罗斯权贵豪华游艇 斐济判交美国](/content/gnews/2682911.md)
  `TokyoSakura Politics/樱花时政`
+
+#### [【G时新闻】有望用于量子计算机的量子时间晶体](/content/gnews/2682909.md)
+ `G-时新闻`
 
 #### [郭先生谈最美好的回忆](/content/gnews/2682904.md)
  `NFSC News`
@@ -77,20 +86,11 @@
 #### [FDA将决定是否建议授权使用Novavax](/content/gnews/2682533.md)
  `秘密翻譯組G-Translators`
 
-#### [2022年6月5日 郭文贵先生与“曝二代”直播 全文字版](/content/gnews/2682515.md)
- `温哥华扬帆农场《文贵大直播》全文听写组`
-
 #### [秘翻在线 : 全球供应紧张下的油价持续上涨](/content/gnews/2682503.md)
  `秘密翻譯組G-Translators`
 
 #### [CDC最新数据：接种加强剂的美国人感染率更高](/content/gnews/2682475.md)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [泽连斯基：一些国家或施压乌克兰接受不想要的结果](/content/gnews/2682473.md)
- `加拿大温哥华英里农场`
-
-#### [中共军机在国际海域上空危险拦截澳洲军机](/content/gnews/2682453.md)
- `NFSC News`
 
 #### [美国扣押俄罗斯寡头的游艇和飞机](/content/gnews/2682452.md)
  `秘密翻譯組G-Translators`
