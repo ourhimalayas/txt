@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/7/2022 1:01 PM UTC  - :tv:直播](/content/gettr/p1d1joq6663.md)
+
+ 6月7号：尊敬的战友们好，你们健身了吗？一切都已经开始！
+
+<img src="https://media.gettr.com/group44/getter/2022/06/07/13/8d1369b4-32f9-b50d-d0a7-75ef098a1cbb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1d1l2fb5cc.md)
 
 2022年06月07日 送战友，明年见
@@ -24,11 +32,11 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@miles 6/7/2022 1:01 PM UTC  - :tv:直播](/content/gettr/p1d1joq6663.md)
+[@miles 6/7/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1d1r9n1866.md)
 
- 6月7号：尊敬的战友们好，你们健身了吗？一切都已经开始！
+6月7日：尊敬的战友们好，全球在华投资者……都在从中国大陆撤出生产线……和全面的撤回投资的资金。这是共产党灭亡前．必然发生的现象！和当年大清朝倒闭时．所有的皇亲贵族．把钱转到美国花旗银行情形是一样的！
 
-<img src="https://media.gettr.com/group44/getter/2022/06/07/13/8d1369b4-32f9-b50d-d0a7-75ef098a1cbb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/06/07/13/8ac0523b-ffe5-0a44-e33c-19f86c168295/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 MILES GUO 直播 2022-06-06
 
 <img src="https://media.gettr.com/group11/getter/2022/06/06/15/e3d66f30-4346-e08f-6d1b-8a7ede179764/a92beaa8bb49527a615bc7acbc1f563c.jpg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1cwij94054.md)
-
- 6月6号：尊敬的战友们好……祝今天离开曼哈顿纽约的战友们……一路平安，今天的短暂别离，是为了我们永久的相聚，永远珍惜和感恩……我们一起度过美好的无与伦比的时刻……万分万分的感谢感谢，在这次两周年．新中国联邦的庆祝活动当中无数个．背后的默默的奉献．和所有在后台工作的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏🙏
-
-<img src="https://media.gettr.com/group15/getter/2022/06/06/14/2593d7f8-cfd7-83d0-391b-e26bb67630bd/out.jpg" width="506" height="284">
 
 ---
 
