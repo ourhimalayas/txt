@@ -11,14 +11,32 @@
 
 ---
 
+#### [夏季上市躺平币](/content/gnews/2677545.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【新中国联邦2周年】班农先生：新中国联邦将支持中国人民获得自由](/content/gnews/2677531.md)
+ `秘密翻译组-原创组`
+
+#### [金砖系统](/content/gnews/2677522.md)
+ `TokyoSakuraDesignGroup`
+
+#### [COVID-19疫苗副作用集萃(2022.6.7A) 辉瑞第三针差点要了半条命](/content/gnews/2677513.md)
+ `墨尔本雅典娜农场`
+
+#### [视频&#124;恶政下的悲剧童年](/content/gnews/2677505.md)
+ `爆料视频`
+
+#### [2周年庆典圆满成功](/content/gnews/2677479.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【秘翻在线】加拿大开始赔偿因疫苗伤害的受害者](/content/gnews/2677478.md)
+ `秘密翻譯組G-Translators`
+
 #### [希望和光](/content/gnews/2677444.md)
  `TokyoSakuraDesignGroup`
 
 #### [文·贵天成——文贵先生谈“六四”（十四）](/content/gnews/2677443.md)
  `墨尔本雅典娜农场`
-
-#### [我党的遗书](/content/gnews/2677430.md)
- `TokyoSakuraDesignGroup`
 
 #### [视频&#124;中共国只有暴政没有暴民](/content/gnews/2677424.md)
  `爆料视频`
@@ -32,6 +50,9 @@
 #### [成都铁路局6月3日发布火车停运令为什么6月4日没发](/content/gnews/2677361.md)
  `NewFOC`
 
+#### [加拿大将更加坚定地支持乌克兰](/content/gnews/2677357.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
 #### [2022年6月7日《樱花快报》：全球感染中共病毒人数已超过５亿2940万](/content/gnews/2677325.md)
  `东京樱花团`
 
@@ -40,9 +61,6 @@
 
 #### [“六四”纪念日：东京举行抗议活动，声援香港](/content/gnews/2677279.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [文·贵天成（精选篇）——文贵先生谈“疫苗灾难”（十）](/content/gnews/2677273.md)
- `墨尔本雅典娜农场`
 
 #### [6/6/2022 文贵盖特：我们将很快面临中共的疯狂报复和挑战](/content/gnews/2677251.md)
  `秘密翻译组-北美组`
@@ -71,17 +89,8 @@
 #### [美国务卿布林肯称俄罗斯窃取乌克兰粮食的报道“可信”](/content/gnews/2677129.md)
  `波士顿五月花农场金融部`
 
-#### [文贵先生告诉爆二代们一定要吃早餐](/content/gnews/2677109.md)
- `Tokyo Sakura Video Group`
-
 #### [每日快报：德州总检察长对Twitter展开机器人账户调查](/content/gnews/2677104.md)
  `喜马拉雅-华盛顿DC农场`
-
-#### [有声&#124;摩根夫人谈喜币](/content/gnews/2677084.md)
- `MOSREC`
-
-#### [社交媒体的时代怎样活出自己](/content/gnews/2677083.md)
- `Tokyo Sakura Video Group`
 
 #### [“在共产中国，蛋糕能冰封你” 李佳琦事件引争议](/content/gnews/2677068.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -103,9 +112,6 @@
 
 #### [C-11法案将消极改变加拿大意识形态](/content/gnews/2676687.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [即将到来的闹剧：自己出钱酸自己](/content/gnews/2676562.md)
- `澳喜农场`
 
 #### [面向商业的企业级高性能计算的进展和前景](/content/gnews/2676514.md)
  `NFSC News`
@@ -133,12 +139,6 @@
 
 #### [中共国叫车巨头滴滴出行大涨50%](/content/gnews/2675756.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [皮特-纳瓦罗呼吁必须与中共经济脱钩](/content/gnews/2675752.md)
- `NFSC News`
-
-#### [新中国联邦过去两年的成就无可比拟](/content/gnews/2675727.md)
- `NFSC News`
 
 #### [乌军确认击毙俄军少将库图佐夫](/content/gnews/2675641.md)
  `日本东京方舟农场`
