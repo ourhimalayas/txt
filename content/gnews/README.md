@@ -2,6 +2,12 @@
 ---
 
 
+#### [2022/06/07 文贵先生盖特精要](/content/gnews/2682216.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [2022/06/06 文贵先生盖特精要](/content/gnews/2682203.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [欧洲理事会主席Charles Michel 指责俄罗斯入侵乌克兰造成全球粮食危机](/content/gnews/2682160.md)
  `喜马拉雅德国纽伦堡正义农场`
 
@@ -46,12 +52,6 @@
 
 #### [两党议员推出加密货币监管改革方案](/content/gnews/2681892.md)
  `秘密翻譯組G-Translators`
-
-#### [在联合国安理会第9056次会议上 中俄邪恶轴心作了非人类发言](/content/gnews/2681891.md)
- `温哥华扬帆农场`
-
-#### [埃隆·马斯克威胁要终止与推特的交易](/content/gnews/2681825.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [新西兰财经G乐部2022年6月7日:财经新闻整理](/content/gnews/2681824.md)
  `Finance-GCLUB【新西兰财经G乐部】`
