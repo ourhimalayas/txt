@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/7/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1d31l66286.md)
+
+2022年06月07日 送战友，明年见
+
+<img src="https://media.gettr.com/group3/liveorigin/2022/06/07/15/8467add5-9eff-6dd6-b31e-e6097a045ebc/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@himalayaukclub 6/4/2022 8:54 AM UTC  - :tv:直播](/content/gettr/p1cnb3w054a.md)
 
 2022/06/04 《分享時刻》之历史篇：今天，永恆的話題64
@@ -50,11 +58,23 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@miles 6/7/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1d31l66286.md)
+[@miles 6/7/2022 7:00 PM UTC  - 6圖](/content/gettr/p1d2e6zd2ce.md)
 
-2022年06月07日 送战友，明年见
+ 6月7号：尊敬的战友们好．第一个病毒的测试结果．
 
-<img src="https://media.gettr.com/group3/liveorigin/2022/06/07/15/8467add5-9eff-6dd6-b31e-e6097a045ebc/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+
+
+
+
+
+已经出来．阴性！
+
+
+
+血液化验结果还在等待中！
+
+<img src="https://media.gettr.com/group21/getter/2022/06/07/18/8ba1db96-0f9b-148c-b0c4-ebc741d1d26c/c93b8027ae9ecdb163860ca276c2b1c3.jpg" width="506" height="284">
 
 ---
 
@@ -137,14 +157,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 
 
 <img src="https://media.gettr.com/group9/gvision/2022/06/06/17/0671c98b-2139-253d-b762-d7c2f9dc9de7/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 6/5/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1cqjdr0dce.md)
-
-2022.06.04 新中国联邦 | 喜财经  数字货币专栏：庆祝新中国联邦成立两周年 喜币和躺平币成为世界第一数字货币的资质 量子计算的到来对加密货币的影响
-
-<img src="https://media.gettr.com/group46/liveorigin/2022/06/05/02/63990473-41f8-28b5-0750-c93dd6d3078a/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
