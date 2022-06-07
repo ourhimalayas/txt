@@ -11,6 +11,21 @@
 
 ---
 
+#### [台湾反对党领袖在美国否认其为亲中派](/content/gnews/2677741.md)
+ `墨尔本雅典娜农场`
+
+#### [视频&#124;《台前幕后》六四庆典之盛典倒计时2](/content/gnews/2677717.md)
+ `爆料视频`
+
+#### [【粤语配音】2022年6月06日：今天纽约短暂的别离，是为了我们永久的相聚](/content/gnews/2677678.md)
+ `MOS香港部`
+
+#### [日本将派遣现役自卫官驻台，凸显其对台政策的重大转变](/content/gnews/2677671.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [视频&#124;《台前幕后》六四庆典之盛典倒计时1](/content/gnews/2677652.md)
+ `爆料视频`
+
 #### [美国FDA周二将评估Novavax公司的COVID-19疫苗](/content/gnews/2677638.md)
  `秘密翻譯組G-Translators`
 
@@ -44,14 +59,14 @@
 #### [视频&#124;恶政下的悲剧童年](/content/gnews/2677505.md)
  `爆料视频`
 
+#### [喜币承载灭共希望，引领数字资产投资未来](/content/gnews/2677480.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [2周年庆典圆满成功](/content/gnews/2677479.md)
  `TokyoSakuraDesignGroup`
 
 #### [【秘翻在线】加拿大开始赔偿因疫苗伤害的受害者](/content/gnews/2677478.md)
  `秘密翻譯組G-Translators`
-
-#### [希望和光](/content/gnews/2677444.md)
- `TokyoSakuraDesignGroup`
 
 #### [文·贵天成——文贵先生谈“六四”（十四）](/content/gnews/2677443.md)
  `墨尔本雅典娜农场`
@@ -80,29 +95,14 @@
 #### [违反出口管制，美国司法部扣押俄罗斯寡头罗曼·阿布拉莫维奇两架飞机](/content/gnews/2677314.md)
  `日本东京方舟农场`
 
-#### [“六四”纪念日：东京举行抗议活动，声援香港](/content/gnews/2677279.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [6/6/2022 文贵盖特：我们将很快面临中共的疯狂报复和挑战](/content/gnews/2677251.md)
- `秘密翻译组-北美组`
-
 #### [【全文字幕】2022年5月26日 七哥与战友们乱聊直播](/content/gnews/2677245.md)
  `文贵视频字幕全集`
 
 #### [郭文贵精品视频-只有我们新中国联邦人敢说推翻中国共产党](/content/gnews/2677241.md)
  `cindy`
 
-#### [有声&#124;郭先生解析美中博弈的始末](/content/gnews/2677214.md)
- `MOSREC`
-
-#### [GETTR最新功能Vision上线 将与大型科技恐龙竞争](/content/gnews/2677213.md)
- `日本东京方舟农场`
-
 #### [新疆的内部文件曝光，中共镇压维吾尔族铁证如山](/content/gnews/2677162.md)
  `温哥华圆成农场🇨🇦`
-
-#### [英国无视普京警告，向乌克兰提供远程导弹](/content/gnews/2677141.md)
- `GTV News Talk`
 
 #### [“在共产中国，蛋糕能冰封你” 李佳琦事件引争议](/content/gnews/2677068.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
