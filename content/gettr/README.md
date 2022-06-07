@@ -2,6 +2,34 @@
 ---
 
 
+[@miles 6/7/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1d419c9015.md)
+
+In the face of the ongoing shelling of their homeland, the young Ukrainian girls showed courage, strength, and the belief that they would never give up. They were making naturally beautiful headdresses out of dandelion flowers as t...
+
+<img src="https://media.gettr.com/group17/origin/2022/06/07/23/de62b8d8-23eb-862d-f127-7fff0a54df98/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/7/2022 8:54 PM UTC  - :tv:直播](/content/gettr/p1d3rucdba3.md)
+
+6月7号：尊敬的战友们好．第一个病毒的测试结果．
+
+
+
+
+
+
+
+已经出来．阴性！
+
+
+
+血液化验结果还在等待中！
+
+<img src="https://media.gettr.com/group16/getter/2022/06/07/20/f65020cd-5bce-1177-296d-4e4624067378/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 7:17 PM UTC ](/content/gettr/p1d39pd4151.md)
 
 2022-6-7《避风港》(56)  疫苗引发的心血管病紧急呼叫增加25%
@@ -84,23 +112,11 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@miles 6/7/2022 8:54 PM UTC  - :tv:直播](/content/gettr/p1d3rucdba3.md)
+[@miles 6/7/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1d48ca25ee.md)
 
-6月7号：尊敬的战友们好．第一个病毒的测试结果．
+6/7/2022 Miles Guo’s GETTR: The Taiwanese, Japanese, and other foreign businesspersons who set up factories in Qingdao, Shanghai, Henan, and other places have recently experienced the same tricks of the CCP - first, the CCP would i...
 
-
-
-
-
-
-
-已经出来．阴性！
-
-
-
-血液化验结果还在等待中！
-
-<img src="https://media.gettr.com/group16/getter/2022/06/07/20/f65020cd-5bce-1177-296d-4e4624067378/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/06/07/23/14ab2a61-98ec-6932-09d8-a1bd6f06cc49/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,27 +170,11 @@ https://gettr.com/streaming/p1cqjdr0dce
 
 ---
 
-[@miles 6/6/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1cz8i4ce2c.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. Social class divisions are never ...
-
-<img src="https://media.gettr.com/group32/getter/2022/06/06/23/9219c7f3-9086-e37f-3d2c-0ee103504604/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/6/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1cz59vbfc1.md)
 
 6/5/2022 Mile Guo: The Republican Party will win both the House and Senate in the midterm elections. Donald Trump will soon announce his run for the 2024 presidential election; Polls show that 56% of Americans between the age of 18...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/06/23/228c461d-6cdd-445c-d8a8-14872eef64f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p1cywyabfbb.md)
-
-2022.06.06   G｜Clubs 会员游船活动 
-
-<img src="https://media.gettr.com/group26/origin/2022/06/06/21/42c87d9b-c727-4cbf-6c6f-c1ab9931ce13/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
