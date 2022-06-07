@@ -11,32 +11,50 @@
 
 ---
 
-#### [班农先生看待新中国联邦和个人是否感受威胁（五）](/content/gnews/2676959.md)
+#### [DC大中华时事：63岁毕福剑近照曝光！双鬓斑白脖子皱纹明显](/content/gnews/2677041.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [有声&#124;躺平币——彻底瓦解共匪金融](/content/gnews/2677040.md)
+ `MOSREC`
+
+#### [把痛苦和仇恨化成力量 才能成为人生的赢家](/content/gnews/2677018.md)
+ `Tokyo Sakura Video Group`
+
+#### [文贵先生谈自己的锻炼方式](/content/gnews/2677017.md)
+ `Tokyo Sakura Video Group`
+
+#### [6/6/2022文贵直播：有人把恒大正式被宣布债务违约的消息提前告诉了我，但我从不做投机生意，文贵坚守的人生原则就是永不赚快钱、不买卖股票、不向穷人伸手](/content/gnews/2677016.md)
+ `秘密翻译组-北美组`
+
+#### [美国前100家公司都在学安利传销法](/content/gnews/2676994.md)
+ `Tokyo Sakura Video Group`
+
+#### [文贵先生谈罗马的建筑](/content/gnews/2676993.md)
+ `Tokyo Sakura Video Group`
+
+#### [切金枪鱼的意义（一）](/content/gnews/2676992.md)
  `雅典娜GNotes`
 
-#### [班农先生看待新中国联邦和个人是否感受威胁（四）](/content/gnews/2676949.md)
+#### [班农谈战友们如何使用GETTER和参与学习政治（三）](/content/gnews/2676982.md)
  `雅典娜GNotes`
 
-#### [班农先生看待新中国联邦和个人是否感受威胁（三）](/content/gnews/2676945.md)
+#### [班农谈战友们如何使用GETTER和参与学习政治（二）](/content/gnews/2676978.md)
  `雅典娜GNotes`
 
-#### [班农先生看待新中国联邦和个人是否感受威胁（二）](/content/gnews/2676940.md)
- `雅典娜GNotes`
+#### [拜登一句YES，这是我们的承诺，差点让七哥激动得破戒](/content/gnews/2676963.md)
+ `喜马拉雅-华盛顿DC农场`
 
-#### [班农先生看待新中国联邦和个人是否感受威胁（一）](/content/gnews/2676931.md)
- `雅典娜GNotes`
+#### [新中国联邦下一代要说实话有个性，用实力找到自己的定位实现价值](/content/gnews/2676942.md)
+ `Tokyo Sakura Video Group`
+
+#### [极右翼骄傲男孩组织的前老板因被控密谋推翻美国政府而面临最高 20 年的监禁](/content/gnews/2676933.md)
+ `波士顿五月花农场金融部`
 
 #### [2022年6月7日《樱花简报》：日美联合训练 对抗朝导弹发射](/content/gnews/2676894.md)
  `东京樱花团`
 
 #### [食物用完的食物银行——因为人们再也负担不起捐赠](/content/gnews/2676891.md)
  `波士顿五月花农场金融部`
-
-#### [悄悄收购农田的人在吹嘘自己投资人造肉公司能赚多少钱](/content/gnews/2676845.md)
- `Tokyo Sakura Video Group`
-
-#### [疫苗副作用以惊人的速度淹没医院](/content/gnews/2676844.md)
- `Tokyo Sakura Video Group`
 
 #### [加拿大首例：卑诗省一男子因中共病毒疫苗伤害获得赔偿](/content/gnews/2676824.md)
  `蓝莲花农场`
@@ -50,17 +68,8 @@
 #### [日本将密切关注基地和核电站附近的土地销售情况](/content/gnews/2676672.md)
  `TokyoSakura Politics/樱花时政`
 
-#### [有声&#124;新中国联邦新闻、NFSC新闻访谈简报&#124;2022年6月3日晚](/content/gnews/2676662.md)
- `MOSREC`
-
-#### [文•贵天成：文贵先生谈“六四”（十三）](/content/gnews/2676648.md)
- `墨尔本雅典娜农场`
-
 #### [维多利亚州政府试图隐藏其新设数据监控部门](/content/gnews/2676632.md)
  `走进澳洲`
-
-#### [大师说道:龙头变龟头决定共产党的末日,就是天助灭共](/content/gnews/2676578.md)
- `NewFOC`
 
 #### [中共政府威胁要对越境进入中共国的新冠感染者处以死刑](/content/gnews/2676577.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -70,9 +79,6 @@
 
 #### [即将到来的闹剧：自己出钱酸自己](/content/gnews/2676562.md)
  `澳喜农场`
-
-#### [终生不投机不赚快钱的七哥上星期就知道恒大要宣布破产](/content/gnews/2676525.md)
- `NewFOC`
 
 #### [面向商业的企业级高性能计算的进展和前景](/content/gnews/2676514.md)
  `NFSC News`
@@ -95,9 +101,6 @@
 #### [国际特奥会取消美国特奥会疫苗接种要求](/content/gnews/2676431.md)
  `NFSC News`
 
-#### [斯里兰卡是不是世界粮食危机的开始](/content/gnews/2676362.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [中共通过茶壶石油计划帮助伊朗躲避制裁](/content/gnews/2676357.md)
  `mayflowertranslate`
 
@@ -106,9 +109,6 @@
 
 #### [纽约参议院通过比特币挖矿禁令](/content/gnews/2676238.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [安德鲁·朱利安尼说：民调数字不断攀升](/content/gnews/2676127.md)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [耶伦否认敦促缩小救济计划](/content/gnews/2675944.md)
  `西班牙巴塞罗那喜悦农场`
