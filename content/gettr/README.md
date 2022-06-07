@@ -2,11 +2,51 @@
 ---
 
 
+[@miles 6/7/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1czcyw27f4.md)
+
+6/06/2022 Miles Guo: The Communist Party cannot get away from the vaccine disaster, world probe for origin of the CCP virus, and the natural disaster plus food crisis; the U.S. has to face its own economic crisis, but it has suffic...
+
+<img src="https://media.gettr.com/group18/getter/2022/06/07/00/2360b0e0-b28e-0fd8-a951-a8d9e526a9bb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/7/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1czf4fc52d.md)
+
+6/6/2022 Miles Guo: Someone told me in advance that the paying agent of Evergrande was going to confirm Evergrande's debt default. However, I did nothing in response as I have never done any speculation. The principles to which I a...
+
+<img src="https://media.gettr.com/group42/getter/2022/06/06/23/9d050923-5677-e0e0-f61e-ed1928f755c5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/7/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1czmfyfaf5.md)
+
+6/6/2022 Miles Guo: Because of the Whistleblowers' Movement and the New Federal State of China, we gained the support from people with global influence and the investment of top financial institutions and prominent families all ove...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/07/00/5056569e-7f67-f8a6-1577-653163099c57/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/6/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1cz8i4ce2c.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. Social class divisions are never ...
 
 <img src="https://media.gettr.com/group32/getter/2022/06/06/23/9219c7f3-9086-e37f-3d2c-0ee103504604/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/7/2022 12:07 AM UTC  - :tv:直播](/content/gettr/p1cz21tf615.md)
+
+6/6/2022 Miles Guo’s GETTR: We will soon face crazy retaliation and challenges from the CCP. Yesterday I told one of my American friends that Mother Jones, the CCP's running dog, would publish an article attacking us, and sure enou...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/07/00/196cfc54-87e1-2b1b-74ff-891c29fd0aef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/6/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1cz59vbfc1.md)
+
+6/5/2022 Mile Guo: The Republican Party will win both the House and Senate in the midterm elections. Donald Trump will soon announce his run for the 2024 presidential election; Polls show that 56% of Americans between the age of 18...
+
+<img src="https://media.gettr.com/group40/getter/2022/06/06/23/228c461d-6cdd-445c-d8a8-14872eef64f9/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +63,6 @@
 
 
 <img src="https://media.gettr.com/group9/gvision/2022/06/06/17/0671c98b-2139-253d-b762-d7c2f9dc9de7/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1cz59vbfc1.md)
-
-6/5/2022 Mile Guo: The Republican Party will win both the House and Senate in the midterm elections. Donald Trump will soon announce his run for the 2024 presidential election; Polls show that 56% of Americans between the age of 18...
-
-<img src="https://media.gettr.com/group40/getter/2022/06/06/23/228c461d-6cdd-445c-d8a8-14872eef64f9/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,38 +171,6 @@ MILES GUO 直播 2022-06-06
 #...
 
 <img src="https://media.gettr.com/group4/getter/2022/06/06/00/1607f84e-6be7-41c4-6fb1-dea2523c52fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1cuooi60d0.md)
-
-6/05/2022 Miles Guo’ GETTR: The celebration of the New Federal State of China’s second anniversary concluded successfully, with the new faces from each Himalaya Farm being the biggest highlights. The New Federal State of China is g...
-
-<img src="https://media.gettr.com/group16/getter/2022/06/05/23/e9238c18-57d8-79f6-7dca-b10a8c2ea995/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 11:23 PM UTC  - :tv:直播](/content/gettr/p1cujaoa34c.md)
-
-6/05/2022 Miles Guo’ GETTR: All our fellow fighters who attended yesterday’s ceremony, either on-site or online, showed the 1.4 billion Chinese and people all over the world that we, the Chinese people, can and deserve to live a ha...
-
-<img src="https://media.gettr.com/group11/getter/2022/06/05/23/fd6c003f-dbaa-572d-1912-cf8a77537175/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1cud4j071f.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 The first elevator I took to go upstairs was hacked and stopped working. The world's top-notch bankruptcy law firm, where my bankruptcy attorney works, was also hacked and blacked out. The CCP woul...
-
-<img src="https://media.gettr.com/group20/getter/2022/06/05/23/22c2e7ce-7a63-f69c-8517-98f616b770cf/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/5/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p1cudkt6bbd.md)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: On the 2nd anniversary of the New Federal State of China, Mrs. Morgan had an interview with me. This is her first ever public interview, and insiders will understand what it means; Mrs. ...
-
-<img src="https://media.gettr.com/group15/getter/2022/06/05/23/d9f89af3-f8d4-6ee0-4285-62cdf585cff0/out.jpg" width="506" height="284">
 
 ---
 
