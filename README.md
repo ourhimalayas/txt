@@ -11,20 +11,32 @@
 
 ---
 
-#### [新中国联邦和西方建立良好关系](/content/gnews/2676839.md)
+#### [采访GETTR CEO 杰森米勒先生（八）](/content/gnews/2676923.md)
  `雅典娜GNotes`
 
-#### [七哥和班农先生开场（三）](/content/gnews/2676834.md)
+#### [采访GETTR CEO 杰森米勒先生（七）](/content/gnews/2676921.md)
  `雅典娜GNotes`
 
-#### [七哥和班农先生开场（二）](/content/gnews/2676833.md)
+#### [采访GETTR CEO 杰森米勒先生（六）](/content/gnews/2676917.md)
  `雅典娜GNotes`
 
-#### [七哥和班农先生开场（一）](/content/gnews/2676829.md)
+#### [采访GETTR CEO 杰森米勒先生（五）](/content/gnews/2676910.md)
  `雅典娜GNotes`
 
-#### [特鲁多C-11法案消极改变加拿大意识形态](/content/gnews/2676827.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [采访GETTR CEO 杰森米勒先生（四）](/content/gnews/2676906.md)
+ `雅典娜GNotes`
+
+#### [2022年6月7日《樱花简报》：日美联合训练 对抗朝导弹发射](/content/gnews/2676894.md)
+ `东京樱花团`
+
+#### [食物用完的食物银行——因为人们再也负担不起捐赠](/content/gnews/2676891.md)
+ `波士顿五月花农场金融部`
+
+#### [悄悄收购农田的人在吹嘘自己投资人造肉公司能赚多少钱](/content/gnews/2676845.md)
+ `Tokyo Sakura Video Group`
+
+#### [疫苗副作用以惊人的速度淹没医院](/content/gnews/2676844.md)
+ `Tokyo Sakura Video Group`
 
 #### [6/5/2022 文贵直播：美国中期选举共和党一定会赢回参众两院，川普很快会正式宣布参加2024总统大选](/content/gnews/2676803.md)
  `秘密翻译组-北美组`
@@ -41,14 +53,8 @@
 #### [文•贵天成：文贵先生谈“六四”（十三）](/content/gnews/2676648.md)
  `墨尔本雅典娜农场`
 
-#### [有声&#124;回家](/content/gnews/2676637.md)
- `MOSREC`
-
 #### [维多利亚州政府试图隐藏其新设数据监控部门](/content/gnews/2676632.md)
  `走进澳洲`
-
-#### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年6月4日早](/content/gnews/2676579.md)
- `MOSREC`
 
 #### [大师说道:龙头变龟头决定共产党的末日,就是天助灭共](/content/gnews/2676578.md)
  `NewFOC`
@@ -98,14 +104,8 @@
 #### [纽约参议院通过比特币挖矿禁令](/content/gnews/2676238.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [美联储梅斯特称通胀尚未见顶，需要多次加息半个点](/content/gnews/2676134.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [安德鲁·朱利安尼说：民调数字不断攀升](/content/gnews/2676127.md)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [拜登称乌克兰或被迫割地以结束俄军入侵](/content/gnews/2676015.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [耶伦否认敦促缩小救济计划](/content/gnews/2675944.md)
  `西班牙巴塞罗那喜悦农场`
