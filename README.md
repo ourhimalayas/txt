@@ -11,6 +11,51 @@
 
 ---
 
+#### [中共卫健委“进一步加强核酸检测监管”的通知意味着什么](/content/gnews/2678549.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [中共在印太地区的第一个秘密海军基地9日举行奠基仪式](/content/gnews/2678503.md)
+ `波士顿五月花农场金融部`
+
+#### [中日财经爆&#124; 突发重磅！美国SEC调查币安赵长鹏](/content/gnews/2678446.md)
+ `东京樱花团`
+
+#### [【 全国DNA数据库】](/content/gnews/2678445.md)
+ `SpicyWorld`
+
+#### [英国将向乌克兰提供远程移动火箭发射器](/content/gnews/2678429.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [为备战中共正强迫18周岁以上奴隶都要兵役登记](/content/gnews/2678427.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [【难兄难弟】](/content/gnews/2678420.md)
+ `SpicyWorld`
+
+#### [美国FDA对Novavax疫苗的心肌炎风险表示担忧](/content/gnews/2678415.md)
+ `东京樱花团`
+
+#### [气候变化：即使今天所有排放都停止，地球仍有 42% 的机会被锁定在 1.5C 的升温中 &#8211; 研究](/content/gnews/2678404.md)
+ `波士顿五月花农场金融部`
+
+#### [埃隆·马斯克科技公司裁员是由于糟糕的“经济”](/content/gnews/2678396.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [郭先生18楼阳台直播要点（2022年6月6日）](/content/gnews/2678384.md)
+ `波士顿五月花农场`
+
+#### [确认加强合作 北约军委会主席会晤山崎幸二](/content/gnews/2678383.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [美国驻俄罗斯大使：俄罗斯不应关闭驻美国大使馆](/content/gnews/2678372.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [梅干有抑制新冠病毒增殖的效果](/content/gnews/2678371.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [中共放毒之后活人保质期只有两三天真荒唐](/content/gnews/2678367.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [新中国联邦两周年庆典后共产党开始疯狂报复](/content/gnews/2678347.md)
  `墨尔本雅典娜农场`
 
@@ -29,62 +74,26 @@
 #### [七哥最喜欢有个性的孩子，超级不喜欢圆滑的孩子](/content/gnews/2678296.md)
  `雅典娜GNotes`
 
-#### [七哥现场试衣解读GFashion](/content/gnews/2678288.md)
- `雅典娜GNotes`
-
-#### [自己的能力培养是第一的，要灭共必须要让自己强大](/content/gnews/2678278.md)
- `雅典娜GNotes`
-
 #### [《中共辟谣术》](/content/gnews/2678274.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [七哥分享培养看电影和听音乐的兴趣](/content/gnews/2678243.md)
- `雅典娜GNotes`
 
 #### [乌克兰战争：俄罗斯开始交出在马里乌波尔的 Azovstal 钢厂轰炸中丧生的战士遗体](/content/gnews/2678227.md)
  `波士顿五月花农场金融部`
 
-#### [七哥分享早晨醒来后的养生和怎么吃早餐](/content/gnews/2678214.md)
- `雅典娜GNotes`
-
-#### [视频&#124;新中国联邦和中共处境天差地别](/content/gnews/2678196.md)
- `MOSVIDEO`
-
 #### [俄乌关键争夺战两军之间在北顿涅斯克巷战激烈进行](/content/gnews/2678195.md)
  `波士顿五月花农场金融部`
-
-#### [视频&#124;班农先生建议战友们善用盖特](/content/gnews/2678190.md)
- `MOSVIDEO`
-
-#### [七哥最开心的就是跟老人和小孩玩](/content/gnews/2678187.md)
- `雅典娜GNotes`
-
-#### [打击中共大外宣澳洲北领地孔子课堂关闭](/content/gnews/2678181.md)
- `澳喜农场`
 
 #### [秘翻在线：美选民对拜登政府欲取消部份对中关税应对通胀的认可率极低](/content/gnews/2678172.md)
  `秘密翻譯組G-Translators`
 
-#### [朝鲜半岛局势升级 宁边核设施正在扩建](/content/gnews/2678143.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [【核酸检测】](/content/gnews/2678069.md)
+#### [【我本爆料人】](/content/gnews/2678071.md)
  `SpicyWorld`
 
-#### [【战】](/content/gnews/2678068.md)
+#### [【 赵立坚喊话】](/content/gnews/2678070.md)
  `SpicyWorld`
-
-#### [关键时刻，法国苏弗朗级核潜艇正式服役](/content/gnews/2677830.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [德州总检察长肯-帕克斯顿将调查推特是否低估平台虚假账户数量](/content/gnews/2677806.md)
- `波士顿五月花农场金融部`
 
 #### [美拟降低中共国商品部分关税，以应对国内高通胀局面](/content/gnews/2677803.md)
  `墨尔本雅典娜农场`
-
-#### [【秘翻在线】美国豁免东南亚四国太阳能电池产品关税](/content/gnews/2677775.md)
- `秘密翻譯組G-Translators`
 
 #### [今天，我们纪念诺曼底登陆78周年，向那些在诺曼底海滩上响应使命召唤的人们致敬](/content/gnews/2677521.md)
  `美国政要直译推`
@@ -98,9 +107,6 @@
 #### [成都铁路局6月3日发布火车停运令为什么6月4日没发](/content/gnews/2677361.md)
  `NewFOC`
 
-#### [2022年6月7日《樱花快报》：全球感染中共病毒人数已超过５亿2940万](/content/gnews/2677325.md)
- `东京樱花团`
-
 #### [新疆的内部文件曝光，中共镇压维吾尔族铁证如山](/content/gnews/2677162.md)
  `温哥华圆成农场🇨🇦`
 
@@ -109,9 +115,6 @@
 
 #### [乌俄在顿涅茨克拉锯战仍在激烈进行](/content/gnews/2676944.md)
  `蓝莲花农场`
-
-#### [专家担忧加拿大缺乏中共病毒相关数据](/content/gnews/2676850.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [加拿大首例：卑诗省一男子因中共病毒疫苗伤害获得赔偿](/content/gnews/2676824.md)
  `蓝莲花农场`
@@ -163,9 +166,6 @@
 
 #### [1972-2022中美恩仇](/content/gnews/2673827.md)
  `东京樱花团`
-
-#### [参议员比尔·哈格蒂：中共正对台湾虎视眈眈](/content/gnews/2671146.md)
- `美国政要直译推`
 
 #### [史蒂夫·班农：必须停止像Steve Wynn这样的中共严重渗透事件](/content/gnews/2628241.md)
  `墨尔本雅典娜农场`
