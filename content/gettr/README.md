@@ -10,6 +10,12 @@
 
 ---
 
+[@miles 6/7/2022 3:04 AM UTC ](/content/gettr/p1czexzdebb.md)
+
+2022-6-6《鸡血王喜币大作战》 第二百一十八集 嘉宾：青藤、NICK
+
+---
+
 [@miles 6/7/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1czf4fc52d.md)
 
 6/6/2022 Miles Guo: Someone told me in advance that the paying agent of Evergrande was going to confirm Evergrande's debt default. However, I did nothing in response as I have never done any speculation. The principles to which I a...
@@ -26,19 +32,19 @@
 
 ---
 
-[@miles 6/6/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1cz8i4ce2c.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. Social class divisions are never ...
-
-<img src="https://media.gettr.com/group32/getter/2022/06/06/23/9219c7f3-9086-e37f-3d2c-0ee103504604/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/7/2022 12:07 AM UTC  - :tv:直播](/content/gettr/p1cz21tf615.md)
 
 6/6/2022 Miles Guo’s GETTR: We will soon face crazy retaliation and challenges from the CCP. Yesterday I told one of my American friends that Mother Jones, the CCP's running dog, would publish an article attacking us, and sure enou...
 
 <img src="https://media.gettr.com/group34/getter/2022/06/07/00/196cfc54-87e1-2b1b-74ff-891c29fd0aef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/6/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1cz8i4ce2c.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo: The New Federal State of China demands nothing from all its followers as long as they are sincerely dedicated to taking down the Chinese Communist Party. Social class divisions are never ...
+
+<img src="https://media.gettr.com/group32/getter/2022/06/06/23/9219c7f3-9086-e37f-3d2c-0ee103504604/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +161,6 @@ MILES GUO 直播 2022-06-06
 2022年6月5日 飞飞秀 战友眼中的两周年国庆
 
 <img src="https://media.gettr.com/group11/origin/2022/06/06/00/afdd2a12-a8d6-b394-4286-348712eda141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 12:09 AM UTC  - :tv:直播](/content/gettr/p1cuaub4949.md)
-
-【NFSC 2nd Anniversary】06/04/2022: Connie H. Morgan: The Himalaya Coin is very clean. That’s why it was so stable when the rest of the cryptocurrencies were falling.
-
-
-
-【新中国联邦2周年】06/04/2022 摩根夫人：喜币非常干净。 这就是为什么数字货币价格大跌时，喜币的价格很稳定
-
-
-
-#...
-
-<img src="https://media.gettr.com/group4/getter/2022/06/06/00/1607f84e-6be7-41c4-6fb1-dea2523c52fc/out.jpg" width="506" height="284">
 
 ---
 
