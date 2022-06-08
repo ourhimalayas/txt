@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 6/7/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1d419c9015.md)
+[@miles 6/8/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1d4m6yc9ed.md)
 
-In the face of the ongoing shelling of their homeland, the young Ukrainian girls showed courage, strength, and the belief that they would never give up. They were making naturally beautiful headdresses out of dandelion flowers as t...
+6/7/2022 Miles Guo’s GETTR: Peking University’s Li You does whatever it takes to achieve his goals and has no conscience, law, or moral boundaries. Li You set up Vice Minister Ma Jian, who had helped him a lot. Li You, together wit...
 
-<img src="https://media.gettr.com/group17/origin/2022/06/07/23/de62b8d8-23eb-862d-f127-7fff0a54df98/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/06/08/01/39d69447-8c12-55ee-bff6-b1e13b84ea3b/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 6/7/2022 Miles Guo’s GETTR: Foreign entrepreneurs are all fleeing Communist China and leaving everything behind! They believe what happened to Miles Guo can happen to them as well; Those who took the COVID vaccines really regret th...
 
 <img src="https://media.gettr.com/group20/getter/2022/06/07/23/54b1d775-dc08-665e-fb3c-ba9588bf15ab/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/7/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1d419c9015.md)
+
+In the face of the ongoing shelling of their homeland, the young Ukrainian girls showed courage, strength, and the belief that they would never give up. They were making naturally beautiful headdresses out of dandelion flowers as t...
+
+<img src="https://media.gettr.com/group17/origin/2022/06/07/23/de62b8d8-23eb-862d-f127-7fff0a54df98/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 [@miles 6/7/2022 3:04 AM UTC ](/content/gettr/p1czexzdebb.md)
 
 2022-6-6《鸡血王喜币大作战》 第二百一十八集 嘉宾：青藤、NICK
-
----
-
-[@miles 6/7/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1czf4fc52d.md)
-
-6/6/2022 Miles Guo: Someone told me in advance that the paying agent of Evergrande was going to confirm Evergrande's debt default. However, I did nothing in response as I have never done any speculation. The principles to which I a...
-
-<img src="https://media.gettr.com/group42/getter/2022/06/06/23/9d050923-5677-e0e0-f61e-ed1928f755c5/out.jpg" width="506" height="284">
 
 ---
 
