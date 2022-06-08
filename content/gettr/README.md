@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/8/2022 12:25 PM UTC  - :tv:直播](/content/gettr/p1d70ftf3f0.md)
+
+2022年6月8日 文贵大直播：新中国联邦两周年庆典；币安洗钱与共产党关系；数字货币时代滚滚而来
+
+<img src="https://media.gettr.com/group14/origin/2022/06/08/12/f5624fb6-422a-c568-0722-0018034a8ab7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1d631v567f.md)
 
 2022.06.08 新中国联邦 | 军情室 鱼叉导弹  乌军南部反攻与乌克兰的粮食出口
@@ -28,11 +36,11 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 
 ---
 
-[@miles 6/8/2022 12:25 PM UTC  - :tv:直播](/content/gettr/p1d70ftf3f0.md)
+[@miles 6/8/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1d823996f8.md)
 
-2022年6月8日 文贵大直播：新中国联邦两周年庆典；币安洗钱与共产党关系；数字货币时代滚滚而来
+2022年6月8日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group14/origin/2022/06/08/12/f5624fb6-422a-c568-0722-0018034a8ab7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/06/08/16/d1dd0a27-e732-d3ac-0210-a7d871c386df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 2022年06月07日 送战友，明年见
 
 <img src="https://media.gettr.com/group24/origin/2022/06/07/12/476ce6ff-b925-632c-3fa7-10cbb6d16c58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1d1xjxaa7d.md)
-
-20220607 NFSCニュース　新中国連邦政権を実現する可能か
-
-<img src="https://media.gettr.com/group23/origin/2022/06/07/11/2b3af18c-447d-d770-68a9-8c10c262e5d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
