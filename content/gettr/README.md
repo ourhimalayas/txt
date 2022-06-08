@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/8/2022 7:40 AM UTC ](/content/gettr/p1d60k8483b.md)
+
+Chinese Communist Party Has Begun Posthumous Arrangements Amid Bad Situation
+
+During a live broadcast of the second anniversary of the New Federal State of China, Mr. Miles Guo revealed that the Chinese Communist Party has begun to...
+
+<img src="https://media.gettr.com/group8/origin/2022/06/08/07/5f07a63e-baab-5fbc-75be-a5abab03dfbf/08722c6d9488e1d84639938999dae83b.jpg" width="506" height="284">
+
+---
+
+[@miles 6/8/2022 3:02 AM UTC ](/content/gettr/p1d4ef3a5e5.md)
+
+2022-6-7《鸡血王喜币大作战》 第二百一十九集 嘉宾：文空、Happy
+
+---
+
 [@miles 6/8/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1d4m6yc9ed.md)
 
 6/7/2022 Miles Guo’s GETTR: Peking University’s Li You does whatever it takes to achieve his goals and has no conscience, law, or moral boundaries. Li You set up Vice Minister Ma Jian, who had helped him a lot. Li You, together wit...
@@ -18,9 +34,13 @@
 
 ---
 
-[@miles 6/8/2022 3:02 AM UTC ](/content/gettr/p1d4ef3a5e5.md)
+[@miles 6/8/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p1d65n87493.md)
 
-2022-6-7《鸡血王喜币大作战》 第二百一十九集 嘉宾：文空、Happy
+Killing and deception are the true colors of the CCP.
+
+杀人和欺骗，是中共的本色。
+
+<img src="https://media.gettr.com/group17/origin/2022/06/08/07/7a5e7f63-1a5c-bcb2-0b72-4b2a8eb2104b/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,20 +179,6 @@ https://gettr.com/streaming/p1cs2mv9b7e
 [@miles 6/7/2022 4:54 AM UTC ](/content/gettr/p1d18rsf505.md)
 
 https://gettr.com/streaming/p1cqjdr0dce
-
----
-
-[@miles 6/7/2022 3:04 AM UTC ](/content/gettr/p1czexzdebb.md)
-
-2022-6-6《鸡血王喜币大作战》 第二百一十八集 嘉宾：青藤、NICK
-
----
-
-[@miles 6/7/2022 12:07 AM UTC  - :tv:直播](/content/gettr/p1cz21tf615.md)
-
-6/6/2022 Miles Guo’s GETTR: We will soon face crazy retaliation and challenges from the CCP. Yesterday I told one of my American friends that Mother Jones, the CCP's running dog, would publish an article attacking us, and sure enou...
-
-<img src="https://media.gettr.com/group34/getter/2022/06/07/00/196cfc54-87e1-2b1b-74ff-891c29fd0aef/out.jpg" width="506" height="284">
 
 ---
 
