@@ -11,10 +11,16 @@
 
 ---
 
+#### [俄罗斯外长呼吁举行四方会议 商讨乌克兰谷物出港事宜](/content/gnews/2687923.md)
+ `日本东京方舟农场`
+
 #### [20220608郭文贵大直播 ：G系列投资者相信文贵先生诚实善良的品质](/content/gnews/2687903.md)
  `Tokyo Sakura Video Group`
 
 #### [20220608郭文贵大直播 ：共产党用点对点的牵引技术威胁郭先生参加六四活动](/content/gnews/2687901.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220608郭文贵大直播 ：文贵先生挂念并看望因测试假阳性没到现场的战友](/content/gnews/2687898.md)
  `Tokyo Sakura Video Group`
 
 #### [中共重金收买举报人，制造白色恐怖](/content/gnews/2687885.md)
@@ -32,11 +38,23 @@
 #### [中共奴役下，中国人全民处于亚健康状态](/content/gnews/2687739.md)
  `TokyoSakura Politics/樱花时政`
 
+#### [联合国人权事务负责人在华期间访问受限](/content/gnews/2687687.md)
+ `NFSC News`
+
+#### [20220608郭文贵大直播 ：共产党与赵长鹏写信给几个国家延迟了喜币的利好](/content/gnews/2687648.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220608郭文贵大直播 ：文贵先生讲述64现场投资人赞助的鱼子酱和三位神秘嘉宾的故事](/content/gnews/2687647.md)
+ `Tokyo Sakura Video Group`
+
 #### [20220608郭文贵大直播 ：文贵先生能来到64现场非常不容易，安保和律师团队承受极大压力](/content/gnews/2687646.md)
  `Tokyo Sakura Video Group`
 
 #### [中共国民众怒斥极端防疫](/content/gnews/2687639.md)
  `NFSC News`
+
+#### [有声&#124;英国防部长证实将援乌远程火箭系统](/content/gnews/2687635.md)
+ `MOSREC`
 
 #### [光耀千秋](/content/gnews/2687630.md)
  `东京樱花团`
@@ -46,6 +64,9 @@
 
 #### [职业倦怠正让家庭医生离开诊所](/content/gnews/2687624.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [越南逮捕卫生部长，给疫情中腐败的政府做出榜样](/content/gnews/2687605.md)
+ `秘密翻譯組G-Translators`
 
 #### [有声&#124;包容是GFashion在新时代对时尚的重新定义](/content/gnews/2687573.md)
  `MOSREC`
