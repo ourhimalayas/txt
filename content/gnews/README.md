@@ -5,6 +5,9 @@
 #### [2022年6月8日文贵大直播：币安为何如此之“脏”？](/content/gnews/2688888.md)
  `秘密翻译组-原创组`
 
+#### [文贵大直播重点大纲：2022/06/08](/content/gnews/2688884.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [全球“算法监管风暴”才刚开始](/content/gnews/2688786.md)
  `加拿大温哥华英里农场`
 
@@ -79,9 +82,6 @@
 
 #### [中共是世界邪恶轴心，中共是跨国犯罪恐怖组织](/content/gnews/2687985.md)
  `G-NEWS TAIWAN`
-
-#### [币安调查，冰山一角](/content/gnews/2687984.md)
- `KarmaLabs`
 
 #### [美国将对中共发起新的一轮立法](/content/gnews/2687956.md)
  `thedawn`
