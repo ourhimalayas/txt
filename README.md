@@ -11,6 +11,30 @@
 
 ---
 
+#### [【樱话】共产党躲不过的三关](/content/gnews/2687464.md)
+ `TokyoSakuraDesignGroup`
+
+#### [意总理德拉吉否决工业机器人制造商向中共国转让技术和软件](/content/gnews/2687462.md)
+ `波士顿五月花农场金融部`
+
+#### [【樱话】中共在柬埔寨秘密建造海军基地](/content/gnews/2687439.md)
+ `TokyoSakuraDesignGroup`
+
+#### [加拿大贸易逐步恢复](/content/gnews/2687434.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [疫苗数据（显示）心脏病发作增加](/content/gnews/2687412.md)
+ `加拿大温哥华扬帆农场视频组`
+
+#### [俄军西部关键中转站受困物资设备短缺及后勤补给缓慢](/content/gnews/2687399.md)
+ `波士顿五月花农场金融部`
+
+#### [【樱话】GETTR最新功能Vision上线 将与大型科技恐龙竞争](/content/gnews/2687393.md)
+ `TokyoSakuraDesignGroup`
+
+#### [联合国警告：“除了关注乌克兰”还要避免索马里饥荒](/content/gnews/2687385.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [回望六四:六四光辉精神&amp;六四惜败以及中国如何民主转型](/content/gnews/2687370.md)
  `mary202064`
 
@@ -35,38 +59,17 @@
 #### [中国蚂蚁集团新加坡星熠数字银行（ANEXT）挂牌成立](/content/gnews/2687251.md)
  `日本东京方舟农场`
 
-#### [保守党、新民主党要求自由党对生活成本上涨采取行动](/content/gnews/2687237.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [共产主义的幸存者警告美国教育面临左翼威胁](/content/gnews/2687235.md)
  `mayflowertranslate`
 
-#### [欧盟报告称，加拿大疫情相关法规严苛且有侵犯性](/content/gnews/2687214.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [德州枪击案:美国枪支管制何去何从?](/content/gnews/2687204.md)
- `日本东京方舟农场`
-
 #### [阿联酋的区块链投资公司FTFT资本签订战略性元宇宙合作协议](/content/gnews/2687198.md)
  `日本东京方舟农场`
-
-#### [中共惧怕新中国联邦，颁布“告密法”鼓励告密行为](/content/gnews/2687184.md)
- `波士顿五月花农场`
 
 #### [【G时新闻】新中国联邦的强大令中共恐惧](/content/gnews/2687183.md)
  `G-时新闻`
 
 #### [英国推出新的签证计划以吸引全球人才](/content/gnews/2687163.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [中共无耻编造美外交官新疆言论 遭严厉谴责](/content/gnews/2687153.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [UN专访新疆无果 网曝文件证明中共种族灭绝罪行](/content/gnews/2687152.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [菲律宾：小马科斯支持南海领土国际裁决](/content/gnews/2687148.md)
- `日本东京方舟农场`
 
 #### [高校学生对中共清零政策的抗议没任何用](/content/gnews/2687128.md)
  `喜马拉雅-华盛顿DC农场`
@@ -82,9 +85,6 @@
 
 #### [【G时新闻】美国2022年中期选举对灭共的影响](/content/gnews/2687080.md)
  `G-时新闻`
-
-#### [有声｜泽连斯基称 收复所有领土是目标](/content/gnews/2687079.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [美国及世界疫情简报（06-08-2022）](/content/gnews/2687012.md)
  `波士顿五月花农场`
