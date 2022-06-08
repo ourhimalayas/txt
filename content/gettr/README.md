@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/8/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1d8ar4dadc.md)
+
+ 2022.06.08 新中国联邦｜喜健康 《医学观察》战友亲身爆料，疫苗危机临近
+
+<img src="https://media.gettr.com/group24/origin/2022/06/08/20/4a06aeb1-4440-2feb-c312-5ca9e398cbd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1d823996f8.md)
 
 2022年6月8日 俄乌战争战况播报
@@ -44,11 +52,13 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 
 ---
 
-[@miles 6/8/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1d8ar4dadc.md)
+[@miles 6/8/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1d8cdx9612.md)
 
- 2022.06.08 新中国联邦｜喜健康 《医学观察》战友亲身爆料，疫苗危机临近
+飞飞秀 六四篇 两周年照片花絮   2022-06-08
 
-<img src="https://media.gettr.com/group24/origin/2022/06/08/20/4a06aeb1-4440-2feb-c312-5ca9e398cbd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English:  gettr.com/streaming/p1d94f4f68b
+
+<img src="https://media.gettr.com/group39/origin/2022/06/08/22/4345060e-705e-ed16-b804-66665b54b604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 6月7日：尊敬的战友们好，全球在华投资者……都在从中国大陆撤出生产线……和全面的撤回投资的资金。这是共产党灭亡前．必然发生的现象！和当年大清朝倒闭时．所有的皇亲贵族．把钱转到美国花旗银行情形是一样的！
 
 <img src="https://media.gettr.com/group50/getter/2022/06/07/13/8ac0523b-ffe5-0a44-e33c-19f86c168295/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 1:01 PM UTC  - :tv:直播](/content/gettr/p1d1joq6663.md)
-
- 6月7号：尊敬的战友们好，你们健身了吗？一切都已经开始！
-
-<img src="https://media.gettr.com/group44/getter/2022/06/07/13/8d1369b4-32f9-b50d-d0a7-75ef098a1cbb/out.jpg" width="506" height="284">
 
 ---
 
