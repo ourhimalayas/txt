@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/8/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1d823996f8.md)
+
+2022年6月8日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group28/origin/2022/06/08/16/d1dd0a27-e732-d3ac-0210-a7d871c386df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 12:25 PM UTC  - :tv:直播](/content/gettr/p1d70ftf3f0.md)
 
 2022年6月8日 文贵大直播：新中国联邦两周年庆典；币安洗钱与共产党关系；数字货币时代滚滚而来
@@ -36,11 +44,11 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 
 ---
 
-[@miles 6/8/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1d823996f8.md)
+[@miles 6/8/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1d8ar4dadc.md)
 
-2022年6月8日 俄乌战争战况播报
+ 2022.06.08 新中国联邦｜喜健康 《医学观察》战友亲身爆料，疫苗危机临近
 
-<img src="https://media.gettr.com/group28/origin/2022/06/08/16/d1dd0a27-e732-d3ac-0210-a7d871c386df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/06/08/20/4a06aeb1-4440-2feb-c312-5ca9e398cbd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
  6月7号：尊敬的战友们好，你们健身了吗？一切都已经开始！
 
 <img src="https://media.gettr.com/group44/getter/2022/06/07/13/8d1369b4-32f9-b50d-d0a7-75ef098a1cbb/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1d1l2fb5cc.md)
-
-2022年06月07日 送战友，明年见
-
-<img src="https://media.gettr.com/group24/origin/2022/06/07/12/476ce6ff-b925-632c-3fa7-10cbb6d16c58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
