@@ -12,6 +12,24 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 
 ---
 
+[@miles 6/8/2022 7:48 AM UTC  - 2圖](/content/gettr/p1d5px01548.md)
+
+【NFSC 2nd Anniversary 】The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have been working hard to wa...
+
+<img src="https://media.gettr.com/group29/origin/2022/06/08/07/ed197931-0b80-2d32-4ff3-34adee80e027/8ef3ca163ef5cc59c18d234533954c2d.jpg" width="506" height="284">
+
+---
+
+[@miles 6/8/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p1d65n87493.md)
+
+Killing and deception are the true colors of the CCP.
+
+杀人和欺骗，是中共的本色。
+
+<img src="https://media.gettr.com/group17/origin/2022/06/08/07/7a5e7f63-1a5c-bcb2-0b72-4b2a8eb2104b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 3:02 AM UTC ](/content/gettr/p1d4ef3a5e5.md)
 
 2022-6-7《鸡血王喜币大作战》 第二百一十九集 嘉宾：文空、Happy
@@ -31,16 +49,6 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 6月7号：七哥在所有的人……都担心染毒的情况下，与战友们以命相见……证明了我们新中国联邦人的真情真意，同时我们得到上天万福外省的护佑……🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏最重要的事实是．七哥不会．战友也不会．有任何的侥幸和自私的心理和行为……不顾战友的健康．和安危．我们都很小心，我们都很在意，彼此的健康和安全，谢谢所有兄弟姐妹们！
 
 <img src="https://media.gettr.com/group47/getter/2022/06/07/23/83e54a70-5f75-ea60-2dff-bf14720d94ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p1d65n87493.md)
-
-Killing and deception are the true colors of the CCP.
-
-杀人和欺骗，是中共的本色。
-
-<img src="https://media.gettr.com/group17/origin/2022/06/08/07/7a5e7f63-1a5c-bcb2-0b72-4b2a8eb2104b/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,12 +169,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 20220607 NFSCニュース　新中国連邦政権を実現する可能か
 
 <img src="https://media.gettr.com/group23/origin/2022/06/07/11/2b3af18c-447d-d770-68a9-8c10c262e5d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 4:51 AM UTC ](/content/gettr/p1d111w4b06.md)
-
-https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
