@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/8/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1d8y5b71d4.md)
+
+2022.06.08 NFSC fringe episode 205
+
+<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1d90zk896a.md)
 
 6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. There will be two types of digital coins in ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/8/2022 10:49 PM UTC  - :tv:直播](/content/gettr/p1d9c1z821d.md)
+[@miles 6/8/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1d9b298fba.md)
 
-6/8/2022 Miles Guo: Many congressmen and congresswomen have said that they will investigate the individuals paying the legal fees for the lawsuits against me as soon as they take back Congress. Bruno Wu's abnormal request to keep t...
+2022.06.08 NFSC fringe episode 205
 
-<img src="https://media.gettr.com/group12/getter/2022/06/08/22/8c0ac1ff-a616-3ce6-1737-9b9d277a0f10/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@
 6/8/2022 Miles Guo: The Whistleblowers' Movement has obtained accurate intelligence showing that Meng Jianzhu signed the paperwork himself to set up Changpeng Zhao's Binance as a double-track financial system serving for the "One B...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/08/23/0abb83d6-b30d-b461-60a4-e605a20a7063/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/8/2022 10:49 PM UTC  - :tv:直播](/content/gettr/p1d9c1z821d.md)
+
+6/8/2022 Miles Guo: Many congressmen and congresswomen have said that they will investigate the individuals paying the legal fees for the lawsuits against me as soon as they take back Congress. Bruno Wu's abnormal request to keep t...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/08/22/8c0ac1ff-a616-3ce6-1737-9b9d277a0f10/out.jpg" width="506" height="284">
 
 ---
 
@@ -142,39 +158,11 @@ Killing and deception are the true colors of the CCP.
 
 ---
 
-[@miles 6/7/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1d419c9015.md)
-
-In the face of the ongoing shelling of their homeland, the young Ukrainian girls showed courage, strength, and the belief that they would never give up. They were making naturally beautiful headdresses out of dandelion flowers as t...
-
-<img src="https://media.gettr.com/group17/origin/2022/06/07/23/de62b8d8-23eb-862d-f127-7fff0a54df98/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/7/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1d48ca25ee.md)
 
 6/7/2022 Miles Guo’s GETTR: The Taiwanese, Japanese, and other foreign businesspersons who set up factories in Qingdao, Shanghai, Henan, and other places have recently experienced the same tricks of the CCP - first, the CCP would i...
 
 <img src="https://media.gettr.com/group49/getter/2022/06/07/23/14ab2a61-98ec-6932-09d8-a1bd6f06cc49/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 8:54 PM UTC  - :tv:直播](/content/gettr/p1d3rucdba3.md)
-
-6月7号：尊敬的战友们好．第一个病毒的测试结果．
-
-
-
-
-
-
-
-已经出来．阴性！
-
-
-
-血液化验结果还在等待中！
-
-<img src="https://media.gettr.com/group16/getter/2022/06/07/20/f65020cd-5bce-1177-296d-4e4624067378/out.jpg" width="506" height="284">
 
 ---
 
