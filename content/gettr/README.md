@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/8/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1d8cdx9612.md)
+
+飞飞秀 六四篇 两周年照片花絮   2022-06-08
+
+For English:  gettr.com/streaming/p1d94f4f68b
+
+<img src="https://media.gettr.com/group39/origin/2022/06/08/22/4345060e-705e-ed16-b804-66665b54b604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1d8ar4dadc.md)
 
  2022.06.08 新中国联邦｜喜健康 《医学观察》战友亲身爆料，疫苗危机临近
@@ -52,13 +62,11 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 
 ---
 
-[@miles 6/8/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1d8cdx9612.md)
+[@miles 6/8/2022 10:41 PM UTC  - :tv:直播](/content/gettr/p1d8kyi48fa.md)
 
-飞飞秀 六四篇 两周年照片花絮   2022-06-08
+6/8/2022 Miles Guo: Binance claimed to have issued only 200 million BNB coins, but in fact it issued 2 billion BNB coins. Binance has no real license or registration at competent jurisdictions except the limited license in Dubai. B...
 
-For English:  gettr.com/streaming/p1d94f4f68b
-
-<img src="https://media.gettr.com/group39/origin/2022/06/08/22/4345060e-705e-ed16-b804-66665b54b604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/06/08/22/e9858541-1ffe-7ccb-8eb7-bd362c9e3059/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 
 
 <img src="https://media.gettr.com/group4/origin/2022/06/03/23/11472cf7-45b9-0c17-3044-4960cf33344b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1d1r9n1866.md)
-
-6月7日：尊敬的战友们好，全球在华投资者……都在从中国大陆撤出生产线……和全面的撤回投资的资金。这是共产党灭亡前．必然发生的现象！和当年大清朝倒闭时．所有的皇亲贵族．把钱转到美国花旗银行情形是一样的！
-
-<img src="https://media.gettr.com/group50/getter/2022/06/07/13/8ac0523b-ffe5-0a44-e33c-19f86c168295/out.jpg" width="506" height="284">
 
 ---
 
