@@ -3,6 +3,8 @@
 
 ## 頁面 17/43 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/transcript/2020/06/20200604-1889289193459336361.md)
+
 [文字版：5月30日郭先生GTV第二次直播](/content/transcript/2020/06/20200602-4381535378837818753.md)
 
 [文字版：2020年5月30日郭先生GTV直播](/content/transcript/2020/06/20200602-6823555117302845700.md)
@@ -50,8 +52,6 @@
 [文字版：郭先生5月5日GTV直播](/content/transcript/2020/05/20200507-1653317726052582270.md)
 
 [文字版：5月4日郭先生GTV直播](/content/transcript/2020/05/20200507-758917873142808151.md)
-
-[文字版：5月2日郭先生GTV直播爆料香港P3实验室](/content/transcript/2020/05/20200504-2906844940978365909.md)
 
 
 ## 頁面 17/43 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [43](/content/transcript/README-43.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
