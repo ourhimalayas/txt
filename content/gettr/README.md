@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/8/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1d631v567f.md)
+
+2022.06.08 新中国联邦 | 军情室 鱼叉导弹  乌军南部反攻与乌克兰的粮食出口
+
+<img src="https://media.gettr.com/group26/origin/2022/06/08/09/f8d2be74-a35e-b0b4-4042-3a2b3916ed25/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 7:48 AM UTC  - 2圖](/content/gettr/p1d5px01548.md)
 
 【NFSC 2nd Anniversary 】The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have been working hard to wa...
@@ -20,11 +28,11 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 
 ---
 
-[@miles 6/8/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1d631v567f.md)
+[@miles 6/8/2022 12:25 PM UTC  - :tv:直播](/content/gettr/p1d70ftf3f0.md)
 
-2022.06.08 新中国联邦 | 军情室 鱼叉导弹  乌军南部反攻与乌克兰的粮食出口
+2022年6月8日 文贵大直播：新中国联邦两周年庆典；币安洗钱与共产党关系；数字货币时代滚滚而来
 
-<img src="https://media.gettr.com/group26/origin/2022/06/08/09/f8d2be74-a35e-b0b4-4042-3a2b3916ed25/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/06/08/12/f5624fb6-422a-c568-0722-0018034a8ab7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,12 +185,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 20220607 NFSCニュース　新中国連邦政権を実現する可能か
 
 <img src="https://media.gettr.com/group23/origin/2022/06/07/11/2b3af18c-447d-d770-68a9-8c10c262e5d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 4:54 AM UTC ](/content/gettr/p1d18rsf505.md)
-
-https://gettr.com/streaming/p1cqjdr0dce
 
 ---
 
