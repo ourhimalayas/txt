@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/8/2022 10:49 PM UTC  - :tv:直播](/content/gettr/p1d9c1z821d.md)
+
+6/8/2022 Miles Guo: Many congressmen and congresswomen have said that they will investigate the individuals paying the legal fees for the lawsuits against me as soon as they take back Congress. Bruno Wu's abnormal request to keep t...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/08/22/8c0ac1ff-a616-3ce6-1737-9b9d277a0f10/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/8/2022 10:41 PM UTC  - :tv:直播](/content/gettr/p1d8kyi48fa.md)
+
+6/8/2022 Miles Guo: Binance claimed to have issued only 200 million BNB coins, but in fact it issued 2 billion BNB coins. Binance has no real license or registration at competent jurisdictions except the limited license in Dubai. B...
+
+<img src="https://media.gettr.com/group29/getter/2022/06/08/22/e9858541-1ffe-7ccb-8eb7-bd362c9e3059/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1d8cdx9612.md)
 
 飞飞秀 六四篇 两周年照片花絮   2022-06-08
@@ -62,11 +78,11 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 
 ---
 
-[@miles 6/8/2022 10:41 PM UTC  - :tv:直播](/content/gettr/p1d8kyi48fa.md)
+[@miles 6/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1d9dr3715b.md)
 
-6/8/2022 Miles Guo: Binance claimed to have issued only 200 million BNB coins, but in fact it issued 2 billion BNB coins. Binance has no real license or registration at competent jurisdictions except the limited license in Dubai. B...
+飞飞秀 六四篇 两周年照片花絮   2022-06-08
 
-<img src="https://media.gettr.com/group29/getter/2022/06/08/22/e9858541-1ffe-7ccb-8eb7-bd362c9e3059/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/06/08/22/80403a05-1989-0beb-b8de-62de2c0f1b7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,24 +185,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 血液化验结果还在等待中！
 
 <img src="https://media.gettr.com/group21/getter/2022/06/07/18/8ba1db96-0f9b-148c-b0c4-ebc741d1d26c/c93b8027ae9ecdb163860ca276c2b1c3.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p1d31l66286.md)
-
-2022年06月07日 送战友，明年见
-
-<img src="https://media.gettr.com/group3/liveorigin/2022/06/07/15/8467add5-9eff-6dd6-b31e-e6097a045ebc/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@himalayaukclub 6/4/2022 8:54 AM UTC  - :tv:直播](/content/gettr/p1cnb3w054a.md)
-
-2022/06/04 《分享時刻》之历史篇：今天，永恆的話題64
-
-
-
-<img src="https://media.gettr.com/group4/origin/2022/06/03/23/11472cf7-45b9-0c17-3044-4960cf33344b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
