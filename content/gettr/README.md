@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/8/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1d4m6yc9ed.md)
+
+6/7/2022 Miles Guo’s GETTR: Peking University’s Li You does whatever it takes to achieve his goals and has no conscience, law, or moral boundaries. Li You set up Vice Minister Ma Jian, who had helped him a lot. Li You, together wit...
+
+<img src="https://media.gettr.com/group50/getter/2022/06/08/01/39d69447-8c12-55ee-bff6-b1e13b84ea3b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1d47ng68bb.md)
 
 6月7号：七哥在所有的人……都担心染毒的情况下，与战友们以命相见……证明了我们新中国联邦人的真情真意，同时我们得到上天万福外省的护佑……🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏最重要的事实是．七哥不会．战友也不会．有任何的侥幸和自私的心理和行为……不顾战友的健康．和安危．我们都很小心，我们都很在意，彼此的健康和安全，谢谢所有兄弟姐妹们！
@@ -10,11 +18,9 @@
 
 ---
 
-[@miles 6/8/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1d4m6yc9ed.md)
+[@miles 6/8/2022 3:02 AM UTC ](/content/gettr/p1d4ef3a5e5.md)
 
-6/7/2022 Miles Guo’s GETTR: Peking University’s Li You does whatever it takes to achieve his goals and has no conscience, law, or moral boundaries. Li You set up Vice Minister Ma Jian, who had helped him a lot. Li You, together wit...
-
-<img src="https://media.gettr.com/group50/getter/2022/06/08/01/39d69447-8c12-55ee-bff6-b1e13b84ea3b/out.jpg" width="506" height="284">
+2022-6-7《鸡血王喜币大作战》 第二百一十九集 嘉宾：文空、Happy
 
 ---
 
@@ -159,14 +165,6 @@ https://gettr.com/streaming/p1cqjdr0dce
 [@miles 6/7/2022 3:04 AM UTC ](/content/gettr/p1czexzdebb.md)
 
 2022-6-6《鸡血王喜币大作战》 第二百一十八集 嘉宾：青藤、NICK
-
----
-
-[@miles 6/7/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1czmfyfaf5.md)
-
-6/6/2022 Miles Guo: Because of the Whistleblowers' Movement and the New Federal State of China, we gained the support from people with global influence and the investment of top financial institutions and prominent families all ove...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/07/00/5056569e-7f67-f8a6-1577-653163099c57/out.jpg" width="506" height="284">
 
 ---
 
