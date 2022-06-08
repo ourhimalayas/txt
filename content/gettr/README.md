@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/8/2022 7:48 AM UTC  - 2圖](/content/gettr/p1d5px01548.md)
+
+【NFSC 2nd Anniversary 】The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have been working hard to wa...
+
+<img src="https://media.gettr.com/group29/origin/2022/06/08/07/ed197931-0b80-2d32-4ff3-34adee80e027/8ef3ca163ef5cc59c18d234533954c2d.jpg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 7:40 AM UTC ](/content/gettr/p1d60k8483b.md)
 
 Chinese Communist Party Has Begun Posthumous Arrangements Amid Bad Situation
@@ -12,11 +20,11 @@ During a live broadcast of the second anniversary of the New Federal State of Ch
 
 ---
 
-[@miles 6/8/2022 7:48 AM UTC  - 2圖](/content/gettr/p1d5px01548.md)
+[@miles 6/8/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1d631v567f.md)
 
-【NFSC 2nd Anniversary 】The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have been working hard to wa...
+2022.06.08 新中国联邦 | 军情室 鱼叉导弹  乌军南部反攻与乌克兰的粮食出口
 
-<img src="https://media.gettr.com/group29/origin/2022/06/08/07/ed197931-0b80-2d32-4ff3-34adee80e027/8ef3ca163ef5cc59c18d234533954c2d.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/06/08/09/f8d2be74-a35e-b0b4-4042-3a2b3916ed25/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,12 +177,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 20220607 NFSCニュース　新中国連邦政権を実現する可能か
 
 <img src="https://media.gettr.com/group23/origin/2022/06/07/11/2b3af18c-447d-d770-68a9-8c10c262e5d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 4:51 AM UTC ](/content/gettr/p1d0wfc008c.md)
-
-https://gettr.com/streaming/p1cs2mv9b7e
 
 ---
 
