@@ -11,6 +11,15 @@
 
 ---
 
+#### [IBM开始裁减俄罗斯全部员工](/content/gnews/2687997.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [中共是世界邪恶轴心，中共是跨国犯罪恐怖组织](/content/gnews/2687985.md)
+ `G-NEWS TAIWAN`
+
+#### [美国将对中共发起新的一轮立法](/content/gnews/2687956.md)
+ `thedawn`
+
 #### [俄罗斯外长呼吁举行四方会议 商讨乌克兰谷物出港事宜](/content/gnews/2687923.md)
  `日本东京方舟农场`
 
@@ -29,14 +38,14 @@
 #### [文贵大直播 6/8 是什么庆典让中共如此恐惧？！](/content/gnews/2687873.md)
  `秘密翻译组-原创组`
 
+#### [有声&#124;韩美联合发射8枚导弹回应朝鲜挑衅](/content/gnews/2687829.md)
+ `MOSREC`
+
 #### [粮荒迫在眉睫，中共为转基因生物育种提供证书](/content/gnews/2687819.md)
  `TokyoSakura Politics/樱花时政`
 
 #### [这是犯罪！有人“故意压制”COVID治疗](/content/gnews/2687815.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [中共奴役下，中国人全民处于亚健康状态](/content/gnews/2687739.md)
- `TokyoSakura Politics/樱花时政`
 
 #### [联合国人权事务负责人在华期间访问受限](/content/gnews/2687687.md)
  `NFSC News`
@@ -104,17 +113,11 @@
 #### [中共国监控巨头用先进的间谍技术武装伊朗](/content/gnews/2687346.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [新中国联邦人是真正的勇士](/content/gnews/2687306.md)
- `NFSC News`
-
 #### [在联合国掩盖种族灭绝事件后，中共国宣称将“继续”反维吾尔运动](/content/gnews/2687300.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [乌克兰可能很快获得美国的远程多管火箭系统](/content/gnews/2687284.md)
  `日本东京方舟农场`
-
-#### [中共威逼利诱 欲阻止外资撤离](/content/gnews/2687260.md)
- `NFSC News`
 
 #### [中国蚂蚁集团新加坡星熠数字银行（ANEXT）挂牌成立](/content/gnews/2687251.md)
  `日本东京方舟农场`
@@ -139,9 +142,6 @@
 
 #### [美国光伏政策松动，拜登有多重考量](/content/gnews/2686674.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [蚂蚁董事局大调整 中资海外寻钱匣子](/content/gnews/2686513.md)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [美军增派32架军机驻扎冲绳](/content/gnews/2686495.md)
  `TokyoSakura Politics/樱花时政`
