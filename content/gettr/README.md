@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 6/8/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1d90zk896a.md)
+
+6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. There will be two types of digital coins in ...
+
+<img src="https://media.gettr.com/group44/getter/2022/06/08/23/f54ded08-a08d-5b77-a535-64f6768f5758/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 10:49 PM UTC  - :tv:直播](/content/gettr/p1d9c1z821d.md)
 
 6/8/2022 Miles Guo: Many congressmen and congresswomen have said that they will investigate the individuals paying the legal fees for the lawsuits against me as soon as they take back Congress. Bruno Wu's abnormal request to keep t...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/08/22/8c0ac1ff-a616-3ce6-1737-9b9d277a0f10/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/8/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1d9e53c7e0.md)
+
+6/8/2022 Miles Guo: The Whistleblowers' Movement has obtained accurate intelligence showing that Meng Jianzhu signed the paperwork himself to set up Changpeng Zhao's Binance as a double-track financial system serving for the "One B...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/08/23/0abb83d6-b30d-b461-60a4-e605a20a7063/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1d9dr3715b.md)
+
+飞飞秀 六四篇 两周年照片花絮   2022-06-08
+
+<img src="https://media.gettr.com/group50/origin/2022/06/08/22/80403a05-1989-0beb-b8de-62de2c0f1b7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -75,14 +99,6 @@ Chinese Communist Party Has Begun Posthumous Arrangements Amid Bad Situation
 During a live broadcast of the second anniversary of the New Federal State of China, Mr. Miles Guo revealed that the Chinese Communist Party has begun to...
 
 <img src="https://media.gettr.com/group8/origin/2022/06/08/07/5f07a63e-baab-5fbc-75be-a5abab03dfbf/08722c6d9488e1d84639938999dae83b.jpg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1d9dr3715b.md)
-
-飞飞秀 六四篇 两周年照片花絮   2022-06-08
-
-<img src="https://media.gettr.com/group50/origin/2022/06/08/22/80403a05-1989-0beb-b8de-62de2c0f1b7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,32 +175,6 @@ In the face of the ongoing shelling of their homeland, the young Ukrainian girls
 血液化验结果还在等待中！
 
 <img src="https://media.gettr.com/group16/getter/2022/06/07/20/f65020cd-5bce-1177-296d-4e4624067378/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 7:17 PM UTC ](/content/gettr/p1d39pd4151.md)
-
-2022-6-7《避风港》(56)  疫苗引发的心血管病紧急呼叫增加25%
-
----
-
-[@miles 6/7/2022 7:00 PM UTC  - 6圖](/content/gettr/p1d2e6zd2ce.md)
-
- 6月7号：尊敬的战友们好．第一个病毒的测试结果．
-
-
-
-
-
-
-
-已经出来．阴性！
-
-
-
-血液化验结果还在等待中！
-
-<img src="https://media.gettr.com/group21/getter/2022/06/07/18/8ba1db96-0f9b-148c-b0c4-ebc741d1d26c/c93b8027ae9ecdb163860ca276c2b1c3.jpg" width="506" height="284">
 
 ---
 
