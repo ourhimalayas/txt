@@ -11,6 +11,42 @@
 
 ---
 
+#### [加拿大人正面临食物安全供应危机](/content/gnews/2688385.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [法国参议院议长力挺乌克兰，将出访基辅](/content/gnews/2688316.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [文贵大直播要点（2022年6月8日）](/content/gnews/2688315.md)
+ `波士顿五月花农场`
+
+#### [联邦机构内部大量盗窃或欺诈行为](/content/gnews/2688303.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [乌拉圭总统新冠病毒检测呈阳性 将缺席美洲峰会](/content/gnews/2688295.md)
+ `日本东京方舟农场`
+
+#### [美韩联合空中演习 威慑金正恩](/content/gnews/2688272.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [河南村镇银行爆雷将会如何收场？](/content/gnews/2688257.md)
+ `波士顿五月花农场`
+
+#### [新西兰财经G乐部2022年6月8日:财经新闻整理](/content/gnews/2688228.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [有声新闻-新西兰财经G乐部2022年6月8日:财经新闻整理](/content/gnews/2688227.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [日本内阁罕见批准将台湾放入日本的政策指南](/content/gnews/2688182.md)
+ `纽约香草山MOS02`
+
+#### [宾夕法尼亚州州长第二次检测出新冠阳性](/content/gnews/2688170.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年6月8日早](/content/gnews/2688160.md)
+ `纽约香草山MOS01`
+
 #### [IBM开始裁减俄罗斯全部员工](/content/gnews/2687997.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -32,17 +68,11 @@
 #### [20220608郭文贵大直播 ：文贵先生挂念并看望因测试假阳性没到现场的战友](/content/gnews/2687898.md)
  `Tokyo Sakura Video Group`
 
-#### [中共重金收买举报人，制造白色恐怖](/content/gnews/2687885.md)
- `TokyoSakura Politics/樱花时政`
-
 #### [文贵大直播 6/8 是什么庆典让中共如此恐惧？！](/content/gnews/2687873.md)
  `秘密翻译组-原创组`
 
 #### [有声&#124;韩美联合发射8枚导弹回应朝鲜挑衅](/content/gnews/2687829.md)
  `MOSREC`
-
-#### [粮荒迫在眉睫，中共为转基因生物育种提供证书](/content/gnews/2687819.md)
- `TokyoSakura Politics/樱花时政`
 
 #### [这是犯罪！有人“故意压制”COVID治疗](/content/gnews/2687815.md)
  `西班牙巴塞罗那喜悦农场`
@@ -50,23 +80,11 @@
 #### [联合国人权事务负责人在华期间访问受限](/content/gnews/2687687.md)
  `NFSC News`
 
-#### [20220608郭文贵大直播 ：共产党与赵长鹏写信给几个国家延迟了喜币的利好](/content/gnews/2687648.md)
- `Tokyo Sakura Video Group`
-
-#### [20220608郭文贵大直播 ：文贵先生讲述64现场投资人赞助的鱼子酱和三位神秘嘉宾的故事](/content/gnews/2687647.md)
- `Tokyo Sakura Video Group`
-
-#### [20220608郭文贵大直播 ：文贵先生能来到64现场非常不容易，安保和律师团队承受极大压力](/content/gnews/2687646.md)
- `Tokyo Sakura Video Group`
-
 #### [中共国民众怒斥极端防疫](/content/gnews/2687639.md)
  `NFSC News`
 
 #### [有声&#124;英国防部长证实将援乌远程火箭系统](/content/gnews/2687635.md)
  `MOSREC`
-
-#### [光耀千秋](/content/gnews/2687630.md)
- `东京樱花团`
 
 #### [广西暴雨 中共无预警泄洪](/content/gnews/2687625.md)
  `NFSC News`
@@ -76,9 +94,6 @@
 
 #### [越南逮捕卫生部长，给疫情中腐败的政府做出榜样](/content/gnews/2687605.md)
  `秘密翻譯組G-Translators`
-
-#### [有声&#124;包容是GFashion在新时代对时尚的重新定义](/content/gnews/2687573.md)
- `MOSREC`
 
 #### [非洲之角准备迎接“儿童死亡的爆炸式增长”](/content/gnews/2687562.md)
  `波士顿五月花农场金融部`
@@ -95,9 +110,6 @@
 #### [加拿大贸易逐步恢复](/content/gnews/2687434.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [疫苗数据（显示）心脏病发作增加](/content/gnews/2687412.md)
- `加拿大温哥华扬帆农场视频组`
-
 #### [俄军西部关键中转站受困物资设备短缺及后勤补给缓慢](/content/gnews/2687399.md)
  `波士顿五月花农场金融部`
 
@@ -107,9 +119,6 @@
 #### [回望六四:六四光辉精神&amp;六四惜败以及中国如何民主转型](/content/gnews/2687370.md)
  `mary202064`
 
-#### [纳瓦罗博士被FBI骚扰后首次公开发声](/content/gnews/2687353.md)
- `NFSC News`
-
 #### [中共国监控巨头用先进的间谍技术武装伊朗](/content/gnews/2687346.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -118,12 +127,6 @@
 
 #### [乌克兰可能很快获得美国的远程多管火箭系统](/content/gnews/2687284.md)
  `日本东京方舟农场`
-
-#### [中国蚂蚁集团新加坡星熠数字银行（ANEXT）挂牌成立](/content/gnews/2687251.md)
- `日本东京方舟农场`
-
-#### [保守党、新民主党要求自由党对生活成本上涨采取行动](/content/gnews/2687237.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [共产主义的幸存者警告美国教育面临左翼威胁](/content/gnews/2687235.md)
  `mayflowertranslate`
@@ -139,9 +142,6 @@
 
 #### [习近平整顿政法系统，大连公安系统大批人落马](/content/gnews/2686686.md)
  `墨尔本雅典娜农场`
-
-#### [美国光伏政策松动，拜登有多重考量](/content/gnews/2686674.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [美军增派32架军机驻扎冲绳](/content/gnews/2686495.md)
  `TokyoSakura Politics/樱花时政`
