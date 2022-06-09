@@ -10,11 +10,31 @@
 
 ---
 
+[@miles 6/9/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1dfmz6df42.md)
+
+6/8/2022 Miles Guo: The CCP is so furious that G-series and the New Federal State of China gained the support of Mr. John Adams Morgan; Mr. Morgan expressed his gratitude to me for saving his life by keeping him from taking the COV...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/09/23/67452b3c-8445-2ad0-fc7e-17390217cb2d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1der6l4901.md)
 
 6/8/2022 Miles Guo: We were supposed to make the announcement that Himalaya Coin was granted the permission to trade in 2-3 countries; Due to Changpeng Zhao's collusion with the CCP in smearing Himalaya Exchange, those countries ha...
 
 <img src="https://media.gettr.com/group3/getter/2022/06/09/22/422fc954-63c9-fc3f-544e-8949715f50cd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1dfakg9918.md)
+
+6/8/2022 Miles Guo: In fact Binance issued 2 billion BNB coins. Binance has no real license or registration. The $20 billion Binance is playing with has put tens of thousands of Chinese people in jail or killed.
+
+
+
+6/8/2022 文贵直播：币安...
+
+<img src="https://media.gettr.com/group13/getter/2022/06/09/23/f861e212-f965-8e5d-a63a-d18f42686ec3/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,18 +93,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 【NFSC 2nd Anniversary 】06/04/2022  GETTR CEO Jason Miller：We must stand up and take down the CCP.  The corporate and global leaders sold out the Chinese people, the people of America and other countries in order to make additional ...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/09/15/1d55c227-a465-7b69-dc46-690d56cec4dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1dfakg9918.md)
-
-6/8/2022 Miles Guo: In fact Binance issued 2 billion BNB coins. Binance has no real license or registration. The $20 billion Binance is playing with has put tens of thousands of Chinese people in jail or killed.
-
-
-
-6/8/2022 文贵直播：币安...
-
-<img src="https://media.gettr.com/group13/getter/2022/06/09/23/f861e212-f965-8e5d-a63a-d18f42686ec3/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 6/8/2022 Miles Guo: The Himalaya Coin is fully involved in the establishment of the new quantum computing standards, and both the Himalaya Coin and Tang Ping (Lying-flat) Coin will use quantum computing technologies. The Himalaya E...
 
 <img src="https://media.gettr.com/group33/getter/2022/06/09/06/b859487f-d942-b0f5-012c-7ad24a245f32/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 5:59 AM UTC  - :tv:直播](/content/gettr/p1dbo073366.md)
-
-6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
-
-<img src="https://media.gettr.com/group49/getter/2022/06/09/05/e2145531-3793-5406-116f-701faae14643/out.jpg" width="506" height="284">
 
 ---
 
