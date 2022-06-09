@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1d9j4pfc12.md)
+
+2022-6-8《鸡血王喜币大作战》 第二百二十集 嘉宾：齐天二圣、Nick
+
+<img src="https://media.gettr.com/group43/origin/2022/06/09/03/a05d0bc3-6792-2f02-00ec-7e5b88679d8a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1d9gih9959.md)
 
 2022.06.08  新中国联邦 | 喜财经  第75期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天！
@@ -52,11 +60,11 @@
 
 ---
 
-[@miles 6/9/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1d9j4pfc12.md)
+[@miles 6/9/2022 3:58 AM UTC  - :tv:直播](/content/gettr/p1d9u5nbd6e.md)
 
-2022-6-8《鸡血王喜币大作战》 第二百二十集 嘉宾：齐天二圣、Nick
+6/8/2022 Miles Guo: The CCP is so furious that G-series, Himalaya Coin, and the New Federal State of China gained the support of Mr. John Adams Morgan and the Morgan family; Mr. Morgan believes that the New Federal State of China h...
 
-<img src="https://media.gettr.com/group43/origin/2022/06/09/03/a05d0bc3-6792-2f02-00ec-7e5b88679d8a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/06/09/03/1da248d6-fffd-adee-1991-8b765dee4ce9/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ For English:  gettr.com/streaming/p1d94f4f68b
 【NFSC 2nd Anniversary 】The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have been working hard to wa...
 
 <img src="https://media.gettr.com/group29/origin/2022/06/08/07/ed197931-0b80-2d32-4ff3-34adee80e027/8ef3ca163ef5cc59c18d234533954c2d.jpg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p1d65n87493.md)
-
-Killing and deception are the true colors of the CCP.
-
-杀人和欺骗，是中共的本色。
-
-<img src="https://media.gettr.com/group17/origin/2022/06/08/07/7a5e7f63-1a5c-bcb2-0b72-4b2a8eb2104b/out.jpg" width="506" height="284">
 
 ---
 
