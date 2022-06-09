@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 12:03 PM UTC  - :tv:直播](/content/gettr/p1dcd680b46.md)
+
+2022.06.09  AM NFSC news  The CCP Threats and Lures Foreign Businesses to Stop them from Withdrawing
+
+<img src="https://media.gettr.com/group6/origin/2022/06/09/11/ec0a1517-3e3d-045c-c010-e39da5742f9e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1dd2jw0c56.md)
 
 20220609  NFSCニュース　　米SECが仮想通貨取引所Binanceを調査
@@ -38,11 +46,11 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
-[@miles 6/9/2022 12:03 PM UTC  - :tv:直播](/content/gettr/p1dcd680b46.md)
+[@miles 6/9/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p1dcio58217.md)
 
-2022.06.09  AM NFSC news  The CCP Threats and Lures Foreign Businesses to Stop them from Withdrawing
+2022.06.09  早 新中国联邦 | 新闻  美国会两党关注新中国联邦；郭先生与摩根家族的渊源；勇敢无私诚实善良  新中国联邦人的基本品质；当前中共国社会生态远不如8964时期
 
-<img src="https://media.gettr.com/group6/origin/2022/06/09/11/ec0a1517-3e3d-045c-c010-e39da5742f9e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/06/09/12/18145edf-ca84-8fbf-d7dc-65a33a5979ae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,14 +149,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 6/8/2022 Miles Guo: The Whistleblowers' Movement has obtained accurate intelligence showing that Meng Jianzhu signed the paperwork himself to set up Changpeng Zhao's Binance as a double-track financial system serving for the "One B...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/08/23/0abb83d6-b30d-b461-60a4-e605a20a7063/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 10:49 PM UTC  - :tv:直播](/content/gettr/p1d9c1z821d.md)
-
-6/8/2022 Miles Guo: Many congressmen and congresswomen have said that they will investigate the individuals paying the legal fees for the lawsuits against me as soon as they take back Congress. Bruno Wu's abnormal request to keep t...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/08/22/8c0ac1ff-a616-3ce6-1737-9b9d277a0f10/out.jpg" width="506" height="284">
 
 ---
 
