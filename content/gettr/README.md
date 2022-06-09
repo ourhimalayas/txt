@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/9/2022 5:51 AM UTC ](/content/gettr/p1dbmuidb1a.md)
+
+Morgan and Rothschild Families attended the 2nd anniversary celebration of the New Federal State of China
+
+
+
+On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attended the  2nd anniversary celebration of the...
+
+<img src="https://media.gettr.com/group46/origin/2022/06/09/05/683d1729-98e5-fb3a-c49f-c5531be5fe9f/7e9d218900206231261451c92d1cb67a.png" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1d9gih9959.md)
 
 2022.06.08  新中国联邦 | 喜财经  第75期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天！
@@ -65,6 +77,14 @@
 2022.06.08 NFSC fringe episode 205
 
 <img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 5:59 AM UTC  - :tv:直播](/content/gettr/p1dbo073366.md)
+
+6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
+
+<img src="https://media.gettr.com/group49/getter/2022/06/09/05/e2145531-3793-5406-116f-701faae14643/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,22 +159,6 @@ For English:  gettr.com/streaming/p1d94f4f68b
 2022年6月8日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group28/origin/2022/06/08/16/d1dd0a27-e732-d3ac-0210-a7d871c386df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 12:25 PM UTC  - :tv:直播](/content/gettr/p1d70ftf3f0.md)
-
-2022年6月8日 文贵大直播：新中国联邦两周年庆典；币安洗钱与共产党关系；数字货币时代滚滚而来
-
-<img src="https://media.gettr.com/group14/origin/2022/06/08/12/f5624fb6-422a-c568-0722-0018034a8ab7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1d631v567f.md)
-
-2022.06.08 新中国联邦 | 军情室 鱼叉导弹  乌军南部反攻与乌克兰的粮食出口
-
-<img src="https://media.gettr.com/group26/origin/2022/06/08/09/f8d2be74-a35e-b0b4-4042-3a2b3916ed25/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
