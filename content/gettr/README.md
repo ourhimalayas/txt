@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1dd2jw0c56.md)
+
+20220609  NFSCニュース　　米SECが仮想通貨取引所Binanceを調査
+
+<img src="https://media.gettr.com/group47/origin/2022/06/09/11/450b7361-678a-b88e-7a20-035c07682d5e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1dc2ig0855.md)
 
 6/8/2022 Miles Guo: The Morgan family and I have had a good relationship for a long time. Mr. and Mrs. Morgan's support for the citizens of the New Federal State of China at the celebration of the 2nd anniversary of the New Federal...
@@ -30,11 +38,11 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
-[@miles 6/9/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1dd2jw0c56.md)
+[@miles 6/9/2022 12:03 PM UTC  - :tv:直播](/content/gettr/p1dcd680b46.md)
 
-20220609  NFSCニュース　　米SECが仮想通貨取引所Binanceを調査
+2022.06.09  AM NFSC news  The CCP Threats and Lures Foreign Businesses to Stop them from Withdrawing
 
-<img src="https://media.gettr.com/group47/origin/2022/06/09/11/450b7361-678a-b88e-7a20-035c07682d5e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/06/09/11/ec0a1517-3e3d-045c-c010-e39da5742f9e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 飞飞秀 六四篇 两周年照片花絮   2022-06-08
 
 <img src="https://media.gettr.com/group50/origin/2022/06/08/22/80403a05-1989-0beb-b8de-62de2c0f1b7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 10:41 PM UTC  - :tv:直播](/content/gettr/p1d8kyi48fa.md)
-
-6/8/2022 Miles Guo: Binance claimed to have issued only 200 million BNB coins, but in fact it issued 2 billion BNB coins. Binance has no real license or registration at competent jurisdictions except the limited license in Dubai. B...
-
-<img src="https://media.gettr.com/group29/getter/2022/06/08/22/e9858541-1ffe-7ccb-8eb7-bd362c9e3059/out.jpg" width="506" height="284">
 
 ---
 
