@@ -2,6 +2,18 @@
 ---
 
 
+#### [共产党统治下的中国现状](/content/gnews/2695543.md)
+ `G-NEWS TAIWAN`
+
+#### [【G时新闻】美国会两党关注新中国联邦](/content/gnews/2695521.md)
+ `G-时新闻`
+
+#### [共产党给未来的中国留下了什么隐患？](/content/gnews/2695512.md)
+ `G-NEWS TAIWAN`
+
+#### [【G时新闻】白宫计划为5岁以下儿童接种COVID-19疫苗](/content/gnews/2695497.md)
+ `G-时新闻`
+
 #### [疫苗反应正在让一个个熟悉的人离你远去](/content/gnews/2695493.md)
  `G-NEWS TAIWAN`
 
@@ -17,12 +29,6 @@
 #### [【G叻睇真D】加拿大向丹麦订购猴痘疫苗](/content/gnews/2695469.md)
  `G-时新闻`
 
-#### [风暴中的乌克兰](/content/gnews/2695463.md)
- `G-NEWS TAIWAN`
-
-#### [数字货币与未来](/content/gnews/2695421.md)
- `G-NEWS TAIWAN`
-
 #### [【G时新闻】美国将对中共发起新的一轮立法](/content/gnews/2695383.md)
  `G-时新闻`
 
@@ -32,14 +38,8 @@
 #### [视频&#124;俄罗斯因助长全球粮食危机遭谴责](/content/gnews/2695348.md)
  `MOSVIDEO`
 
-#### [视频&#124;中共在柬埔寨秘密建造海军基地](/content/gnews/2695330.md)
- `MOSVIDEO`
-
 #### [USA食药监局准许辉瑞5-11儿童型增强剂](/content/gnews/2695329.md)
  `G-NEWS TAIWAN`
-
-#### [视频&#124;中共再颁恶法鼓动百姓相互检举](/content/gnews/2695308.md)
- `MOSVIDEO`
 
 #### [法国Covid-19疫苗：这些妇女在接种疫苗后必须接受“切除子宫”&#8230;](/content/gnews/2695231.md)
  `纽约香草山MOS02`
