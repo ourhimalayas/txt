@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 6/8/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1d90zk896a.md)
+[@miles 6/8/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1d97rg42da.md)
 
-6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. There will be two types of digital coins in ...
+2022.06.08 NFSC fringe episode 205
 
-<img src="https://media.gettr.com/group44/getter/2022/06/08/23/f54ded08-a08d-5b77-a535-64f6768f5758/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 2022.06.08 NFSC fringe episode 205
 
 <img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/8/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1d90zk896a.md)
+
+6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. There will be two types of digital coins in ...
+
+<img src="https://media.gettr.com/group44/getter/2022/06/08/23/f54ded08-a08d-5b77-a535-64f6768f5758/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Killing and deception are the true colors of the CCP.
 6/7/2022 Miles Guo’s GETTR: Foreign entrepreneurs are all fleeing Communist China and leaving everything behind! They believe what happened to Miles Guo can happen to them as well; Those who took the COVID vaccines really regret th...
 
 <img src="https://media.gettr.com/group20/getter/2022/06/07/23/54b1d775-dc08-665e-fb3c-ba9588bf15ab/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1d48ca25ee.md)
-
-6/7/2022 Miles Guo’s GETTR: The Taiwanese, Japanese, and other foreign businesspersons who set up factories in Qingdao, Shanghai, Henan, and other places have recently experienced the same tricks of the CCP - first, the CCP would i...
-
-<img src="https://media.gettr.com/group49/getter/2022/06/07/23/14ab2a61-98ec-6932-09d8-a1bd6f06cc49/out.jpg" width="506" height="284">
 
 ---
 
