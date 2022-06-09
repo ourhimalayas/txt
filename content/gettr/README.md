@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p1dcio58217.md)
+
+2022.06.09  早 新中国联邦 | 新闻  美国会两党关注新中国联邦；郭先生与摩根家族的渊源；勇敢无私诚实善良  新中国联邦人的基本品质；当前中共国社会生态远不如8964时期
+
+<img src="https://media.gettr.com/group19/origin/2022/06/09/12/18145edf-ca84-8fbf-d7dc-65a33a5979ae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 12:03 PM UTC  - :tv:直播](/content/gettr/p1dcd680b46.md)
 
 2022.06.09  AM NFSC news  The CCP Threats and Lures Foreign Businesses to Stop them from Withdrawing
@@ -46,11 +54,11 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
-[@miles 6/9/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p1dcio58217.md)
+[@miles 6/9/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1dcd6tf44d.md)
 
-2022.06.09  早 新中国联邦 | 新闻  美国会两党关注新中国联邦；郭先生与摩根家族的渊源；勇敢无私诚实善良  新中国联邦人的基本品质；当前中共国社会生态远不如8964时期
+2022.06.09 早 新中国联邦 | 新闻访谈 两党四议员敦促全面实施《防止强迫维吾尔人劳动法》；拜登政府松绑对中共军民融合黑名单企业投资禁令惹议；美国初选结果向民主党人发出警讯
 
-<img src="https://media.gettr.com/group19/origin/2022/06/09/12/18145edf-ca84-8fbf-d7dc-65a33a5979ae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/09/13/500e44d6-65e9-5501-dc5d-ba8534ad5362/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 6/8/2022 Miles Guo: The Whistleblowers' Movement has obtained accurate intelligence showing that Meng Jianzhu signed the paperwork himself to set up Changpeng Zhao's Binance as a double-track financial system serving for the "One B...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/08/23/0abb83d6-b30d-b461-60a4-e605a20a7063/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1d9dr3715b.md)
-
-飞飞秀 六四篇 两周年照片花絮   2022-06-08
-
-<img src="https://media.gettr.com/group50/origin/2022/06/08/22/80403a05-1989-0beb-b8de-62de2c0f1b7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
