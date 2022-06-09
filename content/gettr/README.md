@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 6:04 AM UTC  - :tv:直播](/content/gettr/p1dbt3hd9b5.md)
+
+6/8/2022 Miles Guo: The Himalaya Coin is fully involved in the establishment of the new quantum computing standards, and both the Himalaya Coin and Tang Ping (Lying-flat) Coin will use quantum computing technologies. The Himalaya E...
+
+<img src="https://media.gettr.com/group33/getter/2022/06/09/06/b859487f-d942-b0f5-012c-7ad24a245f32/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 5:51 AM UTC ](/content/gettr/p1dbmuidb1a.md)
 
 Morgan and Rothschild Families attended the 2nd anniversary celebration of the New Federal State of China
@@ -14,11 +22,11 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
-[@miles 6/9/2022 6:04 AM UTC  - :tv:直播](/content/gettr/p1dbt3hd9b5.md)
+[@miles 6/9/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1dc2ig0855.md)
 
-6/8/2022 Miles Guo: The Himalaya Coin is fully involved in the establishment of the new quantum computing standards, and both the Himalaya Coin and Tang Ping (Lying-flat) Coin will use quantum computing technologies. The Himalaya E...
+6/8/2022 Miles Guo: The Morgan family and I have had a good relationship for a long time. Mr. and Mrs. Morgan's support for the citizens of the New Federal State of China at the celebration of the 2nd anniversary of the New Federal...
 
-<img src="https://media.gettr.com/group33/getter/2022/06/09/06/b859487f-d942-b0f5-012c-7ad24a245f32/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/06/09/06/e212c7b2-8f6c-4e1f-4ed0-eca787370480/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 For English:  gettr.com/streaming/p1d94f4f68b
 
 <img src="https://media.gettr.com/group39/origin/2022/06/08/22/4345060e-705e-ed16-b804-66665b54b604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1d8ar4dadc.md)
-
- 2022.06.08 新中国联邦｜喜健康 《医学观察》战友亲身爆料，疫苗危机临近
-
-<img src="https://media.gettr.com/group24/origin/2022/06/08/20/4a06aeb1-4440-2feb-c312-5ca9e398cbd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
