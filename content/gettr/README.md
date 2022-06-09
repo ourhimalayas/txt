@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/8/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1d97rg42da.md)
+
+2022.06.08 NFSC fringe episode 205
+
+<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1d8y5b71d4.md)
 
 2022.06.08 NFSC fringe episode 205
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/8/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1d97rg42da.md)
+[@miles 6/9/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1d9bm55e3a.md)
 
-2022.06.08 NFSC fringe episode 205
+2022.06.08 晚 新中国联邦 | 新闻 喜币好消息因中共使坏而被迫延期  中共疯狂攻击新中国联邦庆典的原因  郭先生揭露64国庆庆典上的意外
 
-<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/06/09/00/fd530f21-41c4-be5e-e071-cf7308968f7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Killing and deception are the true colors of the CCP.
 6/7/2022 Miles Guo’s GETTR: Peking University’s Li You does whatever it takes to achieve his goals and has no conscience, law, or moral boundaries. Li You set up Vice Minister Ma Jian, who had helped him a lot. Li You, together wit...
 
 <img src="https://media.gettr.com/group50/getter/2022/06/08/01/39d69447-8c12-55ee-bff6-b1e13b84ea3b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1d47ng68bb.md)
-
-6月7号：七哥在所有的人……都担心染毒的情况下，与战友们以命相见……证明了我们新中国联邦人的真情真意，同时我们得到上天万福外省的护佑……🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏最重要的事实是．七哥不会．战友也不会．有任何的侥幸和自私的心理和行为……不顾战友的健康．和安危．我们都很小心，我们都很在意，彼此的健康和安全，谢谢所有兄弟姐妹们！
-
-<img src="https://media.gettr.com/group47/getter/2022/06/07/23/83e54a70-5f75-ea60-2dff-bf14720d94ca/out.jpg" width="506" height="284">
 
 ---
 
