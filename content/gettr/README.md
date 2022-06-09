@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 6/9/2022 3:02 PM UTC  - :tv:直播](/content/gettr/p1dd64606f8.md)
+[@miles 6/8/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1d8y5b71d4.md)
 
-【NFSC 2nd Anniversary 】06/04/2022  GETTR CEO Jason Miller：We must stand up and take down the CCP.  The corporate and global leaders sold out the Chinese people, the people of America and other countries in order to make additional ...
+2022.06.08 NFSC fringe episode 205
 
-<img src="https://media.gettr.com/group46/getter/2022/06/09/15/45586978-fc08-f955-9d53-e636e10aec30/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 3:23 PM UTC  - :tv:直播](/content/gettr/p1ddatf2f9e.md)
+
+6月9号：尊敬的战友们好．疫苗灾难．正在中共国．正在以不可思议的速度．在发生中．我们一定要耐心．对待我们所有的家人．朋友，战友．更要珍惜．新中国联邦独有的这种上天恩赐！
+
+<img src="https://media.gettr.com/group10/getter/2022/06/09/15/0e422115-34a5-f895-d9c1-c389933ef637/out.jpg" width="506" height="284">
 
 ---
 
@@ -75,14 +83,6 @@ Morgan and Rothschild Families attended the 2nd anniversary celebration of the N
 On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attended the  2nd anniversary celebration of the...
 
 <img src="https://media.gettr.com/group46/origin/2022/06/09/05/683d1729-98e5-fb3a-c49f-c5531be5fe9f/7e9d218900206231261451c92d1cb67a.png" width="506" height="284">
-
----
-
-[@miles 6/9/2022 3:23 PM UTC  - :tv:直播](/content/gettr/p1ddatf2f9e.md)
-
-6月9号：尊敬的战友们好．疫苗灾难．正在中共国．正在以不可思议的速度．在发生中．我们一定要耐心．对待我们所有的家人．朋友，战友．更要珍惜．新中国联邦独有的这种上天恩赐！
-
-<img src="https://media.gettr.com/group10/getter/2022/06/09/15/0e422115-34a5-f895-d9c1-c389933ef637/out.jpg" width="506" height="284">
 
 ---
 
