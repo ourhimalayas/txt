@@ -11,16 +11,25 @@
 
 ---
 
+#### [疫苗反应正在让一个个熟悉的人离你远去](/content/gnews/2695493.md)
+ `G-NEWS TAIWAN`
+
+#### [疫苗灾难给未来留下的伤痕](/content/gnews/2695492.md)
+ `G-NEWS TAIWAN`
+
+#### [中共的哀与愁](/content/gnews/2695474.md)
+ `G-NEWS TAIWAN`
+
+#### [【G时新闻】中俄被要求解释否决追加制裁朝鲜的安理会决议](/content/gnews/2695470.md)
+ `G-时新闻`
+
+#### [【G叻睇真D】加拿大向丹麦订购猴痘疫苗](/content/gnews/2695469.md)
+ `G-时新闻`
+
+#### [风暴中的乌克兰](/content/gnews/2695463.md)
+ `G-NEWS TAIWAN`
+
 #### [数字货币与未来](/content/gnews/2695421.md)
- `G-NEWS TAIWAN`
-
-#### [正确的信仰是不行差踏错的必要条件](/content/gnews/2695418.md)
- `G-NEWS TAIWAN`
-
-#### [特鲁多的险恶用心：疫情永远不能结束！](/content/gnews/2695392.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [基督与马列，谁更中国？](/content/gnews/2695384.md)
  `G-NEWS TAIWAN`
 
 #### [【G时新闻】美国将对中共发起新的一轮立法](/content/gnews/2695383.md)
@@ -28,9 +37,6 @@
 
 #### [聚焦：为什么日本韩国要加入北约？](/content/gnews/2695378.md)
  `蓝莲花农场`
-
-#### [郭氏情报站- 2022-06-08 文贵大直播概要](/content/gnews/2695377.md)
- `MOS Designer香草山设计部`
 
 #### [视频&#124;俄罗斯因助长全球粮食危机遭谴责](/content/gnews/2695348.md)
  `MOSVIDEO`
@@ -42,9 +48,6 @@
  `G-NEWS TAIWAN`
 
 #### [视频&#124;中共再颁恶法鼓动百姓相互检举](/content/gnews/2695308.md)
- `MOSVIDEO`
-
-#### [视频&#124;广西暴雨 中共无预警泄洪](/content/gnews/2695259.md)
  `MOSVIDEO`
 
 #### [法国Covid-19疫苗：这些妇女在接种疫苗后必须接受“切除子宫”&#8230;](/content/gnews/2695231.md)
@@ -73,9 +76,6 @@
 
 #### [为什么乔-拜登要援引战争力量来建造热泵和太阳能板（一）](/content/gnews/2695055.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [【G时新闻】中共再颁恶法鼓动百姓相互检举](/content/gnews/2695051.md)
- `G-时新闻`
 
 #### [俄罗斯的石油销售使普京与乌克兰的战争得以继续下去](/content/gnews/2695013.md)
  `西班牙巴塞罗那喜悦农场`
