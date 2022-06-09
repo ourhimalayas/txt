@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1de97983ab.md)
+
+2022.06.09  新中国联邦 | 喜健康   解读郭先生对爆二代们健康习惯的建议、为什么要积极面对人生中的痛苦回忆
+
+<img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 7:13 PM UTC  - :tv:直播](/content/gettr/p1de6jccf92.md)
 
 2022-6-9《避风港》(57) 疫苗与致命中枢神经系统疾病相关
@@ -42,11 +50,13 @@
 
 ---
 
-[@miles 6/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1de97983ab.md)
+[@miles 6/9/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1df45k89d4.md)
 
-2022.06.09  新中国联邦 | 喜健康   解读郭先生对爆二代们健康习惯的建议、为什么要积极面对人生中的痛苦回忆
+飞飞秀 六四篇 《七哥和战友们》 2022-06-09
 
-<img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English: gettr.com/streaming/p1dey2o8a76
+
+<img src="https://media.gettr.com/group29/origin/2022/06/09/22/a41a4f52-6a99-45e2-65a5-7d74fdcc0a7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 6/8/2022 Miles Guo: The CCP is so furious that G-series, Himalaya Coin, and the New Federal State of China gained the support of Mr. John Adams Morgan and the Morgan family; Mr. Morgan believes that the New Federal State of China h...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/09/03/1da248d6-fffd-adee-1991-8b765dee4ce9/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1d9j4pfc12.md)
-
-2022-6-8《鸡血王喜币大作战》 第二百二十集 嘉宾：齐天二圣、Nick
-
-<img src="https://media.gettr.com/group43/origin/2022/06/09/03/a05d0bc3-6792-2f02-00ec-7e5b88679d8a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
