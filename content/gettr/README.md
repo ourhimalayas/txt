@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1d9x19c3ab.md)
+
+6/8/2022 Miles Guo: The New Federal State of China will set up its Embassy to the United States in Washington D.C. and will establish the General Consulate in Manhattan. After the election of the House, both Republican Party and De...
+
+<img src="https://media.gettr.com/group16/getter/2022/06/09/01/df4cf97d-41ab-081c-d9cf-2e40815fdb70/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1d9b9a2c45.md)
 
 2022.06.08 晚 新中国联邦 | 新闻访谈 克里姆林宫宣布从俄罗斯西部到顿巴斯到克里米亚的“大陆桥”完工；俄罗斯袭击摧毁了乌克兰主要商品码头的仓库
@@ -34,11 +42,13 @@
 
 ---
 
-[@miles 6/9/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1d9x19c3ab.md)
+[@miles 6/9/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1d9gih9959.md)
 
-6/8/2022 Miles Guo: The New Federal State of China will set up its Embassy to the United States in Washington D.C. and will establish the General Consulate in Manhattan. After the election of the House, both Republican Party and De...
+2022.06.08  新中国联邦 | 喜财经  第75期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天！
 
-<img src="https://media.gettr.com/group16/getter/2022/06/09/01/df4cf97d-41ab-081c-d9cf-2e40815fdb70/out.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group46/origin/2022/05/09/01/a2c848c7-ccf2-12e4-314b-079cd5d74b7b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,12 +167,6 @@ Killing and deception are the true colors of the CCP.
 杀人和欺骗，是中共的本色。
 
 <img src="https://media.gettr.com/group17/origin/2022/06/08/07/7a5e7f63-1a5c-bcb2-0b72-4b2a8eb2104b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 3:02 AM UTC ](/content/gettr/p1d4ef3a5e5.md)
-
-2022-6-7《鸡血王喜币大作战》 第二百一十九集 嘉宾：文空、Happy
 
 ---
 
