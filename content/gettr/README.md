@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 6/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1df7ss740f.md)
+[@miles 6/9/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1df3y10594.md)
 
-2022.06.09  PM NFSC news
+6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
 
-<img src="https://media.gettr.com/group10/origin/2022/06/09/22/584f61f8-f6ea-bc41-50db-f523d9d607ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/06/09/23/ad71b756-a87e-2e78-f833-07c0e960e84c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p1dez6a0222.md)
+
+6/9/2022 Miles Guo’s GETTR: More family members of our fellow fighters inside Communist China have been diagnosed of cancer due the COVID vaccines; In a small county near Wenzhou, the “white guards” could beat up anyone they wanted...
+
+<img src="https://media.gettr.com/group29/getter/2022/06/09/23/3f9dab5b-e5cc-115f-8559-d437232f186a/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +23,22 @@
 6/8/2022 Miles Guo: The CCP is so furious that G-series and the New Federal State of China gained the support of Mr. John Adams Morgan; Mr. Morgan expressed his gratitude to me for saving his life by keeping him from taking the COV...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/09/23/67452b3c-8445-2ad0-fc7e-17390217cb2d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1df7ss740f.md)
+
+2022.06.09  PM NFSC news
+
+<img src="https://media.gettr.com/group10/origin/2022/06/09/22/584f61f8-f6ea-bc41-50db-f523d9d607ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1df8kz1005.md)
+
+2022.06.09 NFSC fringe Episode 206
+
+<img src="https://media.gettr.com/group19/origin/2022/06/09/23/fb232d5e-989f-c712-7d1c-63df99de9b57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,30 +165,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 2022.06.09  AM NFSC news  The CCP Threats and Lures Foreign Businesses to Stop them from Withdrawing
 
 <img src="https://media.gettr.com/group6/origin/2022/06/09/11/ec0a1517-3e3d-045c-c010-e39da5742f9e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1dd2jw0c56.md)
-
-20220609  NFSCニュース　　米SECが仮想通貨取引所Binanceを調査
-
-<img src="https://media.gettr.com/group47/origin/2022/06/09/11/450b7361-678a-b88e-7a20-035c07682d5e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1dc2ig0855.md)
-
-6/8/2022 Miles Guo: The Morgan family and I have had a good relationship for a long time. Mr. and Mrs. Morgan's support for the citizens of the New Federal State of China at the celebration of the 2nd anniversary of the New Federal...
-
-<img src="https://media.gettr.com/group11/getter/2022/06/09/06/e212c7b2-8f6c-4e1f-4ed0-eca787370480/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 6:04 AM UTC  - :tv:直播](/content/gettr/p1dbt3hd9b5.md)
-
-6/8/2022 Miles Guo: The Himalaya Coin is fully involved in the establishment of the new quantum computing standards, and both the Himalaya Coin and Tang Ping (Lying-flat) Coin will use quantum computing technologies. The Himalaya E...
-
-<img src="https://media.gettr.com/group33/getter/2022/06/09/06/b859487f-d942-b0f5-012c-7ad24a245f32/out.jpg" width="506" height="284">
 
 ---
 
