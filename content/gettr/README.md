@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1d9bm55e3a.md)
+
+2022.06.08 晚 新中国联邦 | 新闻 喜币好消息因中共使坏而被迫延期  中共疯狂攻击新中国联邦庆典的原因  郭先生揭露64国庆庆典上的意外
+
+<img src="https://media.gettr.com/group3/origin/2022/06/09/00/fd530f21-41c4-be5e-e071-cf7308968f7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/8/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1d97rg42da.md)
 
 2022.06.08 NFSC fringe episode 205
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/9/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1d9bm55e3a.md)
+[@miles 6/9/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1d9b9a2c45.md)
 
-2022.06.08 晚 新中国联邦 | 新闻 喜币好消息因中共使坏而被迫延期  中共疯狂攻击新中国联邦庆典的原因  郭先生揭露64国庆庆典上的意外
+2022.06.08 晚 新中国联邦 | 新闻访谈 克里姆林宫宣布从俄罗斯西部到顿巴斯到克里米亚的“大陆桥”完工；俄罗斯袭击摧毁了乌克兰主要商品码头的仓库
 
-<img src="https://media.gettr.com/group3/origin/2022/06/09/00/fd530f21-41c4-be5e-e071-cf7308968f7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/06/09/01/c76e1dee-5b43-ad1f-da8a-b523b1922c13/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Killing and deception are the true colors of the CCP.
 6/7/2022 Miles Guo’s GETTR: Peking University’s Li You does whatever it takes to achieve his goals and has no conscience, law, or moral boundaries. Li You set up Vice Minister Ma Jian, who had helped him a lot. Li You, together wit...
 
 <img src="https://media.gettr.com/group50/getter/2022/06/08/01/39d69447-8c12-55ee-bff6-b1e13b84ea3b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/7/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1d4a437419.md)
-
-6/7/2022 Miles Guo’s GETTR: Foreign entrepreneurs are all fleeing Communist China and leaving everything behind! They believe what happened to Miles Guo can happen to them as well; Those who took the COVID vaccines really regret th...
-
-<img src="https://media.gettr.com/group20/getter/2022/06/07/23/54b1d775-dc08-665e-fb3c-ba9588bf15ab/out.jpg" width="506" height="284">
 
 ---
 
