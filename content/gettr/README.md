@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 6/8/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1d8y5b71d4.md)
+[@miles 6/9/2022 3:46 PM UTC  - :tv:直播](/content/gettr/p1ddz11884d.md)
 
-2022.06.08 NFSC fringe episode 205
+【NFSC 2nd Anniversary 】06/04/2022  GETTR CEO Jason Miller：We must stand up and take down the CCP.  The corporate and global leaders sold out the Chinese people, the people of America and other countries in order to make additional ...
 
-<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/06/09/15/1d55c227-a465-7b69-dc46-690d56cec4dd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 3:55 PM UTC  - :tv:直播](/content/gettr/p1ddvq095cf.md)
+
+6/8/2022 Miles Guo: I did the COVID-19 test not only for myself but also to be responsible for our fellow fighters. Our responsible behaviors will win the respect of the world and prove that the New Federal State of China is totall...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/09/15/92be1fc6-5b0d-40e8-be1a-41afc124010c/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 ---
 
 [@miles 6/8/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1d97rg42da.md)
-
-2022.06.08 NFSC fringe episode 205
-
-<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1d9b298fba.md)
 
 2022.06.08 NFSC fringe episode 205
 
