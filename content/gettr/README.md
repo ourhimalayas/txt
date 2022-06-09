@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 5:44 PM UTC  - :tv:直播](/content/gettr/p1dd8v0c50c.md)
+
+2022年6月9日 文贵大直播精化版
+
+<img src="https://media.gettr.com/group38/origin/2022/06/09/17/8adab0c1-9060-1396-077e-df8afb265e35/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1ddgt231a4.md)
 
 2022年6月9日 俄乌战争战况播报
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/9/2022 5:44 PM UTC  - :tv:直播](/content/gettr/p1dd8v0c50c.md)
+[@miles 6/9/2022 6:01 PM UTC ](/content/gettr/p1ddzm41092.md)
 
-2022年6月9日 文贵大直播精化版
+ 6月9号：在世界经济即将崩溃，数字货币．正在经历必成长中必须的时刻……必须淘汰的欺诈的所谓的稳定币和没有事时，某听和任何价值的各种眼花缭乱的数字货币在这个关键的时间点上．喜币却有这么大的交易量发生，这意味着什么！太不可思议了……亲爱的，战友们你们在创造了一个又一个的传奇，就是被共产党看不起的这些新中国联邦人．和这些被视为畜生和奴隶一样的人……正在创造中国共产党，永远无法创造出来的真实的……具有巨大意义的奇迹……
 
-<img src="https://media.gettr.com/group38/origin/2022/06/09/17/8adab0c1-9060-1396-077e-df8afb265e35/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/06/09/18/011cfd98-17d0-d414-5c70-4b92156666b0/838a66624f70bbc1735e33e0087db4e3.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 6/8/2022 Miles Guo: The New Federal State of China will set up its Embassy to the United States in Washington D.C. and will establish the General Consulate in Manhattan. After the election of the House, both Republican Party and De...
 
 <img src="https://media.gettr.com/group16/getter/2022/06/09/01/df4cf97d-41ab-081c-d9cf-2e40815fdb70/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1d9b9a2c45.md)
-
-2022.06.08 晚 新中国联邦 | 新闻访谈 克里姆林宫宣布从俄罗斯西部到顿巴斯到克里米亚的“大陆桥”完工；俄罗斯袭击摧毁了乌克兰主要商品码头的仓库
-
-<img src="https://media.gettr.com/group36/origin/2022/06/09/01/c76e1dee-5b43-ad1f-da8a-b523b1922c13/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
