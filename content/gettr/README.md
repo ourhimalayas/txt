@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/9/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1ddgt231a4.md)
+
+2022年6月9日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group23/origin/2022/06/09/16/b3acd47b-d717-023a-4315-0cc2f675b806/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 3:55 PM UTC  - :tv:直播](/content/gettr/p1ddvq095cf.md)
 
 6/8/2022 Miles Guo: I did the COVID-19 test not only for myself but also to be responsible for our fellow fighters. Our responsible behaviors will win the respect of the world and prove that the New Federal State of China is totall...
@@ -149,14 +157,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 2022.06.08 晚 新中国联邦 | 新闻 喜币好消息因中共使坏而被迫延期  中共疯狂攻击新中国联邦庆典的原因  郭先生揭露64国庆庆典上的意外
 
 <img src="https://media.gettr.com/group3/origin/2022/06/09/00/fd530f21-41c4-be5e-e071-cf7308968f7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1d97rg42da.md)
-
-2022.06.08 NFSC fringe episode 205
-
-<img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
