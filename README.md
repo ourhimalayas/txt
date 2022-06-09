@@ -11,19 +11,31 @@
 
 ---
 
+#### [推特计划在8 月前出售给埃隆•马斯克](/content/gnews/2694939.md)
+ `墨尔本雅典娜农场`
+
+#### [6/8/2022 文贵直播: 文贵做新冠病毒检测不仅是为了自己，而且也是为了对战友们负责](/content/gnews/2694905.md)
+ `秘密翻译组-北美组`
+
+#### [保守派呼吁特鲁多政府禁止进口新疆商品](/content/gnews/2694868.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [美国批准1.2亿美元对台军售](/content/gnews/2694866.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [面对灭共联盟围剿，中吉乌铁路启动，中共加速突围](/content/gnews/2694865.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [中共“”倒打一耙“指责加拿大增加敌意](/content/gnews/2694864.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [三菱在印度建立FA自动化生产线基地，彻底改变东南亚格局](/content/gnews/2694863.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [美国全面禁止新疆进口 行业影响巨大](/content/gnews/2694799.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [中共降薪裁员来袭：国企都扛不住](/content/gnews/2694798.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [06/09/22 香港快讯 立会通过取消强积金对冲草案　积金局欢迎但工总极失望](/content/gnews/2694770.md)
- `英喜-粵語組`
-
-#### [發動俄烏戰爭：俄國經濟遭到嚴重影響，中共國？](/content/gnews/2694765.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [发动俄乌战争：俄国经济遭到严重影响，中共国？](/content/gnews/2694722.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [中俄否决对朝制裁 美呛两国置世界安全于不顾](/content/gnews/2694684.md)
@@ -35,12 +47,6 @@
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年6月9日早](/content/gnews/2694649.md)
  `纽约香草山MOS01`
 
-#### [新中国联邦2周年庆典上的沼泽地](/content/gnews/2694581.md)
- `波士顿五月花农场`
-
-#### [七哥说—第78期](/content/gnews/2694568.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [北京餐饮人寒冬到来：以前盼天黑，现在怕天黑](/content/gnews/2694548.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -51,9 +57,6 @@
  `樱花FM`
 
 #### [樱花FM┃SOS：五角大楼是否输掉了美国与中共的竞争？（二）](/content/gnews/2694510.md)
- `樱花FM`
-
-#### [樱花FM┃习近平禁止妄议中央（下）](/content/gnews/2694509.md)
  `樱花FM`
 
 #### [歐盟稱加拿大防疫法規極具侵犯人權](/content/gnews/2694481.md)
@@ -133,9 +136,6 @@
 
 #### [伊朗阻止联合国监控其核武计划](/content/gnews/2693699.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [联大77/78次会议 中俄邪恶轴心将北韩问题归结为美国的制裁](/content/gnews/2693681.md)
- `温哥华扬帆农场`
 
 #### [中共军机湖北坠毁 造成平民伤亡](/content/gnews/2693603.md)
  `TokyoSakura Politics/樱花时政`
