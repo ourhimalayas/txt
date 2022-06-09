@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 2:16 PM UTC  - :tv:直播](/content/gettr/p1dcvcsef49.md)
+
+叶钊颖-郝海东-飞飞 《大实话·第二十一场》： “合”  2022-06-09
+
+<img src="https://media.gettr.com/group27/origin/2022/06/09/14/31fc5a70-34da-459a-de6d-186fb5e5cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1dcd6tf44d.md)
 
 2022.06.09 早 新中国联邦 | 新闻访谈 两党四议员敦促全面实施《防止强迫维吾尔人劳动法》；拜登政府松绑对中共军民融合黑名单企业投资禁令惹议；美国初选结果向民主党人发出警讯
@@ -62,11 +70,11 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
-[@miles 6/9/2022 2:16 PM UTC  - :tv:直播](/content/gettr/p1dcvcsef49.md)
+[@miles 6/9/2022 3:02 PM UTC  - :tv:直播](/content/gettr/p1dd64606f8.md)
 
-叶钊颖-郝海东-飞飞 《大实话·第二十一场》： “合”  2022-06-09
+【NFSC 2nd Anniversary 】06/04/2022  GETTR CEO Jason Miller：We must stand up and take down the CCP.  The corporate and global leaders sold out the Chinese people, the people of America and other countries in order to make additional ...
 
-<img src="https://media.gettr.com/group27/origin/2022/06/09/14/31fc5a70-34da-459a-de6d-186fb5e5cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/06/09/15/45586978-fc08-f955-9d53-e636e10aec30/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 2022.06.08 NFSC fringe episode 205
 
 <img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1d9e53c7e0.md)
-
-6/8/2022 Miles Guo: The Whistleblowers' Movement has obtained accurate intelligence showing that Meng Jianzhu signed the paperwork himself to set up Changpeng Zhao's Binance as a double-track financial system serving for the "One B...
-
-<img src="https://media.gettr.com/group48/getter/2022/06/08/23/0abb83d6-b30d-b461-60a4-e605a20a7063/out.jpg" width="506" height="284">
 
 ---
 
