@@ -14,6 +14,22 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
+[@miles 6/9/2022 6:04 AM UTC  - :tv:直播](/content/gettr/p1dbt3hd9b5.md)
+
+6/8/2022 Miles Guo: The Himalaya Coin is fully involved in the establishment of the new quantum computing standards, and both the Himalaya Coin and Tang Ping (Lying-flat) Coin will use quantum computing technologies. The Himalaya E...
+
+<img src="https://media.gettr.com/group33/getter/2022/06/09/06/b859487f-d942-b0f5-012c-7ad24a245f32/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 5:59 AM UTC  - :tv:直播](/content/gettr/p1dbo073366.md)
+
+6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
+
+<img src="https://media.gettr.com/group49/getter/2022/06/09/05/e2145531-3793-5406-116f-701faae14643/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1d9gih9959.md)
 
 2022.06.08  新中国联邦 | 喜财经  第75期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天！
@@ -80,14 +96,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
-[@miles 6/9/2022 5:59 AM UTC  - :tv:直播](/content/gettr/p1dbo073366.md)
-
-6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
-
-<img src="https://media.gettr.com/group49/getter/2022/06/09/05/e2145531-3793-5406-116f-701faae14643/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/8/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1d9b298fba.md)
 
 2022.06.08 NFSC fringe episode 205
@@ -151,14 +159,6 @@ For English:  gettr.com/streaming/p1d94f4f68b
  2022.06.08 新中国联邦｜喜健康 《医学观察》战友亲身爆料，疫苗危机临近
 
 <img src="https://media.gettr.com/group24/origin/2022/06/08/20/4a06aeb1-4440-2feb-c312-5ca9e398cbd9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 4:56 PM UTC  - :tv:直播](/content/gettr/p1d823996f8.md)
-
-2022年6月8日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group28/origin/2022/06/08/16/d1dd0a27-e732-d3ac-0210-a7d871c386df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
