@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1dc2ig0855.md)
+
+6/8/2022 Miles Guo: The Morgan family and I have had a good relationship for a long time. Mr. and Mrs. Morgan's support for the citizens of the New Federal State of China at the celebration of the 2nd anniversary of the New Federal...
+
+<img src="https://media.gettr.com/group11/getter/2022/06/09/06/e212c7b2-8f6c-4e1f-4ed0-eca787370480/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 6:04 AM UTC  - :tv:直播](/content/gettr/p1dbt3hd9b5.md)
 
 6/8/2022 Miles Guo: The Himalaya Coin is fully involved in the establishment of the new quantum computing standards, and both the Himalaya Coin and Tang Ping (Lying-flat) Coin will use quantum computing technologies. The Himalaya E...
@@ -22,11 +30,11 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
-[@miles 6/9/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1dc2ig0855.md)
+[@miles 6/9/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1dd2jw0c56.md)
 
-6/8/2022 Miles Guo: The Morgan family and I have had a good relationship for a long time. Mr. and Mrs. Morgan's support for the citizens of the New Federal State of China at the celebration of the 2nd anniversary of the New Federal...
+20220609  NFSCニュース　　米SECが仮想通貨取引所Binanceを調査
 
-<img src="https://media.gettr.com/group11/getter/2022/06/09/06/e212c7b2-8f6c-4e1f-4ed0-eca787370480/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/06/09/11/450b7361-678a-b88e-7a20-035c07682d5e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,16 +157,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 6/8/2022 Miles Guo: Binance claimed to have issued only 200 million BNB coins, but in fact it issued 2 billion BNB coins. Binance has no real license or registration at competent jurisdictions except the limited license in Dubai. B...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/08/22/e9858541-1ffe-7ccb-8eb7-bd362c9e3059/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1d8cdx9612.md)
-
-飞飞秀 六四篇 两周年照片花絮   2022-06-08
-
-For English:  gettr.com/streaming/p1d94f4f68b
-
-<img src="https://media.gettr.com/group39/origin/2022/06/08/22/4345060e-705e-ed16-b804-66665b54b604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
