@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1dcd6tf44d.md)
+
+2022.06.09 早 新中国联邦 | 新闻访谈 两党四议员敦促全面实施《防止强迫维吾尔人劳动法》；拜登政府松绑对中共军民融合黑名单企业投资禁令惹议；美国初选结果向民主党人发出警讯
+
+<img src="https://media.gettr.com/group27/origin/2022/06/09/13/500e44d6-65e9-5501-dc5d-ba8534ad5362/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p1dcio58217.md)
 
 2022.06.09  早 新中国联邦 | 新闻  美国会两党关注新中国联邦；郭先生与摩根家族的渊源；勇敢无私诚实善良  新中国联邦人的基本品质；当前中共国社会生态远不如8964时期
@@ -54,11 +62,11 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 
 ---
 
-[@miles 6/9/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1dcd6tf44d.md)
+[@miles 6/9/2022 2:16 PM UTC  - :tv:直播](/content/gettr/p1dcvcsef49.md)
 
-2022.06.09 早 新中国联邦 | 新闻访谈 两党四议员敦促全面实施《防止强迫维吾尔人劳动法》；拜登政府松绑对中共军民融合黑名单企业投资禁令惹议；美国初选结果向民主党人发出警讯
+叶钊颖-郝海东-飞飞 《大实话·第二十一场》： “合”  2022-06-09
 
-<img src="https://media.gettr.com/group27/origin/2022/06/09/13/500e44d6-65e9-5501-dc5d-ba8534ad5362/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/09/14/31fc5a70-34da-459a-de6d-186fb5e5cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,14 +149,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 2022.06.08 NFSC fringe episode 205
 
 <img src="https://media.gettr.com/group33/origin/2022/06/08/23/f6e2fa0e-2220-4f92-8b9c-c00e5c78ecdb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1d90zk896a.md)
-
-6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. There will be two types of digital coins in ...
-
-<img src="https://media.gettr.com/group44/getter/2022/06/08/23/f54ded08-a08d-5b77-a535-64f6768f5758/out.jpg" width="506" height="284">
 
 ---
 
