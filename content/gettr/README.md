@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1d9b9a2c45.md)
+
+2022.06.08 晚 新中国联邦 | 新闻访谈 克里姆林宫宣布从俄罗斯西部到顿巴斯到克里米亚的“大陆桥”完工；俄罗斯袭击摧毁了乌克兰主要商品码头的仓库
+
+<img src="https://media.gettr.com/group36/origin/2022/06/09/01/c76e1dee-5b43-ad1f-da8a-b523b1922c13/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1d9bm55e3a.md)
 
 2022.06.08 晚 新中国联邦 | 新闻 喜币好消息因中共使坏而被迫延期  中共疯狂攻击新中国联邦庆典的原因  郭先生揭露64国庆庆典上的意外
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/9/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1d9b9a2c45.md)
+[@miles 6/9/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1d9x19c3ab.md)
 
-2022.06.08 晚 新中国联邦 | 新闻访谈 克里姆林宫宣布从俄罗斯西部到顿巴斯到克里米亚的“大陆桥”完工；俄罗斯袭击摧毁了乌克兰主要商品码头的仓库
+6/8/2022 Miles Guo: The New Federal State of China will set up its Embassy to the United States in Washington D.C. and will establish the General Consulate in Manhattan. After the election of the House, both Republican Party and De...
 
-<img src="https://media.gettr.com/group36/origin/2022/06/09/01/c76e1dee-5b43-ad1f-da8a-b523b1922c13/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/06/09/01/df4cf97d-41ab-081c-d9cf-2e40815fdb70/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Killing and deception are the true colors of the CCP.
 [@miles 6/8/2022 3:02 AM UTC ](/content/gettr/p1d4ef3a5e5.md)
 
 2022-6-7《鸡血王喜币大作战》 第二百一十九集 嘉宾：文空、Happy
-
----
-
-[@miles 6/8/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1d4m6yc9ed.md)
-
-6/7/2022 Miles Guo’s GETTR: Peking University’s Li You does whatever it takes to achieve his goals and has no conscience, law, or moral boundaries. Li You set up Vice Minister Ma Jian, who had helped him a lot. Li You, together wit...
-
-<img src="https://media.gettr.com/group50/getter/2022/06/08/01/39d69447-8c12-55ee-bff6-b1e13b84ea3b/out.jpg" width="506" height="284">
 
 ---
 
