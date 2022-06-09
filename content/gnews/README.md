@@ -2,34 +2,49 @@
 ---
 
 
-#### [【说事儿】GETTR最新功能Vision上线 将与大型科技恐龙竞争](/content/gnews/2693856.md)
+#### [【说事儿】分享情报可得躺平币 中共忙发新规试图阻止](/content/gnews/2693982.md)
  `TokyoSakuraDesignGroup`
+
+#### [【说事儿】中共专家呼吁抢下台积电 遭日本记者怒批反智](/content/gnews/2693959.md)
+ `TokyoSakuraDesignGroup`
+
+#### [新中国联邦是黑暗中的一盏灯,你可能因为这盏灯不被绊倒](/content/gnews/2693951.md)
+ `喜马拉雅日本银河系农场`
+
+#### [【说事儿】各央行发行的数字货币不被看好](/content/gnews/2693938.md)
+ `TokyoSakuraDesignGroup`
+
+#### [中共全球窃密 “合作无上限”的俄罗斯也不放过](/content/gnews/2693933.md)
+ `TokyoSakura Politics/樱花时政`
+
+#### [有声｜湖北出现飞机坠落爆炸](/content/gnews/2693926.md)
+ `秘密翻译组-即时新闻播报组`
+
+#### [【说事儿】美国证券交易委员会对Binance进行调查](/content/gnews/2693922.md)
+ `TokyoSakuraDesignGroup`
+
+#### [被轰出中共大使馆的华人使馆门口被奸杀以木棍穿过尸身](/content/gnews/2693879.md)
+ `喜马拉雅日本银河系农场`
+
+#### [数字货币在未来将是中心化和去中心化两种并行](/content/gnews/2693866.md)
+ `银河歌舞厅`
+
+#### [郭先生与摩根家族的渊源](/content/gnews/2693860.md)
+ `NFSC News`
 
 #### [支持俄罗斯侵略战争的共产党把海内外华人置于危险之中](/content/gnews/2693848.md)
  `喜马拉雅日本银河系农场`
 
-#### [要准确传播新中国联邦前线救援和战争信息,看清战争本质](/content/gnews/2693823.md)
- `喜马拉雅日本银河系农场`
+#### [【真正的救援】](/content/gnews/2693847.md)
+ `SpicyWorld`
 
-#### [法学教授吁对疾控中心进行违宪审查，否定动态清零合法性](/content/gnews/2693791.md)
- `TokyoSakura Politics/樱花时政`
-
-#### [世界已巨变,各国组织及全世界媒体争相与新中国联邦合作](/content/gnews/2693783.md)
- `喜马拉雅日本银河系农场`
-
-#### [中共官方近期改口称核酸检测“应该避免盲目的扩大”](/content/gnews/2693766.md)
- `TokyoSakura Politics/樱花时政`
+#### [有声&#124;新中国联邦人是真正的勇士](/content/gnews/2693792.md)
+ `MOSREC`
 
 #### [【G叻睇真D】欧盟报告称，加拿大疫情相关法规严苛且有侵犯性](/content/gnews/2693764.md)
  `G-时新闻`
 
-#### [《对话》&#8211;MV（献给香港反送中献奉生命的人和他们的母亲）](/content/gnews/2693739.md)
- `MOS香港部`
-
 #### [【文贵大直播 期期有话说】3/9](/content/gnews/2693713.md)
- `SpicyWorld`
-
-#### [【穿越】](/content/gnews/2693712.md)
  `SpicyWorld`
 
 #### [美国会两党关注新中国联邦](/content/gnews/2693706.md)
@@ -37,9 +52,6 @@
 
 #### [有声&#124;币安的 BNB 正在接受美国证券交易委员会的新调查](/content/gnews/2693696.md)
  `MOSREC`
-
-#### [爆料革命六四庆典直播传播量巨大 共产党害怕到了极点](/content/gnews/2693617.md)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [有声&#124;币安是一个黑客、欺诈、毒贩聚集地](/content/gnews/2693579.md)
  `MOSREC`
@@ -89,16 +101,7 @@
 #### [秘翻在线：为应对后COVID-19时代 仁川机场与极地航空公司举行合作会议](/content/gnews/2693009.md)
  `秘密翻譯組G-Translators`
 
-#### [乌克兰驻加拿大新任大使递交就职国书](/content/gnews/2692945.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [秘翻在线：意大利外长表示 因俄罗斯对乌克兰的封锁可能造成数百万人饿死](/content/gnews/2692938.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：微软也将大幅缩减在俄罗斯的业务](/content/gnews/2692915.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：乌克兰称俄罗斯盗窃60万吨乌克兰谷物 并输出到第三国](/content/gnews/2692895.md)
  `秘密翻譯組G-Translators`
 
 #### [法国参议院议长将访基辅](/content/gnews/2692790.md)
@@ -111,9 +114,6 @@
  `日本东京方舟农场`
 
 #### [立法会通过取消强积金对冲条例草案&nbsp; 截成员提现机会](/content/gnews/2692437.md)
- `东京樱花团`
-
-#### [地产商响应土地共享计划保命](/content/gnews/2692423.md)
  `东京樱花团`
 
 #### [6/9/2022 国际财经快讯：科技股暂时褪去主导美股十年走势光环；“饥饿之夏”：化肥价格飙升释放全球混乱和饥饿](/content/gnews/2692413.md)
