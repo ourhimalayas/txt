@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/9/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1d9gih9959.md)
+
+2022.06.08  新中国联邦 | 喜财经  第75期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天！
+
+
+
+<img src="https://media.gettr.com/group46/origin/2022/05/09/01/a2c848c7-ccf2-12e4-314b-079cd5d74b7b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1d9x19c3ab.md)
 
 6/8/2022 Miles Guo: The New Federal State of China will set up its Embassy to the United States in Washington D.C. and will establish the General Consulate in Manhattan. After the election of the House, both Republican Party and De...
@@ -42,13 +52,11 @@
 
 ---
 
-[@miles 6/9/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1d9gih9959.md)
+[@miles 6/9/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1d9j4pfc12.md)
 
-2022.06.08  新中国联邦 | 喜财经  第75期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天！
+2022-6-8《鸡血王喜币大作战》 第二百二十集 嘉宾：齐天二圣、Nick
 
-
-
-<img src="https://media.gettr.com/group46/origin/2022/05/09/01/a2c848c7-ccf2-12e4-314b-079cd5d74b7b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/06/09/03/a05d0bc3-6792-2f02-00ec-7e5b88679d8a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,16 +155,6 @@ For English:  gettr.com/streaming/p1d94f4f68b
 【NFSC 2nd Anniversary 】The whole world's disasters are caused by the CCP rather than the Chinese. However, people in Wall Street are aiding and abetting the CCP and selling out America. Mr. Bannon and I have been working hard to wa...
 
 <img src="https://media.gettr.com/group29/origin/2022/06/08/07/ed197931-0b80-2d32-4ff3-34adee80e027/8ef3ca163ef5cc59c18d234533954c2d.jpg" width="506" height="284">
-
----
-
-[@miles 6/8/2022 7:40 AM UTC ](/content/gettr/p1d60k8483b.md)
-
-Chinese Communist Party Has Begun Posthumous Arrangements Amid Bad Situation
-
-During a live broadcast of the second anniversary of the New Federal State of China, Mr. Miles Guo revealed that the Chinese Communist Party has begun to...
-
-<img src="https://media.gettr.com/group8/origin/2022/06/08/07/5f07a63e-baab-5fbc-75be-a5abab03dfbf/08722c6d9488e1d84639938999dae83b.jpg" width="506" height="284">
 
 ---
 
