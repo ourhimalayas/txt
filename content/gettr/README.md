@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 6/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1df7ss740f.md)
+
+2022.06.09  PM NFSC news
+
+<img src="https://media.gettr.com/group10/origin/2022/06/09/22/584f61f8-f6ea-bc41-50db-f523d9d607ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1der6l4901.md)
+
+6/8/2022 Miles Guo: We were supposed to make the announcement that Himalaya Coin was granted the permission to trade in 2-3 countries; Due to Changpeng Zhao's collusion with the CCP in smearing Himalaya Exchange, those countries ha...
+
+<img src="https://media.gettr.com/group3/getter/2022/06/09/22/422fc954-63c9-fc3f-544e-8949715f50cd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1df45k89d4.md)
+
+飞飞秀 六四篇 《七哥和战友们》 2022-06-09
+
+For English: gettr.com/streaming/p1dey2o8a76
+
+<img src="https://media.gettr.com/group29/origin/2022/06/09/22/a41a4f52-6a99-45e2-65a5-7d74fdcc0a7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1de97983ab.md)
 
 2022.06.09  新中国联邦 | 喜健康   解读郭先生对爆二代们健康习惯的建议、为什么要积极面对人生中的痛苦回忆
@@ -50,13 +76,15 @@
 
 ---
 
-[@miles 6/9/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1df45k89d4.md)
+[@miles 6/9/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1dfakg9918.md)
 
-飞飞秀 六四篇 《七哥和战友们》 2022-06-09
+6/8/2022 Miles Guo: In fact Binance issued 2 billion BNB coins. Binance has no real license or registration. The $20 billion Binance is playing with has put tens of thousands of Chinese people in jail or killed.
 
-For English: gettr.com/streaming/p1dey2o8a76
 
-<img src="https://media.gettr.com/group29/origin/2022/06/09/22/a41a4f52-6a99-45e2-65a5-7d74fdcc0a7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+6/8/2022 文贵直播：币安...
+
+<img src="https://media.gettr.com/group13/getter/2022/06/09/23/f861e212-f965-8e5d-a63a-d18f42686ec3/out.jpg" width="506" height="284">
 
 ---
 
@@ -132,41 +160,11 @@ For English: gettr.com/streaming/p1dey2o8a76
 
 ---
 
-[@miles 6/9/2022 5:51 AM UTC ](/content/gettr/p1dbmuidb1a.md)
-
-Morgan and Rothschild Families attended the 2nd anniversary celebration of the New Federal State of China
-
-
-
-On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attended the  2nd anniversary celebration of the...
-
-<img src="https://media.gettr.com/group46/origin/2022/06/09/05/683d1729-98e5-fb3a-c49f-c5531be5fe9f/7e9d218900206231261451c92d1cb67a.png" width="506" height="284">
-
----
-
 [@miles 6/9/2022 5:59 AM UTC  - :tv:直播](/content/gettr/p1dbo073366.md)
 
 6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
 
 <img src="https://media.gettr.com/group49/getter/2022/06/09/05/e2145531-3793-5406-116f-701faae14643/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1d9gih9959.md)
-
-2022.06.08  新中国联邦 | 喜财经  第75期  灭共：躺平币是抽筋扒皮加掏肛，喜币是乾坤大挪移！救人：喜币是今天和明天，躺平币是明天开始的每一天！
-
-
-
-<img src="https://media.gettr.com/group46/origin/2022/05/09/01/a2c848c7-ccf2-12e4-314b-079cd5d74b7b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/9/2022 3:58 AM UTC  - :tv:直播](/content/gettr/p1d9u5nbd6e.md)
-
-6/8/2022 Miles Guo: The CCP is so furious that G-series, Himalaya Coin, and the New Federal State of China gained the support of Mr. John Adams Morgan and the Morgan family; Mr. Morgan believes that the New Federal State of China h...
-
-<img src="https://media.gettr.com/group29/getter/2022/06/09/03/1da248d6-fffd-adee-1991-8b765dee4ce9/out.jpg" width="506" height="284">
 
 ---
 
