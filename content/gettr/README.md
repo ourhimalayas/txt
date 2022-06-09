@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/9/2022 6:01 PM UTC ](/content/gettr/p1ddzm41092.md)
+
+ 6月9号：在世界经济即将崩溃，数字货币．正在经历必成长中必须的时刻……必须淘汰的欺诈的所谓的稳定币和没有事时，某听和任何价值的各种眼花缭乱的数字货币在这个关键的时间点上．喜币却有这么大的交易量发生，这意味着什么！太不可思议了……亲爱的，战友们你们在创造了一个又一个的传奇，就是被共产党看不起的这些新中国联邦人．和这些被视为畜生和奴隶一样的人……正在创造中国共产党，永远无法创造出来的真实的……具有巨大意义的奇迹……
+
+<img src="https://media.gettr.com/group16/getter/2022/06/09/18/011cfd98-17d0-d414-5c70-4b92156666b0/838a66624f70bbc1735e33e0087db4e3.jpg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 5:44 PM UTC  - :tv:直播](/content/gettr/p1dd8v0c50c.md)
 
 2022年6月9日 文贵大直播精化版
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/9/2022 6:01 PM UTC ](/content/gettr/p1ddzm41092.md)
+[@miles 6/9/2022 7:13 PM UTC  - :tv:直播](/content/gettr/p1de6jccf92.md)
 
- 6月9号：在世界经济即将崩溃，数字货币．正在经历必成长中必须的时刻……必须淘汰的欺诈的所谓的稳定币和没有事时，某听和任何价值的各种眼花缭乱的数字货币在这个关键的时间点上．喜币却有这么大的交易量发生，这意味着什么！太不可思议了……亲爱的，战友们你们在创造了一个又一个的传奇，就是被共产党看不起的这些新中国联邦人．和这些被视为畜生和奴隶一样的人……正在创造中国共产党，永远无法创造出来的真实的……具有巨大意义的奇迹……
+2022-6-9《避风港》(57) 疫苗与致命中枢神经系统疾病相关
 
-<img src="https://media.gettr.com/group16/getter/2022/06/09/18/011cfd98-17d0-d414-5c70-4b92156666b0/838a66624f70bbc1735e33e0087db4e3.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/04/05/18/f3ee3015-3dd1-024d-98d8-26dbbb648be7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ On June 8, Mr. Miles Guo blew the whistle on Gettr that the Morgan family attend
 2022-6-8《鸡血王喜币大作战》 第二百二十集 嘉宾：齐天二圣、Nick
 
 <img src="https://media.gettr.com/group43/origin/2022/06/09/03/a05d0bc3-6792-2f02-00ec-7e5b88679d8a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1d9x19c3ab.md)
-
-6/8/2022 Miles Guo: The New Federal State of China will set up its Embassy to the United States in Washington D.C. and will establish the General Consulate in Manhattan. After the election of the House, both Republican Party and De...
-
-<img src="https://media.gettr.com/group16/getter/2022/06/09/01/df4cf97d-41ab-081c-d9cf-2e40815fdb70/out.jpg" width="506" height="284">
 
 ---
 
