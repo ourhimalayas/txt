@@ -2,6 +2,27 @@
 ---
 
 
+#### [韩正很干净很有情但是他是为共产党打工的](/content/gnews/2691364.md)
+ `雅典娜GNotes`
+
+#### [樱花FM┃2022中共高考作文：设计核酸检测](/content/gnews/2691363.md)
+ `樱花FM`
+
+#### [64与爆料革命有那些本质上的不同 这些本质上的不同怎么样导致我们必然的成功（六）](/content/gnews/2691354.md)
+ `雅典娜GNotes`
+
+#### [64与爆料革命有那些本质上的不同 这些本质上的不同怎么样导致我们必然的成功（五）](/content/gnews/2691344.md)
+ `雅典娜GNotes`
+
+#### [樱花FM┃六月七号七哥盖特全文字版](/content/gnews/2691329.md)
+ `樱花FM`
+
+#### [【樱话】班农和纳瓦罗针对1月6日美国国会事件分别传唤、起诉佩洛西](/content/gnews/2691320.md)
+ `TokyoSakuraDesignGroup`
+
+#### [64与爆料革命有那些本质上的不同 这些本质上的不同怎么样导致我们必然的成功（四）](/content/gnews/2691316.md)
+ `雅典娜GNotes`
+
 #### [【樱话】中共秘密扩张军事基地 美禁投俄债券和股票](/content/gnews/2691308.md)
  `TokyoSakuraDesignGroup`
 
@@ -10,12 +31,6 @@
 
 #### [欧盟议会支持2035年禁售燃油车 仍待各成员国批准](/content/gnews/2691267.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [格雷戈里-波林谈美国介入南海的深刻历史(三)](/content/gnews/2691266.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [【樱话】分享情报可得躺平币 中共忙发新规试图阻止](/content/gnews/2691265.md)
- `TokyoSakuraDesignGroup`
 
 #### [樱花FM┃投资中共风险自负 德国转向](/content/gnews/2691257.md)
  `樱花FM`
@@ -26,20 +41,11 @@
 #### [疑似基于习近平安保成都6月8日禁止特斯拉轿车驶入](/content/gnews/2691251.md)
  `NewFOC`
 
-#### [【樱话】中共专家呼吁抢下台积电 遭日本记者怒批反智](/content/gnews/2691250.md)
- `TokyoSakuraDesignGroup`
-
 #### [64与爆料革命有那些本质上的不同 这些本质上的不同怎么样导致我们必然的成功（二）](/content/gnews/2691236.md)
  `雅典娜GNotes`
 
 #### [中日财经爆&#124;俄乌战争加剧 世界经济将付出巨大代价](/content/gnews/2691213.md)
  `东京樱花团`
-
-#### [樱花FM┃美FDA担心日本首制的武田社新冠疫苗有心肌炎风险](/content/gnews/2691206.md)
- `樱花FM`
-
-#### [新中国联邦人做真实的人最重要的](/content/gnews/2691204.md)
- `雅典娜GNotes`
 
 #### [IBM宣布关闭俄罗斯业务](/content/gnews/2691170.md)
  `日本东京方舟农场`
@@ -47,8 +53,11 @@
 #### [莫德纳研制出针对奥米克戎的特制疫苗，号称可以取代加强针](/content/gnews/2691165.md)
  `澳喜农场`
 
-#### [七哥爆料故事之9 毛泽东](/content/gnews/2691093.md)
- `澳喜农场`
+#### [城管打死人，警方不立案，让民众找法院](/content/gnews/2691124.md)
+ `Tokyo Sakura Video Group`
+
+#### [我们是最后一代](/content/gnews/2691120.md)
+ `Tokyo Sakura Video Group`
 
 #### [新冠疫苗加强针获批用于澳洲12到15岁的高危儿童](/content/gnews/2691092.md)
  `澳喜农场`
@@ -56,26 +65,17 @@
 #### [细田议长 “不信任案”否决 日本内阁不信任案也表决](/content/gnews/2691054.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [从8964到现在30年，共产主义风潮席卷全球，全世界都尝到了CCP疫苗，病毒，种族仇恨的铁拳](/content/gnews/2691028.md)
+#### [我宁愿在美国洗碗也不愿意回CCP 国](/content/gnews/2691037.md)
  `Tokyo Sakura Video Group`
 
 #### [新闻述评：普京以被困乌克兰制造粮食危机换取解除封锁](/content/gnews/2691024.md)
  `战云长天时评`
-
-#### [CCP 的教育就是把人教成傻子的教育！毒害了多少代人](/content/gnews/2691023.md)
- `Tokyo Sakura Video Group`
-
-#### [大直播后记：珍爱战友，有风险一起有风险](/content/gnews/2690998.md)
- `雅典娜GNotes`
 
 #### [推特让步，将允许马斯克访问其内部数据](/content/gnews/2690810.md)
  `秘密翻譯組G-Translators`
 
 #### [突发:2022年6月9日中共歼7战机坠毁襄阳并发生爆炸](/content/gnews/2690748.md)
  `NewFOC`
-
-#### [大直播后记：新中国联邦人的标准是什么](/content/gnews/2690724.md)
- `雅典娜GNotes`
 
 #### [澳新冠期间与自杀相关的救护车呼叫增加了50%以上](/content/gnews/2690699.md)
  `西班牙巴塞罗那喜悦农场`
