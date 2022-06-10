@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/10/2022 8:41 PM UTC ](/content/gettr/p1dlpdqc355.md)
+
+6月10日：尊敬的战友们好．7哥向很多战友私下保证过……不会超过六月份，美国就会取消疫苗证书，7哥又蒙对了……加拿大，澳大利亚，欧洲．日本的很多战友很快可以在美国和7哥相见！
+
+
+
+https://www.voachinese.com/a/us-to-drop-covid-test-requirement-for-travelers-entering-country-20220610/6612369.html?utm_source=twitter&utm_m...
+
+---
+
 [@miles 6/10/2022 5:42 PM UTC  - :tv:直播](/content/gettr/p1dknlq4b26.md)
 
 Chico Crypto Youtube Channel  quotes Miles Guo's exposé that Binance is controlled and laid out by the Chinese Communist Party years ago.
@@ -58,13 +68,11 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 
 ---
 
-[@miles 6/10/2022 8:41 PM UTC ](/content/gettr/p1dlpdqc355.md)
+[@miles 6/10/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1dlvbj9394.md)
 
-6月10日：尊敬的战友们好．7哥向很多战友私下保证过……不会超过六月份，美国就会取消疫苗证书，7哥又蒙对了……加拿大，澳大利亚，欧洲．日本的很多战友很快可以在美国和7哥相见！
+2022.06.10  新中国联邦 | 喜健康   谁是我们的最后一代
 
-
-
-https://www.voachinese.com/a/us-to-drop-covid-test-requirement-for-travelers-entering-country-20220610/6612369.html?utm_source=twitter&utm_m...
+<img src="https://media.gettr.com/group15/origin/2022/06/10/20/901621b9-aee0-7379-ae0f-39c305c76167/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ https://www.voachinese.com/a/us-to-drop-covid-test-requirement-for-travelers-ent
 2022.06.09 晚  新中国联邦 | 新闻  新中国联邦将在华盛顿建立驻美大使馆  中共特务身份坐实 美国立案一网打尽
 
 <img src="https://media.gettr.com/group42/origin/2022/06/10/00/c172c125-57ca-91ef-b0bf-750919cb3fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1df9lb76b1.md)
-
-6/9/2022 Miles Guo’s GETTR: Europe is pursuing legislation to support Taiwan. The Western insurance companies are going to decouple from the CCP insurance companies to prevent them from causing the Western financial system to colla...
-
-<img src="https://media.gettr.com/group21/getter/2022/06/10/00/eb8c748e-4efd-466a-e198-59cdfaef3d6a/out.jpg" width="506" height="284">
 
 ---
 
