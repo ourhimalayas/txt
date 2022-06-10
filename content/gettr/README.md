@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1dlvbj9394.md)
+
+2022.06.10  新中国联邦 | 喜健康   谁是我们的最后一代
+
+<img src="https://media.gettr.com/group15/origin/2022/06/10/20/901621b9-aee0-7379-ae0f-39c305c76167/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 8:41 PM UTC ](/content/gettr/p1dlpdqc355.md)
 
 6月10日：尊敬的战友们好．7哥向很多战友私下保证过……不会超过六月份，美国就会取消疫苗证书，7哥又蒙对了……加拿大，澳大利亚，欧洲．日本的很多战友很快可以在美国和7哥相见！
@@ -68,11 +76,13 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 
 ---
 
-[@miles 6/10/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1dlvbj9394.md)
+[@miles 6/10/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1dlwhy1bff.md)
 
-2022.06.10  新中国联邦 | 喜健康   谁是我们的最后一代
+飞飞秀 六四篇 《喜币非常干净》2022-06-10
 
-<img src="https://media.gettr.com/group15/origin/2022/06/10/20/901621b9-aee0-7379-ae0f-39c305c76167/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1dm9muf242
+
+<img src="https://media.gettr.com/group6/origin/2022/06/10/22/926cd814-2a0c-556d-cb4b-477af1b45f74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,14 +159,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 [@miles 6/10/2022 12:59 AM UTC ](/content/gettr/p1df5fy1f68.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon is interviewed by Little Aila on the 2nd anniversary of the NFSC: The NFSC people proved to the world the lies of the CCP; the Chinese people are fully capable of self-management, and you...
-
----
-
-[@miles 6/10/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dfbfr072d.md)
-
-2022.06.09 晚  新中国联邦 | 新闻  新中国联邦将在华盛顿建立驻美大使馆  中共特务身份坐实 美国立案一网打尽
-
-<img src="https://media.gettr.com/group42/origin/2022/06/10/00/c172c125-57ca-91ef-b0bf-750919cb3fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
