@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/10/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p1djo2ee5f1.md)
+
+2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
+
+<img src="https://media.gettr.com/group15/origin/2022/06/10/12/7a5d2af6-90f9-2fe7-4152-6a9a9ea0cbb0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/10/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1djnz730f9.md)
+
+20220610  NFSCニュース　Binance はCCP海外情報とマネーロンのプラットフォーム
+
+<img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@longwood 3/19/2022 3:55 PM UTC  - :tv:直播](/content/gettr/p10stpz2042.md)
 
 这视频剪的太好太好太好了！我要置顶！
@@ -16,11 +32,11 @@
 
 ---
 
-[@miles 6/10/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1djnz730f9.md)
+[@miles 6/10/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p1djniw6ae4.md)
 
-20220610  NFSCニュース　Binance はCCP海外情報とマネーロンのプラットフォーム
+2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
 
-<img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,24 +159,6 @@
 6/8/2022 文贵直播：币安...
 
 <img src="https://media.gettr.com/group13/getter/2022/06/09/23/f861e212-f965-8e5d-a63a-d18f42686ec3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1df45k89d4.md)
-
-飞飞秀 六四篇 《七哥和战友们》 2022-06-09
-
-For English: gettr.com/streaming/p1dey2o8a76
-
-<img src="https://media.gettr.com/group29/origin/2022/06/09/22/a41a4f52-6a99-45e2-65a5-7d74fdcc0a7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1de97983ab.md)
-
-2022.06.09  新中国联邦 | 喜健康   解读郭先生对爆二代们健康习惯的建议、为什么要积极面对人生中的痛苦回忆
-
-<img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
