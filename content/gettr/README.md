@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 6/10/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1df9lb76b1.md)
+
+6/9/2022 Miles Guo’s GETTR: Europe is pursuing legislation to support Taiwan. The Western insurance companies are going to decouple from the CCP insurance companies to prevent them from causing the Western financial system to colla...
+
+<img src="https://media.gettr.com/group21/getter/2022/06/10/00/eb8c748e-4efd-466a-e198-59cdfaef3d6a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p1dez6a0222.md)
 
 6/9/2022 Miles Guo’s GETTR: More family members of our fellow fighters inside Communist China have been diagnosed of cancer due the COVID vaccines; In a small county near Wenzhou, the “white guards” could beat up anyone they wanted...
 
 <img src="https://media.gettr.com/group29/getter/2022/06/09/23/3f9dab5b-e5cc-115f-8559-d437232f186a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/9/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1df8kz1005.md)
+
+2022.06.09 NFSC fringe Episode 206
+
+<img src="https://media.gettr.com/group19/origin/2022/06/09/23/fb232d5e-989f-c712-7d1c-63df99de9b57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -31,14 +47,6 @@
 2022.06.09  PM NFSC news
 
 <img src="https://media.gettr.com/group10/origin/2022/06/09/22/584f61f8-f6ea-bc41-50db-f523d9d607ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1df8kz1005.md)
-
-2022.06.09 NFSC fringe Episode 206
-
-<img src="https://media.gettr.com/group19/origin/2022/06/09/23/fb232d5e-989f-c712-7d1c-63df99de9b57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 2022.06.09  早 新中国联邦 | 新闻  美国会两党关注新中国联邦；郭先生与摩根家族的渊源；勇敢无私诚实善良  新中国联邦人的基本品质；当前中共国社会生态远不如8964时期
 
 <img src="https://media.gettr.com/group19/origin/2022/06/09/12/18145edf-ca84-8fbf-d7dc-65a33a5979ae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 12:03 PM UTC  - :tv:直播](/content/gettr/p1dcd680b46.md)
-
-2022.06.09  AM NFSC news  The CCP Threats and Lures Foreign Businesses to Stop them from Withdrawing
-
-<img src="https://media.gettr.com/group6/origin/2022/06/09/11/ec0a1517-3e3d-045c-c010-e39da5742f9e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
