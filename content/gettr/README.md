@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1dfpsdb69a.md)
+
+2022.06.09 新中国联邦 | 喜财经 第74期 躺平币背后的逻辑
+
+<img src="https://media.gettr.com/group9/origin/2022/06/10/01/804d808b-38b9-50cc-ef7f-2b8f649a8b86/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dfalo1c9e.md)
 
 2022.06.09  晚 新中国联邦⎪新闻访谈   回应64庆典：中共新一波造谣攻击；中国高考奇景盛况；上海商界已失信于世界
@@ -40,11 +48,11 @@
 
 ---
 
-[@miles 6/10/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1dfpsdb69a.md)
+[@miles 6/10/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p1dgciz990f.md)
 
-2022.06.09 新中国联邦 | 喜财经 第74期 躺平币背后的逻辑
+2022-6-9《鸡血王喜币大作战》 第二百二十一集 嘉宾：无双柳薇薇、青藤
 
-<img src="https://media.gettr.com/group9/origin/2022/06/10/01/804d808b-38b9-50cc-ef7f-2b8f649a8b86/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 2022年6月9日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group23/origin/2022/06/09/16/b3acd47b-d717-023a-4315-0cc2f675b806/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 3:46 PM UTC  - :tv:直播](/content/gettr/p1ddz11884d.md)
-
-【NFSC 2nd Anniversary 】06/04/2022  GETTR CEO Jason Miller：We must stand up and take down the CCP.  The corporate and global leaders sold out the Chinese people, the people of America and other countries in order to make additional ...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/09/15/1d55c227-a465-7b69-dc46-690d56cec4dd/out.jpg" width="506" height="284">
 
 ---
 
