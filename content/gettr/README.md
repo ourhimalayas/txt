@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/10/2022 12:59 AM UTC ](/content/gettr/p1df5fy1f68.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon is interviewed by Little Aila on the 2nd anniversary of the NFSC: The NFSC people proved to the world the lies of the CCP; the Chinese people are fully capable of self-management, and you...
+
+---
+
 [@miles 6/10/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dfbfr072d.md)
 
 2022.06.09 晚  新中国联邦 | 新闻  新中国联邦将在华盛顿建立驻美大使馆  中共特务身份坐实 美国立案一网打尽
@@ -26,9 +32,11 @@
 
 ---
 
-[@miles 6/10/2022 12:59 AM UTC ](/content/gettr/p1df5fy1f68.md)
+[@miles 6/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dfalo1c9e.md)
 
-【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon is interviewed by Little Aila on the 2nd anniversary of the NFSC: The NFSC people proved to the world the lies of the CCP; the Chinese people are fully capable of self-management, and you...
+2022.06.09  晚 新中国联邦⎪新闻访谈   回应64庆典：中共新一波造谣攻击；中国高考奇景盛况；上海商界已失信于世界
+
+<img src="https://media.gettr.com/group22/origin/2022/06/10/01/2995f61c-8672-b007-6997-498c7c505058/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 6月9号：尊敬的战友们好．疫苗灾难．正在中共国．正在以不可思议的速度．在发生中．我们一定要耐心．对待我们所有的家人．朋友，战友．更要珍惜．新中国联邦独有的这种上天恩赐！
 
 <img src="https://media.gettr.com/group10/getter/2022/06/09/15/0e422115-34a5-f895-d9c1-c389933ef637/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 2:16 PM UTC  - :tv:直播](/content/gettr/p1dcvcsef49.md)
-
-叶钊颖-郝海东-飞飞 《大实话·第二十一场》： “合”  2022-06-09
-
-<img src="https://media.gettr.com/group27/origin/2022/06/09/14/31fc5a70-34da-459a-de6d-186fb5e5cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
