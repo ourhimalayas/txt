@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 3:53 PM UTC  - :tv:直播](/content/gettr/p1dl7lr3ebf.md)
+
+6月10号：感谢战友制作的特别有意思的视频，中共你完了！
+
+<img src="https://media.gettr.com/group43/getter/2022/06/10/15/3c7158cc-e063-91bf-c054-383a3cf03026/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p1dkomh53f6.md)
 
 2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
@@ -24,11 +32,11 @@
 
 ---
 
-[@miles 6/10/2022 3:53 PM UTC  - :tv:直播](/content/gettr/p1dl7lr3ebf.md)
+[@miles 6/10/2022 4:54 PM UTC  - :tv:直播](/content/gettr/p1dkzrpc195.md)
 
-6月10号：感谢战友制作的特别有意思的视频，中共你完了！
+2022年6月10日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group43/getter/2022/06/10/15/3c7158cc-e063-91bf-c054-383a3cf03026/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/06/10/16/d3b6daa8-01ce-92b0-73fc-7586886562c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@
 2022.06.09 NFSC fringe Episode 206
 
 <img src="https://media.gettr.com/group19/origin/2022/06/09/23/fb232d5e-989f-c712-7d1c-63df99de9b57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1dfmz6df42.md)
-
-6/8/2022 Miles Guo: The CCP is so furious that G-series and the New Federal State of China gained the support of Mr. John Adams Morgan; Mr. Morgan expressed his gratitude to me for saving his life by keeping him from taking the COV...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/09/23/67452b3c-8445-2ad0-fc7e-17390217cb2d/out.jpg" width="506" height="284">
 
 ---
 
