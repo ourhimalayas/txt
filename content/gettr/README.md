@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 6/10/2022 10:20 AM UTC ](/content/gettr/p1dj52dbf92.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Nicole's interview with Mr. Bannon at the 2nd anniversary of the NFSC: Your work on the Polish-Ukrainian border is so important and resonates with people by giving them a glimpse of the new China an...
+
+---
+
+[@miles 6/10/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1dfpt69699.md)
+
+【NFSC 2nd Anniversary】06/07/2022 Abi, a World Liberty TV reporter, pays attention to the June 4 celebration of the NFSC and expresses support and respect for our movement of taking down the CCP. He says communism is an obsolete thi...
+
+<img src="https://media.gettr.com/group7/getter/2022/06/10/03/7b9b232e-b214-2f95-cf28-a94d2d5284d8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p1dgciz990f.md)
 
 2022-6-9《鸡血王喜币大作战》 第二百二十一集 嘉宾：无双柳薇薇、青藤
@@ -56,11 +70,11 @@
 
 ---
 
-[@miles 6/10/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1dfpt69699.md)
+[@miles 6/10/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1djoqf75f3.md)
 
-【NFSC 2nd Anniversary】06/07/2022 Abi, a World Liberty TV reporter, pays attention to the June 4 celebration of the NFSC and expresses support and respect for our movement of taking down the CCP. He says communism is an obsolete thi...
+2022.06.10 新中国联邦 | 军情室 浅析俄罗斯未来的解体
 
-<img src="https://media.gettr.com/group7/getter/2022/06/10/03/7b9b232e-b214-2f95-cf28-a94d2d5284d8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/06/10/10/43e9d572-c011-7fbc-ebd1-f6828f82465f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,22 +161,6 @@ For English: gettr.com/streaming/p1dey2o8a76
  6月9号：在世界经济即将崩溃，数字货币．正在经历必成长中必须的时刻……必须淘汰的欺诈的所谓的稳定币和没有事时，某听和任何价值的各种眼花缭乱的数字货币在这个关键的时间点上．喜币却有这么大的交易量发生，这意味着什么！太不可思议了……亲爱的，战友们你们在创造了一个又一个的传奇，就是被共产党看不起的这些新中国联邦人．和这些被视为畜生和奴隶一样的人……正在创造中国共产党，永远无法创造出来的真实的……具有巨大意义的奇迹……
 
 <img src="https://media.gettr.com/group16/getter/2022/06/09/18/011cfd98-17d0-d414-5c70-4b92156666b0/838a66624f70bbc1735e33e0087db4e3.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 5:44 PM UTC  - :tv:直播](/content/gettr/p1dd8v0c50c.md)
-
-2022年6月9日 文贵大直播精化版
-
-<img src="https://media.gettr.com/group38/origin/2022/06/09/17/8adab0c1-9060-1396-077e-df8afb265e35/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1ddgt231a4.md)
-
-2022年6月9日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group23/origin/2022/06/09/16/b3acd47b-d717-023a-4315-0cc2f675b806/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
