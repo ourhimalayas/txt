@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p1dgciz990f.md)
+
+2022-6-9《鸡血王喜币大作战》 第二百二十一集 嘉宾：无双柳薇薇、青藤
+
+<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1dfpsdb69a.md)
 
 2022.06.09 新中国联邦 | 喜财经 第74期 躺平币背后的逻辑
@@ -48,11 +56,11 @@
 
 ---
 
-[@miles 6/10/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p1dgciz990f.md)
+[@miles 6/10/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1dfpt69699.md)
 
-2022-6-9《鸡血王喜币大作战》 第二百二十一集 嘉宾：无双柳薇薇、青藤
+【NFSC 2nd Anniversary】06/07/2022 Abi, a World Liberty TV reporter, pays attention to the June 4 celebration of the NFSC and expresses support and respect for our movement of taking down the CCP. He says communism is an obsolete thi...
 
-<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/06/10/03/7b9b232e-b214-2f95-cf28-a94d2d5284d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 2022年6月9日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group23/origin/2022/06/09/16/b3acd47b-d717-023a-4315-0cc2f675b806/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 3:55 PM UTC  - :tv:直播](/content/gettr/p1ddvq095cf.md)
-
-6/8/2022 Miles Guo: I did the COVID-19 test not only for myself but also to be responsible for our fellow fighters. Our responsible behaviors will win the respect of the world and prove that the New Federal State of China is totall...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/09/15/92be1fc6-5b0d-40e8-be1a-41afc124010c/out.jpg" width="506" height="284">
 
 ---
 
