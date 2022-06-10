@@ -8,6 +8,22 @@
 
 ---
 
+[@longwood 3/19/2022 3:55 PM UTC  - :tv:直播](/content/gettr/p10stpz2042.md)
+
+这视频剪的太好太好太好了！我要置顶！
+
+<img src="https://media.gettr.com/group50/origin/2022/03/16/16/ed5d55a4-9647-d586-474f-16036fcc5f0d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/10/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1djoqf75f3.md)
+
+2022.06.10 新中国联邦 | 军情室 浅析俄罗斯未来的解体
+
+<img src="https://media.gettr.com/group17/origin/2022/06/10/10/43e9d572-c011-7fbc-ebd1-f6828f82465f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1dfpt69699.md)
 
 【NFSC 2nd Anniversary】06/07/2022 Abi, a World Liberty TV reporter, pays attention to the June 4 celebration of the NFSC and expresses support and respect for our movement of taking down the CCP. He says communism is an obsolete thi...
@@ -67,14 +83,6 @@
 6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
 
 <img src="https://media.gettr.com/group6/getter/2022/06/09/23/ad71b756-a87e-2e78-f833-07c0e960e84c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1djoqf75f3.md)
-
-2022.06.10 新中国联邦 | 军情室 浅析俄罗斯未来的解体
-
-<img src="https://media.gettr.com/group17/origin/2022/06/10/10/43e9d572-c011-7fbc-ebd1-f6828f82465f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 2022-6-9《避风港》(57) 疫苗与致命中枢神经系统疾病相关
 
 <img src="https://media.gettr.com/group14/origin/2022/04/05/18/f3ee3015-3dd1-024d-98d8-26dbbb648be7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 6:01 PM UTC ](/content/gettr/p1ddzm41092.md)
-
- 6月9号：在世界经济即将崩溃，数字货币．正在经历必成长中必须的时刻……必须淘汰的欺诈的所谓的稳定币和没有事时，某听和任何价值的各种眼花缭乱的数字货币在这个关键的时间点上．喜币却有这么大的交易量发生，这意味着什么！太不可思议了……亲爱的，战友们你们在创造了一个又一个的传奇，就是被共产党看不起的这些新中国联邦人．和这些被视为畜生和奴隶一样的人……正在创造中国共产党，永远无法创造出来的真实的……具有巨大意义的奇迹……
-
-<img src="https://media.gettr.com/group16/getter/2022/06/09/18/011cfd98-17d0-d414-5c70-4b92156666b0/838a66624f70bbc1735e33e0087db4e3.jpg" width="506" height="284">
 
 ---
 
