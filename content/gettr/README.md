@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/10/2022 5:42 PM UTC  - :tv:直播](/content/gettr/p1dknlq4b26.md)
+
+Chico Crypto Youtube Channel  quotes Miles Guo's exposé that Binance is controlled and laid out by the Chinese Communist Party years ago.
+
+
+
+YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制的，并且是中共多年前就布下的局
+
+<img src="https://media.gettr.com/group37/getter/2022/06/10/17/4baf9cf5-eb60-c179-10a8-59e8651f34c0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 5:09 PM UTC ](/content/gettr/p1dkma4ffd0.md)
 
 6月10号：这位先生．今天的这个视频．将改变共产党在西方数字化世界．种下的病毒．数字货币超限战．共产党在数字化世界以及数字货币领域，欲望领导控制全世界新的金融秩序的野心。https://youtu.be/fWyYUrEoWNM
@@ -46,15 +58,13 @@
 
 ---
 
-[@miles 6/10/2022 5:42 PM UTC  - :tv:直播](/content/gettr/p1dknlq4b26.md)
+[@miles 6/10/2022 8:41 PM UTC ](/content/gettr/p1dlpdqc355.md)
 
-Chico Crypto Youtube Channel  quotes Miles Guo's exposé that Binance is controlled and laid out by the Chinese Communist Party years ago.
+6月10日：尊敬的战友们好．7哥向很多战友私下保证过……不会超过六月份，美国就会取消疫苗证书，7哥又蒙对了……加拿大，澳大利亚，欧洲．日本的很多战友很快可以在美国和7哥相见！
 
 
 
-YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制的，并且是中共多年前就布下的局
-
-<img src="https://media.gettr.com/group37/getter/2022/06/10/17/4baf9cf5-eb60-c179-10a8-59e8651f34c0/out.jpg" width="506" height="284">
+https://www.voachinese.com/a/us-to-drop-covid-test-requirement-for-travelers-entering-country-20220610/6612369.html?utm_source=twitter&utm_m...
 
 ---
 
@@ -147,14 +157,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 6/9/2022 Miles Guo’s GETTR: Europe is pursuing legislation to support Taiwan. The Western insurance companies are going to decouple from the CCP insurance companies to prevent them from causing the Western financial system to colla...
 
 <img src="https://media.gettr.com/group21/getter/2022/06/10/00/eb8c748e-4efd-466a-e198-59cdfaef3d6a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1df8kz1005.md)
-
-2022.06.09 NFSC fringe Episode 206
-
-<img src="https://media.gettr.com/group19/origin/2022/06/09/23/fb232d5e-989f-c712-7d1c-63df99de9b57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
