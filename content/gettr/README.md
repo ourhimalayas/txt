@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1dmics52f4.md)
+
+2022.06.10 PM NFSC News   Australia Massive Increase of Mortalities in the Beginning of 2022
+
+<img src="https://media.gettr.com/group49/origin/2022/06/10/22/c088fcc9-cfe4-40bc-3998-6b2dbcc98318/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1dlwhy1bff.md)
 
 飞飞秀 六四篇 《喜币非常干净》2022-06-10
@@ -86,11 +94,13 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 
 ---
 
-[@miles 6/10/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1dmics52f4.md)
+[@miles 6/10/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1dmdto1bf4.md)
 
-2022.06.10 PM NFSC News   Australia Massive Increase of Mortalities in the Beginning of 2022
+2022.06.10 NFSC fringe  2nd Anniversary Special
 
-<img src="https://media.gettr.com/group49/origin/2022/06/10/22/c088fcc9-cfe4-40bc-3998-6b2dbcc98318/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+For Chinese: https://gettr.com/streaming/p1dmtp66d15
+
+<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 2022.06.09 新中国联邦 | 喜财经 第74期 躺平币背后的逻辑
 
 <img src="https://media.gettr.com/group9/origin/2022/06/10/01/804d808b-38b9-50cc-ef7f-2b8f649a8b86/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dfalo1c9e.md)
-
-2022.06.09  晚 新中国联邦⎪新闻访谈   回应64庆典：中共新一波造谣攻击；中国高考奇景盛况；上海商界已失信于世界
-
-<img src="https://media.gettr.com/group22/origin/2022/06/10/01/2995f61c-8672-b007-6997-498c7c505058/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
