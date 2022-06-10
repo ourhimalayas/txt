@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 4:54 PM UTC  - :tv:直播](/content/gettr/p1dkzrpc195.md)
+
+2022年6月10日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group24/origin/2022/06/10/16/d3b6daa8-01ce-92b0-73fc-7586886562c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 3:53 PM UTC  - :tv:直播](/content/gettr/p1dl7lr3ebf.md)
 
 6月10号：感谢战友制作的特别有意思的视频，中共你完了！
@@ -32,11 +40,9 @@
 
 ---
 
-[@miles 6/10/2022 4:54 PM UTC  - :tv:直播](/content/gettr/p1dkzrpc195.md)
+[@miles 6/10/2022 5:09 PM UTC ](/content/gettr/p1dkma4ffd0.md)
 
-2022年6月10日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group24/origin/2022/06/10/16/d3b6daa8-01ce-92b0-73fc-7586886562c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+6月10号：这位先生．今天的这个视频．将改变共产党在西方数字化世界．种下的病毒．数字货币超限战．共产党在数字化世界以及数字货币领域，欲望领导控制全世界新的金融秩序的野心。https://youtu.be/fWyYUrEoWNM
 
 ---
 
@@ -129,14 +135,6 @@
 6/9/2022 Miles Guo’s GETTR: Europe is pursuing legislation to support Taiwan. The Western insurance companies are going to decouple from the CCP insurance companies to prevent them from causing the Western financial system to colla...
 
 <img src="https://media.gettr.com/group21/getter/2022/06/10/00/eb8c748e-4efd-466a-e198-59cdfaef3d6a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1df3y10594.md)
-
-6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
-
-<img src="https://media.gettr.com/group6/getter/2022/06/09/23/ad71b756-a87e-2e78-f833-07c0e960e84c/out.jpg" width="506" height="284">
 
 ---
 
