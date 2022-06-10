@@ -2,17 +2,25 @@
 ---
 
 
+[@longwood 3/19/2022 3:55 PM UTC  - :tv:直播](/content/gettr/p10stpz2042.md)
+
+这视频剪的太好太好太好了！我要置顶！
+
+<img src="https://media.gettr.com/group50/origin/2022/03/16/16/ed5d55a4-9647-d586-474f-16036fcc5f0d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 10:20 AM UTC ](/content/gettr/p1dj52dbf92.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Nicole's interview with Mr. Bannon at the 2nd anniversary of the NFSC: Your work on the Polish-Ukrainian border is so important and resonates with people by giving them a glimpse of the new China an...
 
 ---
 
-[@longwood 3/19/2022 3:55 PM UTC  - :tv:直播](/content/gettr/p10stpz2042.md)
+[@miles 6/10/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1djnz730f9.md)
 
-这视频剪的太好太好太好了！我要置顶！
+20220610  NFSCニュース　Binance はCCP海外情報とマネーロンのプラットフォーム
 
-<img src="https://media.gettr.com/group50/origin/2022/03/16/16/ed5d55a4-9647-d586-474f-16036fcc5f0d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 2022.06.09  新中国联邦 | 喜健康   解读郭先生对爆二代们健康习惯的建议、为什么要积极面对人生中的痛苦回忆
 
 <img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 7:13 PM UTC  - :tv:直播](/content/gettr/p1de6jccf92.md)
-
-2022-6-9《避风港》(57) 疫苗与致命中枢神经系统疾病相关
-
-<img src="https://media.gettr.com/group14/origin/2022/04/05/18/f3ee3015-3dd1-024d-98d8-26dbbb648be7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
