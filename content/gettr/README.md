@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/10/2022 2:29 PM UTC ](/content/gettr/p1djovofb1b.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo’s bombshell interview with John Adams Morgan’s wife Connie Morgan: This was Mrs. Morgan's first public interview. The Himalaya Coin is very clean! The Morgan family has nothing to do with ...
+
+---
+
 [@miles 6/10/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p1djo2ee5f1.md)
 
 2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
@@ -10,9 +16,11 @@
 
 ---
 
-[@miles 6/10/2022 2:29 PM UTC ](/content/gettr/p1djovofb1b.md)
+[@miles 6/10/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p1dkomh53f6.md)
 
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo’s bombshell interview with John Adams Morgan’s wife Connie Morgan: This was Mrs. Morgan's first public interview. The Himalaya Coin is very clean! The Morgan family has nothing to do with ...
+2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
+
+<img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -137,14 +145,6 @@
 6/8/2022 Miles Guo: The CCP is so furious that G-series and the New Federal State of China gained the support of Mr. John Adams Morgan; Mr. Morgan expressed his gratitude to me for saving his life by keeping him from taking the COV...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/09/23/67452b3c-8445-2ad0-fc7e-17390217cb2d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1der6l4901.md)
-
-6/8/2022 Miles Guo: We were supposed to make the announcement that Himalaya Coin was granted the permission to trade in 2-3 countries; Due to Changpeng Zhao's collusion with the CCP in smearing Himalaya Exchange, those countries ha...
-
-<img src="https://media.gettr.com/group3/getter/2022/06/09/22/422fc954-63c9-fc3f-544e-8949715f50cd/out.jpg" width="506" height="284">
 
 ---
 
