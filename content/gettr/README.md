@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p1dkomh53f6.md)
+
+2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
+
+<img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 2:29 PM UTC ](/content/gettr/p1djovofb1b.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Miles Guo’s bombshell interview with John Adams Morgan’s wife Connie Morgan: This was Mrs. Morgan's first public interview. The Himalaya Coin is very clean! The Morgan family has nothing to do with ...
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 6/10/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p1dkomh53f6.md)
+[@miles 6/10/2022 3:53 PM UTC  - :tv:直播](/content/gettr/p1dl7lr3ebf.md)
 
-2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
+6月10号：感谢战友制作的特别有意思的视频，中共你完了！
 
-<img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/06/10/15/3c7158cc-e063-91bf-c054-383a3cf03026/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,18 +153,6 @@
 6/8/2022 Miles Guo: The CCP is so furious that G-series and the New Federal State of China gained the support of Mr. John Adams Morgan; Mr. Morgan expressed his gratitude to me for saving his life by keeping him from taking the COV...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/09/23/67452b3c-8445-2ad0-fc7e-17390217cb2d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1dfakg9918.md)
-
-6/8/2022 Miles Guo: In fact Binance issued 2 billion BNB coins. Binance has no real license or registration. The $20 billion Binance is playing with has put tens of thousands of Chinese people in jail or killed.
-
-
-
-6/8/2022 文贵直播：币安...
-
-<img src="https://media.gettr.com/group13/getter/2022/06/09/23/f861e212-f965-8e5d-a63a-d18f42686ec3/out.jpg" width="506" height="284">
 
 ---
 
