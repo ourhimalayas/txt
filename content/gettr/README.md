@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dfbfr072d.md)
+
+2022.06.09 晚  新中国联邦 | 新闻  新中国联邦将在华盛顿建立驻美大使馆  中共特务身份坐实 美国立案一网打尽
+
+<img src="https://media.gettr.com/group42/origin/2022/06/10/00/c172c125-57ca-91ef-b0bf-750919cb3fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1df9lb76b1.md)
 
 6/9/2022 Miles Guo’s GETTR: Europe is pursuing legislation to support Taiwan. The Western insurance companies are going to decouple from the CCP insurance companies to prevent them from causing the Western financial system to colla...
@@ -18,11 +26,9 @@
 
 ---
 
-[@miles 6/10/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dfbfr072d.md)
+[@miles 6/10/2022 12:59 AM UTC ](/content/gettr/p1df5fy1f68.md)
 
-2022.06.09 晚  新中国联邦 | 新闻  新中国联邦将在华盛顿建立驻美大使馆  中共特务身份坐实 美国立案一网打尽
-
-<img src="https://media.gettr.com/group42/origin/2022/06/10/00/c172c125-57ca-91ef-b0bf-750919cb3fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon is interviewed by Little Aila on the 2nd anniversary of the NFSC: The NFSC people proved to the world the lies of the CCP; the Chinese people are fully capable of self-management, and you...
 
 ---
 
@@ -157,14 +163,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 叶钊颖-郝海东-飞飞 《大实话·第二十一场》： “合”  2022-06-09
 
 <img src="https://media.gettr.com/group27/origin/2022/06/09/14/31fc5a70-34da-459a-de6d-186fb5e5cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1dcd6tf44d.md)
-
-2022.06.09 早 新中国联邦 | 新闻访谈 两党四议员敦促全面实施《防止强迫维吾尔人劳动法》；拜登政府松绑对中共军民融合黑名单企业投资禁令惹议；美国初选结果向民主党人发出警讯
-
-<img src="https://media.gettr.com/group27/origin/2022/06/09/13/500e44d6-65e9-5501-dc5d-ba8534ad5362/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
