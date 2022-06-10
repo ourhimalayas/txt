@@ -10,6 +10,20 @@
 
 ---
 
+[@miles 6/10/2022 2:29 PM UTC ](/content/gettr/p1djovofb1b.md)
+
+【NFSC 2nd Anniversary】06/04/2022 Miles Guo’s bombshell interview with John Adams Morgan’s wife Connie Morgan: This was Mrs. Morgan's first public interview. The Himalaya Coin is very clean! The Morgan family has nothing to do with ...
+
+---
+
+[@miles 6/10/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p1djniw6ae4.md)
+
+2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
+
+<img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1djnz730f9.md)
 
 20220610  NFSCニュース　Binance はCCP海外情報とマネーロンのプラットフォーム
@@ -29,14 +43,6 @@
 [@miles 6/10/2022 10:20 AM UTC ](/content/gettr/p1dj52dbf92.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Nicole's interview with Mr. Bannon at the 2nd anniversary of the NFSC: Your work on the Polish-Ukrainian border is so important and resonates with people by giving them a glimpse of the new China an...
-
----
-
-[@miles 6/10/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p1djniw6ae4.md)
-
-2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
-
-<img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -131,14 +137,6 @@
 6/8/2022 Miles Guo: The CCP is so furious that G-series and the New Federal State of China gained the support of Mr. John Adams Morgan; Mr. Morgan expressed his gratitude to me for saving his life by keeping him from taking the COV...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/09/23/67452b3c-8445-2ad0-fc7e-17390217cb2d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1df7ss740f.md)
-
-2022.06.09  PM NFSC news
-
-<img src="https://media.gettr.com/group10/origin/2022/06/09/22/584f61f8-f6ea-bc41-50db-f523d9d607ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
