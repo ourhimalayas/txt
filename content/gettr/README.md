@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/10/2022 5:09 PM UTC ](/content/gettr/p1dkma4ffd0.md)
+
+6月10号：这位先生．今天的这个视频．将改变共产党在西方数字化世界．种下的病毒．数字货币超限战．共产党在数字化世界以及数字货币领域，欲望领导控制全世界新的金融秩序的野心。https://youtu.be/fWyYUrEoWNM
+
+---
+
 [@miles 6/10/2022 4:54 PM UTC  - :tv:直播](/content/gettr/p1dkzrpc195.md)
 
 2022年6月10日 俄乌战争战况播报
@@ -40,9 +46,15 @@
 
 ---
 
-[@miles 6/10/2022 5:09 PM UTC ](/content/gettr/p1dkma4ffd0.md)
+[@miles 6/10/2022 5:42 PM UTC  - :tv:直播](/content/gettr/p1dknlq4b26.md)
 
-6月10号：这位先生．今天的这个视频．将改变共产党在西方数字化世界．种下的病毒．数字货币超限战．共产党在数字化世界以及数字货币领域，欲望领导控制全世界新的金融秩序的野心。https://youtu.be/fWyYUrEoWNM
+Chico Crypto Youtube Channel  quotes Miles Guo's exposé that Binance is controlled and laid out by the Chinese Communist Party years ago.
+
+
+
+YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制的，并且是中共多年前就布下的局
+
+<img src="https://media.gettr.com/group37/getter/2022/06/10/17/4baf9cf5-eb60-c179-10a8-59e8651f34c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,14 +147,6 @@
 6/9/2022 Miles Guo’s GETTR: Europe is pursuing legislation to support Taiwan. The Western insurance companies are going to decouple from the CCP insurance companies to prevent them from causing the Western financial system to colla...
 
 <img src="https://media.gettr.com/group21/getter/2022/06/10/00/eb8c748e-4efd-466a-e198-59cdfaef3d6a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p1dez6a0222.md)
-
-6/9/2022 Miles Guo’s GETTR: More family members of our fellow fighters inside Communist China have been diagnosed of cancer due the COVID vaccines; In a small county near Wenzhou, the “white guards” could beat up anyone they wanted...
-
-<img src="https://media.gettr.com/group29/getter/2022/06/09/23/3f9dab5b-e5cc-115f-8559-d437232f186a/out.jpg" width="506" height="284">
 
 ---
 
