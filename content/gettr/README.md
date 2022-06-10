@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dfalo1c9e.md)
+
+2022.06.09  晚 新中国联邦⎪新闻访谈   回应64庆典：中共新一波造谣攻击；中国高考奇景盛况；上海商界已失信于世界
+
+<img src="https://media.gettr.com/group22/origin/2022/06/10/01/2995f61c-8672-b007-6997-498c7c505058/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 12:59 AM UTC ](/content/gettr/p1df5fy1f68.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Mr. Bannon is interviewed by Little Aila on the 2nd anniversary of the NFSC: The NFSC people proved to the world the lies of the CCP; the Chinese people are fully capable of self-management, and you...
@@ -32,11 +40,11 @@
 
 ---
 
-[@miles 6/10/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dfalo1c9e.md)
+[@miles 6/10/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1dfpsdb69a.md)
 
-2022.06.09  晚 新中国联邦⎪新闻访谈   回应64庆典：中共新一波造谣攻击；中国高考奇景盛况；上海商界已失信于世界
+2022.06.09 新中国联邦 | 喜财经 第74期 躺平币背后的逻辑
 
-<img src="https://media.gettr.com/group22/origin/2022/06/10/01/2995f61c-8672-b007-6997-498c7c505058/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/06/10/01/804d808b-38b9-50cc-ef7f-2b8f649a8b86/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 6/8/2022 Miles Guo: I did the COVID-19 test not only for myself but also to be responsible for our fellow fighters. Our responsible behaviors will win the respect of the world and prove that the New Federal State of China is totall...
 
 <img src="https://media.gettr.com/group19/getter/2022/06/09/15/92be1fc6-5b0d-40e8-be1a-41afc124010c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/9/2022 3:23 PM UTC  - :tv:直播](/content/gettr/p1ddatf2f9e.md)
-
-6月9号：尊敬的战友们好．疫苗灾难．正在中共国．正在以不可思议的速度．在发生中．我们一定要耐心．对待我们所有的家人．朋友，战友．更要珍惜．新中国联邦独有的这种上天恩赐！
-
-<img src="https://media.gettr.com/group10/getter/2022/06/09/15/0e422115-34a5-f895-d9c1-c389933ef637/out.jpg" width="506" height="284">
 
 ---
 
