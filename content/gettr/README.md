@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1df9lb76b1.md)
+
+6/9/2022 Miles Guo’s GETTR: Europe is pursuing legislation to support Taiwan. The Western insurance companies are going to decouple from the CCP insurance companies to prevent them from causing the Western financial system to colla...
+
+<img src="https://media.gettr.com/group21/getter/2022/06/10/00/eb8c748e-4efd-466a-e198-59cdfaef3d6a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/9/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1df3y10594.md)
 
 6/8/2022 Miles Guo: Mr. John Adams Morgan gave us a lot of advice about digital currency. His support for the New Federal State of China is too significant for any words to describe. People from the Rothschild family also attended ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/10/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1df9lb76b1.md)
+[@miles 6/10/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dfbfr072d.md)
 
-6/9/2022 Miles Guo’s GETTR: Europe is pursuing legislation to support Taiwan. The Western insurance companies are going to decouple from the CCP insurance companies to prevent them from causing the Western financial system to colla...
+2022.06.09 晚  新中国联邦 | 新闻  新中国联邦将在华盛顿建立驻美大使馆  中共特务身份坐实 美国立案一网打尽
 
-<img src="https://media.gettr.com/group21/getter/2022/06/10/00/eb8c748e-4efd-466a-e198-59cdfaef3d6a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/06/10/00/c172c125-57ca-91ef-b0bf-750919cb3fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English: gettr.com/streaming/p1dey2o8a76
 2022.06.09 早 新中国联邦 | 新闻访谈 两党四议员敦促全面实施《防止强迫维吾尔人劳动法》；拜登政府松绑对中共军民融合黑名单企业投资禁令惹议；美国初选结果向民主党人发出警讯
 
 <img src="https://media.gettr.com/group27/origin/2022/06/09/13/500e44d6-65e9-5501-dc5d-ba8534ad5362/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/9/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p1dcio58217.md)
-
-2022.06.09  早 新中国联邦 | 新闻  美国会两党关注新中国联邦；郭先生与摩根家族的渊源；勇敢无私诚实善良  新中国联邦人的基本品质；当前中共国社会生态远不如8964时期
-
-<img src="https://media.gettr.com/group19/origin/2022/06/09/12/18145edf-ca84-8fbf-d7dc-65a33a5979ae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
