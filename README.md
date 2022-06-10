@@ -11,6 +11,9 @@
 
 ---
 
+#### [律师：没有一个政客接种过真正的疫苗](/content/gnews/2696193.md)
+ `日本东京方舟农场`
+
 #### [全美汽油价格飙升至平均每加仑5美元](/content/gnews/2696168.md)
  `日本东京方舟农场`
 
@@ -74,6 +77,15 @@
 #### [疫情导致了家庭医生的职业倦怠](/content/gnews/2695817.md)
  `扬帆枫叶快讯`
 
+#### [乌克兰驻加拿大新任大使递交就职国书](/content/gnews/2695815.md)
+ `扬帆枫叶快讯`
+
+#### [加拿大进出口贸易额同步增长](/content/gnews/2695814.md)
+ `扬帆枫叶快讯`
+
+#### [反对党要求特鲁多政府采取措施应对通胀](/content/gnews/2695813.md)
+ `扬帆枫叶快讯`
+
 #### [美国两党联合推出监管数字资产新法案](/content/gnews/2695790.md)
  `雅典娜GNotes`
 
@@ -95,16 +107,7 @@
 #### [美商务部对向中共私运危及国安资料的美企实施出口禁令](/content/gnews/2695706.md)
  `日本东京方舟农场`
 
-#### [为什么中共官员也容易被骗？](/content/gnews/2695595.md)
- `G-NEWS TAIWAN`
-
 #### [「台美21世纪贸易倡议」](/content/gnews/2695594.md)
- `G-NEWS TAIWAN`
-
-#### [人的底线就是在怀旧中一步步坍塌的](/content/gnews/2695553.md)
- `G-NEWS TAIWAN`
-
-#### [共产党统治下的中国现状](/content/gnews/2695543.md)
  `G-NEWS TAIWAN`
 
 #### [【G时新闻】白宫计划为5岁以下儿童接种COVID-19疫苗](/content/gnews/2695497.md)
@@ -119,6 +122,12 @@
 #### [聚焦：为什么日本韩国要加入北约？](/content/gnews/2695378.md)
  `蓝莲花农场`
 
+#### [温网强硬回应三大网球组织取消其赛事积分](/content/gnews/2695370.md)
+ `G-NEWS TAIWAN`
+
+#### [需证实低于5% 马斯克的推特交易被&#8217;搁置&#8217;](/content/gnews/2695347.md)
+ `G-NEWS TAIWAN`
+
 #### [美环太平洋军演纳入“跳岛战术”威慑中共](/content/gnews/2695135.md)
  `NFSC News`
 
@@ -131,9 +140,6 @@
 #### [俄罗斯试图劫持德国望远镜](/content/gnews/2695107.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [2022/06/09 英喜时事速递](/content/gnews/2695083.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [耐克跑步APP NRC将在中共国停止运营](/content/gnews/2695078.md)
  `NFSC News`
 
@@ -142,9 +148,6 @@
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年6月9日早](/content/gnews/2694649.md)
  `纽约香草山MOS01`
-
-#### [中共国用现金和“精神奖励”鼓励公民抓间谍](/content/gnews/2694166.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [法国参议院议长将访基辅](/content/gnews/2692790.md)
  `东京樱花团`
@@ -163,9 +166,6 @@
 
 #### [台湾国民党时隔14年开设驻美代表处](/content/gnews/2689987.md)
  `TokyoSakura Politics/樱花时政`
-
-#### [阿联酋的区块链投资公司FTFT资本签订战略性元宇宙合作协议](/content/gnews/2687198.md)
- `日本东京方舟农场`
 
 #### [秘翻在线 : 班农和纳瓦罗针对1月6日美国国会事件分别传唤、起诉佩洛西](/content/gnews/2686786.md)
  `秘密翻譯組G-Translators`
