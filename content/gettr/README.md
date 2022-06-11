@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1dp6bx1851.md)
+
+新中国联邦｜真人真事 第56期   佳佳同学
+
+<img src="https://media.gettr.com/group29/origin/2022/06/11/14/4bd90590-07ee-06e2-0db8-bb50d653bee8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1dpfwu7db8.md)
 
 新中国联邦｜真人真事 第56期   佳佳同学
@@ -108,11 +116,11 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 
 ---
 
-[@miles 6/11/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1dp6bx1851.md)
+[@miles 6/11/2022 3:30 PM UTC  - :tv:直播](/content/gettr/p1dpeu6c256.md)
 
-新中国联邦｜真人真事 第56期   佳佳同学
+6/10/2022 Miles Guo: The celebration of the 2nd anniversary of the New Federal State of China on June 4th is so significant! Unlike the Chinese Communist Party, which brutally massacres and brainwashes its people, the NFSC is worki...
 
-<img src="https://media.gettr.com/group29/origin/2022/06/11/14/4bd90590-07ee-06e2-0db8-bb50d653bee8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/06/11/15/5b338e78-bf24-747c-82c2-8bd0902f76ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
  新中国联邦两周年庆现场有全球政商大老前来背书
 
 <img src="https://media.gettr.com/group39/origin/2022/06/11/00/c052ca6b-2bd1-efc2-587b-ef178b1fec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1dm84e4c08.md)
-
-6/10/2022 Miles Guo: The reason I asked you to dig deeper into our June 4th ceremony is to encourage our fellow fighters to get more serious about learning the culture of the NFSC and its essence. Why must we let the entire world k...
-
-<img src="https://media.gettr.com/group33/getter/2022/06/11/00/6bcef17e-db95-7feb-a140-f7f4f3f5d056/out.jpg" width="506" height="284">
 
 ---
 
