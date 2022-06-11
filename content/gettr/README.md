@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1dm84e4c08.md)
+
+6/10/2022 Miles Guo: The reason I asked you to dig deeper into our June 4th ceremony is to encourage our fellow fighters to get more serious about learning the culture of the NFSC and its essence. Why must we let the entire world k...
+
+<img src="https://media.gettr.com/group33/getter/2022/06/11/00/6bcef17e-db95-7feb-a140-f7f4f3f5d056/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 11:49 PM UTC  - :tv:直播](/content/gettr/p1dmwpe24a7.md)
 
 6/10/2022 Miles Guo: As for the money we spent on the delicious food and fancy drinks enjoyed by the fellow fighters at the celebration of the 2nd anniversary of the New Federal State of China, not a dime came from Communist China....
@@ -112,11 +120,13 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 
 ---
 
-[@miles 6/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1dm84e4c08.md)
+[@miles 6/11/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1dm9ogdb02.md)
 
-6/10/2022 Miles Guo: The reason I asked you to dig deeper into our June 4th ceremony is to encourage our fellow fighters to get more serious about learning the culture of the NFSC and its essence. Why must we let the entire world k...
+2022.06.10 晚 新中国联邦 | 新闻  世界自由电视台记者表示与愿意参与灭共运动 
 
-<img src="https://media.gettr.com/group33/getter/2022/06/11/00/6bcef17e-db95-7feb-a140-f7f4f3f5d056/out.jpg" width="506" height="284">
+ 新中国联邦两周年庆现场有全球政商大老前来背书
+
+<img src="https://media.gettr.com/group39/origin/2022/06/11/00/c052ca6b-2bd1-efc2-587b-ef178b1fec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 2022.06.10 新中国联邦 | 军情室 浅析俄罗斯未来的解体
 
 <img src="https://media.gettr.com/group17/origin/2022/06/10/10/43e9d572-c011-7fbc-ebd1-f6828f82465f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1dfpt69699.md)
-
-【NFSC 2nd Anniversary】06/07/2022 Abi, a World Liberty TV reporter, pays attention to the June 4 celebration of the NFSC and expresses support and respect for our movement of taking down the CCP. He says communism is an obsolete thi...
-
-<img src="https://media.gettr.com/group7/getter/2022/06/10/03/7b9b232e-b214-2f95-cf28-a94d2d5284d8/out.jpg" width="506" height="284">
 
 ---
 
