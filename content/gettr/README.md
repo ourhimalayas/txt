@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1dpfwu7db8.md)
+
+新中国联邦｜真人真事 第56期   佳佳同学
+
+<img src="https://media.gettr.com/group29/origin/2022/06/11/14/4bd90590-07ee-06e2-0db8-bb50d653bee8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 1:38 PM UTC  - :tv:直播](/content/gettr/p1doxqo40ba.md)
 
  6月11号：尊敬的战友们好……今天是个大好的日子，上天正在帮助我们．以最快的速度．消灭邪恶的中国共产党……实现我们的中新中国联邦……珍惜……吧，兄弟姐妹们！
@@ -100,7 +108,7 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 
 ---
 
-[@miles 6/11/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1dpfwu7db8.md)
+[@miles 6/11/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1dp6bx1851.md)
 
 新中国联邦｜真人真事 第56期   佳佳同学
 
@@ -155,14 +163,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/10/2022 Miles Guo: The reason I asked you to dig deeper into our June 4th ceremony is to encourage our fellow fighters to get more serious about learning the culture of the NFSC and its essence. Why must we let the entire world k...
 
 <img src="https://media.gettr.com/group33/getter/2022/06/11/00/6bcef17e-db95-7feb-a140-f7f4f3f5d056/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 11:49 PM UTC  - :tv:直播](/content/gettr/p1dmwpe24a7.md)
-
-6/10/2022 Miles Guo: As for the money we spent on the delicious food and fancy drinks enjoyed by the fellow fighters at the celebration of the 2nd anniversary of the New Federal State of China, not a dime came from Communist China....
-
-<img src="https://media.gettr.com/group43/getter/2022/06/10/23/64b64ed0-af6e-e7e1-540f-baaad2e6a475/out.jpg" width="506" height="284">
 
 ---
 
