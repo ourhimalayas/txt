@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/11/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p1dqas6a2fe.md)
+
+2022-6-11《避风港》(58) 疫苗灾难导致赔偿计划不堪重负
+
+<img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 4:04 PM UTC  - :tv:直播](/content/gettr/p1dppy85030.md)
 
 6/10/2022 Miles Guo: This year's celebration of the New Federal State of China is completely different from last year's, and all countries are now looking at us with new eyes. Attending the 2nd anniversary of the NFSC despite the d...
@@ -137,14 +145,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/10/2022 Miles Guo: The fact that some politicians, celebrities, tycoons, and major figures in the medical field across the globe have taken the fake COVID vaccines is the biggest scandal in the world right now! These bastards con...
 
 <img src="https://media.gettr.com/group27/getter/2022/06/11/02/0ccf650d-a1f9-6c39-88a0-8e4168b00318/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1dmb7ra93c.md)
-
-2022.06.10 晚 新中国联邦 | 新闻访谈  英国国防部已经购置了政府部门的首台量子计算机
-
-<img src="https://media.gettr.com/group48/origin/2022/06/11/00/1ef1b004-bf81-7794-81e5-9081be912dcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
