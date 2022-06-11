@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1dp27gbead.md)
+
+2022.06.11 早 新中国联邦 | 新闻访谈 #郝海东 #叶钊颖 - 灭共伉俪谈 #新中国联邦两周年庆典 ！
+
+<img src="https://media.gettr.com/group20/origin/2022/06/02/13/69942b88-d5fd-0c85-cf44-2a4e64262c3a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p1dozvy9674.md)
 
 2022.06.11  早 新中国联邦 | 新闻  中共借疫苗清除人口趁机敛财；数字货币是人类史上最大变革之一
@@ -84,11 +92,11 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 
 ---
 
-[@miles 6/11/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1dp27gbead.md)
+[@miles 6/11/2022 1:38 PM UTC  - :tv:直播](/content/gettr/p1doxqo40ba.md)
 
-2022.06.11 早 新中国联邦 | 新闻访谈 #郝海东 #叶钊颖 - 灭共伉俪谈 #新中国联邦两周年庆典 ！
+ 6月11号：尊敬的战友们好……今天是个大好的日子，上天正在帮助我们．以最快的速度．消灭邪恶的中国共产党……实现我们的中新中国联邦……珍惜……吧，兄弟姐妹们！
 
-<img src="https://media.gettr.com/group20/origin/2022/06/02/13/69942b88-d5fd-0c85-cf44-2a4e64262c3a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/06/11/13/a4da7dc9-2368-1c3b-595a-eeeb6a404083/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 For Chinese: https://gettr.com/streaming/p1dmtp66d15
 
 <img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1dmics52f4.md)
-
-2022.06.10 PM NFSC News   Australia Massive Increase of Mortalities in the Beginning of 2022
-
-<img src="https://media.gettr.com/group49/origin/2022/06/10/22/c088fcc9-cfe4-40bc-3998-6b2dbcc98318/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
