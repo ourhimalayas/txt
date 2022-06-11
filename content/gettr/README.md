@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p1dqas6a2fe.md)
+
+2022-6-11《避风港》(58) 疫苗灾难导致赔偿计划不堪重负
+
+<img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1dq36l8e55.md)
 
 2022.06.11  文贵大直播精华版
@@ -10,7 +18,7 @@
 
 ---
 
-[@miles 6/11/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p1dqas6a2fe.md)
+[@miles 6/11/2022 8:12 PM UTC  - :tv:直播](/content/gettr/p1dqtok915f.md)
 
 2022-6-11《避风港》(58) 疫苗灾难导致赔偿计划不堪重负
 
@@ -145,14 +153,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/10/2022 Miles Guo: The fact that some politicians, celebrities, tycoons, and major figures in the medical field across the globe have taken the fake COVID vaccines is the biggest scandal in the world right now! These bastards con...
 
 <img src="https://media.gettr.com/group27/getter/2022/06/11/02/0ccf650d-a1f9-6c39-88a0-8e4168b00318/out.jpg" width="506" height="284">
-
----
-
-[@mucunzheyi 6/10/2022 10:37 AM UTC  - :tv:直播](/content/gettr/p1djkn99a66.md)
-
-币安赵长鹏七宗罪
-
-<img src="https://media.gettr.com/group29/origin/2022/06/10/09/8790bdff-3492-9557-00ff-29337a0e201f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
