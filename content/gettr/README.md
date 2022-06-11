@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1dmvd8d54b.md)
+
+6/10/2022  Miles Guo: Today, the biggest concern in the world is that nobody knows who has taken the real COVID vaccines, and who has taken placebos. It brings great uncertainty to the world's economy, politics and military warfare...
+
+<img src="https://media.gettr.com/group44/getter/2022/06/11/02/9b7e8b6e-daf7-ce7a-fc9b-7297a15e22c0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1dn06s58b9.md)
 
 2022.06.10 新中国联邦 | 喜财经 第75期  中共經濟無路可走 摩根家族拯救美國經濟兩次 美國CPI爆表 是否還會相助？糧農組織食品價格指暗示世界將出現局部動蕩
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/11/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1dmvd8d54b.md)
+[@miles 6/11/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1dmymada83.md)
 
-6/10/2022  Miles Guo: Today, the biggest concern in the world is that nobody knows who has taken the real COVID vaccines, and who has taken placebos. It brings great uncertainty to the world's economy, politics and military warfare...
+2022-6-10《鸡血王喜币大作战》 第二百二十二集 嘉宾：文空、风雨之中
 
-<img src="https://media.gettr.com/group44/getter/2022/06/11/02/9b7e8b6e-daf7-ce7a-fc9b-7297a15e22c0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,12 +169,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
 
 <img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 2:29 PM UTC ](/content/gettr/p1djovofb1b.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Miles Guo’s bombshell interview with John Adams Morgan’s wife Connie Morgan: This was Mrs. Morgan's first public interview. The Himalaya Coin is very clean! The Morgan family has nothing to do with ...
 
 ---
 
