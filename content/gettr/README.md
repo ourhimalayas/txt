@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 6/11/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1dmb7ra93c.md)
+[@miles 6/11/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1dmvd8d54b.md)
 
-2022.06.10 晚 新中国联邦 | 新闻访谈  英国国防部已经购置了政府部门的首台量子计算机
+6/10/2022  Miles Guo: Today, the biggest concern in the world is that nobody knows who has taken the real COVID vaccines, and who has taken placebos. It brings great uncertainty to the world's economy, politics and military warfare...
 
-<img src="https://media.gettr.com/group48/origin/2022/06/11/00/1ef1b004-bf81-7794-81e5-9081be912dcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/06/11/02/9b7e8b6e-daf7-ce7a-fc9b-7297a15e22c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 6/10/2022 Miles Guo: The fact that some politicians, celebrities, tycoons, and major figures in the medical field across the globe have taken the fake COVID vaccines is the biggest scandal in the world right now! These bastards con...
 
 <img src="https://media.gettr.com/group27/getter/2022/06/11/02/0ccf650d-a1f9-6c39-88a0-8e4168b00318/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/11/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1dmb7ra93c.md)
+
+2022.06.10 晚 新中国联邦 | 新闻访谈  英国国防部已经购置了政府部门的首台量子计算机
+
+<img src="https://media.gettr.com/group48/origin/2022/06/11/00/1ef1b004-bf81-7794-81e5-9081be912dcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 [@miles 6/10/2022 2:29 PM UTC ](/content/gettr/p1djovofb1b.md)
 
 【NFSC 2nd Anniversary】06/04/2022 Miles Guo’s bombshell interview with John Adams Morgan’s wife Connie Morgan: This was Mrs. Morgan's first public interview. The Himalaya Coin is very clean! The Morgan family has nothing to do with ...
-
----
-
-[@miles 6/10/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p1djniw6ae4.md)
-
-2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
-
-<img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
