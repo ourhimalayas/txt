@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/10/2022 11:49 PM UTC  - :tv:直播](/content/gettr/p1dmwpe24a7.md)
+
+6/10/2022 Miles Guo: As for the money we spent on the delicious food and fancy drinks enjoyed by the fellow fighters at the celebration of the 2nd anniversary of the New Federal State of China, not a dime came from Communist China....
+
+<img src="https://media.gettr.com/group43/getter/2022/06/10/23/64b64ed0-af6e-e7e1-540f-baaad2e6a475/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1dmdto1bf4.md)
 
 2022.06.10 NFSC fringe  2nd Anniversary Special
@@ -104,11 +112,11 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 
 ---
 
-[@miles 6/10/2022 11:49 PM UTC  - :tv:直播](/content/gettr/p1dmwpe24a7.md)
+[@miles 6/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1dm84e4c08.md)
 
-6/10/2022 Miles Guo: As for the money we spent on the delicious food and fancy drinks enjoyed by the fellow fighters at the celebration of the 2nd anniversary of the New Federal State of China, not a dime came from Communist China....
+6/10/2022 Miles Guo: The reason I asked you to dig deeper into our June 4th ceremony is to encourage our fellow fighters to get more serious about learning the culture of the NFSC and its essence. Why must we let the entire world k...
 
-<img src="https://media.gettr.com/group43/getter/2022/06/10/23/64b64ed0-af6e-e7e1-540f-baaad2e6a475/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/06/11/00/6bcef17e-db95-7feb-a140-f7f4f3f5d056/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 【NFSC 2nd Anniversary】06/07/2022 Abi, a World Liberty TV reporter, pays attention to the June 4 celebration of the NFSC and expresses support and respect for our movement of taking down the CCP. He says communism is an obsolete thi...
 
 <img src="https://media.gettr.com/group7/getter/2022/06/10/03/7b9b232e-b214-2f95-cf28-a94d2d5284d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p1dgciz990f.md)
-
-2022-6-9《鸡血王喜币大作战》 第二百二十一集 嘉宾：无双柳薇薇、青藤
-
-<img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
