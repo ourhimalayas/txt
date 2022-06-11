@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/11/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1dqajedf28.md)
+
+飞飞秀 六四篇 《小王子聊幕后》 2022-06-11
+
+For English：gettr.com/streaming/p1dqteubef8
+
+<img src="https://media.gettr.com/group23/origin/2022/06/11/22/04614c3b-3206-769f-23a8-9d561c7b86bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1dqltudcff.md)
 
 2022.06.11  新中国联邦 | 喜健康   文恩博士专访：六四的真正含义
@@ -34,13 +44,11 @@
 
 ---
 
-[@miles 6/11/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1dqajedf28.md)
+[@miles 6/11/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1dqryf8814.md)
 
-飞飞秀 六四篇 《小王子聊幕后》 2022-06-11
+2022.06.11 PM NFSC News   European Parliament Bans Forced Labor Products
 
-For English：gettr.com/streaming/p1dqteubef8
-
-<img src="https://media.gettr.com/group23/origin/2022/06/11/22/04614c3b-3206-769f-23a8-9d561c7b86bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/03/26/22/3caa8837-d942-048b-4983-4e6f5f7bf2e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/10/2022  Miles Guo: Today, the biggest concern in the world is that nobody knows who has taken the real COVID vaccines, and who has taken placebos. It brings great uncertainty to the world's economy, politics and military warfare...
 
 <img src="https://media.gettr.com/group44/getter/2022/06/11/02/9b7e8b6e-daf7-ce7a-fc9b-7297a15e22c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 2:07 AM UTC  - :tv:直播](/content/gettr/p1dmpwadcd2.md)
-
-6/10/2022 Miles Guo: The fact that some politicians, celebrities, tycoons, and major figures in the medical field across the globe have taken the fake COVID vaccines is the biggest scandal in the world right now! These bastards con...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/11/02/0ccf650d-a1f9-6c39-88a0-8e4168b00318/out.jpg" width="506" height="284">
 
 ---
 
