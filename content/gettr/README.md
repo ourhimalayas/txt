@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 9:27 AM UTC  - :tv:直播](/content/gettr/p1do9w7b104.md)
+
+6/10/2022 Miles Guo: I will tell all the fellow fighters about the antidote to the COVID and its vaccines immediately after they are released, and I won't just tell any single person. The antidote won't be prescription drugs, but i...
+
+<img src="https://media.gettr.com/group20/getter/2022/06/11/09/a7f1451d-615f-18d0-0eb9-f0ddb11a81d4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 6:26 AM UTC  - :tv:直播](/content/gettr/p1dnsa57e04.md)
 
 6/10/2022 Miles Guo: The political infightings of CCP have been intensifying before the 20th Party Congress. A certain Vice Premier of the CCP attempted to have someone contact me to win the New Federal State of China over to his s...
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 6/11/2022 9:27 AM UTC  - :tv:直播](/content/gettr/p1do9w7b104.md)
+[@miles 6/11/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1dowmv074d.md)
 
-6/10/2022 Miles Guo: I will tell all the fellow fighters about the antidote to the COVID and its vaccines immediately after they are released, and I won't just tell any single person. The antidote won't be prescription drugs, but i...
+2022.06.11 NFSC news　日本語ニュース　　米、中国に対して新たに法律条例新規制定
 
-<img src="https://media.gettr.com/group20/getter/2022/06/11/09/a7f1451d-615f-18d0-0eb9-f0ddb11a81d4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/06/11/11/b0ade3ae-b299-0a40-64da-df68fd537c1c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,12 +171,6 @@ Chico Crypto Youtube Channel  quotes Miles Guo's exposé that Binance is control
 YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制的，并且是中共多年前就布下的局
 
 <img src="https://media.gettr.com/group37/getter/2022/06/10/17/4baf9cf5-eb60-c179-10a8-59e8651f34c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 5:09 PM UTC ](/content/gettr/p1dkma4ffd0.md)
-
-6月10号：这位先生．今天的这个视频．将改变共产党在西方数字化世界．种下的病毒．数字货币超限战．共产党在数字化世界以及数字货币领域，欲望领导控制全世界新的金融秩序的野心。https://youtu.be/fWyYUrEoWNM
 
 ---
 
