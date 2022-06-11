@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1dqltudcff.md)
+
+2022.06.11  新中国联邦 | 喜健康   文恩博士专访：六四的真正含义
+
+<img src="https://media.gettr.com/group39/origin/2022/06/11/20/c69435ee-982d-41aa-814f-0e3e72d670dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 8:12 PM UTC  - :tv:直播](/content/gettr/p1dqtok915f.md)
 
 2022-6-11《避风港》(58) 疫苗灾难导致赔偿计划不堪重负
@@ -26,11 +34,13 @@
 
 ---
 
-[@miles 6/11/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1dqltudcff.md)
+[@miles 6/11/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1dqajedf28.md)
 
-2022.06.11  新中国联邦 | 喜健康   文恩博士专访：六四的真正含义
+飞飞秀 六四篇 《小王子聊幕后》 2022-06-11
 
-<img src="https://media.gettr.com/group39/origin/2022/06/11/20/c69435ee-982d-41aa-814f-0e3e72d670dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1dqteubef8
+
+<img src="https://media.gettr.com/group23/origin/2022/06/11/22/04614c3b-3206-769f-23a8-9d561c7b86bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +155,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/10/2022  Miles Guo: Today, the biggest concern in the world is that nobody knows who has taken the real COVID vaccines, and who has taken placebos. It brings great uncertainty to the world's economy, politics and military warfare...
 
 <img src="https://media.gettr.com/group44/getter/2022/06/11/02/9b7e8b6e-daf7-ce7a-fc9b-7297a15e22c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1dn06s58b9.md)
-
-2022.06.10 新中国联邦 | 喜财经 第75期  中共經濟無路可走 摩根家族拯救美國經濟兩次 美國CPI爆表 是否還會相助？糧農組織食品價格指暗示世界將出現局部動蕩
-
-<img src="https://media.gettr.com/group13/origin/2022/06/11/02/50088aa5-64e9-a29e-193c-2149dd9393d9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
