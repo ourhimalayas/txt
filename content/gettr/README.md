@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1dmymada83.md)
+
+2022-6-10《鸡血王喜币大作战》 第二百二十二集 嘉宾：文空、风雨之中
+
+<img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1dmvd8d54b.md)
 
 6/10/2022  Miles Guo: Today, the biggest concern in the world is that nobody knows who has taken the real COVID vaccines, and who has taken placebos. It brings great uncertainty to the world's economy, politics and military warfare...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/11/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1dmymada83.md)
+[@miles 6/11/2022 4:40 AM UTC  - :tv:直播](/content/gettr/p1do85z26f4.md)
 
-2022-6-10《鸡血王喜币大作战》 第二百二十二集 嘉宾：文空、风雨之中
+6/10/2022 Miles Guo: Why did the CCP smear me as "the impotent Guo"? Why did the CCP say to me and all the CCP cadres that lost power that they would "break your family apart and let your friends and family members desert you"? Bec...
 
-<img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/06/11/04/8deb0dd0-f25d-2c28-4957-13c12eadf6eb/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 6月10号：感谢战友制作的特别有意思的视频，中共你完了！
 
 <img src="https://media.gettr.com/group43/getter/2022/06/10/15/3c7158cc-e063-91bf-c054-383a3cf03026/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p1dkomh53f6.md)
-
-2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
-
-<img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
