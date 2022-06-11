@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/11/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1dm9ogdb02.md)
+
+2022.06.10 晚 新中国联邦 | 新闻  世界自由电视台记者表示与愿意参与灭共运动 
+
+ 新中国联邦两周年庆现场有全球政商大老前来背书
+
+<img src="https://media.gettr.com/group39/origin/2022/06/11/00/c052ca6b-2bd1-efc2-587b-ef178b1fec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/11/2022 4:04 PM UTC  - :tv:直播](/content/gettr/p1dppy85030.md)
+
+6/10/2022 Miles Guo: This year's celebration of the New Federal State of China is completely different from last year's, and all countries are now looking at us with new eyes. Attending the 2nd anniversary of the NFSC despite the d...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/11/16/e7040f72-d7c6-f54c-c59a-abafda019e0d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 3:30 PM UTC  - :tv:直播](/content/gettr/p1dpeu6c256.md)
 
 6/10/2022 Miles Guo: The celebration of the 2nd anniversary of the New Federal State of China on June 4th is so significant! Unlike the Chinese Communist Party, which brutally massacres and brainwashes its people, the NFSC is worki...
@@ -11,14 +29,6 @@
 ---
 
 [@miles 6/11/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1dp6bx1851.md)
-
-新中国联邦｜真人真事 第56期   佳佳同学
-
-<img src="https://media.gettr.com/group29/origin/2022/06/11/14/4bd90590-07ee-06e2-0db8-bb50d653bee8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1dpfwu7db8.md)
 
 新中国联邦｜真人真事 第56期   佳佳同学
 
@@ -121,14 +131,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 2022.06.10 新中国联邦 | 喜财经 第75期  中共經濟無路可走 摩根家族拯救美國經濟兩次 美國CPI爆表 是否還會相助？糧農組織食品價格指暗示世界將出現局部動蕩
 
 <img src="https://media.gettr.com/group13/origin/2022/06/11/02/50088aa5-64e9-a29e-193c-2149dd9393d9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/11/2022 4:04 PM UTC  - :tv:直播](/content/gettr/p1dppy85030.md)
-
-6/10/2022 Miles Guo: This year's celebration of the New Federal State of China is completely different from last year's, and all countries are now looking at us with new eyes. Attending the 2nd anniversary of the NFSC despite the d...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/11/16/e7040f72-d7c6-f54c-c59a-abafda019e0d/out.jpg" width="506" height="284">
 
 ---
 
