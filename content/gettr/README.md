@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 6/11/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1dmb7ra93c.md)
+
+2022.06.10 晚 新中国联邦 | 新闻访谈  英国国防部已经购置了政府部门的首台量子计算机
+
+<img src="https://media.gettr.com/group48/origin/2022/06/11/00/1ef1b004-bf81-7794-81e5-9081be912dcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@mucunzheyi 6/10/2022 10:37 AM UTC  - :tv:直播](/content/gettr/p1djkn99a66.md)
+
+币安赵长鹏七宗罪
+
+<img src="https://media.gettr.com/group29/origin/2022/06/10/09/8790bdff-3492-9557-00ff-29337a0e201f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/11/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1dm9ogdb02.md)
+
+2022.06.10 晚 新中国联邦 | 新闻  世界自由电视台记者表示与愿意参与灭共运动 
+
+ 新中国联邦两周年庆现场有全球政商大老前来背书
+
+<img src="https://media.gettr.com/group39/origin/2022/06/11/00/c052ca6b-2bd1-efc2-587b-ef178b1fec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1dm84e4c08.md)
 
 6/10/2022 Miles Guo: The reason I asked you to dig deeper into our June 4th ceremony is to encourage our fellow fighters to get more serious about learning the culture of the NFSC and its essence. Why must we let the entire world k...
@@ -120,13 +146,11 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 
 ---
 
-[@miles 6/11/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1dm9ogdb02.md)
+[@bbhwlsx 6/10/2022 3:42 PM UTC  - :tv:直播](/content/gettr/p1dkmjv9793.md)
 
-2022.06.10 晚 新中国联邦 | 新闻  世界自由电视台记者表示与愿意参与灭共运动 
+墙内抖音上热搜了，我不想说其他的……我只想成为七哥要找的人……新中国联邦人四大标准：诚实、勇敢、善良、无私……一声长叹
 
- 新中国联邦两周年庆现场有全球政商大老前来背书
-
-<img src="https://media.gettr.com/group39/origin/2022/06/11/00/c052ca6b-2bd1-efc2-587b-ef178b1fec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/06/10/15/3514eeb0-ff9a-ef17-05e3-e3fcbc389919/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,28 +167,6 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 20220610  NFSCニュース　Binance はCCP海外情報とマネーロンのプラットフォーム
 
 <img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@longwood 3/19/2022 3:55 PM UTC  - :tv:直播](/content/gettr/p10stpz2042.md)
-
-这视频剪的太好太好太好了！我要置顶！
-
-<img src="https://media.gettr.com/group50/origin/2022/03/16/16/ed5d55a4-9647-d586-474f-16036fcc5f0d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 10:20 AM UTC ](/content/gettr/p1dj52dbf92.md)
-
-【NFSC 2nd Anniversary】06/04/2022 Nicole's interview with Mr. Bannon at the 2nd anniversary of the NFSC: Your work on the Polish-Ukrainian border is so important and resonates with people by giving them a glimpse of the new China an...
-
----
-
-[@miles 6/10/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1djoqf75f3.md)
-
-2022.06.10 新中国联邦 | 军情室 浅析俄罗斯未来的解体
-
-<img src="https://media.gettr.com/group17/origin/2022/06/10/10/43e9d572-c011-7fbc-ebd1-f6828f82465f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
