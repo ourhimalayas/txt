@@ -2,13 +2,11 @@
 ---
 
 
-[@miles 6/11/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1dm9ogdb02.md)
+[@miles 6/11/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1dq36l8e55.md)
 
-2022.06.10 晚 新中国联邦 | 新闻  世界自由电视台记者表示与愿意参与灭共运动 
+2022.06.11  文贵大直播精华版
 
- 新中国联邦两周年庆现场有全球政商大老前来背书
-
-<img src="https://media.gettr.com/group39/origin/2022/06/11/00/c052ca6b-2bd1-efc2-587b-ef178b1fec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/06/11/17/1473dedf-a651-4def-b6d4-b50013cf72bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
