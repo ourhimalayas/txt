@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1dpaog1d00.md)
+
+2022.06.11  AM NFSC news  Doctors Sue FDA for “Unlawful Interference” of Ivermectin
+
+<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1dowmv074d.md)
 
 2022.06.11 NFSC news　日本語ニュース　　米、中国に対して新たに法律条例新規制定
@@ -58,11 +66,13 @@
 
 ---
 
-[@miles 6/11/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1dpaog1d00.md)
+[@miles 6/11/2022 12:21 PM UTC ](/content/gettr/p1dowega4b9.md)
 
-2022.06.11  AM NFSC news  Doctors Sue FDA for “Unlawful Interference” of Ivermectin
+The 20th National Congress of the Chinese Communist Party (CCP) is the final battle 
 
-<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of the CCP is a gift from God. He does not believe it will be held and...
+
+<img src="https://media.gettr.com/group25/origin/2022/06/11/12/3b1aca87-11b3-28e0-d501-3ba165fe933d/f8a28242a2ffaa7eb8f07c7c36750a7f.png" width="506" height="284">
 
 ---
 
@@ -157,16 +167,6 @@ For English：gettr.com/streaming/p1dm9muf242
 2022.06.10  新中国联邦 | 喜健康   谁是我们的最后一代
 
 <img src="https://media.gettr.com/group15/origin/2022/06/10/20/901621b9-aee0-7379-ae0f-39c305c76167/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 8:41 PM UTC ](/content/gettr/p1dlpdqc355.md)
-
-6月10日：尊敬的战友们好．7哥向很多战友私下保证过……不会超过六月份，美国就会取消疫苗证书，7哥又蒙对了……加拿大，澳大利亚，欧洲．日本的很多战友很快可以在美国和7哥相见！
-
-
-
-https://www.voachinese.com/a/us-to-drop-covid-test-requirement-for-travelers-entering-country-20220610/6612369.html?utm_source=twitter&utm_m...
 
 ---
 
