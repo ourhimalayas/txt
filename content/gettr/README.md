@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/10/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1dmdto1bf4.md)
+
+2022.06.10 NFSC fringe  2nd Anniversary Special
+
+For Chinese: https://gettr.com/streaming/p1dmtp66d15
+
+<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/10/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1dmics52f4.md)
 
 2022.06.10 PM NFSC News   Australia Massive Increase of Mortalities in the Beginning of 2022
@@ -94,13 +104,11 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 
 ---
 
-[@miles 6/10/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1dmdto1bf4.md)
+[@miles 6/10/2022 11:49 PM UTC  - :tv:直播](/content/gettr/p1dmwpe24a7.md)
 
-2022.06.10 NFSC fringe  2nd Anniversary Special
+6/10/2022 Miles Guo: As for the money we spent on the delicious food and fancy drinks enjoyed by the fellow fighters at the celebration of the 2nd anniversary of the New Federal State of China, not a dime came from Communist China....
 
-For Chinese: https://gettr.com/streaming/p1dmtp66d15
-
-<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/06/10/23/64b64ed0-af6e-e7e1-540f-baaad2e6a475/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ For Chinese: https://gettr.com/streaming/p1dmtp66d15
 2022-6-9《鸡血王喜币大作战》 第二百二十一集 嘉宾：无双柳薇薇、青藤
 
 <img src="https://media.gettr.com/group47/origin/2022/05/07/03/5eafba18-d9ef-f5cd-a0d5-880f63b924a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1dfpsdb69a.md)
-
-2022.06.09 新中国联邦 | 喜财经 第74期 躺平币背后的逻辑
-
-<img src="https://media.gettr.com/group9/origin/2022/06/10/01/804d808b-38b9-50cc-ef7f-2b8f649a8b86/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
