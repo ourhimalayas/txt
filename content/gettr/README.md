@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1dqryf8814.md)
+
+2022.06.11 PM NFSC News   European Parliament Bans Forced Labor Products
+
+<img src="https://media.gettr.com/group29/origin/2022/03/26/22/3caa8837-d942-048b-4983-4e6f5f7bf2e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1dqajedf28.md)
 
 飞飞秀 六四篇 《小王子聊幕后》 2022-06-11
@@ -44,11 +52,11 @@ For English：gettr.com/streaming/p1dqteubef8
 
 ---
 
-[@miles 6/11/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1dqryf8814.md)
+[@miles 6/11/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1dr60udfca.md)
 
-2022.06.11 PM NFSC News   European Parliament Bans Forced Labor Products
+2022.06.11 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
-<img src="https://media.gettr.com/group29/origin/2022/03/26/22/3caa8837-d942-048b-4983-4e6f5f7bf2e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/06/11/23/b725039f-9e8b-efb2-325a-46e7a63c9c14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 2022-6-10《鸡血王喜币大作战》 第二百二十二集 嘉宾：文空、风雨之中
 
 <img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 2:29 AM UTC  - :tv:直播](/content/gettr/p1dmvd8d54b.md)
-
-6/10/2022  Miles Guo: Today, the biggest concern in the world is that nobody knows who has taken the real COVID vaccines, and who has taken placebos. It brings great uncertainty to the world's economy, politics and military warfare...
-
-<img src="https://media.gettr.com/group44/getter/2022/06/11/02/9b7e8b6e-daf7-ce7a-fc9b-7297a15e22c0/out.jpg" width="506" height="284">
 
 ---
 
