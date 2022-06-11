@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1dn06s58b9.md)
+
+2022.06.10 新中国联邦 | 喜财经 第75期  中共經濟無路可走 摩根家族拯救美國經濟兩次 美國CPI爆表 是否還會相助？糧農組織食品價格指暗示世界將出現局部動蕩
+
+<img src="https://media.gettr.com/group13/origin/2022/06/11/02/50088aa5-64e9-a29e-193c-2149dd9393d9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1dmb7ra93c.md)
 
 2022.06.10 晚 新中国联邦 | 新闻访谈  英国国防部已经购置了政府部门的首台量子计算机
@@ -10,11 +18,27 @@
 
 ---
 
+[@miles 6/11/2022 2:07 AM UTC  - :tv:直播](/content/gettr/p1dmpwadcd2.md)
+
+6/10/2022 Miles Guo: The fact that some politicians, celebrities, tycoons, and major figures in the medical field across the globe have taken the fake COVID vaccines is the biggest scandal in the world right now! These bastards con...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/11/02/0ccf650d-a1f9-6c39-88a0-8e4168b00318/out.jpg" width="506" height="284">
+
+---
+
 [@mucunzheyi 6/10/2022 10:37 AM UTC  - :tv:直播](/content/gettr/p1djkn99a66.md)
 
 币安赵长鹏七宗罪
 
 <img src="https://media.gettr.com/group29/origin/2022/06/10/09/8790bdff-3492-9557-00ff-29337a0e201f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@bbhwlsx 6/10/2022 3:42 PM UTC  - :tv:直播](/content/gettr/p1dkmjv9793.md)
+
+墙内抖音上热搜了，我不想说其他的……我只想成为七哥要找的人……新中国联邦人四大标准：诚实、勇敢、善良、无私……一声长叹
+
+<img src="https://media.gettr.com/group45/getter/2022/06/10/15/3514eeb0-ff9a-ef17-05e3-e3fcbc389919/out.jpg" width="506" height="284">
 
 ---
 
@@ -138,35 +162,11 @@ YouTube频道Chico Crypto引用郭文贵先生爆料：币安是被中共控制�
 
 ---
 
-[@miles 6/10/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p1djo2ee5f1.md)
-
-2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
-
-<img src="https://media.gettr.com/group15/origin/2022/06/10/12/7a5d2af6-90f9-2fe7-4152-6a9a9ea0cbb0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@bbhwlsx 6/10/2022 3:42 PM UTC  - :tv:直播](/content/gettr/p1dkmjv9793.md)
-
-墙内抖音上热搜了，我不想说其他的……我只想成为七哥要找的人……新中国联邦人四大标准：诚实、勇敢、善良、无私……一声长叹
-
-<img src="https://media.gettr.com/group45/getter/2022/06/10/15/3514eeb0-ff9a-ef17-05e3-e3fcbc389919/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/10/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p1djniw6ae4.md)
 
 2022年6月10日 文贵大直播：疫苗灾难依然被操控；中共黑客诸战友电脑；世界数字货币及喜币
 
 <img src="https://media.gettr.com/group10/origin/2022/06/10/12/0848ac86-7b00-3d92-1b71-3f0924055977/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/10/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1djnz730f9.md)
-
-20220610  NFSCニュース　Binance はCCP海外情報とマネーロンのプラットフォーム
-
-<img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
