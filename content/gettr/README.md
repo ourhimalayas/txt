@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p1dozvy9674.md)
+
+2022.06.11  早 新中国联邦 | 新闻  中共借疫苗清除人口趁机敛财；数字货币是人类史上最大变革之一
+
+<img src="https://media.gettr.com/group45/origin/2022/06/11/12/158634ed-8621-dd80-81cd-635a93d6aa6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 12:21 PM UTC ](/content/gettr/p1dowega4b9.md)
 
 The 20th National Congress of the Chinese Communist Party (CCP) is the final battle 
@@ -76,11 +84,11 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 
 ---
 
-[@miles 6/11/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p1dozvy9674.md)
+[@miles 6/11/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1dp27gbead.md)
 
-2022.06.11  早 新中国联邦 | 新闻  中共借疫苗清除人口趁机敛财；数字货币是人类史上最大变革之一
+2022.06.11 早 新中国联邦 | 新闻访谈 #郝海东 #叶钊颖 - 灭共伉俪谈 #新中国联邦两周年庆典 ！
 
-<img src="https://media.gettr.com/group45/origin/2022/06/11/12/158634ed-8621-dd80-81cd-635a93d6aa6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/06/02/13/69942b88-d5fd-0c85-cf44-2a4e64262c3a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ For Chinese: https://gettr.com/streaming/p1dmtp66d15
 2022.06.10 PM NFSC News   Australia Massive Increase of Mortalities in the Beginning of 2022
 
 <img src="https://media.gettr.com/group49/origin/2022/06/10/22/c088fcc9-cfe4-40bc-3998-6b2dbcc98318/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/10/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1dlwhy1bff.md)
-
-飞飞秀 六四篇 《喜币非常干净》2022-06-10
-
-For English：gettr.com/streaming/p1dm9muf242
-
-<img src="https://media.gettr.com/group6/origin/2022/06/10/22/926cd814-2a0c-556d-cb4b-477af1b45f74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
