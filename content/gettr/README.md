@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/12/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1drdr47db7.md)
+[@miles 6/12/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1drlviadd4.md)
 
-2022.06.11  晚  新中国联邦 | 新闻访谈  白宫即将宣布取消入境美国须出示新冠检测阴性结果的规定    美国共和党和民主党参议员推出加密货币框架
+2022-6-11《鸡血王喜币大作战》 第二百二十三集 嘉宾：卡丽熙、Happy
 
-<img src="https://media.gettr.com/group28/origin/2022/06/12/00/c8053a54-96dd-788a-30a6-dd3ef8505799/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/04/05/02/0ebbc740-9c41-1d07-722d-4cceb60a1bbf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,24 @@
 2022.06.011  新中国联邦 | 喜财经  第76期  数字货币专栏：美国参议院推出里程碑式数字货币法案 币安七宗罪被曝光
 
 <img src="https://media.gettr.com/group27/origin/2022/06/12/01/7a652bf9-b762-1ce1-bf40-c1803ba8ceb4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1drdr47db7.md)
+
+2022.06.11  晚  新中国联邦 | 新闻访谈  白宫即将宣布取消入境美国须出示新冠检测阴性结果的规定    美国共和党和民主党参议员推出加密货币框架
+
+<img src="https://media.gettr.com/group28/origin/2022/06/12/00/c8053a54-96dd-788a-30a6-dd3ef8505799/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 3:13 AM UTC ](/content/gettr/p1drufg496a.md)
+
+The 20th National Congress of the Chinese Communist Party (CCP) is the final battle 
+
+On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of the CCP is a gift from God. He does not believe it will be held and...
+
+<img src="https://media.gettr.com/group26/origin/2022/06/12/03/7bdac9e2-f109-58bc-7997-4f5cbbdfd413/43c13d8506b9c93bac8456370530b692.png" width="506" height="284">
 
 ---
 
@@ -145,22 +163,6 @@ For English：gettr.com/streaming/p1dqteubef8
 6/10/2022 Miles Guo: The celebration of the 2nd anniversary of the New Federal State of China on June 4th is so significant! Unlike the Chinese Communist Party, which brutally massacres and brainwashes its people, the NFSC is worki...
 
 <img src="https://media.gettr.com/group28/getter/2022/06/11/15/5b338e78-bf24-747c-82c2-8bd0902f76ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1dp6bx1851.md)
-
-新中国联邦｜真人真事 第56期   佳佳同学
-
-<img src="https://media.gettr.com/group29/origin/2022/06/11/14/4bd90590-07ee-06e2-0db8-bb50d653bee8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 1:38 PM UTC  - :tv:直播](/content/gettr/p1doxqo40ba.md)
-
- 6月11号：尊敬的战友们好……今天是个大好的日子，上天正在帮助我们．以最快的速度．消灭邪恶的中国共产党……实现我们的中新中国联邦……珍惜……吧，兄弟姐妹们！
-
-<img src="https://media.gettr.com/group41/getter/2022/06/11/13/a4da7dc9-2368-1c3b-595a-eeeb6a404083/out.jpg" width="506" height="284">
 
 ---
 
