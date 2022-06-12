@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/12/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1drh4yf0d5.md)
+
+2022.06.11  晚  新中国联邦 | 新闻  美欧即将制裁中共经济 并推行国家合作稳定币  美国将取消对国外入境人员的中共病毒测试要求 纽约监管机构发布美元支持的稳定币指南
+
+<img src="https://media.gettr.com/group5/origin/2022/06/12/00/baad5ee1-2b24-8fe9-ea5e-8690061e579f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@longwood 6/11/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1dqeup2733.md)
+
+大根谭-小新忙六四
+
+<img src="https://media.gettr.com/group8/origin/2022/06/11/22/e18ad4f0-076e-7a20-d0ba-72a29e2dfbe3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1dqmq9c98f.md)
 
 6/11/2022 Miles Guo's GETTR: The CCP is very clear that if it doesn’t fight a war against the US, Taiwan and Japan, civil wars will break out in Communist China and the CCP will be wiped out; the 2nd June 4th anniversary has showed...
@@ -84,14 +100,6 @@ For English：gettr.com/streaming/p1dqteubef8
 
 ---
 
-[@longwood 6/11/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1dqeup2733.md)
-
-大根谭-小新忙六四
-
-<img src="https://media.gettr.com/group8/origin/2022/06/11/22/e18ad4f0-076e-7a20-d0ba-72a29e2dfbe3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/11/2022 4:04 PM UTC  - :tv:直播](/content/gettr/p1dppy85030.md)
 
 6/10/2022 Miles Guo: This year's celebration of the New Federal State of China is completely different from last year's, and all countries are now looking at us with new eyes. Attending the 2nd anniversary of the NFSC despite the d...
@@ -155,14 +163,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 2022.06.11  AM NFSC news  Doctors Sue FDA for “Unlawful Interference” of Ivermectin
 
 <img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/11/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1dowmv074d.md)
-
-2022.06.11 NFSC news　日本語ニュース　　米、中国に対して新たに法律条例新規制定
-
-<img src="https://media.gettr.com/group46/origin/2022/06/11/11/b0ade3ae-b299-0a40-64da-df68fd537c1c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
