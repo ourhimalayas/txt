@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/12/2022 9:47 AM UTC  - :tv:直播](/content/gettr/p1ds86l09c4.md)
+
+《焦点》86期：老班长与战友们分享64国庆纽约之行，我们都是新中国联邦人！
+
+<img src="https://media.gettr.com/group15/origin/2022/06/12/09/18d42142-4562-16d6-edaa-1a89fc289aff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 3:15 AM UTC ](/content/gettr/p1drlhq9592.md)
 
 The European Parliament ‘s plenary adopted the report "The EU and Security Challenges in the Indo-Pacific Region"
@@ -20,11 +28,9 @@ On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with 
 
 ---
 
-[@miles 6/12/2022 9:47 AM UTC  - :tv:直播](/content/gettr/p1ds86l09c4.md)
+[@miles 6/12/2022 10:40 AM UTC ](/content/gettr/p1dtffi4f53.md)
 
-《焦点》86期：老班长与战友们分享64国庆纽约之行，我们都是新中国联邦人！
-
-<img src="https://media.gettr.com/group15/origin/2022/06/12/09/18d42142-4562-16d6-edaa-1a89fc289aff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gettr.com/post/p1dsqbk67b9
 
 ---
 
@@ -157,14 +163,6 @@ For English：gettr.com/streaming/p1dqteubef8
 2022-6-11《避风港》(58) 疫苗灾难导致赔偿计划不堪重负
 
 <img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1dq36l8e55.md)
-
-2022.06.11  文贵大直播精华版
-
-<img src="https://media.gettr.com/group42/origin/2022/06/11/17/1473dedf-a651-4def-b6d4-b50013cf72bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
