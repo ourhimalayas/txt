@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1dr1da8140.md)
+
+6/11/2022 Miles Guo’s GETTR: The CCP’s meeting with the US secretary of Defense shocked the entire world! Americans finally realize that the CCP has done all the preparations to fight a war against the US; Europeans also wake up an...
+
+<img src="https://media.gettr.com/group13/getter/2022/06/11/23/cee64021-4ad3-50ae-4290-570074a99b67/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1dr60udfca.md)
 
 2022.06.11 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -60,11 +68,11 @@ For English：gettr.com/streaming/p1dqteubef8
 
 ---
 
-[@miles 6/11/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1dr1da8140.md)
+[@miles 6/12/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1dqmq9c98f.md)
 
-6/11/2022 Miles Guo’s GETTR: The CCP’s meeting with the US secretary of Defense shocked the entire world! Americans finally realize that the CCP has done all the preparations to fight a war against the US; Europeans also wake up an...
+6/11/2022 Miles Guo's GETTR: The CCP is very clear that if it doesn’t fight a war against the US, Taiwan and Japan, civil wars will break out in Communist China and the CCP will be wiped out; the 2nd June 4th anniversary has showed...
 
-<img src="https://media.gettr.com/group13/getter/2022/06/11/23/cee64021-4ad3-50ae-4290-570074a99b67/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/06/11/23/950fe1d0-7bb3-246e-8dde-310aeec0e75f/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/10/2022 Miles Guo: The political infightings of CCP have been intensifying before the 20th Party Congress. A certain Vice Premier of the CCP attempted to have someone contact me to win the New Federal State of China over to his s...
 
 <img src="https://media.gettr.com/group44/getter/2022/06/11/06/98107b82-4133-6b29-fb83-713c32b41d12/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 4:40 AM UTC  - :tv:直播](/content/gettr/p1do85z26f4.md)
-
-6/10/2022 Miles Guo: Why did the CCP smear me as "the impotent Guo"? Why did the CCP say to me and all the CCP cadres that lost power that they would "break your family apart and let your friends and family members desert you"? Bec...
-
-<img src="https://media.gettr.com/group18/getter/2022/06/11/04/8deb0dd0-f25d-2c28-4957-13c12eadf6eb/out.jpg" width="506" height="284">
 
 ---
 
