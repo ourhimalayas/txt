@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/12/2022 12:15 AM UTC  - :tv:直播](/content/gettr/p1dqufpec6d.md)
+
+6/10/2022 Miles Guo: A vice-premier of Communist China asked someone to bring his messages to me that the country would probably take the route that I am happy to see. They want me to let them work with the Himalaya Reserve as they...
+
+<img src="https://media.gettr.com/group15/getter/2022/06/12/00/098a47a5-03ed-fb84-771f-704bb039f028/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1dqmq9c98f.md)
+
+6/11/2022 Miles Guo's GETTR: The CCP is very clear that if it doesn’t fight a war against the US, Taiwan and Japan, civil wars will break out in Communist China and the CCP will be wiped out; the 2nd June 4th anniversary has showed...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/11/23/950fe1d0-7bb3-246e-8dde-310aeec0e75f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1dr1da8140.md)
 
 6/11/2022 Miles Guo’s GETTR: The CCP’s meeting with the US secretary of Defense shocked the entire world! Americans finally realize that the CCP has done all the preparations to fight a war against the US; Europeans also wake up an...
@@ -68,11 +84,11 @@ For English：gettr.com/streaming/p1dqteubef8
 
 ---
 
-[@miles 6/12/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1dqmq9c98f.md)
+[@longwood 6/11/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1dqeup2733.md)
 
-6/11/2022 Miles Guo's GETTR: The CCP is very clear that if it doesn’t fight a war against the US, Taiwan and Japan, civil wars will break out in Communist China and the CCP will be wiped out; the 2nd June 4th anniversary has showed...
+大根谭-小新忙六四
 
-<img src="https://media.gettr.com/group12/getter/2022/06/11/23/950fe1d0-7bb3-246e-8dde-310aeec0e75f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/06/11/22/e18ad4f0-076e-7a20-d0ba-72a29e2dfbe3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,22 +163,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 2022.06.11 NFSC news　日本語ニュース　　米、中国に対して新たに法律条例新規制定
 
 <img src="https://media.gettr.com/group46/origin/2022/06/11/11/b0ade3ae-b299-0a40-64da-df68fd537c1c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 9:27 AM UTC  - :tv:直播](/content/gettr/p1do9w7b104.md)
-
-6/10/2022 Miles Guo: I will tell all the fellow fighters about the antidote to the COVID and its vaccines immediately after they are released, and I won't just tell any single person. The antidote won't be prescription drugs, but i...
-
-<img src="https://media.gettr.com/group20/getter/2022/06/11/09/a7f1451d-615f-18d0-0eb9-f0ddb11a81d4/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 6:26 AM UTC  - :tv:直播](/content/gettr/p1dnsa57e04.md)
-
-6/10/2022 Miles Guo: The political infightings of CCP have been intensifying before the 20th Party Congress. A certain Vice Premier of the CCP attempted to have someone contact me to win the New Federal State of China over to his s...
-
-<img src="https://media.gettr.com/group44/getter/2022/06/11/06/98107b82-4133-6b29-fb83-713c32b41d12/out.jpg" width="506" height="284">
 
 ---
 
