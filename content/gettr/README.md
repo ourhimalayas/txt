@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 6/12/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1dv2kqc3d4.md)
+
+2022.06.12 PM NFSC News   Chinese People Deserve To Enjoy Their Hard-Earned
+
+<img src="https://media.gettr.com/group43/origin/2022/06/12/22/4775f242-d314-0c0f-723f-28224a12c008/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1dv3cj0d9f.md)
+
+6/12/2022 Miles Guo: The US dollar will encounter big problems! First, the US dollar can't stop the advent of the era of digital currencies. Secondly, because of the inevitable hard landing due to over printing currency and inflati...
+
+<img src="https://media.gettr.com/group20/getter/2022/06/12/23/8b49cd1f-c7ee-9138-f801-d2f7dcd101f0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1duvjzb5ef.md)
+
+飞飞秀 六四篇 《文宝老奶奶谈时尚》2022-06-12
+
+For English：gettr.com/streaming/p1dv8t49aed
+
+<img src="https://media.gettr.com/group30/origin/2022/06/12/22/d3c7e944-a68c-5f99-4900-9c883c24101f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1dus7m2090.md)
 
 2022.06.12  新中国联邦 | 喜健康   文紫医生文恩博士参加64庆典感想；香草山医疗组CCP病毒解毒方案
@@ -50,13 +76,11 @@
 
 ---
 
-[@miles 6/12/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1duvjzb5ef.md)
+[@miles 6/12/2022 11:08 PM UTC  - :tv:直播](/content/gettr/p1duxcd7800.md)
 
-飞飞秀 六四篇 《文宝老奶奶谈时尚》2022-06-12
+6/12/2022 Miles Guo: According to my judgement, if Xi Jinping doesn't get any smarter, he will still invade Taiwan. His strategy for invasion is most likely a long-term blockade in order to drag down the economies of Taiwan, the U....
 
-For English：gettr.com/streaming/p1dv8t49aed
-
-<img src="https://media.gettr.com/group30/origin/2022/06/12/22/d3c7e944-a68c-5f99-4900-9c883c24101f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/06/12/23/202d9a29-1d08-d5ab-d030-ba5c40f5b0da/out.jpg" width="506" height="284">
 
 ---
 
@@ -129,38 +153,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/10/2022 Miles Guo: Changpeng Zhao runs Binance without license and has been committing crimes and colluding with the CCP! How many Chinese people have opened accounts in Binance? What is the relationship between Changpeng Zhao an...
 
 <img src="https://media.gettr.com/group25/getter/2022/06/12/01/67543639-4d8d-f141-e1be-64457ea98e8e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 12:49 AM UTC  - :tv:直播](/content/gettr/p1drein6d45.md)
-
-6/10/2022 Miles Guo: Certain funds in some countries want to buy the Himalaya Coins and guarantee not to sell them in 10 years, and they only need the loans of Himalaya Coins to circulate in their countries. Maintaining the price s...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/12/00/580b74f3-1d0c-d733-32fe-4500a45a0ebe/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1drh4yf0d5.md)
-
-2022.06.11  晚  新中国联邦 | 新闻  美欧即将制裁中共经济 并推行国家合作稳定币  美国将取消对国外入境人员的中共病毒测试要求 纽约监管机构发布美元支持的稳定币指南
-
-<img src="https://media.gettr.com/group5/origin/2022/06/12/00/baad5ee1-2b24-8fe9-ea5e-8690061e579f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 12:15 AM UTC  - :tv:直播](/content/gettr/p1dqufpec6d.md)
-
-6/10/2022 Miles Guo: A vice-premier of Communist China asked someone to bring his messages to me that the country would probably take the route that I am happy to see. They want me to let them work with the Himalaya Reserve as they...
-
-<img src="https://media.gettr.com/group15/getter/2022/06/12/00/098a47a5-03ed-fb84-771f-704bb039f028/out.jpg" width="506" height="284">
-
----
-
-[@longwood 6/11/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1dqeup2733.md)
-
-大根谭-小新忙六四
-
-<img src="https://media.gettr.com/group8/origin/2022/06/11/22/e18ad4f0-076e-7a20-d0ba-72a29e2dfbe3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
