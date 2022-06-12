@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/12/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1dtgjb8a2f.md)
+
+2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
+
+<img src="https://media.gettr.com/group16/origin/2022/06/12/12/a201d29d-87bf-8f99-1eb4-311fb5f494a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@globalalliance 6/12/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1dsqbk67b9.md)
 
 2022.06.12 新中国联邦 | 喜财经 第76期  躺平币怎么套现？躺平币会成为稳定币吗？第二次量子科技革命  
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/12/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1dtgjb8a2f.md)
+[@miles 6/12/2022 12:45 PM UTC  - :tv:直播](/content/gettr/p1dsujld5f6.md)
 
 2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
 
-<img src="https://media.gettr.com/group16/origin/2022/06/12/12/a201d29d-87bf-8f99-1eb4-311fb5f494a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/06/12/12/dfd90160-9977-0590-8801-f5aef68ca800/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,16 +159,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 2022.06.11 PM NFSC News   European Parliament Bans Forced Labor Products
 
 <img src="https://media.gettr.com/group29/origin/2022/03/26/22/3caa8837-d942-048b-4983-4e6f5f7bf2e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/11/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1dqajedf28.md)
-
-飞飞秀 六四篇 《小王子聊幕后》 2022-06-11
-
-For English：gettr.com/streaming/p1dqteubef8
-
-<img src="https://media.gettr.com/group23/origin/2022/06/11/22/04614c3b-3206-769f-23a8-9d561c7b86bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
