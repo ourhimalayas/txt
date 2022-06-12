@@ -10,6 +10,20 @@
 
 ---
 
+[@miles 6/12/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1dtgjb8a2f.md)
+
+2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
+
+<img src="https://media.gettr.com/group16/origin/2022/06/12/12/a201d29d-87bf-8f99-1eb4-311fb5f494a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 11:38 AM UTC ](/content/gettr/p1dto3baa39.md)
+
+【NFSC 2nd Anniversary】6/4/2022 Nicole's interview with Peter Navarro: Fauci gave the CCP the gain-of-Function technology that enabled it to weaponize the CCP virus, which is the main culprit for the current stagflation in the US. T...
+
+---
+
 [@miles 6/12/2022 10:40 AM UTC ](/content/gettr/p1dtffi4f53.md)
 
 https://gettr.com/post/p1dsqbk67b9
@@ -39,12 +53,6 @@ On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with 
 2022-6-11《鸡血王喜币大作战》 第二百二十三集 嘉宾：卡丽熙、Happy
 
 <img src="https://media.gettr.com/group6/origin/2022/04/05/02/0ebbc740-9c41-1d07-722d-4cceb60a1bbf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 11:38 AM UTC ](/content/gettr/p1dto3baa39.md)
-
-【NFSC 2nd Anniversary】6/4/2022 Nicole's interview with Peter Navarro: Fauci gave the CCP the gain-of-Function technology that enabled it to weaponize the CCP virus, which is the main culprit for the current stagflation in the US. T...
 
 ---
 
@@ -153,14 +161,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 For English：gettr.com/streaming/p1dqteubef8
 
 <img src="https://media.gettr.com/group23/origin/2022/06/11/22/04614c3b-3206-769f-23a8-9d561c7b86bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1dqltudcff.md)
-
-2022.06.11  新中国联邦 | 喜健康   文恩博士专访：六四的真正含义
-
-<img src="https://media.gettr.com/group39/origin/2022/06/11/20/c69435ee-982d-41aa-814f-0e3e72d670dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
