@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/12/2022 3:15 AM UTC ](/content/gettr/p1drlhq9592.md)
+
+The European Parliament ‘s plenary adopted the report "The EU and Security Challenges in the Indo-Pacific Region"
+
+On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with the Chinese Communist Party (CCP), e...
+
+<img src="https://media.gettr.com/group10/origin/2022/06/12/03/f68e72a6-6da0-cad2-4002-ae3b3495b358/b49751d838986a6d77196843a071e2ea.png" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1drlviadd4.md)
 
 2022-6-11《鸡血王喜币大作战》 第二百二十三集 嘉宾：卡丽熙、Happy
@@ -10,13 +20,11 @@
 
 ---
 
-[@miles 6/12/2022 3:15 AM UTC ](/content/gettr/p1drlhq9592.md)
+[@miles 6/12/2022 9:47 AM UTC  - :tv:直播](/content/gettr/p1ds86l09c4.md)
 
-The European Parliament ‘s plenary adopted the report "The EU and Security Challenges in the Indo-Pacific Region"
+《焦点》86期：老班长与战友们分享64国庆纽约之行，我们都是新中国联邦人！
 
-On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with the Chinese Communist Party (CCP), e...
-
-<img src="https://media.gettr.com/group10/origin/2022/06/12/03/f68e72a6-6da0-cad2-4002-ae3b3495b358/b49751d838986a6d77196843a071e2ea.png" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/06/12/09/18d42142-4562-16d6-edaa-1a89fc289aff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English：gettr.com/streaming/p1dqteubef8
 2022.06.11  文贵大直播精华版
 
 <img src="https://media.gettr.com/group42/origin/2022/06/11/17/1473dedf-a651-4def-b6d4-b50013cf72bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 4:04 PM UTC  - :tv:直播](/content/gettr/p1dppy85030.md)
-
-6/10/2022 Miles Guo: This year's celebration of the New Federal State of China is completely different from last year's, and all countries are now looking at us with new eyes. Attending the 2nd anniversary of the NFSC despite the d...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/11/16/e7040f72-d7c6-f54c-c59a-abafda019e0d/out.jpg" width="506" height="284">
 
 ---
 
