@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/12/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1drdr47db7.md)
+
+2022.06.11  晚  新中国联邦 | 新闻访谈  白宫即将宣布取消入境美国须出示新冠检测阴性结果的规定    美国共和党和民主党参议员推出加密货币框架
+
+<img src="https://media.gettr.com/group28/origin/2022/06/12/00/c8053a54-96dd-788a-30a6-dd3ef8505799/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 12:49 AM UTC  - :tv:直播](/content/gettr/p1drein6d45.md)
+
+6/10/2022 Miles Guo: Certain funds in some countries want to buy the Himalaya Coins and guarantee not to sell them in 10 years, and they only need the loans of Himalaya Coins to circulate in their countries. Maintaining the price s...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/12/00/580b74f3-1d0c-d733-32fe-4500a45a0ebe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1drh4yf0d5.md)
 
 2022.06.11  晚  新中国联邦 | 新闻  美欧即将制裁中共经济 并推行国家合作稳定币  美国将取消对国外入境人员的中共病毒测试要求 纽约监管机构发布美元支持的稳定币指南
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 6/12/2022 12:49 AM UTC  - :tv:直播](/content/gettr/p1drein6d45.md)
+[@miles 6/12/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dr6qd5008.md)
 
-6/10/2022 Miles Guo: Certain funds in some countries want to buy the Himalaya Coins and guarantee not to sell them in 10 years, and they only need the loans of Himalaya Coins to circulate in their countries. Maintaining the price s...
+6/10/2022 Miles Guo: Changpeng Zhao runs Binance without license and has been committing crimes and colluding with the CCP! How many Chinese people have opened accounts in Binance? What is the relationship between Changpeng Zhao an...
 
-<img src="https://media.gettr.com/group38/getter/2022/06/12/00/580b74f3-1d0c-d733-32fe-4500a45a0ebe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/06/12/01/67543639-4d8d-f141-e1be-64457ea98e8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,24 +161,6 @@ For English：gettr.com/streaming/p1dqteubef8
 2022.06.11 早 新中国联邦 | 新闻访谈 #郝海东 #叶钊颖 - 灭共伉俪谈 #新中国联邦两周年庆典 ！
 
 <img src="https://media.gettr.com/group20/origin/2022/06/02/13/69942b88-d5fd-0c85-cf44-2a4e64262c3a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/11/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p1dozvy9674.md)
-
-2022.06.11  早 新中国联邦 | 新闻  中共借疫苗清除人口趁机敛财；数字货币是人类史上最大变革之一
-
-<img src="https://media.gettr.com/group45/origin/2022/06/11/12/158634ed-8621-dd80-81cd-635a93d6aa6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 12:21 PM UTC ](/content/gettr/p1dowega4b9.md)
-
-The 20th National Congress of the Chinese Communist Party (CCP) is the final battle 
-
-On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of the CCP is a gift from God. He does not believe it will be held and...
-
-<img src="https://media.gettr.com/group25/origin/2022/06/11/12/3b1aca87-11b3-28e0-d501-3ba165fe933d/f8a28242a2ffaa7eb8f07c7c36750a7f.png" width="506" height="284">
 
 ---
 
