@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/11/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1dr60udfca.md)
+
+2022.06.11 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group25/origin/2022/06/11/23/b725039f-9e8b-efb2-325a-46e7a63c9c14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/11/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1dqryf8814.md)
 
 2022.06.11 PM NFSC News   European Parliament Bans Forced Labor Products
@@ -52,11 +60,11 @@ For English：gettr.com/streaming/p1dqteubef8
 
 ---
 
-[@miles 6/11/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1dr60udfca.md)
+[@miles 6/11/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1dr1da8140.md)
 
-2022.06.11 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+6/11/2022 Miles Guo’s GETTR: The CCP’s meeting with the US secretary of Defense shocked the entire world! Americans finally realize that the CCP has done all the preparations to fight a war against the US; Europeans also wake up an...
 
-<img src="https://media.gettr.com/group25/origin/2022/06/11/23/b725039f-9e8b-efb2-325a-46e7a63c9c14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/06/11/23/cee64021-4ad3-50ae-4290-570074a99b67/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/10/2022 Miles Guo: Why did the CCP smear me as "the impotent Guo"? Why did the CCP say to me and all the CCP cadres that lost power that they would "break your family apart and let your friends and family members desert you"? Bec...
 
 <img src="https://media.gettr.com/group18/getter/2022/06/11/04/8deb0dd0-f25d-2c28-4957-13c12eadf6eb/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1dmymada83.md)
-
-2022-6-10《鸡血王喜币大作战》 第二百二十二集 嘉宾：文空、风雨之中
-
-<img src="https://media.gettr.com/group15/origin/2022/06/02/02/6db6d10f-0bc8-176a-eeae-5f5c5dff0145/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
