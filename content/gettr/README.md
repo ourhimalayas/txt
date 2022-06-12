@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/12/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1drh4yf0d5.md)
+
+2022.06.11  晚  新中国联邦 | 新闻  美欧即将制裁中共经济 并推行国家合作稳定币  美国将取消对国外入境人员的中共病毒测试要求 纽约监管机构发布美元支持的稳定币指南
+
+<img src="https://media.gettr.com/group5/origin/2022/06/12/00/baad5ee1-2b24-8fe9-ea5e-8690061e579f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 12:15 AM UTC  - :tv:直播](/content/gettr/p1dqufpec6d.md)
 
 6/10/2022 Miles Guo: A vice-premier of Communist China asked someone to bring his messages to me that the country would probably take the route that I am happy to see. They want me to let them work with the Himalaya Reserve as they...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/12/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1drh4yf0d5.md)
+[@miles 6/12/2022 12:49 AM UTC  - :tv:直播](/content/gettr/p1drein6d45.md)
 
-2022.06.11  晚  新中国联邦 | 新闻  美欧即将制裁中共经济 并推行国家合作稳定币  美国将取消对国外入境人员的中共病毒测试要求 纽约监管机构发布美元支持的稳定币指南
+6/10/2022 Miles Guo: Certain funds in some countries want to buy the Himalaya Coins and guarantee not to sell them in 10 years, and they only need the loans of Himalaya Coins to circulate in their countries. Maintaining the price s...
 
-<img src="https://media.gettr.com/group5/origin/2022/06/12/00/baad5ee1-2b24-8fe9-ea5e-8690061e579f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/06/12/00/580b74f3-1d0c-d733-32fe-4500a45a0ebe/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ The 20th National Congress of the Chinese Communist Party (CCP) is the final bat
 On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of the CCP is a gift from God. He does not believe it will be held and...
 
 <img src="https://media.gettr.com/group25/origin/2022/06/11/12/3b1aca87-11b3-28e0-d501-3ba165fe933d/f8a28242a2ffaa7eb8f07c7c36750a7f.png" width="506" height="284">
-
----
-
-[@miles 6/11/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1dpaog1d00.md)
-
-2022.06.11  AM NFSC news  Doctors Sue FDA for “Unlawful Interference” of Ivermectin
-
-<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
