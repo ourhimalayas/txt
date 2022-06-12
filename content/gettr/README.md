@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/12/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1dus7m2090.md)
+
+2022.06.12  新中国联邦 | 喜健康   文紫医生文恩博士参加64庆典感想；香草山医疗组CCP病毒解毒方案
+
+<img src="https://media.gettr.com/group27/origin/2022/06/12/20/e45755ce-e4e0-249d-f2de-5c08e32379d9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1dtxbddfcf.md)
 
 2022-6-12「深蓝的爱💙」——爱海洋🌊，就是爱我们自己 #小小尼莫音乐会 🎼第十五期，海是鱼儿和珊瑚的家🐠，是小小尼莫们的梦想和舞台🥁，保护海洋，让她永远清澈美丽✨
@@ -42,11 +50,13 @@
 
 ---
 
-[@miles 6/12/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1dus7m2090.md)
+[@miles 6/12/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1duvjzb5ef.md)
 
-2022.06.12  新中国联邦 | 喜健康   文紫医生文恩博士参加64庆典感想；香草山医疗组CCP病毒解毒方案
+飞飞秀 六四篇 《文宝老奶奶谈时尚》2022-06-12
 
-<img src="https://media.gettr.com/group27/origin/2022/06/12/20/e45755ce-e4e0-249d-f2de-5c08e32379d9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1dv8t49aed
+
+<img src="https://media.gettr.com/group30/origin/2022/06/12/22/d3c7e944-a68c-5f99-4900-9c883c24101f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +161,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 大根谭-小新忙六四
 
 <img src="https://media.gettr.com/group8/origin/2022/06/11/22/e18ad4f0-076e-7a20-d0ba-72a29e2dfbe3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1dqmq9c98f.md)
-
-6/11/2022 Miles Guo's GETTR: The CCP is very clear that if it doesn’t fight a war against the US, Taiwan and Japan, civil wars will break out in Communist China and the CCP will be wiped out; the 2nd June 4th anniversary has showed...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/11/23/950fe1d0-7bb3-246e-8dde-310aeec0e75f/out.jpg" width="506" height="284">
 
 ---
 
