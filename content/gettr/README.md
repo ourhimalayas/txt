@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/12/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1drt3q5337.md)
+
+2022.06.011  新中国联邦 | 喜财经  第76期  数字货币专栏：美国参议院推出里程碑式数字货币法案 币安七宗罪被曝光
+
+<img src="https://media.gettr.com/group27/origin/2022/06/12/01/7a652bf9-b762-1ce1-bf40-c1803ba8ceb4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dr6qd5008.md)
+
+6/10/2022 Miles Guo: Changpeng Zhao runs Binance without license and has been committing crimes and colluding with the CCP! How many Chinese people have opened accounts in Binance? What is the relationship between Changpeng Zhao an...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/12/01/67543639-4d8d-f141-e1be-64457ea98e8e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 12:49 AM UTC  - :tv:直播](/content/gettr/p1drein6d45.md)
 
 6/10/2022 Miles Guo: Certain funds in some countries want to buy the Himalaya Coins and guarantee not to sell them in 10 years, and they only need the loans of Himalaya Coins to circulate in their countries. Maintaining the price s...
@@ -31,14 +47,6 @@
 6/10/2022 Miles Guo: A vice-premier of Communist China asked someone to bring his messages to me that the country would probably take the route that I am happy to see. They want me to let them work with the Himalaya Reserve as they...
 
 <img src="https://media.gettr.com/group15/getter/2022/06/12/00/098a47a5-03ed-fb84-771f-704bb039f028/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dr6qd5008.md)
-
-6/10/2022 Miles Guo: Changpeng Zhao runs Binance without license and has been committing crimes and colluding with the CCP! How many Chinese people have opened accounts in Binance? What is the relationship between Changpeng Zhao an...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/12/01/67543639-4d8d-f141-e1be-64457ea98e8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English：gettr.com/streaming/p1dqteubef8
  6月11号：尊敬的战友们好……今天是个大好的日子，上天正在帮助我们．以最快的速度．消灭邪恶的中国共产党……实现我们的中新中国联邦……珍惜……吧，兄弟姐妹们！
 
 <img src="https://media.gettr.com/group41/getter/2022/06/11/13/a4da7dc9-2368-1c3b-595a-eeeb6a404083/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1dp27gbead.md)
-
-2022.06.11 早 新中国联邦 | 新闻访谈 #郝海东 #叶钊颖 - 灭共伉俪谈 #新中国联邦两周年庆典 ！
-
-<img src="https://media.gettr.com/group20/origin/2022/06/02/13/69942b88-d5fd-0c85-cf44-2a4e64262c3a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
