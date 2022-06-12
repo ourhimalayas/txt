@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/12/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1dtxbddfcf.md)
+
+2022-6-12「深蓝的爱💙」——爱海洋🌊，就是爱我们自己 #小小尼莫音乐会 🎼第十五期，海是鱼儿和珊瑚的家🐠，是小小尼莫们的梦想和舞台🥁，保护海洋，让她永远清澈美丽✨
+
+<img src="https://media.gettr.com/group13/origin/2022/06/12/18/7b1a94bb-70cd-2cda-bf0a-1f975ff0c7a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 3:47 PM UTC  - 2圖](/content/gettr/p1du3795dc5.md)
 
 6月12号：尊敬的战友们好……很多战友发信息询问．G FASHION 网站上，为什么没有以下佛系．青蒿素糸列的信息了……原因是．这些特别的产品．只共G Club会员购买，所以非club会员的去查询是看不见的，这就是G Club员的专享利益！
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 6/12/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1dtxbddfcf.md)
+[@miles 6/12/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1dus7m2090.md)
 
-2022-6-12「深蓝的爱💙」——爱海洋🌊，就是爱我们自己 #小小尼莫音乐会 🎼第十五期，海是鱼儿和珊瑚的家🐠，是小小尼莫们的梦想和舞台🥁，保护海洋，让她永远清澈美丽✨
+2022.06.12  新中国联邦 | 喜健康   文紫医生文恩博士参加64庆典感想；香草山医疗组CCP病毒解毒方案
 
-<img src="https://media.gettr.com/group13/origin/2022/06/12/18/7b1a94bb-70cd-2cda-bf0a-1f975ff0c7a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/12/20/e45755ce-e4e0-249d-f2de-5c08e32379d9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 6/11/2022 Miles Guo's GETTR: The CCP is very clear that if it doesn’t fight a war against the US, Taiwan and Japan, civil wars will break out in Communist China and the CCP will be wiped out; the 2nd June 4th anniversary has showed...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/11/23/950fe1d0-7bb3-246e-8dde-310aeec0e75f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1dr1da8140.md)
-
-6/11/2022 Miles Guo’s GETTR: The CCP’s meeting with the US secretary of Defense shocked the entire world! Americans finally realize that the CCP has done all the preparations to fight a war against the US; Europeans also wake up an...
-
-<img src="https://media.gettr.com/group13/getter/2022/06/11/23/cee64021-4ad3-50ae-4290-570074a99b67/out.jpg" width="506" height="284">
 
 ---
 
