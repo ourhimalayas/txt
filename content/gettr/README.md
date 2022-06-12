@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/12/2022 12:45 PM UTC  - :tv:直播](/content/gettr/p1dsujld5f6.md)
+
+2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
+
+<img src="https://media.gettr.com/group39/origin/2022/06/12/12/dfd90160-9977-0590-8801-f5aef68ca800/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1dtgjb8a2f.md)
 
 2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/12/2022 12:45 PM UTC  - :tv:直播](/content/gettr/p1dsujld5f6.md)
+[@miles 6/12/2022 3:47 PM UTC  - 2圖](/content/gettr/p1du3795dc5.md)
 
-2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
+6月12号：尊敬的战友们好……很多战友发信息询问．G FASHION 网站上，为什么没有以下佛系．青蒿素糸列的信息了……原因是．这些特别的产品．只共G Club会员购买，所以非club会员的去查询是看不见的，这就是G Club员的专享利益！
 
-<img src="https://media.gettr.com/group39/origin/2022/06/12/12/dfd90160-9977-0590-8801-f5aef68ca800/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/06/12/15/98595414-a360-5784-9e2a-94a669703b1e/346e360630287ac9c8116e8c42c7ca55.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 2022.06.11 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group25/origin/2022/06/11/23/b725039f-9e8b-efb2-325a-46e7a63c9c14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1dqryf8814.md)
-
-2022.06.11 PM NFSC News   European Parliament Bans Forced Labor Products
-
-<img src="https://media.gettr.com/group29/origin/2022/03/26/22/3caa8837-d942-048b-4983-4e6f5f7bf2e8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
