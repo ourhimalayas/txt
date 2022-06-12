@@ -2,6 +2,20 @@
 ---
 
 
+[@globalalliance 6/12/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1dsqbk67b9.md)
+
+2022.06.12 新中国联邦 | 喜财经 第76期  躺平币怎么套现？躺平币会成为稳定币吗？第二次量子科技革命  
+
+<img src="https://media.gettr.com/group6/origin/2022/06/12/09/c678efdb-a587-9400-fcfb-2550a6fa59a1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 10:40 AM UTC ](/content/gettr/p1dtffi4f53.md)
+
+https://gettr.com/post/p1dsqbk67b9
+
+---
+
 [@miles 6/12/2022 9:47 AM UTC  - :tv:直播](/content/gettr/p1ds86l09c4.md)
 
 《焦点》86期：老班长与战友们分享64国庆纽约之行，我们都是新中国联邦人！
@@ -28,9 +42,9 @@ On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with 
 
 ---
 
-[@miles 6/12/2022 10:40 AM UTC ](/content/gettr/p1dtffi4f53.md)
+[@miles 6/12/2022 11:38 AM UTC ](/content/gettr/p1dto3baa39.md)
 
-https://gettr.com/post/p1dsqbk67b9
+【NFSC 2nd Anniversary】6/4/2022 Nicole's interview with Peter Navarro: Fauci gave the CCP the gain-of-Function technology that enabled it to weaponize the CCP virus, which is the main culprit for the current stagflation in the US. T...
 
 ---
 
@@ -147,22 +161,6 @@ For English：gettr.com/streaming/p1dqteubef8
 2022.06.11  新中国联邦 | 喜健康   文恩博士专访：六四的真正含义
 
 <img src="https://media.gettr.com/group39/origin/2022/06/11/20/c69435ee-982d-41aa-814f-0e3e72d670dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 8:12 PM UTC  - :tv:直播](/content/gettr/p1dqtok915f.md)
-
-2022-6-11《避风港》(58) 疫苗灾难导致赔偿计划不堪重负
-
-<img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 7:28 PM UTC  - :tv:直播](/content/gettr/p1dqas6a2fe.md)
-
-2022-6-11《避风港》(58) 疫苗灾难导致赔偿计划不堪重负
-
-<img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
