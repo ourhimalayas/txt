@@ -10,6 +10,26 @@
 
 ---
 
+[@miles 6/12/2022 3:15 AM UTC ](/content/gettr/p1drlhq9592.md)
+
+The European Parliament ‘s plenary adopted the report "The EU and Security Challenges in the Indo-Pacific Region"
+
+On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with the Chinese Communist Party (CCP), e...
+
+<img src="https://media.gettr.com/group10/origin/2022/06/12/03/f68e72a6-6da0-cad2-4002-ae3b3495b358/b49751d838986a6d77196843a071e2ea.png" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 3:13 AM UTC ](/content/gettr/p1drufg496a.md)
+
+The 20th National Congress of the Chinese Communist Party (CCP) is the final battle 
+
+On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of the CCP is a gift from God. He does not believe it will be held and...
+
+<img src="https://media.gettr.com/group26/origin/2022/06/12/03/7bdac9e2-f109-58bc-7997-4f5cbbdfd413/43c13d8506b9c93bac8456370530b692.png" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1drt3q5337.md)
 
 2022.06.011  新中国联邦 | 喜财经  第76期  数字货币专栏：美国参议院推出里程碑式数字货币法案 币安七宗罪被曝光
@@ -23,16 +43,6 @@
 2022.06.11  晚  新中国联邦 | 新闻访谈  白宫即将宣布取消入境美国须出示新冠检测阴性结果的规定    美国共和党和民主党参议员推出加密货币框架
 
 <img src="https://media.gettr.com/group28/origin/2022/06/12/00/c8053a54-96dd-788a-30a6-dd3ef8505799/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/12/2022 3:13 AM UTC ](/content/gettr/p1drufg496a.md)
-
-The 20th National Congress of the Chinese Communist Party (CCP) is the final battle 
-
-On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of the CCP is a gift from God. He does not believe it will be held and...
-
-<img src="https://media.gettr.com/group26/origin/2022/06/12/03/7bdac9e2-f109-58bc-7997-4f5cbbdfd413/43c13d8506b9c93bac8456370530b692.png" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ For English：gettr.com/streaming/p1dqteubef8
 6/10/2022 Miles Guo: This year's celebration of the New Federal State of China is completely different from last year's, and all countries are now looking at us with new eyes. Attending the 2nd anniversary of the NFSC despite the d...
 
 <img src="https://media.gettr.com/group22/getter/2022/06/11/16/e7040f72-d7c6-f54c-c59a-abafda019e0d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/11/2022 3:30 PM UTC  - :tv:直播](/content/gettr/p1dpeu6c256.md)
-
-6/10/2022 Miles Guo: The celebration of the 2nd anniversary of the New Federal State of China on June 4th is so significant! Unlike the Chinese Communist Party, which brutally massacres and brainwashes its people, the NFSC is worki...
-
-<img src="https://media.gettr.com/group28/getter/2022/06/11/15/5b338e78-bf24-747c-82c2-8bd0902f76ce/out.jpg" width="506" height="284">
 
 ---
 
