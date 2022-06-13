@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1dy20o129d.md)
+
+6月13号：尊敬的战友们好．从五月份以来的世界经济．和金融市场的走势．完全按照我们过去几年的所有的判断．和基于情报的准确性，完全已经证实了共产党．对这个世界经济的超限战已经打响了！但愿有更多人的醒来吧，由于我将去某个山区去去见人开会．所以．从今天起．7哥将在23号以前没有任何直播，不会发任何视频和盖文。一切都以经开始！
+
+<img src="https://media.gettr.com/group13/getter/2022/06/13/14/165fb4f5-a833-869c-3a3e-a83a20f81ae1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p1dxj5l042e.md)
 
 22.06.13 早   新中国联邦 | 新闻访谈   数字货币再遭暴击！比特币跌超13%跌破24000美元，泽连斯基吁国际社会在中国动武前助台湾抵御侵略
@@ -90,11 +98,11 @@
 
 ---
 
-[@miles 6/13/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1dy20o129d.md)
+[@miles 6/13/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1dyf88483c.md)
 
-6月13号：尊敬的战友们好．从五月份以来的世界经济．和金融市场的走势．完全按照我们过去几年的所有的判断．和基于情报的准确性，完全已经证实了共产党．对这个世界经济的超限战已经打响了！但愿有更多人的醒来吧，由于我将去某个山区去去见人开会．所以．从今天起．7哥将在23号以前没有任何直播，不会发任何视频和盖文。一切都以经开始！
+6/12/2022 Miles Guo: The Chinese Communist Party has infiltrated the U.S. to an extent beyond your imagination, and now there are still people lobbying for the CCP! The traitors to the U.S. may be able to accomplish some small thin...
 
-<img src="https://media.gettr.com/group13/getter/2022/06/13/14/165fb4f5-a833-869c-3a3e-a83a20f81ae1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/06/13/15/85aab4bf-d748-1dac-82ab-3c258a8427c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@
 For English：gettr.com/streaming/p1dv8t49aed
 
 <img src="https://media.gettr.com/group30/origin/2022/06/12/22/d3c7e944-a68c-5f99-4900-9c883c24101f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1dus7m2090.md)
-
-2022.06.12  新中国联邦 | 喜健康   文紫医生文恩博士参加64庆典感想；香草山医疗组CCP病毒解毒方案
-
-<img src="https://media.gettr.com/group27/origin/2022/06/12/20/e45755ce-e4e0-249d-f2de-5c08e32379d9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
