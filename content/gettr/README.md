@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1dvepb2ab0.md)
+
+2022.06.12 农场联盟工作汇报
+
+<img src="https://media.gettr.com/group16/origin/2022/05/23/01/fda314b0-a11f-ac09-37d7-7bd6e1504365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dvsgm1172.md)
 
 2022.06.12 晚 新中国联邦 | 新闻访谈. 日本进驻台湾，俄军前车之鉴，中共尚能战否？
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/13/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1dvepb2ab0.md)
+[@miles 6/13/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1dvn680bc6.md)
 
-2022.06.12 农场联盟工作汇报
+2022-6-12《鸡血王喜币大作战》 第二百二十四集 嘉宾：封神榜、七里香
 
-<img src="https://media.gettr.com/group16/origin/2022/05/23/01/fda314b0-a11f-ac09-37d7-7bd6e1504365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,16 +149,6 @@ https://gettr.com/post/p1dsqbk67b9
 《焦点》86期：老班长与战友们分享64国庆纽约之行，我们都是新中国联邦人！
 
 <img src="https://media.gettr.com/group15/origin/2022/06/12/09/18d42142-4562-16d6-edaa-1a89fc289aff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 3:15 AM UTC ](/content/gettr/p1drlhq9592.md)
-
-The European Parliament ‘s plenary adopted the report "The EU and Security Challenges in the Indo-Pacific Region"
-
-On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with the Chinese Communist Party (CCP), e...
-
-<img src="https://media.gettr.com/group10/origin/2022/06/12/03/f68e72a6-6da0-cad2-4002-ae3b3495b358/b49751d838986a6d77196843a071e2ea.png" width="506" height="284">
 
 ---
 
