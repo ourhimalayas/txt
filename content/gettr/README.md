@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1dvn680bc6.md)
+
+2022-6-12《鸡血王喜币大作战》 第二百二十四集 嘉宾：封神榜、七里香
+
+<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1dvepb2ab0.md)
 
 2022.06.12 农场联盟工作汇报
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/13/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1dvn680bc6.md)
+[@miles 6/13/2022 3:55 AM UTC  - :tv:直播](/content/gettr/p1dw47z1eb8.md)
 
-2022-6-12《鸡血王喜币大作战》 第二百二十四集 嘉宾：封神榜、七里香
+6/12/2022 Miles Guo: The CCP's army is all about bluffing, and it has no capability of going to war against other countries. With desperate begging, the CCP was able to initiate the meeting between the U.S. and Chinese defense mini...
 
-<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/06/13/03/55fdc8d3-13d7-8c99-ad89-397ab57517c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,14 +149,6 @@ For English：gettr.com/streaming/p1dv8t49aed
 [@miles 6/12/2022 10:40 AM UTC ](/content/gettr/p1dtffi4f53.md)
 
 https://gettr.com/post/p1dsqbk67b9
-
----
-
-[@miles 6/12/2022 9:47 AM UTC  - :tv:直播](/content/gettr/p1ds86l09c4.md)
-
-《焦点》86期：老班长与战友们分享64国庆纽约之行，我们都是新中国联邦人！
-
-<img src="https://media.gettr.com/group15/origin/2022/06/12/09/18d42142-4562-16d6-edaa-1a89fc289aff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
