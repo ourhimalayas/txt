@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1dycxyac1a.md)
+
+2022年6月13日 文贵大直播精华版
+
+<img src="https://media.gettr.com/group7/origin/2022/06/13/17/62fda4c3-da23-ae14-6652-7285818bbd21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 4:04 PM UTC  - :tv:直播](/content/gettr/p1dymeg9886.md)
 
 6/12/2022 Miles Guo: Binance only got a provisional test license from Dubai, so all the transactions conducted on its platform are illegal; Singapore did not issue financial license to American companies which applied first, but in...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/13/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1dycxyac1a.md)
+[@miles 6/13/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1dzlakd61e.md)
 
-2022年6月13日 文贵大直播精华版
+2022年6月13日 新中国联邦 | 喜健康 《正道医疗》: 读罗素·布雷洛克博士《冠状病毒的真相》（一）
 
-<img src="https://media.gettr.com/group7/origin/2022/06/13/17/62fda4c3-da23-ae14-6652-7285818bbd21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/06/13/20/acd79fce-19c6-7df5-07b2-dcf46543f04e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@
 6/12/2022 Miles Guo: The whole world has realized that nobody will survive if the CCP is not taken down. The CCP will destroy the world by using all kinds of unrestricted warfare. I, Miles Guo, is the only person who understands th...
 
 <img src="https://media.gettr.com/group49/getter/2022/06/13/00/bbf789af-0e64-d13c-4617-edb83beb26ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1dv3cj0d9f.md)
-
-6/12/2022 Miles Guo: The US dollar will encounter big problems! First, the US dollar can't stop the advent of the era of digital currencies. Secondly, because of the inevitable hard landing due to over printing currency and inflati...
-
-<img src="https://media.gettr.com/group20/getter/2022/06/12/23/8b49cd1f-c7ee-9138-f801-d2f7dcd101f0/out.jpg" width="506" height="284">
 
 ---
 
