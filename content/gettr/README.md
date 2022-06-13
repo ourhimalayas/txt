@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/13/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1dzjuzde30.md)
+
+飞飞秀 六四篇 《如水 一尘 谈六四》2022-06-13
+
+For English：gettr.com/streaming/p1dztg95b9a
+
+<img src="https://media.gettr.com/group36/origin/2022/06/13/22/cbd7454c-086c-75ee-bd05-e8dc4265e77f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1dzggk098d.md)
 
 The New Federal State of  China humanitarian aids arrived in Ukraine. 
@@ -38,13 +48,11 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 
 ---
 
-[@miles 6/13/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1dzjuzde30.md)
+[@miles 6/13/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1dztec9e19.md)
 
-飞飞秀 六四篇 《如水 一尘 谈六四》2022-06-13
+2022.06.13 PM NFSC News   Self-Motivated is the Only Way to Achieve the Goal of Himalaya
 
-For English：gettr.com/streaming/p1dztg95b9a
-
-<img src="https://media.gettr.com/group36/origin/2022/06/13/22/cbd7454c-086c-75ee-bd05-e8dc4265e77f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/06/13/22/282f4b46-ee41-6b49-3bba-4f292dbde15f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ For English：gettr.com/streaming/p1dztg95b9a
 2022.06.12 晚 新中国联邦 | 新闻访谈. 日本进驻台湾，俄军前车之鉴，中共尚能战否？
 
 <img src="https://media.gettr.com/group32/origin/2022/06/13/01/da6b3523-810c-f9d1-4947-f8dbd70d7c34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/13/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1duphja4f7.md)
-
-6/12/2022 Miles Guo: I had a conversation with someone in charge of military contact between the US and Communist China, and it confirmed my intelligence that Putin attempted twice to use nuclear weapons a month ago, but was stoppe...
-
-<img src="https://media.gettr.com/group28/getter/2022/06/13/00/c66ab7d8-4a22-ee40-64ea-1b0c28224797/out.jpg" width="506" height="284">
 
 ---
 
