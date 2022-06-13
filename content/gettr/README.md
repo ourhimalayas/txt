@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1dxq880a43.md)
+
+20220613  NFSC·ニュース　各業界の著名人らは、偽ワクチン接種
+
+<img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1dxhygabde.md)
 
 2022.06.13 新中国联邦 | 军情室 哥伦比亚级核潜艇和美军未来的核战备
@@ -58,11 +66,11 @@
 
 ---
 
-[@miles 6/13/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1dxq880a43.md)
+[@miles 6/13/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1dxootc691.md)
 
-20220613  NFSC·ニュース　各業界の著名人らは、偽ワクチン接種
+22.06.13 AM NFSC News   CCP's Economy Will Be Quickly Back to Square One
 
-<img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/06/13/11/9e8acfab-0d5c-65ed-4985-1657dc21e06b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ For English：gettr.com/streaming/p1dv8t49aed
 2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
 
 <img src="https://media.gettr.com/group39/origin/2022/06/12/12/dfd90160-9977-0590-8801-f5aef68ca800/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1dtgjb8a2f.md)
-
-2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
-
-<img src="https://media.gettr.com/group16/origin/2022/06/12/12/a201d29d-87bf-8f99-1eb4-311fb5f494a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
