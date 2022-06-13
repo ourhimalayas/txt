@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1dxhygabde.md)
+
+2022.06.13 新中国联邦 | 军情室 哥伦比亚级核潜艇和美军未来的核战备
+
+<img src="https://media.gettr.com/group21/origin/2022/06/13/10/68413635-7726-ab54-fec2-4e67964895ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 6:17 AM UTC  - :tv:直播](/content/gettr/p1dx4mf9e72.md)
 
 6/12/2022 Miles Guo: Although the Chinese Communist Party was tough on the surface, it privately told the U.S. Secretary of Defense that it did not want a large-scale war; the U.S. has given the CCP an ultimatum that once it launch...
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 6/13/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1dxhygabde.md)
+[@miles 6/13/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1dxq880a43.md)
 
-2022.06.13 新中国联邦 | 军情室 哥伦比亚级核潜艇和美军未来的核战备
+20220613  NFSC·ニュース　各業界の著名人らは、偽ワクチン接種
 
-<img src="https://media.gettr.com/group21/origin/2022/06/13/10/68413635-7726-ab54-fec2-4e67964895ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,12 +153,6 @@ For English：gettr.com/streaming/p1dv8t49aed
 2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
 
 <img src="https://media.gettr.com/group16/origin/2022/06/12/12/a201d29d-87bf-8f99-1eb4-311fb5f494a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 11:38 AM UTC ](/content/gettr/p1dto3baa39.md)
-
-【NFSC 2nd Anniversary】6/4/2022 Nicole's interview with Peter Navarro: Fauci gave the CCP the gain-of-Function technology that enabled it to weaponize the CCP virus, which is the main culprit for the current stagflation in the US. T...
 
 ---
 
