@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dvsgm1172.md)
+
+2022.06.12 晚 新中国联邦 | 新闻访谈. 日本进驻台湾，俄军前车之鉴，中共尚能战否？
+
+<img src="https://media.gettr.com/group32/origin/2022/06/13/01/da6b3523-810c-f9d1-4947-f8dbd70d7c34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1duphja4f7.md)
 
 6/12/2022 Miles Guo: I had a conversation with someone in charge of military contact between the US and Communist China, and it confirmed my intelligence that Putin attempted twice to use nuclear weapons a month ago, but was stoppe...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dvsgm1172.md)
+[@miles 6/13/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1dvepb2ab0.md)
 
-2022.06.12 晚 新中国联邦 | 新闻访谈. 日本进驻台湾，俄军前车之鉴，中共尚能战否？
+2022.06.12 农场联盟工作汇报
 
-<img src="https://media.gettr.com/group32/origin/2022/06/13/01/da6b3523-810c-f9d1-4947-f8dbd70d7c34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/05/23/01/fda314b0-a11f-ac09-37d7-7bd6e1504365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,16 +151,6 @@ The European Parliament ‘s plenary adopted the report "The EU and Security Cha
 On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with the Chinese Communist Party (CCP), e...
 
 <img src="https://media.gettr.com/group10/origin/2022/06/12/03/f68e72a6-6da0-cad2-4002-ae3b3495b358/b49751d838986a6d77196843a071e2ea.png" width="506" height="284">
-
----
-
-[@miles 6/12/2022 3:13 AM UTC ](/content/gettr/p1drufg496a.md)
-
-The 20th National Congress of the Chinese Communist Party (CCP) is the final battle 
-
-On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of the CCP is a gift from God. He does not believe it will be held and...
-
-<img src="https://media.gettr.com/group26/origin/2022/06/12/03/7bdac9e2-f109-58bc-7997-4f5cbbdfd413/43c13d8506b9c93bac8456370530b692.png" width="506" height="284">
 
 ---
 
