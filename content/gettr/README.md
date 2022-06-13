@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 6:17 AM UTC  - :tv:直播](/content/gettr/p1dx4mf9e72.md)
+
+6/12/2022 Miles Guo: Although the Chinese Communist Party was tough on the surface, it privately told the U.S. Secretary of Defense that it did not want a large-scale war; the U.S. has given the CCP an ultimatum that once it launch...
+
+<img src="https://media.gettr.com/group42/getter/2022/06/13/06/14c26ee8-1f25-dd8e-1de0-18b6f4fde83a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 3:55 AM UTC  - :tv:直播](/content/gettr/p1dw47z1eb8.md)
 
 6/12/2022 Miles Guo: The CCP's army is all about bluffing, and it has no capability of going to war against other countries. With desperate begging, the CCP was able to initiate the meeting between the U.S. and Chinese defense mini...
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 6/13/2022 6:17 AM UTC  - :tv:直播](/content/gettr/p1dx4mf9e72.md)
+[@miles 6/13/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1dxhygabde.md)
 
-6/12/2022 Miles Guo: Although the Chinese Communist Party was tough on the surface, it privately told the U.S. Secretary of Defense that it did not want a large-scale war; the U.S. has given the CCP an ultimatum that once it launch...
+2022.06.13 新中国联邦 | 军情室 哥伦比亚级核潜艇和美军未来的核战备
 
-<img src="https://media.gettr.com/group42/getter/2022/06/13/06/14c26ee8-1f25-dd8e-1de0-18b6f4fde83a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/06/13/10/68413635-7726-ab54-fec2-4e67964895ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -137,14 +145,6 @@ For English：gettr.com/streaming/p1dv8t49aed
 2022年6月12日 文贵大直播：中美新加坡防长会谈；中警告美方不惜一战；中方要求停调查币安；新中国联邦必须强大
 
 <img src="https://media.gettr.com/group16/origin/2022/06/12/12/a201d29d-87bf-8f99-1eb4-311fb5f494a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@globalalliance 6/12/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1dsqbk67b9.md)
-
-2022.06.12 新中国联邦 | 喜财经 第76期  躺平币怎么套现？躺平币会成为稳定币吗？第二次量子科技革命  
-
-<img src="https://media.gettr.com/group6/origin/2022/06/12/09/c678efdb-a587-9400-fcfb-2550a6fa59a1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
