@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/13/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1dycxyac1a.md)
+
+2022年6月13日 文贵大直播精华版
+
+<img src="https://media.gettr.com/group7/origin/2022/06/13/17/62fda4c3-da23-ae14-6652-7285818bbd21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/13/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1dybp063fc.md)
+
+2022年6月13日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group43/origin/2022/06/13/15/0e1a0df0-027c-c01a-a716-abb8244b0f0f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1dyf88483c.md)
 
 6/12/2022 Miles Guo: The Chinese Communist Party has infiltrated the U.S. to an extent beyond your imagination, and now there are still people lobbying for the CCP! The traitors to the U.S. may be able to accomplish some small thin...
@@ -114,14 +130,6 @@
 
 ---
 
-[@miles 6/13/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1dybp063fc.md)
-
-2022年6月13日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group43/origin/2022/06/13/15/0e1a0df0-027c-c01a-a716-abb8244b0f0f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/13/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dvm232da5.md)
 
 2022.06.12 晚 新中国联邦 | 新闻 新中国联邦6.4建国两周年庆典展示了強大的灭共实力；自强是实现喜马拉雅的唯一出路；躺平币未来会连接更多的价值和锚定；沙特阿美7月份将减少对中国原油供应量
@@ -135,14 +143,6 @@
 6/12/2022 Miles Guo: The whole world has realized that nobody will survive if the CCP is not taken down. The CCP will destroy the world by using all kinds of unrestricted warfare. I, Miles Guo, is the only person who understands th...
 
 <img src="https://media.gettr.com/group49/getter/2022/06/13/00/bbf789af-0e64-d13c-4617-edb83beb26ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1dv2kqc3d4.md)
-
-2022.06.12 PM NFSC News   Chinese People Deserve To Enjoy Their Hard-Earned
-
-<img src="https://media.gettr.com/group43/origin/2022/06/12/22/4775f242-d314-0c0f-723f-28224a12c008/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
