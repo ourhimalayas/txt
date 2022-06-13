@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 6/13/2022 12:21 AM UTC  - :tv:直播](/content/gettr/p1dvh1l86ee.md)
+
+6/12/2022 Miles Guo: The whole world has realized that nobody will survive if the CCP is not taken down. The CCP will destroy the world by using all kinds of unrestricted warfare. I, Miles Guo, is the only person who understands th...
+
+<img src="https://media.gettr.com/group49/getter/2022/06/13/00/bbf789af-0e64-d13c-4617-edb83beb26ce/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/12/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1dv3cj0d9f.md)
 
 6/12/2022 Miles Guo: The US dollar will encounter big problems! First, the US dollar can't stop the advent of the era of digital currencies. Secondly, because of the inevitable hard landing due to over printing currency and inflati...
 
 <img src="https://media.gettr.com/group20/getter/2022/06/12/23/8b49cd1f-c7ee-9138-f801-d2f7dcd101f0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 11:08 PM UTC  - :tv:直播](/content/gettr/p1duxcd7800.md)
+
+6/12/2022 Miles Guo: According to my judgement, if Xi Jinping doesn't get any smarter, he will still invade Taiwan. His strategy for invasion is most likely a long-term blockade in order to drag down the economies of Taiwan, the U....
+
+<img src="https://media.gettr.com/group48/getter/2022/06/12/23/202d9a29-1d08-d5ab-d030-ba5c40f5b0da/out.jpg" width="506" height="284">
 
 ---
 
@@ -76,14 +92,6 @@ For English：gettr.com/streaming/p1dv8t49aed
 
 ---
 
-[@miles 6/12/2022 11:08 PM UTC  - :tv:直播](/content/gettr/p1duxcd7800.md)
-
-6/12/2022 Miles Guo: According to my judgement, if Xi Jinping doesn't get any smarter, he will still invade Taiwan. His strategy for invasion is most likely a long-term blockade in order to drag down the economies of Taiwan, the U....
-
-<img src="https://media.gettr.com/group48/getter/2022/06/12/23/202d9a29-1d08-d5ab-d030-ba5c40f5b0da/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/12/2022 11:38 AM UTC ](/content/gettr/p1dto3baa39.md)
 
 【NFSC 2nd Anniversary】6/4/2022 Nicole's interview with Peter Navarro: Fauci gave the CCP the gain-of-Function technology that enabled it to weaponize the CCP virus, which is the main culprit for the current stagflation in the US. T...
@@ -137,14 +145,6 @@ On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of th
 2022.06.011  新中国联邦 | 喜财经  第76期  数字货币专栏：美国参议院推出里程碑式数字货币法案 币安七宗罪被曝光
 
 <img src="https://media.gettr.com/group27/origin/2022/06/12/01/7a652bf9-b762-1ce1-bf40-c1803ba8ceb4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/12/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1drdr47db7.md)
-
-2022.06.11  晚  新中国联邦 | 新闻访谈  白宫即将宣布取消入境美国须出示新冠检测阴性结果的规定    美国共和党和民主党参议员推出加密货币框架
-
-<img src="https://media.gettr.com/group28/origin/2022/06/12/00/c8053a54-96dd-788a-30a6-dd3ef8505799/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
