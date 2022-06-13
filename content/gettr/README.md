@@ -26,15 +26,15 @@
 
 ---
 
-[@miles 6/13/2022 9:24 PM UTC  - :tv:直播](/content/gettr/p1dz0cjcb81.md)
+[@miles 6/13/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1dzggk098d.md)
 
 The New Federal State of  China humanitarian aids arrived in Ukraine. 
 
 
 
-新中国联邦救援物资抵达乌克兰
+新中国联邦人道救援物资抵达乌克兰
 
-<img src="https://media.gettr.com/group5/origin/2022/06/13/21/40e13474-54a2-ada6-f031-e4c497471d70/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/06/13/21/68ef449a-5e4b-8ab8-9ccb-d1898bf02c2b/out.jpg" width="506" height="284">
 
 ---
 
