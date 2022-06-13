@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/13/2022 4:04 PM UTC  - :tv:直播](/content/gettr/p1dymeg9886.md)
+
+6/12/2022 Miles Guo: Binance only got a provisional test license from Dubai, so all the transactions conducted on its platform are illegal; Singapore did not issue financial license to American companies which applied first, but in...
+
+<img src="https://media.gettr.com/group9/getter/2022/06/13/16/a1b347e0-27b0-4d5a-9430-246476a7bb24/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/13/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1dyf88483c.md)
+
+6/12/2022 Miles Guo: The Chinese Communist Party has infiltrated the U.S. to an extent beyond your imagination, and now there are still people lobbying for the CCP! The traitors to the U.S. may be able to accomplish some small thin...
+
+<img src="https://media.gettr.com/group24/getter/2022/06/13/15/85aab4bf-d748-1dac-82ab-3c258a8427c9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1dy20o129d.md)
 
 6月13号：尊敬的战友们好．从五月份以来的世界经济．和金融市场的走势．完全按照我们过去几年的所有的判断．和基于情报的准确性，完全已经证实了共产党．对这个世界经济的超限战已经打响了！但愿有更多人的醒来吧，由于我将去某个山区去去见人开会．所以．从今天起．7哥将在23号以前没有任何直播，不会发任何视频和盖文。一切都以经开始！
@@ -98,11 +114,11 @@
 
 ---
 
-[@miles 6/13/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1dyf88483c.md)
+[@miles 6/13/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1dybp063fc.md)
 
-6/12/2022 Miles Guo: The Chinese Communist Party has infiltrated the U.S. to an extent beyond your imagination, and now there are still people lobbying for the CCP! The traitors to the U.S. may be able to accomplish some small thin...
+2022年6月13日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group24/getter/2022/06/13/15/85aab4bf-d748-1dac-82ab-3c258a8427c9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/06/13/15/0e1a0df0-027c-c01a-a716-abb8244b0f0f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,16 +159,6 @@
 6/12/2022 Miles Guo: According to my judgement, if Xi Jinping doesn't get any smarter, he will still invade Taiwan. His strategy for invasion is most likely a long-term blockade in order to drag down the economies of Taiwan, the U....
 
 <img src="https://media.gettr.com/group48/getter/2022/06/12/23/202d9a29-1d08-d5ab-d030-ba5c40f5b0da/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1duvjzb5ef.md)
-
-飞飞秀 六四篇 《文宝老奶奶谈时尚》2022-06-12
-
-For English：gettr.com/streaming/p1dv8t49aed
-
-<img src="https://media.gettr.com/group30/origin/2022/06/12/22/d3c7e944-a68c-5f99-4900-9c883c24101f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
