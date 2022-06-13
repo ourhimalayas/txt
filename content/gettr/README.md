@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/12/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1dv2kqc3d4.md)
+[@miles 6/13/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1duphja4f7.md)
 
-2022.06.12 PM NFSC News   Chinese People Deserve To Enjoy Their Hard-Earned
+6/12/2022 Miles Guo: I had a conversation with someone in charge of military contact between the US and Communist China, and it confirmed my intelligence that Putin attempted twice to use nuclear weapons a month ago, but was stoppe...
 
-<img src="https://media.gettr.com/group43/origin/2022/06/12/22/4775f242-d314-0c0f-723f-28224a12c008/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/06/13/00/c66ab7d8-4a22-ee40-64ea-1b0c28224797/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 6/12/2022 Miles Guo: The whole world has realized that nobody will survive if the CCP is not taken down. The CCP will destroy the world by using all kinds of unrestricted warfare. I, Miles Guo, is the only person who understands th...
 
 <img src="https://media.gettr.com/group49/getter/2022/06/13/00/bbf789af-0e64-d13c-4617-edb83beb26ce/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/12/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1dv2kqc3d4.md)
+
+2022.06.12 PM NFSC News   Chinese People Deserve To Enjoy Their Hard-Earned
+
+<img src="https://media.gettr.com/group43/origin/2022/06/12/22/4775f242-d314-0c0f-723f-28224a12c008/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/13/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dvm232da5.md)
+
+2022.06.12 晚 新中国联邦 | 新闻 新中国联邦6.4建国两周年庆典展示了強大的灭共实力；自强是实现喜马拉雅的唯一出路；躺平币未来会连接更多的价值和锚定；沙特阿美7月份将减少对中国原油供应量
+
+<img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -137,22 +153,6 @@ The 20th National Congress of the Chinese Communist Party (CCP) is the final bat
 On June 10, Mr. Miles Guo blew the whistle that the 20th National Congress of the CCP is a gift from God. He does not believe it will be held and...
 
 <img src="https://media.gettr.com/group26/origin/2022/06/12/03/7bdac9e2-f109-58bc-7997-4f5cbbdfd413/43c13d8506b9c93bac8456370530b692.png" width="506" height="284">
-
----
-
-[@miles 6/12/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1drt3q5337.md)
-
-2022.06.011  新中国联邦 | 喜财经  第76期  数字货币专栏：美国参议院推出里程碑式数字货币法案 币安七宗罪被曝光
-
-<img src="https://media.gettr.com/group27/origin/2022/06/12/01/7a652bf9-b762-1ce1-bf40-c1803ba8ceb4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/12/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dr6qd5008.md)
-
-6/10/2022 Miles Guo: Changpeng Zhao runs Binance without license and has been committing crimes and colluding with the CCP! How many Chinese people have opened accounts in Binance? What is the relationship between Changpeng Zhao an...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/12/01/67543639-4d8d-f141-e1be-64457ea98e8e/out.jpg" width="506" height="284">
 
 ---
 
