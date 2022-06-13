@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1dzlakd61e.md)
+
+2022年6月13日 新中国联邦 | 喜健康 《正道医疗》: 读罗素·布雷洛克博士《冠状病毒的真相》（一）
+
+<img src="https://media.gettr.com/group10/origin/2022/06/13/20/acd79fce-19c6-7df5-07b2-dcf46543f04e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1dycxyac1a.md)
 
 2022年6月13日 文贵大直播精华版
@@ -18,11 +26,15 @@
 
 ---
 
-[@miles 6/13/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1dzlakd61e.md)
+[@miles 6/13/2022 9:24 PM UTC  - :tv:直播](/content/gettr/p1dz0cjcb81.md)
 
-2022年6月13日 新中国联邦 | 喜健康 《正道医疗》: 读罗素·布雷洛克博士《冠状病毒的真相》（一）
+The New Federal State of  China humanitarian aids arrived in Ukraine. 
 
-<img src="https://media.gettr.com/group10/origin/2022/06/13/20/acd79fce-19c6-7df5-07b2-dcf46543f04e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+新中国联邦救援物资抵达乌克兰
+
+<img src="https://media.gettr.com/group5/origin/2022/06/13/21/40e13474-54a2-ada6-f031-e4c497471d70/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +163,6 @@
 6/12/2022 Miles Guo: The whole world has realized that nobody will survive if the CCP is not taken down. The CCP will destroy the world by using all kinds of unrestricted warfare. I, Miles Guo, is the only person who understands th...
 
 <img src="https://media.gettr.com/group49/getter/2022/06/13/00/bbf789af-0e64-d13c-4617-edb83beb26ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 11:08 PM UTC  - :tv:直播](/content/gettr/p1duxcd7800.md)
-
-6/12/2022 Miles Guo: According to my judgement, if Xi Jinping doesn't get any smarter, he will still invade Taiwan. His strategy for invasion is most likely a long-term blockade in order to drag down the economies of Taiwan, the U....
-
-<img src="https://media.gettr.com/group48/getter/2022/06/12/23/202d9a29-1d08-d5ab-d030-ba5c40f5b0da/out.jpg" width="506" height="284">
 
 ---
 
