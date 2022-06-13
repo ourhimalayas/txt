@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/13/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1dzggk098d.md)
+
+The New Federal State of  China humanitarian aids arrived in Ukraine. 
+
+
+
+新中国联邦人道救援物资抵达乌克兰
+
+<img src="https://media.gettr.com/group37/origin/2022/06/13/21/68ef449a-5e4b-8ab8-9ccb-d1898bf02c2b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1dzlakd61e.md)
 
 2022年6月13日 新中国联邦 | 喜健康 《正道医疗》: 读罗素·布雷洛克博士《冠状病毒的真相》（一）
@@ -26,15 +38,13 @@
 
 ---
 
-[@miles 6/13/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1dzggk098d.md)
+[@miles 6/13/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1dzjuzde30.md)
 
-The New Federal State of  China humanitarian aids arrived in Ukraine. 
+飞飞秀 六四篇 《如水 一尘 谈六四》2022-06-13
 
+For English：gettr.com/streaming/p1dztg95b9a
 
-
-新中国联邦人道救援物资抵达乌克兰
-
-<img src="https://media.gettr.com/group37/origin/2022/06/13/21/68ef449a-5e4b-8ab8-9ccb-d1898bf02c2b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/06/13/22/cbd7454c-086c-75ee-bd05-e8dc4265e77f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 2022.06.12 晚 新中国联邦 | 新闻 新中国联邦6.4建国两周年庆典展示了強大的灭共实力；自强是实现喜马拉雅的唯一出路；躺平币未来会连接更多的价值和锚定；沙特阿美7月份将减少对中国原油供应量
 
 <img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 12:21 AM UTC  - :tv:直播](/content/gettr/p1dvh1l86ee.md)
-
-6/12/2022 Miles Guo: The whole world has realized that nobody will survive if the CCP is not taken down. The CCP will destroy the world by using all kinds of unrestricted warfare. I, Miles Guo, is the only person who understands th...
-
-<img src="https://media.gettr.com/group49/getter/2022/06/13/00/bbf789af-0e64-d13c-4617-edb83beb26ce/out.jpg" width="506" height="284">
 
 ---
 
