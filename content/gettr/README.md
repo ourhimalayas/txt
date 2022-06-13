@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p1dxj5l042e.md)
+
+22.06.13 早   新中国联邦 | 新闻访谈   数字货币再遭暴击！比特币跌超13%跌破24000美元，泽连斯基吁国际社会在中国动武前助台湾抵御侵略
+
+<img src="https://media.gettr.com/group36/origin/2022/06/13/13/54514321-dd7f-67af-fcc6-c565457034a2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 12:36 PM UTC  - :tv:直播](/content/gettr/p1dxmue02c0.md)
 
  2022.06.08 早 新中国联邦 | 新闻  新加坡会晤美国对中共划出五道红线  美中防长会晤让全世界意识到中共的威胁  中共关于香格里拉会晤的新闻都是洗脑宣传
@@ -82,11 +90,11 @@
 
 ---
 
-[@miles 6/13/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p1dxj5l042e.md)
+[@miles 6/13/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1dy20o129d.md)
 
-22.06.13 早   新中国联邦 | 新闻访谈   数字货币再遭暴击！比特币跌超13%跌破24000美元，泽连斯基吁国际社会在中国动武前助台湾抵御侵略
+6月13号：尊敬的战友们好．从五月份以来的世界经济．和金融市场的走势．完全按照我们过去几年的所有的判断．和基于情报的准确性，完全已经证实了共产党．对这个世界经济的超限战已经打响了！但愿有更多人的醒来吧，由于我将去某个山区去去见人开会．所以．从今天起．7哥将在23号以前没有任何直播，不会发任何视频和盖文。一切都以经开始！
 
-<img src="https://media.gettr.com/group36/origin/2022/06/13/13/54514321-dd7f-67af-fcc6-c565457034a2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/06/13/14/165fb4f5-a833-869c-3a3e-a83a20f81ae1/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ For English：gettr.com/streaming/p1dv8t49aed
 2022.06.12  新中国联邦 | 喜健康   文紫医生文恩博士参加64庆典感想；香草山医疗组CCP病毒解毒方案
 
 <img src="https://media.gettr.com/group27/origin/2022/06/12/20/e45755ce-e4e0-249d-f2de-5c08e32379d9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1dtxbddfcf.md)
-
-2022-6-12「深蓝的爱💙」——爱海洋🌊，就是爱我们自己 #小小尼莫音乐会 🎼第十五期，海是鱼儿和珊瑚的家🐠，是小小尼莫们的梦想和舞台🥁，保护海洋，让她永远清澈美丽✨
-
-<img src="https://media.gettr.com/group13/origin/2022/06/12/18/7b1a94bb-70cd-2cda-bf0a-1f975ff0c7a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
