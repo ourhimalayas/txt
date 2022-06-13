@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/13/2022 12:36 PM UTC  - :tv:直播](/content/gettr/p1dxmue02c0.md)
+
+ 2022.06.08 早 新中国联邦 | 新闻  新加坡会晤美国对中共划出五道红线  美中防长会晤让全世界意识到中共的威胁  中共关于香格里拉会晤的新闻都是洗脑宣传
+
+<img src="https://media.gettr.com/group7/origin/2022/06/13/12/47a49577-e16b-b631-02c9-2a08b3523681/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1dxootc691.md)
 
 22.06.13 AM NFSC News   CCP's Economy Will Be Quickly Back to Square One
@@ -74,11 +82,11 @@
 
 ---
 
-[@miles 6/13/2022 12:36 PM UTC  - :tv:直播](/content/gettr/p1dxmue02c0.md)
+[@miles 6/13/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p1dxj5l042e.md)
 
- 2022.06.08 早 新中国联邦 | 新闻  新加坡会晤美国对中共划出五道红线  美中防长会晤让全世界意识到中共的威胁  中共关于香格里拉会晤的新闻都是洗脑宣传
+22.06.13 早   新中国联邦 | 新闻访谈   数字货币再遭暴击！比特币跌超13%跌破24000美元，泽连斯基吁国际社会在中国动武前助台湾抵御侵略
 
-<img src="https://media.gettr.com/group7/origin/2022/06/13/12/47a49577-e16b-b631-02c9-2a08b3523681/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/06/13/13/54514321-dd7f-67af-fcc6-c565457034a2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ For English：gettr.com/streaming/p1dv8t49aed
 2022-6-12「深蓝的爱💙」——爱海洋🌊，就是爱我们自己 #小小尼莫音乐会 🎼第十五期，海是鱼儿和珊瑚的家🐠，是小小尼莫们的梦想和舞台🥁，保护海洋，让她永远清澈美丽✨
 
 <img src="https://media.gettr.com/group13/origin/2022/06/12/18/7b1a94bb-70cd-2cda-bf0a-1f975ff0c7a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/12/2022 3:47 PM UTC  - 2圖](/content/gettr/p1du3795dc5.md)
-
-6月12号：尊敬的战友们好……很多战友发信息询问．G FASHION 网站上，为什么没有以下佛系．青蒿素糸列的信息了……原因是．这些特别的产品．只共G Club会员购买，所以非club会员的去查询是看不见的，这就是G Club员的专享利益！
-
-<img src="https://media.gettr.com/group29/getter/2022/06/12/15/98595414-a360-5784-9e2a-94a669703b1e/346e360630287ac9c8116e8c42c7ca55.jpg" width="506" height="284">
 
 ---
 
