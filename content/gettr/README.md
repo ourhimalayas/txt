@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dvsgm1172.md)
+
+2022.06.12 晚 新中国联邦 | 新闻访谈. 日本进驻台湾，俄军前车之鉴，中共尚能战否？
+
+<img src="https://media.gettr.com/group32/origin/2022/06/13/01/da6b3523-810c-f9d1-4947-f8dbd70d7c34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/13/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dvm232da5.md)
+
+2022.06.12 晚 新中国联邦 | 新闻 新中国联邦6.4建国两周年庆典展示了強大的灭共实力；自强是实现喜马拉雅的唯一出路；躺平币未来会连接更多的价值和锚定；沙特阿美7月份将减少对中国原油供应量
+
+<img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 12:21 AM UTC  - :tv:直播](/content/gettr/p1dvh1l86ee.md)
 
 6/12/2022 Miles Guo: The whole world has realized that nobody will survive if the CCP is not taken down. The CCP will destroy the world by using all kinds of unrestricted warfare. I, Miles Guo, is the only person who understands th...
@@ -23,14 +39,6 @@
 2022.06.12 PM NFSC News   Chinese People Deserve To Enjoy Their Hard-Earned
 
 <img src="https://media.gettr.com/group43/origin/2022/06/12/22/4775f242-d314-0c0f-723f-28224a12c008/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/13/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dvm232da5.md)
-
-2022.06.12 晚 新中国联邦 | 新闻 新中国联邦6.4建国两周年庆典展示了強大的灭共实力；自强是实现喜马拉雅的唯一出路；躺平币未来会连接更多的价值和锚定；沙特阿美7月份将减少对中国原油供应量
-
-<img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -135,14 +143,6 @@ The European Parliament ‘s plenary adopted the report "The EU and Security Cha
 On June 9, Mr. Miles Guo blew the whistle that Europe  restricted contacts with the Chinese Communist Party (CCP), e...
 
 <img src="https://media.gettr.com/group10/origin/2022/06/12/03/f68e72a6-6da0-cad2-4002-ae3b3495b358/b49751d838986a6d77196843a071e2ea.png" width="506" height="284">
-
----
-
-[@miles 6/12/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1drlviadd4.md)
-
-2022-6-11《鸡血王喜币大作战》 第二百二十三集 嘉宾：卡丽熙、Happy
-
-<img src="https://media.gettr.com/group6/origin/2022/04/05/02/0ebbc740-9c41-1d07-722d-4cceb60a1bbf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
