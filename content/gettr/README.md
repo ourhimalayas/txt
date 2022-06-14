@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1e7063b59b.md)
+
+2022.06.14 PM NFSC news  Canadian Man Receives Compensation for CCP Virus Vaccine Injury
+
+<img src="https://media.gettr.com/group24/origin/2022/06/14/22/bede6ab9-14f5-c636-7258-9c21ea6f2676/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1e63l95b03.md)
 
 飞飞秀 《潜水艇篇》 2022-06-14
@@ -72,11 +80,11 @@ For English：gettr.com/streaming/p1e6fdu8e99
 
 ---
 
-[@miles 6/14/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p1e65akb376.md)
+[@miles 6/14/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p1e6y8t73ac.md)
 
 6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background, while the various factions in the CCP also count on him to balance their interests; Alvin Jiang meaningfully told a fore...
 
-<img src="https://media.gettr.com/group8/getter/2022/06/14/22/e05091ce-1a0b-ccec-a0ff-c45ce9f96f7f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/06/14/23/312e4124-90b6-fce8-0ac9-4bbefbc8c18c/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Since March 4th, our fellow fighters from the New Federal State of China gathere
 2022.06.13 晚 新中国联邦 | 新闻 美元与数字货币的较量已经全面展开；新加坡会成为中共对西方进行超限战的桥梁；世界正面临中共和俄罗斯的威胁；围堵台湾拖垮世界经济是习近平的既定策略
 
 <img src="https://media.gettr.com/group3/origin/2022/06/09/00/fd530f21-41c4-be5e-e071-cf7308968f7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p1e07clc5c8.md)
-
-6/12/2022 Miles Guo: Recent personnel changes in the CCP reflect that Zeng Qinghong and Meng Jianzhu still have power. Although Wang Qishan's health is failing, he still has ambitions and told his American friend to see him in Beij...
-
-<img src="https://media.gettr.com/group8/getter/2022/06/13/23/ff095457-bd18-dea6-c2fb-49084e96eef9/out.jpg" width="506" height="284">
 
 ---
 
