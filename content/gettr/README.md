@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/14/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1e6w6g75a7.md)
+
+2022.06.14 NFSC fringe Episode 209
+
+<img src="https://media.gettr.com/group45/origin/2022/03/18/23/c8ef4416-dc33-3f7b-8dce-041daca90034/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/14/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p1e6y8t73ac.md)
+
+6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background, while the various factions in the CCP also count on him to balance their interests; Alvin Jiang meaningfully told a fore...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/14/23/312e4124-90b6-fce8-0ac9-4bbefbc8c18c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1e63l95b03.md)
 
 飞飞秀 《潜水艇篇》 2022-06-14
@@ -77,14 +93,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 6/10/2022 文贵直播：赵长鹏无照经营、洗钱犯罪和中共...
 
 <img src="https://media.gettr.com/group49/getter/2022/06/14/10/31c7f322-1302-7d6a-2035-952db601aa1a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p1e6y8t73ac.md)
-
-6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background, while the various factions in the CCP also count on him to balance their interests; Alvin Jiang meaningfully told a fore...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/14/23/312e4124-90b6-fce8-0ac9-4bbefbc8c18c/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Since March 4th, our fellow fighters from the New Federal State of China gathere
 2022.06.13  晚 新中国联邦⎪新闻访谈   多种虚拟币再次跌回2020年底价格；喜币是目前唯一真正稳定币；马斯克星链Starlink让中共“非常害怕”
 
 <img src="https://media.gettr.com/group31/origin/2022/06/14/01/57928a21-1e5d-b61d-6dba-0509dbb98def/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1dzvvo699f.md)
-
-2022.06.13 晚 新中国联邦 | 新闻 美元与数字货币的较量已经全面展开；新加坡会成为中共对西方进行超限战的桥梁；世界正面临中共和俄罗斯的威胁；围堵台湾拖垮世界经济是习近平的既定策略
-
-<img src="https://media.gettr.com/group3/origin/2022/06/09/00/fd530f21-41c4-be5e-e071-cf7308968f7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
