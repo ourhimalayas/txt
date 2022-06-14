@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1e602bdac3.md)
+
+2022-6-14《避风港》(59) 疫苗导致孕产风险增加
+
+<img src="https://media.gettr.com/group22/origin/2022/06/14/18/187367ca-f913-97d6-c5ae-e9cec9e0c19c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1e4h2l9f88.md)
 
 22.06.14 早   新中国联邦 | 新闻访谈  国际社会需在中共入侵前支持台湾，马斯克的星链彻底摧毁俄宣传活动
@@ -46,11 +54,11 @@
 
 ---
 
-[@miles 6/14/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1e602bdac3.md)
+[@miles 6/14/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1e5y3n84bb.md)
 
-2022-6-14《避风港》(59) 疫苗导致孕产风险增加
+2022年06月14日  新中国联邦 | 喜健康 《CCP解剖学》 新西兰农场“文疯而逃”讲述前线战友 CCP 病毒感染康复历程；病毒，疫苗子母弹之异同，康复用药探讨。
 
-<img src="https://media.gettr.com/group22/origin/2022/06/14/18/187367ca-f913-97d6-c5ae-e9cec9e0c19c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/06/14/20/744949ca-d21a-43ac-a030-b28a61c93dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Since March 4th, our fellow fighters from the New Federal State of China gathere
 6/12/2022 Miles Guo: Recent personnel changes in the CCP reflect that Zeng Qinghong and Meng Jianzhu still have power. Although Wang Qishan's health is failing, he still has ambitions and told his American friend to see him in Beij...
 
 <img src="https://media.gettr.com/group8/getter/2022/06/13/23/ff095457-bd18-dea6-c2fb-49084e96eef9/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1dztec9e19.md)
-
-2022.06.13 PM NFSC News   Self-Motivated is the Only Way to Achieve the Goal of Himalaya
-
-<img src="https://media.gettr.com/group30/origin/2022/06/13/22/282f4b46-ee41-6b49-3bba-4f292dbde15f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
