@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1e0lplac06.md)
+
+2022.06.13 新中国联邦 | 喜财经 第78期 美国针对中共成立多小组进行经济政治军事等各方面制裁准备 美国对台加强经济贸易以及军事合作
+
+<img src="https://media.gettr.com/group28/origin/2022/06/14/01/b0b2f1ad-33ae-5300-1988-7c47bba5e21c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 1:08 AM UTC  - :tv:直播](/content/gettr/p1dzsco0572.md)
 
 2022.06.13  晚 新中国联邦⎪新闻访谈   多种虚拟币再次跌回2020年底价格；喜币是目前唯一真正稳定币；马斯克星链Starlink让中共“非常害怕”
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/14/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1e0lplac06.md)
+[@miles 6/14/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1e0ayb64ac.md)
 
-2022.06.13 新中国联邦 | 喜财经 第78期 美国针对中共成立多小组进行经济政治军事等各方面制裁准备 美国对台加强经济贸易以及军事合作
+2022-6-13《鸡血王喜币大作战》 第二百二十五集 嘉宾：青藤、Nick
 
-<img src="https://media.gettr.com/group28/origin/2022/06/14/01/b0b2f1ad-33ae-5300-1988-7c47bba5e21c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 22.06.13 AM NFSC News   CCP's Economy Will Be Quickly Back to Square One
 
 <img src="https://media.gettr.com/group10/origin/2022/06/13/11/9e8acfab-0d5c-65ed-4985-1657dc21e06b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/13/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1dxq880a43.md)
-
-20220613  NFSC·ニュース　各業界の著名人らは、偽ワクチン接種
-
-<img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
