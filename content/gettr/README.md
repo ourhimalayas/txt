@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1e4muf8795.md)
+
+22.06.14 AM NFSC News  Ministry of Foreign Affairs refutes CCP Defence Minister's absurd remarks
+
+<img src="https://media.gettr.com/group4/origin/2022/06/14/11/befec03e-a7f9-66ef-ddbc-009c03a46442/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1e4f1q15d5.md)
 
 20220614  NFSC·ニュース   米国、12カ国を為替操作の監視リストに掲載
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 6/14/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1e4muf8795.md)
+[@miles 6/14/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1e4lmla2aa.md)
 
-22.06.14 AM NFSC News  Ministry of Foreign Affairs refutes CCP Defence Minister's absurd remarks
+2022.06.14 早 新中国联邦 | 新闻 郭先生解读喜联储“隔空取钱”的特性；新加坡防长会晤实为美国对中共的最后通牒
 
-<img src="https://media.gettr.com/group4/origin/2022/06/14/11/befec03e-a7f9-66ef-ddbc-009c03a46442/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/04/07/12/d148a932-0bee-adee-525e-69a1b4dff10c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 新中国联邦人道救援物资抵达乌克兰
 
 <img src="https://media.gettr.com/group37/origin/2022/06/13/21/68ef449a-5e4b-8ab8-9ccb-d1898bf02c2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1dzlakd61e.md)
-
-2022年6月13日 新中国联邦 | 喜健康 《正道医疗》: 读罗素·布雷洛克博士《冠状病毒的真相》（一）
-
-<img src="https://media.gettr.com/group10/origin/2022/06/13/20/acd79fce-19c6-7df5-07b2-dcf46543f04e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
