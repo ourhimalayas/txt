@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1e0ayb64ac.md)
+
+2022-6-13《鸡血王喜币大作战》 第二百二十五集 嘉宾：青藤、Nick
+
+<img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1e0lplac06.md)
 
 2022.06.13 新中国联邦 | 喜财经 第78期 美国针对中共成立多小组进行经济政治军事等各方面制裁准备 美国对台加强经济贸易以及军事合作
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 6/14/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1e0ayb64ac.md)
+[@miles 6/14/2022 4:41 AM UTC  - :tv:直播](/content/gettr/p1e1sl7ed2c.md)
 
-2022-6-13《鸡血王喜币大作战》 第二百二十五集 嘉宾：青藤、Nick
+Since March 4th, our fellow fighters from the New Federal State of China gathered in Medyka Border, and have provided humanitarian help. We gained respect and recognition from the international organizations during the 81 full days...
 
-<img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/06/14/04/8980391d-a7c6-046a-a081-24a71f5f0fa6/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
  2022.06.08 早 新中国联邦 | 新闻  新加坡会晤美国对中共划出五道红线  美中防长会晤让全世界意识到中共的威胁  中共关于香格里拉会晤的新闻都是洗脑宣传
 
 <img src="https://media.gettr.com/group7/origin/2022/06/13/12/47a49577-e16b-b631-02c9-2a08b3523681/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1dxootc691.md)
-
-22.06.13 AM NFSC News   CCP's Economy Will Be Quickly Back to Square One
-
-<img src="https://media.gettr.com/group10/origin/2022/06/13/11/9e8acfab-0d5c-65ed-4985-1657dc21e06b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
