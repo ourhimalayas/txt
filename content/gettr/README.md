@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1e4f1q15d5.md)
+
+20220614  NFSC·ニュース   米国、12カ国を為替操作の監視リストに掲載
+
+<img src="https://media.gettr.com/group6/origin/2022/06/14/11/b9998b24-de77-c9fa-dfa3-af0c78c51eae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 10:01 AM UTC  - :tv:直播](/content/gettr/p1e3wgm6c8e.md)
 
 6/10/2022 Miles Guo: Changpeng Zhao runs Binance without license and has been committing crimes and colluding with the CCP! They are all promoting the BSN, are all scams that are linked to the CCP!
@@ -14,11 +22,11 @@
 
 ---
 
-[@miles 6/14/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1e4f1q15d5.md)
+[@miles 6/14/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1e4muf8795.md)
 
-20220614  NFSC·ニュース   米国、12カ国を為替操作の監視リストに掲載
+22.06.14 AM NFSC News  Ministry of Foreign Affairs refutes CCP Defence Minister's absurd remarks
 
-<img src="https://media.gettr.com/group6/origin/2022/06/14/11/b9998b24-de77-c9fa-dfa3-af0c78c51eae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/06/14/11/befec03e-a7f9-66ef-ddbc-009c03a46442/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 2022年6月13日 新中国联邦 | 喜健康 《正道医疗》: 读罗素·布雷洛克博士《冠状病毒的真相》（一）
 
 <img src="https://media.gettr.com/group10/origin/2022/06/13/20/acd79fce-19c6-7df5-07b2-dcf46543f04e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1dycxyac1a.md)
-
-2022年6月13日 文贵大直播精华版
-
-<img src="https://media.gettr.com/group7/origin/2022/06/13/17/62fda4c3-da23-ae14-6652-7285818bbd21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
