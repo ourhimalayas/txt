@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 6/14/2022 10:01 AM UTC  - :tv:直播](/content/gettr/p1e3wgm6c8e.md)
+
+6/10/2022 Miles Guo: Changpeng Zhao runs Binance without license and has been committing crimes and colluding with the CCP! They are all promoting the BSN, are all scams that are linked to the CCP!
+
+
+
+6/10/2022 文贵直播：赵长鹏无照经营、洗钱犯罪和中共...
+
+<img src="https://media.gettr.com/group49/getter/2022/06/14/10/31c7f322-1302-7d6a-2035-952db601aa1a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/14/2022 10:02 AM UTC  - :tv:直播](/content/gettr/p1e3j9oab11.md)
+
+6/10/2022 Miles Guo: The fact that some politicians, celebrities, tycoons, and major figures in the medical field across the globe have taken the fake COVID vaccines is the biggest scandal in the world right now!
+
+
+
+6/10/2022 文贵直播：...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/14/10/74a53387-9c39-eba5-2568-b58117925ac9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 9:52 AM UTC  - :tv:直播](/content/gettr/p1e3ihve407.md)
 
 6/13/2022 Miles Guo's GETTR: The financial notes will be the trigger of the biggest financial crisis in the West. Stock market and digital currencies have been literally going down every second, but still there are people who want ...
@@ -10,11 +34,27 @@
 
 ---
 
+[@miles 6/14/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1e3gnb8c80.md)
+
+6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
+
+<img src="https://media.gettr.com/group21/getter/2022/06/14/10/4b2956f8-0e56-cb58-95cf-da41e17defbc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 9:55 AM UTC  - :tv:直播](/content/gettr/p1e3kfg5a20.md)
 
 6/13/2022 Miles Guo’s GETTR: Many people have no clue that the global credit risk and financial collapse were deliberately set up by the CCP. Even if you can dodge the shorting in futures and financial collapse, will you be able to...
 
 <img src="https://media.gettr.com/group19/getter/2022/06/14/09/fb792ecc-9c4a-c045-93c5-e69eaeb3229c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/14/2022 9:58 AM UTC  - :tv:直播](/content/gettr/p1e3oz0322f.md)
+
+6/12/2022  Miles Guo: Only after receiving the four types of licenses, namely digital banking license, business license, payment institution license and trade license that are approved and endorsed by any sovereign country, the rea...
+
+<img src="https://media.gettr.com/group3/getter/2022/06/14/09/712b1be5-b525-8429-36f1-b569fff5595f/out.jpg" width="506" height="284">
 
 ---
 
@@ -66,14 +106,6 @@ Since March 4th, our fellow fighters from the New Federal State of China gathere
 
 ---
 
-[@miles 6/14/2022 9:58 AM UTC  - :tv:直播](/content/gettr/p1e3oz0322f.md)
-
-6/12/2022  Miles Guo: Only after receiving the four types of licenses, namely digital banking license, business license, payment institution license and trade license that are approved and endorsed by any sovereign country, the rea...
-
-<img src="https://media.gettr.com/group3/getter/2022/06/14/09/712b1be5-b525-8429-36f1-b569fff5595f/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/13/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1e0al678e8.md)
 
 6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai are on the same page, which means they have communicated with each other. Han Zheng, who looked the best and had the most accurate grasp of the globa...
@@ -87,14 +119,6 @@ Since March 4th, our fellow fighters from the New Federal State of China gathere
 6/12/2022 Miles Guo: Recent personnel changes in the CCP reflect that Zeng Qinghong and Meng Jianzhu still have power. Although Wang Qishan's health is failing, he still has ambitions and told his American friend to see him in Beij...
 
 <img src="https://media.gettr.com/group8/getter/2022/06/13/23/ff095457-bd18-dea6-c2fb-49084e96eef9/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1e0ad150b0.md)
-
-6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
-
-<img src="https://media.gettr.com/group5/getter/2022/06/13/23/eddab64c-6496-c69c-af9d-0ab2b4a9e304/out.jpg" width="506" height="284">
 
 ---
 
@@ -144,27 +168,11 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 
 ---
 
-[@miles 6/13/2022 4:04 PM UTC  - :tv:直播](/content/gettr/p1dymeg9886.md)
-
-6/12/2022 Miles Guo: Binance only got a provisional test license from Dubai, so all the transactions conducted on its platform are illegal; Singapore did not issue financial license to American companies which applied first, but in...
-
-<img src="https://media.gettr.com/group9/getter/2022/06/13/16/a1b347e0-27b0-4d5a-9430-246476a7bb24/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/13/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1dybp063fc.md)
 
 2022年6月13日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group43/origin/2022/06/13/15/0e1a0df0-027c-c01a-a716-abb8244b0f0f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1dyf88483c.md)
-
-6/12/2022 Miles Guo: The Chinese Communist Party has infiltrated the U.S. to an extent beyond your imagination, and now there are still people lobbying for the CCP! The traitors to the U.S. may be able to accomplish some small thin...
-
-<img src="https://media.gettr.com/group24/getter/2022/06/13/15/85aab4bf-d748-1dac-82ab-3c258a8427c9/out.jpg" width="506" height="284">
 
 ---
 

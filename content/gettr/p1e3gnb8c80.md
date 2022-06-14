@@ -2,13 +2,12 @@
 ---
 
 
-`@miles 6/13/2022 11:56 PM UTC`
+`@miles 6/14/2022 10:05 AM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p1e0ad150b0)
+[轉發自GETTR](https://gettr.com/post/p1e3gnb8c80)
 
 6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin meet these requirements. CCP is terrifying.
 
 6/10/2022 文贵直播：全世界急需一个跟中共无关的，在美元和欧元区以外的虚拟币，喜币和躺平币符合这些需求，中共已吓破胆！
 
-
-![img](https://media.gettr.com/group5/getter/2022/06/13/23/eddab64c-6496-c69c-af9d-0ab2b4a9e304/out.jpg)
+![img](https://media.gettr.com/group21/getter/2022/06/14/10/4b2956f8-0e56-cb58-95cf-da41e17defbc/out.jpg)
