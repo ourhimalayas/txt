@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/14/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1dzvvo699f.md)
+
+2022.06.13 晚 新中国联邦 | 新闻 美元与数字货币的较量已经全面展开；新加坡会成为中共对西方进行超限战的桥梁；世界正面临中共和俄罗斯的威胁；围堵台湾拖垮世界经济是习近平的既定策略
+
+<img src="https://media.gettr.com/group3/origin/2022/06/09/00/fd530f21-41c4-be5e-e071-cf7308968f7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1e0al678e8.md)
 
 6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai are on the same page, which means they have communicated with each other. Han Zheng, who looked the best and had the most accurate grasp of the globa...
@@ -23,6 +31,14 @@
 6/12/2022 Miles Guo: Recent personnel changes in the CCP reflect that Zeng Qinghong and Meng Jianzhu still have power. Although Wang Qishan's health is failing, he still has ambitions and told his American friend to see him in Beij...
 
 <img src="https://media.gettr.com/group8/getter/2022/06/13/23/ff095457-bd18-dea6-c2fb-49084e96eef9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/13/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1e0ad150b0.md)
+
+6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
+
+<img src="https://media.gettr.com/group5/getter/2022/06/13/23/eddab64c-6496-c69c-af9d-0ab2b4a9e304/out.jpg" width="506" height="284">
 
 ---
 
@@ -77,14 +93,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 6/12/2022 Miles Guo: Binance only got a provisional test license from Dubai, so all the transactions conducted on its platform are illegal; Singapore did not issue financial license to American companies which applied first, but in...
 
 <img src="https://media.gettr.com/group9/getter/2022/06/13/16/a1b347e0-27b0-4d5a-9430-246476a7bb24/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1e0ad150b0.md)
-
-6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
-
-<img src="https://media.gettr.com/group5/getter/2022/06/13/23/eddab64c-6496-c69c-af9d-0ab2b4a9e304/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 6/12/2022 Miles Guo: Although the Chinese Communist Party was tough on the surface, it privately told the U.S. Secretary of Defense that it did not want a large-scale war; the U.S. has given the CCP an ultimatum that once it launch...
 
 <img src="https://media.gettr.com/group42/getter/2022/06/13/06/14c26ee8-1f25-dd8e-1de0-18b6f4fde83a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 3:55 AM UTC  - :tv:直播](/content/gettr/p1dw47z1eb8.md)
-
-6/12/2022 Miles Guo: The CCP's army is all about bluffing, and it has no capability of going to war against other countries. With desperate begging, the CCP was able to initiate the meeting between the U.S. and Chinese defense mini...
-
-<img src="https://media.gettr.com/group37/getter/2022/06/13/03/55fdc8d3-13d7-8c99-ad89-397ab57517c2/out.jpg" width="506" height="284">
 
 ---
 
