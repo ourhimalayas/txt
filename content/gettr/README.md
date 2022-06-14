@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 6/13/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1dzxhicbef.md)
+
+2022.06.13 PM NSFC Fringe  Relationship Between Miles Guo and the Morgan Family
+
+<img src="https://media.gettr.com/group9/origin/2022/06/13/23/5cb3f24e-2a87-a67d-36cc-cb8acb8f0ba5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/13/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1e0al678e8.md)
+
+6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai are on the same page, which means they have communicated with each other. Han Zheng, who looked the best and had the most accurate grasp of the globa...
+
+<img src="https://media.gettr.com/group32/getter/2022/06/13/23/8f1d0f68-c4a6-a2ab-1fd6-36dd6c331cc7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/13/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p1e07clc5c8.md)
+
+6/12/2022 Miles Guo: Recent personnel changes in the CCP reflect that Zeng Qinghong and Meng Jianzhu still have power. Although Wang Qishan's health is failing, he still has ambitions and told his American friend to see him in Beij...
+
+<img src="https://media.gettr.com/group8/getter/2022/06/13/23/ff095457-bd18-dea6-c2fb-49084e96eef9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/13/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1dztec9e19.md)
+
+2022.06.13 PM NFSC News   Self-Motivated is the Only Way to Achieve the Goal of Himalaya
+
+<img src="https://media.gettr.com/group30/origin/2022/06/13/22/282f4b46-ee41-6b49-3bba-4f292dbde15f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1dzjuzde30.md)
 
 飞飞秀 六四篇 《如水 一尘 谈六四》2022-06-13
@@ -48,11 +80,11 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 
 ---
 
-[@miles 6/13/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1dztec9e19.md)
+[@miles 6/13/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1e0ad150b0.md)
 
-2022.06.13 PM NFSC News   Self-Motivated is the Only Way to Achieve the Goal of Himalaya
+6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
 
-<img src="https://media.gettr.com/group30/origin/2022/06/13/22/282f4b46-ee41-6b49-3bba-4f292dbde15f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/06/13/23/eddab64c-6496-c69c-af9d-0ab2b4a9e304/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,38 +165,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 6/12/2022 Miles Guo: The CCP's army is all about bluffing, and it has no capability of going to war against other countries. With desperate begging, the CCP was able to initiate the meeting between the U.S. and Chinese defense mini...
 
 <img src="https://media.gettr.com/group37/getter/2022/06/13/03/55fdc8d3-13d7-8c99-ad89-397ab57517c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1dvn680bc6.md)
-
-2022-6-12《鸡血王喜币大作战》 第二百二十四集 嘉宾：封神榜、七里香
-
-<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1dvepb2ab0.md)
-
-2022.06.12 农场联盟工作汇报
-
-<img src="https://media.gettr.com/group16/origin/2022/05/23/01/fda314b0-a11f-ac09-37d7-7bd6e1504365/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1dvsgm1172.md)
-
-2022.06.12 晚 新中国联邦 | 新闻访谈. 日本进驻台湾，俄军前车之鉴，中共尚能战否？
-
-<img src="https://media.gettr.com/group32/origin/2022/06/13/01/da6b3523-810c-f9d1-4947-f8dbd70d7c34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/13/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1dvm232da5.md)
-
-2022.06.12 晚 新中国联邦 | 新闻 新中国联邦6.4建国两周年庆典展示了強大的灭共实力；自强是实现喜马拉雅的唯一出路；躺平币未来会连接更多的价值和锚定；沙特阿美7月份将减少对中国原油供应量
-
-<img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
