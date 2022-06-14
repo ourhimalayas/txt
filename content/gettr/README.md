@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1e4lmla2aa.md)
+
+2022.06.14 早 新中国联邦 | 新闻 郭先生解读喜联储“隔空取钱”的特性；新加坡防长会晤实为美国对中共的最后通牒
+
+<img src="https://media.gettr.com/group36/origin/2022/04/07/12/d148a932-0bee-adee-525e-69a1b4dff10c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1e4muf8795.md)
 
 22.06.14 AM NFSC News  Ministry of Foreign Affairs refutes CCP Defence Minister's absurd remarks
@@ -30,11 +38,11 @@
 
 ---
 
-[@miles 6/14/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1e4lmla2aa.md)
+[@miles 6/14/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1e4h2l9f88.md)
 
-2022.06.14 早 新中国联邦 | 新闻 郭先生解读喜联储“隔空取钱”的特性；新加坡防长会晤实为美国对中共的最后通牒
+22.06.14 早   新中国联邦 | 新闻访谈  国际社会需在中共入侵前支持台湾，马斯克的星链彻底摧毁俄宣传活动
 
-<img src="https://media.gettr.com/group36/origin/2022/04/07/12/d148a932-0bee-adee-525e-69a1b4dff10c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/06/14/12/434f2506-a9f3-84d8-603b-b8320a19f26e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ Since March 4th, our fellow fighters from the New Federal State of China gathere
 For English：gettr.com/streaming/p1dztg95b9a
 
 <img src="https://media.gettr.com/group36/origin/2022/06/13/22/cbd7454c-086c-75ee-bd05-e8dc4265e77f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1dzggk098d.md)
-
-The New Federal State of  China humanitarian aids arrived in Ukraine. 
-
-
-
-新中国联邦人道救援物资抵达乌克兰
-
-<img src="https://media.gettr.com/group37/origin/2022/06/13/21/68ef449a-5e4b-8ab8-9ccb-d1898bf02c2b/out.jpg" width="506" height="284">
 
 ---
 
