@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 1:08 AM UTC  - :tv:直播](/content/gettr/p1dzsco0572.md)
+
+2022.06.13  晚 新中国联邦⎪新闻访谈   多种虚拟币再次跌回2020年底价格；喜币是目前唯一真正稳定币；马斯克星链Starlink让中共“非常害怕”
+
+<img src="https://media.gettr.com/group31/origin/2022/06/14/01/57928a21-1e5d-b61d-6dba-0509dbb98def/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1dzvvo699f.md)
 
 2022.06.13 晚 新中国联邦 | 新闻 美元与数字货币的较量已经全面展开；新加坡会成为中共对西方进行超限战的桥梁；世界正面临中共和俄罗斯的威胁；围堵台湾拖垮世界经济是习近平的既定策略
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/14/2022 1:08 AM UTC  - :tv:直播](/content/gettr/p1dzsco0572.md)
+[@miles 6/14/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1e0lplac06.md)
 
-2022.06.13  晚 新中国联邦⎪新闻访谈   多种虚拟币再次跌回2020年底价格；喜币是目前唯一真正稳定币；马斯克星链Starlink让中共“非常害怕”
+2022.06.13 新中国联邦 | 喜财经 第78期 美国针对中共成立多小组进行经济政治军事等各方面制裁准备 美国对台加强经济贸易以及军事合作
 
-<img src="https://media.gettr.com/group31/origin/2022/06/14/01/57928a21-1e5d-b61d-6dba-0509dbb98def/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/06/14/01/b0b2f1ad-33ae-5300-1988-7c47bba5e21c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 20220613  NFSC·ニュース　各業界の著名人らは、偽ワクチン接種
 
 <img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1dxhygabde.md)
-
-2022.06.13 新中国联邦 | 军情室 哥伦比亚级核潜艇和美军未来的核战备
-
-<img src="https://media.gettr.com/group21/origin/2022/06/13/10/68413635-7726-ab54-fec2-4e67964895ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
