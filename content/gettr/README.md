@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/14/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1e63l95b03.md)
+
+飞飞秀 《潜水艇篇》 2022-06-14
+
+For English：gettr.com/streaming/p1e6fdu8e99
+
+<img src="https://media.gettr.com/group20/origin/2022/06/14/22/b42e0932-902d-c61d-bb38-0bc79468cfaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1e5y3n84bb.md)
 
 2022年06月14日  新中国联邦 | 喜健康 《CCP解剖学》 新西兰农场“文疯而逃”讲述前线战友 CCP 病毒感染康复历程；病毒，疫苗子母弹之异同，康复用药探讨。
@@ -62,13 +72,11 @@
 
 ---
 
-[@miles 6/14/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1e63l95b03.md)
+[@miles 6/14/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p1e65akb376.md)
 
-飞飞秀 《潜水艇篇》 2022-06-14
+6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background, while the various factions in the CCP also count on him to balance their interests; Alvin Jiang meaningfully told a fore...
 
-For English：gettr.com/streaming/p1e6fdu8e99
-
-<img src="https://media.gettr.com/group20/origin/2022/06/14/22/b42e0932-902d-c61d-bb38-0bc79468cfaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/06/14/22/e05091ce-1a0b-ccec-a0ff-c45ce9f96f7f/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Since March 4th, our fellow fighters from the New Federal State of China gathere
 2022.06.13 晚 新中国联邦 | 新闻 美元与数字货币的较量已经全面展开；新加坡会成为中共对西方进行超限战的桥梁；世界正面临中共和俄罗斯的威胁；围堵台湾拖垮世界经济是习近平的既定策略
 
 <img src="https://media.gettr.com/group3/origin/2022/06/09/00/fd530f21-41c4-be5e-e071-cf7308968f7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1e0al678e8.md)
-
-6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai are on the same page, which means they have communicated with each other. Han Zheng, who looked the best and had the most accurate grasp of the globa...
-
-<img src="https://media.gettr.com/group32/getter/2022/06/13/23/8f1d0f68-c4a6-a2ab-1fd6-36dd6c331cc7/out.jpg" width="506" height="284">
 
 ---
 
