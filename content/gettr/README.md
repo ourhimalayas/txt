@@ -14,6 +14,14 @@
 
 ---
 
+[@miles 6/14/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1e4f1q15d5.md)
+
+20220614  NFSC·ニュース   米国、12カ国を為替操作の監視リストに掲載
+
+<img src="https://media.gettr.com/group6/origin/2022/06/14/11/b9998b24-de77-c9fa-dfa3-af0c78c51eae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 10:02 AM UTC  - :tv:直播](/content/gettr/p1e3j9oab11.md)
 
 6/10/2022 Miles Guo: The fact that some politicians, celebrities, tycoons, and major figures in the medical field across the globe have taken the fake COVID vaccines is the biggest scandal in the world right now!
@@ -26,19 +34,19 @@
 
 ---
 
-[@miles 6/14/2022 9:52 AM UTC  - :tv:直播](/content/gettr/p1e3ihve407.md)
-
-6/13/2022 Miles Guo's GETTR: The financial notes will be the trigger of the biggest financial crisis in the West. Stock market and digital currencies have been literally going down every second, but still there are people who want ...
-
-<img src="https://media.gettr.com/group45/getter/2022/06/14/09/5be5ec91-71e4-f85d-ebfb-c70d9c330f3a/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/14/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1e3gnb8c80.md)
 
 6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
 
 <img src="https://media.gettr.com/group21/getter/2022/06/14/10/4b2956f8-0e56-cb58-95cf-da41e17defbc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/14/2022 9:52 AM UTC  - :tv:直播](/content/gettr/p1e3ihve407.md)
+
+6/13/2022 Miles Guo's GETTR: The financial notes will be the trigger of the biggest financial crisis in the West. Stock market and digital currencies have been literally going down every second, but still there are people who want ...
+
+<img src="https://media.gettr.com/group45/getter/2022/06/14/09/5be5ec91-71e4-f85d-ebfb-c70d9c330f3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 2022年6月13日 文贵大直播精华版
 
 <img src="https://media.gettr.com/group7/origin/2022/06/13/17/62fda4c3-da23-ae14-6652-7285818bbd21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1dybp063fc.md)
-
-2022年6月13日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group43/origin/2022/06/13/15/0e1a0df0-027c-c01a-a716-abb8244b0f0f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
