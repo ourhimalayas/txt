@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 6/14/2022 9:52 AM UTC  - :tv:直播](/content/gettr/p1e3ihve407.md)
+
+6/13/2022 Miles Guo's GETTR: The financial notes will be the trigger of the biggest financial crisis in the West. Stock market and digital currencies have been literally going down every second, but still there are people who want ...
+
+<img src="https://media.gettr.com/group45/getter/2022/06/14/09/5be5ec91-71e4-f85d-ebfb-c70d9c330f3a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/14/2022 9:55 AM UTC  - :tv:直播](/content/gettr/p1e3kfg5a20.md)
+
+6/13/2022 Miles Guo’s GETTR: Many people have no clue that the global credit risk and financial collapse were deliberately set up by the CCP. Even if you can dodge the shorting in futures and financial collapse, will you be able to...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/14/09/fb792ecc-9c4a-c045-93c5-e69eaeb3229c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/14/2022 4:41 AM UTC  - :tv:直播](/content/gettr/p1e1sl7ed2c.md)
+
+Since March 4th, our fellow fighters from the New Federal State of China gathered in Medyka Border, and have provided humanitarian help. We gained respect and recognition from the international organizations during the 81 full days...
+
+<img src="https://media.gettr.com/group35/origin/2022/06/14/04/8980391d-a7c6-046a-a081-24a71f5f0fa6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1e0ayb64ac.md)
 
 2022-6-13《鸡血王喜币大作战》 第二百二十五集 嘉宾：青藤、Nick
@@ -42,11 +66,11 @@
 
 ---
 
-[@miles 6/14/2022 4:41 AM UTC  - :tv:直播](/content/gettr/p1e1sl7ed2c.md)
+[@miles 6/14/2022 9:58 AM UTC  - :tv:直播](/content/gettr/p1e3oz0322f.md)
 
-Since March 4th, our fellow fighters from the New Federal State of China gathered in Medyka Border, and have provided humanitarian help. We gained respect and recognition from the international organizations during the 81 full days...
+6/12/2022  Miles Guo: Only after receiving the four types of licenses, namely digital banking license, business license, payment institution license and trade license that are approved and endorsed by any sovereign country, the rea...
 
-<img src="https://media.gettr.com/group35/origin/2022/06/14/04/8980391d-a7c6-046a-a081-24a71f5f0fa6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/06/14/09/712b1be5-b525-8429-36f1-b569fff5595f/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,30 +165,6 @@ The New Federal State of  China humanitarian aids arrived in Ukraine.
 6/12/2022 Miles Guo: The Chinese Communist Party has infiltrated the U.S. to an extent beyond your imagination, and now there are still people lobbying for the CCP! The traitors to the U.S. may be able to accomplish some small thin...
 
 <img src="https://media.gettr.com/group24/getter/2022/06/13/15/85aab4bf-d748-1dac-82ab-3c258a8427c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1dy20o129d.md)
-
-6月13号：尊敬的战友们好．从五月份以来的世界经济．和金融市场的走势．完全按照我们过去几年的所有的判断．和基于情报的准确性，完全已经证实了共产党．对这个世界经济的超限战已经打响了！但愿有更多人的醒来吧，由于我将去某个山区去去见人开会．所以．从今天起．7哥将在23号以前没有任何直播，不会发任何视频和盖文。一切都以经开始！
-
-<img src="https://media.gettr.com/group13/getter/2022/06/13/14/165fb4f5-a833-869c-3a3e-a83a20f81ae1/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/13/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p1dxj5l042e.md)
-
-22.06.13 早   新中国联邦 | 新闻访谈   数字货币再遭暴击！比特币跌超13%跌破24000美元，泽连斯基吁国际社会在中国动武前助台湾抵御侵略
-
-<img src="https://media.gettr.com/group36/origin/2022/06/13/13/54514321-dd7f-67af-fcc6-c565457034a2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/13/2022 12:36 PM UTC  - :tv:直播](/content/gettr/p1dxmue02c0.md)
-
- 2022.06.08 早 新中国联邦 | 新闻  新加坡会晤美国对中共划出五道红线  美中防长会晤让全世界意识到中共的威胁  中共关于香格里拉会晤的新闻都是洗脑宣传
-
-<img src="https://media.gettr.com/group7/origin/2022/06/13/12/47a49577-e16b-b631-02c9-2a08b3523681/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
