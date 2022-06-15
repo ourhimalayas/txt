@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1e73dme127.md)
+
+2022.06.14 新中国联邦 | 喜财经 第79期 六四简短回顾；熙姐谈股市汇市黄金石油人民币走势；国内乱象，哀鸣遍野；世界经济危机的加速到来；数字货币的全面暴跌，喜币和躺平币的后市展望
+
+<img src="https://media.gettr.com/group15/origin/2022/06/15/02/37223f77-5cc3-3542-e6a3-a0ce47239ffa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p1e6s1ecd16.md)
 
 2022.06.14 晚  新中国联邦 | 新闻访谈   美國食物供應怎麼了 比伯局部面瘫 特鲁多二次阳性 加拿大“健康码”即将寿终正寝 中共“健康码”已成犯罪工具  世界裸骑日
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 6/15/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1e73dme127.md)
+[@miles 6/15/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1e7svb3e7c.md)
 
-2022.06.14 新中国联邦 | 喜财经 第79期 六四简短回顾；熙姐谈股市汇市黄金石油人民币走势；国内乱象，哀鸣遍野；世界经济危机的加速到来；数字货币的全面暴跌，喜币和躺平币的后市展望
+2022-6-14《鸡血王喜币大作战》 第二百二十六集 嘉宾：无双柳薇薇、文空
 
-<img src="https://media.gettr.com/group15/origin/2022/06/15/02/37223f77-5cc3-3542-e6a3-a0ce47239ffa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/06/15/03/27a5ab24-9bd5-2821-dd2a-734cccc34e3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 6/12/2022  Miles Guo: Only after receiving the four types of licenses, namely digital banking license, business license, payment institution license and trade license that are approved and endorsed by any sovereign country, the rea...
 
 <img src="https://media.gettr.com/group3/getter/2022/06/14/09/712b1be5-b525-8429-36f1-b569fff5595f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 4:41 AM UTC  - :tv:直播](/content/gettr/p1e1sl7ed2c.md)
-
-Since March 4th, our fellow fighters from the New Federal State of China gathered in Medyka Border, and have provided humanitarian help. We gained respect and recognition from the international organizations during the 81 full days...
-
-<img src="https://media.gettr.com/group35/origin/2022/06/14/04/8980391d-a7c6-046a-a081-24a71f5f0fa6/out.jpg" width="506" height="284">
 
 ---
 
