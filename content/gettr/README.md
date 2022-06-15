@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 8:54 PM UTC  - :tv:直播](/content/gettr/p1ebwts82c0.md)
+
+2022年6月15日 新中国联邦 | 喜健康  《医学观察》 PCR 病毒检测骗局 - 核酸政治
+
+<img src="https://media.gettr.com/group11/origin/2022/06/15/20/e3e5bc10-ce9e-86d8-0718-45a2360ea5ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 4:37 PM UTC  - :tv:直播](/content/gettr/p1eb9db56ea.md)
 
 2022年6月15日 俄乌战争战况播报
@@ -102,11 +110,13 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 8:54 PM UTC  - :tv:直播](/content/gettr/p1ebwts82c0.md)
+[@miles 6/15/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ecia0aa50.md)
 
-2022年6月15日 新中国联邦 | 喜健康  《医学观察》 PCR 病毒检测骗局 - 核酸政治
+飞飞秀Live with Fayfay 《喜币最干净！》2022-06-15
 
-<img src="https://media.gettr.com/group11/origin/2022/06/15/20/e3e5bc10-ce9e-86d8-0718-45a2360ea5ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/post/p1ec4yb8c1c
+
+<img src="https://media.gettr.com/group45/origin/2022/06/15/22/fe377507-96a8-2771-c8a7-9f0292389382/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 2022.06.14 早 新中国联邦 | 新闻 郭先生解读喜联储“隔空取钱”的特性；新加坡防长会晤实为美国对中共的最后通牒
 
 <img src="https://media.gettr.com/group36/origin/2022/04/07/12/d148a932-0bee-adee-525e-69a1b4dff10c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1e4muf8795.md)
-
-22.06.14 AM NFSC News  Ministry of Foreign Affairs refutes CCP Defence Minister's absurd remarks
-
-<img src="https://media.gettr.com/group4/origin/2022/06/14/11/befec03e-a7f9-66ef-ddbc-009c03a46442/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
