@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1eages36ac.md)
+
+20220615  NFSCニュース　中共による世界的金融構成の罠
+
+<img src="https://media.gettr.com/group39/origin/2022/06/15/11/6bce0641-fb05-f898-0413-1dedf5c03eff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1eai37adf0.md)
 
 2022.06.15 新中国联邦 | 军情室 回顾1949年后的国共军事冲突 - 八二三炮战
@@ -70,11 +78,11 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1eages36ac.md)
+[@miles 6/15/2022 12:06 PM UTC  - :tv:直播](/content/gettr/p1eafvq19dc.md)
 
-20220615  NFSCニュース　中共による世界的金融構成の罠
+22.06.15 AM NFSC News    The CCP's Wars Are Only for the Elimination of Selected Populations
 
-<img src="https://media.gettr.com/group39/origin/2022/06/15/11/6bce0641-fb05-f898-0413-1dedf5c03eff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/06/15/12/59cf542e-98f3-5b3b-3de2-8bbb5e08a0ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -141,18 +149,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 20220614  NFSC·ニュース   米国、12カ国を為替操作の監視リストに掲載
 
 <img src="https://media.gettr.com/group6/origin/2022/06/14/11/b9998b24-de77-c9fa-dfa3-af0c78c51eae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 10:01 AM UTC  - :tv:直播](/content/gettr/p1e3wgm6c8e.md)
-
-6/10/2022 Miles Guo: Changpeng Zhao runs Binance without license and has been committing crimes and colluding with the CCP! They are all promoting the BSN, are all scams that are linked to the CCP!
-
-
-
-6/10/2022 文贵直播：赵长鹏无照经营、洗钱犯罪和中共...
-
-<img src="https://media.gettr.com/group49/getter/2022/06/14/10/31c7f322-1302-7d6a-2035-952db601aa1a/out.jpg" width="506" height="284">
 
 ---
 
