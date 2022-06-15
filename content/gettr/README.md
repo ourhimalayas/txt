@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p1e6s1ecd16.md)
+
+2022.06.14 晚  新中国联邦 | 新闻访谈   美國食物供應怎麼了 比伯局部面瘫 特鲁多二次阳性 加拿大“健康码”即将寿终正寝 中共“健康码”已成犯罪工具  世界裸骑日
+
+<img src="https://media.gettr.com/group28/origin/2022/06/12/00/c8053a54-96dd-788a-30a6-dd3ef8505799/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 12:38 AM UTC  - :tv:直播](/content/gettr/p1e6ynqf208.md)
 
 2022.06.014 晚 新中国联邦 | 新闻 辉瑞机密文件显示：中共病毒疫苗将导致人口大规模减少中共发动经济超限战 美股和数字货币全面下跌
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/15/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p1e6s1ecd16.md)
+[@miles 6/15/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1e73dme127.md)
 
-2022.06.14 晚  新中国联邦 | 新闻访谈   美國食物供應怎麼了 比伯局部面瘫 特鲁多二次阳性 加拿大“健康码”即将寿终正寝 中共“健康码”已成犯罪工具  世界裸骑日
+2022.06.14 新中国联邦 | 喜财经 第79期 六四简短回顾；熙姐谈股市汇市黄金石油人民币走势；国内乱象，哀鸣遍野；世界经济危机的加速到来；数字货币的全面暴跌，喜币和躺平币的后市展望
 
-<img src="https://media.gettr.com/group28/origin/2022/06/12/00/c8053a54-96dd-788a-30a6-dd3ef8505799/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/06/15/02/37223f77-5cc3-3542-e6a3-a0ce47239ffa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 Since March 4th, our fellow fighters from the New Federal State of China gathered in Medyka Border, and have provided humanitarian help. We gained respect and recognition from the international organizations during the 81 full days...
 
 <img src="https://media.gettr.com/group35/origin/2022/06/14/04/8980391d-a7c6-046a-a081-24a71f5f0fa6/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1e0ayb64ac.md)
-
-2022-6-13《鸡血王喜币大作战》 第二百二十五集 嘉宾：青藤、Nick
-
-<img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
