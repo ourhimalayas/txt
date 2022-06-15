@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1eclf5fcce.md)
+
+2022.06.15 PM NFSC news  International Citizen-led Survey Shows Unvaccinated Are Less Hospitalized
+
+<img src="https://media.gettr.com/group26/origin/2022/06/15/22/170f4373-d998-35e5-0710-524fea37befa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 10:47 PM UTC  - :tv:直播](/content/gettr/p1ech4x41b7.md)
 
 6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: The celebration of the second anniversary of the New Federal State of China is fundamentally different from last year’s celebration. Becau...
@@ -128,11 +136,11 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1eclf5fcce.md)
+[@miles 6/15/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1ecrlqa778.md)
 
-2022.06.15 PM NFSC news  International Citizen-led Survey Shows Unvaccinated Are Less Hospitalized
+2022.06.15 PM NFSC Fringe   Current crypto market; CCP quietly building its own blockchain platform
 
-<img src="https://media.gettr.com/group26/origin/2022/06/15/22/170f4373-d998-35e5-0710-524fea37befa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/06/15/23/e8198fe5-e0f1-f591-80bf-9cf7448ca625/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 2022年06月14日  新中国联邦 | 喜健康 《CCP解剖学》 新西兰农场“文疯而逃”讲述前线战友 CCP 病毒感染康复历程；病毒，疫苗子母弹之异同，康复用药探讨。
 
 <img src="https://media.gettr.com/group42/origin/2022/06/14/20/744949ca-d21a-43ac-a030-b28a61c93dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1e602bdac3.md)
-
-2022-6-14《避风港》(59) 疫苗导致孕产风险增加
-
-<img src="https://media.gettr.com/group22/origin/2022/06/14/18/187367ca-f913-97d6-c5ae-e9cec9e0c19c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
