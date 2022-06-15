@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 10:47 PM UTC  - :tv:直播](/content/gettr/p1ech4x41b7.md)
+
+6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: The celebration of the second anniversary of the New Federal State of China is fundamentally different from last year’s celebration. Becau...
+
+<img src="https://media.gettr.com/group4/getter/2022/06/15/22/edfac31f-cedc-bc0f-ee3a-30ee8bbe0ffe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ecia0aa50.md)
 
 飞飞秀Live with Fayfay 《喜币最干净！》2022-06-15
@@ -120,11 +128,11 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 10:47 PM UTC  - :tv:直播](/content/gettr/p1ech4x41b7.md)
+[@miles 6/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1eclf5fcce.md)
 
-6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: The celebration of the second anniversary of the New Federal State of China is fundamentally different from last year’s celebration. Becau...
+2022.06.15 PM NFSC news  International Citizen-led Survey Shows Unvaccinated Are Less Hospitalized
 
-<img src="https://media.gettr.com/group4/getter/2022/06/15/22/edfac31f-cedc-bc0f-ee3a-30ee8bbe0ffe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/06/15/22/170f4373-d998-35e5-0710-524fea37befa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 2022-6-14《避风港》(59) 疫苗导致孕产风险增加
 
 <img src="https://media.gettr.com/group22/origin/2022/06/14/18/187367ca-f913-97d6-c5ae-e9cec9e0c19c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1e4h2l9f88.md)
-
-22.06.14 早   新中国联邦 | 新闻访谈  国际社会需在中共入侵前支持台湾，马斯克的星链彻底摧毁俄宣传活动
-
-<img src="https://media.gettr.com/group39/origin/2022/06/14/12/434f2506-a9f3-84d8-603b-b8320a19f26e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
