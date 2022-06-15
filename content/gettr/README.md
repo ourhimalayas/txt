@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/15/2022 9:56 AM UTC ](/content/gettr/p1e9kzs6846.md)
+
+Biochemical Warfare Of COVID-19 and Its Vaccines – A joint effort between the Chinese Communist Party and Western dark forces has been completed
+
+
+
+People often deny the presence of a catastrophe while facing it. This is the reason...
+
+<img src="https://media.gettr.com/group5/origin/2022/06/15/09/b1db1b6c-de9b-6955-8051-51c6d6ec8e73/d833b81af8c5095bae1120a9550f42ef.jpg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1e7svb3e7c.md)
 
 2022-6-14《鸡血王喜币大作战》 第二百二十六集 嘉宾：无双柳薇薇、文空
@@ -50,15 +62,11 @@
 
 ---
 
-[@miles 6/15/2022 9:56 AM UTC ](/content/gettr/p1e9kzs6846.md)
+[@miles 6/15/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1eai37adf0.md)
 
-Biochemical Warfare Of COVID-19 and Its Vaccines – A joint effort between the Chinese Communist Party and Western dark forces has been completed
+2022.06.15 新中国联邦 | 军情室 回顾1949年后的国共军事冲突 - 八二三炮战
 
-
-
-People often deny the presence of a catastrophe while facing it. This is the reason...
-
-<img src="https://media.gettr.com/group5/origin/2022/06/15/09/b1db1b6c-de9b-6955-8051-51c6d6ec8e73/d833b81af8c5095bae1120a9550f42ef.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/06/15/10/eb9f3eea-30fe-005b-1be6-71a544fd487d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
 
 <img src="https://media.gettr.com/group21/getter/2022/06/14/10/4b2956f8-0e56-cb58-95cf-da41e17defbc/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 9:55 AM UTC  - :tv:直播](/content/gettr/p1e3kfg5a20.md)
-
-6/13/2022 Miles Guo’s GETTR: Many people have no clue that the global credit risk and financial collapse were deliberately set up by the CCP. Even if you can dodge the shorting in futures and financial collapse, will you be able to...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/14/09/fb792ecc-9c4a-c045-93c5-e69eaeb3229c/out.jpg" width="506" height="284">
 
 ---
 
