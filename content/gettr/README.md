@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 1:13 PM UTC  - :tv:直播](/content/gettr/p1ea66c734c.md)
+
+2022年6月15日 MOS《回响》专场
+
+<img src="https://media.gettr.com/group4/origin/2022/06/15/13/ab400733-7b81-45ad-e7c5-b958292b4371/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 12:06 PM UTC  - :tv:直播](/content/gettr/p1eafvq19dc.md)
 
 22.06.15 AM NFSC News    The CCP's Wars Are Only for the Elimination of Selected Populations
@@ -86,11 +94,11 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 1:13 PM UTC  - :tv:直播](/content/gettr/p1ea66c734c.md)
+[@miles 6/15/2022 4:37 PM UTC  - :tv:直播](/content/gettr/p1eb9db56ea.md)
 
-2022年6月15日 MOS《回响》专场
+2022年6月15日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group4/origin/2022/06/15/13/ab400733-7b81-45ad-e7c5-b958292b4371/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/06/15/16/da456165-f7bd-07fb-29f3-a6c3f96c3331/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 20220614  NFSC·ニュース   米国、12カ国を為替操作の監視リストに掲載
 
 <img src="https://media.gettr.com/group6/origin/2022/06/14/11/b9998b24-de77-c9fa-dfa3-af0c78c51eae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1e3gnb8c80.md)
-
-6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
-
-<img src="https://media.gettr.com/group21/getter/2022/06/14/10/4b2956f8-0e56-cb58-95cf-da41e17defbc/out.jpg" width="506" height="284">
 
 ---
 
