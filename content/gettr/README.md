@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 4:37 PM UTC  - :tv:直播](/content/gettr/p1eb9db56ea.md)
+
+2022年6月15日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group5/origin/2022/06/15/16/da456165-f7bd-07fb-29f3-a6c3f96c3331/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 1:13 PM UTC  - :tv:直播](/content/gettr/p1ea66c734c.md)
 
 2022年6月15日 MOS《回响》专场
@@ -94,11 +102,11 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 4:37 PM UTC  - :tv:直播](/content/gettr/p1eb9db56ea.md)
+[@miles 6/15/2022 8:54 PM UTC  - :tv:直播](/content/gettr/p1ebwts82c0.md)
 
-2022年6月15日 俄乌战争战况播报
+2022年6月15日 新中国联邦 | 喜健康  《医学观察》 PCR 病毒检测骗局 - 核酸政治
 
-<img src="https://media.gettr.com/group5/origin/2022/06/15/16/da456165-f7bd-07fb-29f3-a6c3f96c3331/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/06/15/20/e3e5bc10-ce9e-86d8-0718-45a2360ea5ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 22.06.14 AM NFSC News  Ministry of Foreign Affairs refutes CCP Defence Minister's absurd remarks
 
 <img src="https://media.gettr.com/group4/origin/2022/06/14/11/befec03e-a7f9-66ef-ddbc-009c03a46442/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/14/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1e4f1q15d5.md)
-
-20220614  NFSC·ニュース   米国、12カ国を為替操作の監視リストに掲載
-
-<img src="https://media.gettr.com/group6/origin/2022/06/14/11/b9998b24-de77-c9fa-dfa3-af0c78c51eae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
