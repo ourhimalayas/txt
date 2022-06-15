@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 12:06 PM UTC  - :tv:直播](/content/gettr/p1eafvq19dc.md)
+
+22.06.15 AM NFSC News    The CCP's Wars Are Only for the Elimination of Selected Populations
+
+<img src="https://media.gettr.com/group21/origin/2022/06/15/12/59cf542e-98f3-5b3b-3de2-8bbb5e08a0ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1eages36ac.md)
 
 20220615  NFSCニュース　中共による世界的金融構成の罠
@@ -78,11 +86,11 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 12:06 PM UTC  - :tv:直播](/content/gettr/p1eafvq19dc.md)
+[@miles 6/15/2022 1:13 PM UTC  - :tv:直播](/content/gettr/p1ea66c734c.md)
 
-22.06.15 AM NFSC News    The CCP's Wars Are Only for the Elimination of Selected Populations
+2022年6月15日 MOS《回响》专场
 
-<img src="https://media.gettr.com/group21/origin/2022/06/15/12/59cf542e-98f3-5b3b-3de2-8bbb5e08a0ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/06/15/13/ab400733-7b81-45ad-e7c5-b958292b4371/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,18 +157,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 20220614  NFSC·ニュース   米国、12カ国を為替操作の監視リストに掲載
 
 <img src="https://media.gettr.com/group6/origin/2022/06/14/11/b9998b24-de77-c9fa-dfa3-af0c78c51eae/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 10:02 AM UTC  - :tv:直播](/content/gettr/p1e3j9oab11.md)
-
-6/10/2022 Miles Guo: The fact that some politicians, celebrities, tycoons, and major figures in the medical field across the globe have taken the fake COVID vaccines is the biggest scandal in the world right now!
-
-
-
-6/10/2022 文贵直播：...
-
-<img src="https://media.gettr.com/group36/getter/2022/06/14/10/74a53387-9c39-eba5-2568-b58117925ac9/out.jpg" width="506" height="284">
 
 ---
 
