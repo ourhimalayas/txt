@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1e7svb3e7c.md)
+
+2022-6-14《鸡血王喜币大作战》 第二百二十六集 嘉宾：无双柳薇薇、文空
+
+<img src="https://media.gettr.com/group16/origin/2022/06/15/03/27a5ab24-9bd5-2821-dd2a-734cccc34e3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1e73dme127.md)
 
 2022.06.14 新中国联邦 | 喜财经 第79期 六四简短回顾；熙姐谈股市汇市黄金石油人民币走势；国内乱象，哀鸣遍野；世界经济危机的加速到来；数字货币的全面暴跌，喜币和躺平币的后市展望
@@ -42,11 +50,15 @@
 
 ---
 
-[@miles 6/15/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1e7svb3e7c.md)
+[@miles 6/15/2022 9:56 AM UTC ](/content/gettr/p1e9kzs6846.md)
 
-2022-6-14《鸡血王喜币大作战》 第二百二十六集 嘉宾：无双柳薇薇、文空
+Biochemical Warfare Of COVID-19 and Its Vaccines – A joint effort between the Chinese Communist Party and Western dark forces has been completed
 
-<img src="https://media.gettr.com/group16/origin/2022/06/15/03/27a5ab24-9bd5-2821-dd2a-734cccc34e3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+People often deny the presence of a catastrophe while facing it. This is the reason...
+
+<img src="https://media.gettr.com/group5/origin/2022/06/15/09/b1db1b6c-de9b-6955-8051-51c6d6ec8e73/d833b81af8c5095bae1120a9550f42ef.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +157,6 @@ For English：gettr.com/streaming/p1e6fdu8e99
 6/10/2022 Miles Guo: The world urgently needs a kind of cryptocurrency, which have no connection to the CCP and can legally circulate outside the U.S. dollar and euro zones, The Himalaya Coin and the Tang Ping (Lying-flat) Coin mee...
 
 <img src="https://media.gettr.com/group21/getter/2022/06/14/10/4b2956f8-0e56-cb58-95cf-da41e17defbc/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 9:52 AM UTC  - :tv:直播](/content/gettr/p1e3ihve407.md)
-
-6/13/2022 Miles Guo's GETTR: The financial notes will be the trigger of the biggest financial crisis in the West. Stock market and digital currencies have been literally going down every second, but still there are people who want ...
-
-<img src="https://media.gettr.com/group45/getter/2022/06/14/09/5be5ec91-71e4-f85d-ebfb-c70d9c330f3a/out.jpg" width="506" height="284">
 
 ---
 
