@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/14/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1e6w6g75a7.md)
+
+2022.06.14 NFSC fringe Episode 209
+
+<img src="https://media.gettr.com/group45/origin/2022/03/18/23/c8ef4416-dc33-3f7b-8dce-041daca90034/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/14/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1e7063b59b.md)
 
 2022.06.14 PM NFSC news  Canadian Man Receives Compensation for CCP Virus Vaccine Injury
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/14/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1e6w6g75a7.md)
+[@miles 6/15/2022 12:38 AM UTC  - :tv:直播](/content/gettr/p1e6ynqf208.md)
 
-2022.06.14 NFSC fringe Episode 209
+2022.06.014 晚 新中国联邦 | 新闻 辉瑞机密文件显示：中共病毒疫苗将导致人口大规模减少中共发动经济超限战 美股和数字货币全面下跌
 
-<img src="https://media.gettr.com/group45/origin/2022/03/18/23/c8ef4416-dc33-3f7b-8dce-041daca90034/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/06/15/00/006e70a6-b88f-3d36-9aed-ffde71d81c6a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Since March 4th, our fellow fighters from the New Federal State of China gathere
 2022.06.13 新中国联邦 | 喜财经 第78期 美国针对中共成立多小组进行经济政治军事等各方面制裁准备 美国对台加强经济贸易以及军事合作
 
 <img src="https://media.gettr.com/group28/origin/2022/06/14/01/b0b2f1ad-33ae-5300-1988-7c47bba5e21c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/14/2022 1:08 AM UTC  - :tv:直播](/content/gettr/p1dzsco0572.md)
-
-2022.06.13  晚 新中国联邦⎪新闻访谈   多种虚拟币再次跌回2020年底价格；喜币是目前唯一真正稳定币；马斯克星链Starlink让中共“非常害怕”
-
-<img src="https://media.gettr.com/group31/origin/2022/06/14/01/57928a21-1e5d-b61d-6dba-0509dbb98def/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
