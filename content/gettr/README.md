@@ -10,6 +10,24 @@
 
 ---
 
+[@miles 6/16/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p1edv8a9545.md)
+
+6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: I hope young people stick to principles when dealing with matters. Don’t echo the views of others. The CCP intends to brainwash young peop...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/16/03/bd2ab158-9b6d-b3c3-177c-c31b99d86900/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/16/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1edlwjf3e9.md)
+
+6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: 
+
+The best way to take down the Chinese Communist Party is to make yourself strong. Whatever young people would do, they must first decide...
+
+<img src="https://media.gettr.com/group33/getter/2022/06/16/03/a0ba5dde-1489-e5ba-5819-469140c75a40/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1edg9t49a5.md)
 
 6/12/2022 Miles Guo: Communist China may experience natural disasters, wars, military coups, or political revolutions this year. As long as one of these happens, the CCP will be finished.
@@ -155,24 +173,6 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 2022.06.14 新中国联邦 | 喜财经 第79期 六四简短回顾；熙姐谈股市汇市黄金石油人民币走势；国内乱象，哀鸣遍野；世界经济危机的加速到来；数字货币的全面暴跌，喜币和躺平币的后市展望
 
 <img src="https://media.gettr.com/group15/origin/2022/06/15/02/37223f77-5cc3-3542-e6a3-a0ce47239ffa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/15/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p1e6s1ecd16.md)
-
-2022.06.14 晚  新中国联邦 | 新闻访谈   美國食物供應怎麼了 比伯局部面瘫 特鲁多二次阳性 加拿大“健康码”即将寿终正寝 中共“健康码”已成犯罪工具  世界裸骑日
-
-<img src="https://media.gettr.com/group28/origin/2022/06/12/00/c8053a54-96dd-788a-30a6-dd3ef8505799/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/16/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1edlwjf3e9.md)
-
-6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: 
-
-The best way to take down the Chinese Communist Party is to make yourself strong. Whatever young people would do, they must first decide...
-
-<img src="https://media.gettr.com/group33/getter/2022/06/16/03/a0ba5dde-1489-e5ba-5819-469140c75a40/out.jpg" width="506" height="284">
 
 ---
 
