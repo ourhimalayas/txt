@@ -8,6 +8,22 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
+[@miles 6/16/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p1efdl24608.md)
+
+2022.06.16 早 新中国联邦 | 新闻  二十大，中共政治斗争的决战场; 喜币，当今世界唯一真正稳定的数字货币;港共新版教材恶意篡改历史
+
+<img src="https://media.gettr.com/group22/origin/2022/06/16/12/884188e0-abdf-86ff-9017-71aabea6bfbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/16/2022 12:05 PM UTC  - :tv:直播](/content/gettr/p1efo559115.md)
+
+2022.06.16 AM NFSC news  IKEA closes two stores within three months in Communist China
+
+<img src="https://media.gettr.com/group23/origin/2022/05/28/12/07219e32-55cc-4841-91f0-88f2f4252c5d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1efna4cc39.md)
 
 20220616 NFSC·ニュース　カナダ、国内外旅行における予防接種の制限を一時停止
@@ -39,14 +55,6 @@ On June 15, multiple media and platforms reported or reprinted the 2nd anniversa
 2022-6-15《鸡血王喜币大作战》 第二百二十七集 嘉宾：齐天二圣、Nick
 
 <img src="https://media.gettr.com/group13/origin/2022/06/16/03/994a1883-016e-3b97-3d4d-d09a93b7e116/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 12:05 PM UTC  - :tv:直播](/content/gettr/p1efo559115.md)
-
-2022.06.16 AM NFSC news  IKEA closes two stores within three months in Communist China
-
-<img src="https://media.gettr.com/group23/origin/2022/05/28/12/07219e32-55cc-4841-91f0-88f2f4252c5d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ For English：gettr.com/post/p1ec4yb8c1c
 22.06.15 AM NFSC News    The CCP's Wars Are Only for the Elimination of Selected Populations
 
 <img src="https://media.gettr.com/group21/origin/2022/06/15/12/59cf542e-98f3-5b3b-3de2-8bbb5e08a0ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/15/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1eages36ac.md)
-
-20220615  NFSCニュース　中共による世界的金融構成の罠
-
-<img src="https://media.gettr.com/group39/origin/2022/06/15/11/6bce0641-fb05-f898-0413-1dedf5c03eff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
