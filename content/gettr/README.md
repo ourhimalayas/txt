@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/16/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1ehsny89b4.md)
+
+飞飞秀 · 六四篇《文宝老奶奶》2022-06-17
+
+For English：gettr.com/streaming/p1eha1u92bd
+
+<img src="https://media.gettr.com/group47/origin/2022/06/16/22/f21c53eb-0a6f-1cd6-a7e7-6332864bc2f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 6/16/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1eg020baa6.md)
 
 No.2 ICU Doctor in the World breaks down over Adverse Reactions from the Covid jabs being ignored & calls it a #HumanitarianCrisis.
@@ -84,13 +94,11 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1ehsny89b4.md)
+[@miles 6/16/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ei50f1331.md)
 
-飞飞秀 · 六四篇《文宝老奶奶》2022-06-17
+2022.06.16 PM NFSC News   Tang Ping Coin Will Be Traded on Global Crypto Exchanges
 
-For English：gettr.com/streaming/p1eha1u92bd
-
-<img src="https://media.gettr.com/group47/origin/2022/06/16/22/f21c53eb-0a6f-1cd6-a7e7-6332864bc2f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/06/16/23/9e959d3a-4a6c-191c-30dc-38daa845aba8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ The best way to take down the Chinese Communist Party is to make yourself strong
 2022.06.15 新中国联邦 | 喜财经 第80期  汇丰银行：百年前掏空大清使其灭亡，如今喜币躺平币掏干中共
 
 <img src="https://media.gettr.com/group39/origin/2022/06/16/02/383f9d98-b097-145e-2b89-d178d57a5564/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/16/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1ed6ht28c3.md)
-
-2022.06.15 晚 新中国联邦 | 新闻访谈 陈全国遭遇冷藏，入常无望； 中共国家粮储局前局长张务峰落马； 47国敦促联合国，尽快发布新疆人权报告； 美国国务院称，台湾海峡为“国际水道”
-
-
-
-<img src="https://media.gettr.com/group42/origin/2022/06/16/01/1304b1ca-6bbb-9a81-d7bc-39f79c3892b7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
