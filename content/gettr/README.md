@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 6/16/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1ednfvdafb.md)
+
+2022-6-15《鸡血王喜币大作战》 第二百二十七集 嘉宾：齐天二圣、Nick
+
+<img src="https://media.gettr.com/group13/origin/2022/06/16/03/994a1883-016e-3b97-3d4d-d09a93b7e116/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/16/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1edg9t49a5.md)
+
+6/12/2022 Miles Guo: Communist China may experience natural disasters, wars, military coups, or political revolutions this year. As long as one of these happens, the CCP will be finished.
+
+
+
+6/12/2022 文贵直播：中共国今年可能爆发灾难、战争、军事或政治革命，只要...
+
+<img src="https://media.gettr.com/group5/getter/2022/06/16/02/a1a39217-010f-5b3e-3c95-f27b28224f31/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1ecq66193a.md)
 
 2022.06.15 新中国联邦 | 喜财经 第80期  汇丰银行：百年前掏空大清使其灭亡，如今喜币躺平币掏干中共
@@ -146,31 +166,13 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 12:38 AM UTC  - :tv:直播](/content/gettr/p1e6ynqf208.md)
+[@miles 6/16/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1edlwjf3e9.md)
 
-2022.06.014 晚 新中国联邦 | 新闻 辉瑞机密文件显示：中共病毒疫苗将导致人口大规模减少中共发动经济超限战 美股和数字货币全面下跌
+6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: 
 
-<img src="https://media.gettr.com/group40/origin/2022/06/15/00/006e70a6-b88f-3d36-9aed-ffde71d81c6a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+The best way to take down the Chinese Communist Party is to make yourself strong. Whatever young people would do, they must first decide...
 
----
-
-[@miles 6/14/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1e6w6g75a7.md)
-
-2022.06.14 NFSC fringe Episode 209
-
-<img src="https://media.gettr.com/group45/origin/2022/03/18/23/c8ef4416-dc33-3f7b-8dce-041daca90034/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1edg9t49a5.md)
-
-6/12/2022 Miles Guo: Communist China may experience natural disasters, wars, military coups, or political revolutions this year. As long as one of these happens, the CCP will be finished.
-
-
-
-6/12/2022 文贵直播：中共国今年可能爆发灾难、战争、军事或政治革命，只要...
-
-<img src="https://media.gettr.com/group5/getter/2022/06/16/02/a1a39217-010f-5b3e-3c95-f27b28224f31/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/06/16/03/a0ba5dde-1489-e5ba-5819-469140c75a40/out.jpg" width="506" height="284">
 
 ---
 
