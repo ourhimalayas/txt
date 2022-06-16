@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/16/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ed8kna3df.md)
+
+2022.06.015 晚 新中国联邦 | 新闻 躺平币将在全球交易市场上线   郭先生谈爱战友 相信人在做天在看  卖美贼改变不了灭共的正义大势  加拿大将解除中共病毒疫苗接种令  
+
+<img src="https://media.gettr.com/group42/origin/2022/06/16/00/52dfdb9a-9842-bd02-21b1-ad646980cbda/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1ecrlqa778.md)
 
 2022.06.15 PM NFSC Fringe   Current crypto market; CCP quietly building its own blockchain platform
@@ -144,11 +152,13 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/16/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ed8kna3df.md)
+[@miles 6/16/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1ed6ht28c3.md)
 
-2022.06.015 晚 新中国联邦 | 新闻 躺平币将在全球交易市场上线   郭先生谈爱战友 相信人在做天在看  卖美贼改变不了灭共的正义大势  加拿大将解除中共病毒疫苗接种令  
+2022.06.15 晚 新中国联邦 | 新闻访谈 陈全国遭遇冷藏，入常无望； 中共国家粮储局前局长张务峰落马； 47国敦促联合国，尽快发布新疆人权报告； 美国国务院称，台湾海峡为“国际水道”
 
-<img src="https://media.gettr.com/group42/origin/2022/06/16/00/52dfdb9a-9842-bd02-21b1-ad646980cbda/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group42/origin/2022/06/16/01/1304b1ca-6bbb-9a81-d7bc-39f79c3892b7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,16 +167,6 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background, while the various factions in the CCP also count on him to balance their interests; Alvin Jiang meaningfully told a fore...
 
 <img src="https://media.gettr.com/group19/getter/2022/06/14/23/312e4124-90b6-fce8-0ac9-4bbefbc8c18c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1e63l95b03.md)
-
-飞飞秀 《潜水艇篇》 2022-06-14
-
-For English：gettr.com/streaming/p1e6fdu8e99
-
-<img src="https://media.gettr.com/group20/origin/2022/06/14/22/b42e0932-902d-c61d-bb38-0bc79468cfaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
