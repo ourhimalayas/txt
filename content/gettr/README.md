@@ -2,17 +2,25 @@
 ---
 
 
+[@miles 6/16/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p1efdl24608.md)
+
+2022.06.16 早 新中国联邦 | 新闻  二十大，中共政治斗争的决战场; 喜币，当今世界唯一真正稳定的数字货币;港共新版教材恶意篡改历史
+
+<img src="https://media.gettr.com/group22/origin/2022/06/16/12/884188e0-abdf-86ff-9017-71aabea6bfbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 12:02 PM UTC ](/content/gettr/p1efdnf647a.md)
 
 https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p1efdl24608.md)
+[@miles 6/16/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1ef05z20a3.md)
 
-2022.06.16 早 新中国联邦 | 新闻  二十大，中共政治斗争的决战场; 喜币，当今世界唯一真正稳定的数字货币;港共新版教材恶意篡改历史
+2022.06.16早 新中国联邦 | 新闻访谈 中俄承诺深化合作 美批北京站错边；抗通胀：美联储升息0.75%；美国会拟推新法限制美企业在华投资，俄经济论坛抱团取暖；德法意领导人访基辅；福奇感染新冠
 
-<img src="https://media.gettr.com/group22/origin/2022/06/16/12/884188e0-abdf-86ff-9017-71aabea6bfbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/06/16/13/1ab4ccac-6b52-cd85-d62c-2f3463dfd209/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ For English：gettr.com/post/p1ec4yb8c1c
 2022年6月15日 MOS《回响》专场
 
 <img src="https://media.gettr.com/group4/origin/2022/06/15/13/ab400733-7b81-45ad-e7c5-b958292b4371/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 12:06 PM UTC  - :tv:直播](/content/gettr/p1eafvq19dc.md)
-
-22.06.15 AM NFSC News    The CCP's Wars Are Only for the Elimination of Selected Populations
-
-<img src="https://media.gettr.com/group21/origin/2022/06/15/12/59cf542e-98f3-5b3b-3de2-8bbb5e08a0ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
