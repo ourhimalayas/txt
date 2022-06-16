@@ -2,6 +2,14 @@
 ---
 
 
+[@himalayaaus 6/16/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1ef1zs7614.md)
+
+2022.06.16 澳喜深挖爆料 ABC 的 Echo Hui是谁？揭开ABC幕后的黑手  — Echo Hui  系列节目，澳喜深挖echo hui，“人权”记者之路
+
+<img src="https://media.gettr.com/group20/origin/2022/06/16/11/c02c7c80-6353-6e9f-8ef7-3188f5006429/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1ef05z20a3.md)
 
 2022.06.16早 新中国联邦 | 新闻访谈 中俄承诺深化合作 美批北京站错边；抗通胀：美联储升息0.75%；美国会拟推新法限制美企业在华投资，俄经济论坛抱团取暖；德法意领导人访基辅；福奇感染新冠
@@ -24,11 +32,11 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@himalayaaus 6/16/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1ef1zs7614.md)
+[@miles 6/16/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1egi6tfbb9.md)
 
-2022.06.16 澳喜深挖爆料 ABC 的 Echo Hui是谁？揭开ABC幕后的黑手  — Echo Hui  系列节目，澳喜深挖echo hui，“人权”记者之路
+2022.06.16 文贵大直播精华版
 
-<img src="https://media.gettr.com/group20/origin/2022/06/16/11/c02c7c80-6353-6e9f-8ef7-3188f5006429/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/06/16/17/102fb189-4f01-f0a5-c56e-e834487bbe3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ For English：gettr.com/post/p1ec4yb8c1c
 2022年6月15日 新中国联邦 | 喜健康  《医学观察》 PCR 病毒检测骗局 - 核酸政治
 
 <img src="https://media.gettr.com/group11/origin/2022/06/15/20/e3e5bc10-ce9e-86d8-0718-45a2360ea5ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 4:37 PM UTC  - :tv:直播](/content/gettr/p1eb9db56ea.md)
-
-2022年6月15日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group5/origin/2022/06/15/16/da456165-f7bd-07fb-29f3-a6c3f96c3331/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
