@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 6/16/2022 12:02 PM UTC ](/content/gettr/p1efdnf647a.md)
+
+https://gettr.com/streaming/p1ef1zs7614
+
+---
+
+[@miles 6/16/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1efna4cc39.md)
+
+20220616 NFSC·ニュース　カナダ、国内外旅行における予防接種の制限を一時停止
+
+<img src="https://media.gettr.com/group38/origin/2022/06/08/11/9a600512-453f-c388-b240-fb7979dc94ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 11:14 AM UTC ](/content/gettr/p1ef22a5155.md)
 
 Multiple media and platforms reported the 2nd anniversary celebration of the New Federal State of China (NFSC)
@@ -28,11 +42,11 @@ On June 15, multiple media and platforms reported or reprinted the 2nd anniversa
 
 ---
 
-[@miles 6/16/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1efna4cc39.md)
+[@miles 6/16/2022 12:05 PM UTC  - :tv:直播](/content/gettr/p1efo559115.md)
 
-20220616 NFSC·ニュース　カナダ、国内外旅行における予防接種の制限を一時停止
+2022.06.16 AM NFSC news  IKEA closes two stores within three months in Communist China
 
-<img src="https://media.gettr.com/group38/origin/2022/06/08/11/9a600512-453f-c388-b240-fb7979dc94ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/05/28/12/07219e32-55cc-4841-91f0-88f2f4252c5d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,26 +169,6 @@ For English：gettr.com/post/p1ec4yb8c1c
 20220615  NFSCニュース　中共による世界的金融構成の罠
 
 <img src="https://media.gettr.com/group39/origin/2022/06/15/11/6bce0641-fb05-f898-0413-1dedf5c03eff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1eai37adf0.md)
-
-2022.06.15 新中国联邦 | 军情室 回顾1949年后的国共军事冲突 - 八二三炮战
-
-<img src="https://media.gettr.com/group8/origin/2022/06/15/10/eb9f3eea-30fe-005b-1be6-71a544fd487d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 9:56 AM UTC ](/content/gettr/p1e9kzs6846.md)
-
-Biochemical Warfare Of COVID-19 and Its Vaccines – A joint effort between the Chinese Communist Party and Western dark forces has been completed
-
-
-
-People often deny the presence of a catastrophe while facing it. This is the reason...
-
-<img src="https://media.gettr.com/group5/origin/2022/06/15/09/b1db1b6c-de9b-6955-8051-51c6d6ec8e73/d833b81af8c5095bae1120a9550f42ef.jpg" width="506" height="284">
 
 ---
 
