@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/16/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1ecq66193a.md)
+
+2022.06.15 新中国联邦 | 喜财经 第80期  汇丰银行：百年前掏空大清使其灭亡，如今喜币躺平币掏干中共
+
+<img src="https://media.gettr.com/group39/origin/2022/06/16/02/383f9d98-b097-145e-2b89-d178d57a5564/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1ed6ht28c3.md)
 
 2022.06.15 晚 新中国联邦 | 新闻访谈 陈全国遭遇冷藏，入常无望； 中共国家粮储局前局长张务峰落马； 47国敦促联合国，尽快发布新疆人权报告； 美国国务院称，台湾海峡为“国际水道”
@@ -154,19 +162,15 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/16/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1ecq66193a.md)
+[@miles 6/16/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1edg9t49a5.md)
 
-2022.06.15 新中国联邦 | 喜财经 第80期  汇丰银行：百年前掏空大清使其灭亡，如今喜币躺平币掏干中共
+6/12/2022 Miles Guo: Communist China may experience natural disasters, wars, military coups, or political revolutions this year. As long as one of these happens, the CCP will be finished.
 
-<img src="https://media.gettr.com/group39/origin/2022/06/16/02/383f9d98-b097-145e-2b89-d178d57a5564/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
----
 
-[@miles 6/14/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p1e6y8t73ac.md)
+6/12/2022 文贵直播：中共国今年可能爆发灾难、战争、军事或政治革命，只要...
 
-6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background, while the various factions in the CCP also count on him to balance their interests; Alvin Jiang meaningfully told a fore...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/14/23/312e4124-90b6-fce8-0ac9-4bbefbc8c18c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/06/16/02/a1a39217-010f-5b3e-3c95-f27b28224f31/out.jpg" width="506" height="284">
 
 ---
 
