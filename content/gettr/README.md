@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/16/2022 11:14 AM UTC ](/content/gettr/p1ef22a5155.md)
+
+Multiple media and platforms reported the 2nd anniversary celebration of the New Federal State of China (NFSC)
+
+On June 15, multiple media and platforms reported or reprinted the 2nd anniversary celebration of the NFSC with the hea...
+
+<img src="https://media.gettr.com/group28/origin/2022/06/16/11/9208a970-70a3-40a4-fc9d-538bed084635/aa2bbb6a3d936c4930f9f686c37e9ce0.png" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p1edv8a9545.md)
 
 6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: I hope young people stick to principles when dealing with matters. Don’t echo the views of others. The CCP intends to brainwash young peop...
@@ -18,13 +28,11 @@
 
 ---
 
-[@miles 6/16/2022 11:14 AM UTC ](/content/gettr/p1ef22a5155.md)
+[@miles 6/16/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1efna4cc39.md)
 
-Multiple media and platforms reported the 2nd anniversary celebration of the New Federal State of China (NFSC)
+20220616 NFSC·ニュース　カナダ、国内外旅行における予防接種の制限を一時停止
 
-On June 15, multiple media and platforms reported or reprinted the 2nd anniversary celebration of the NFSC with the hea...
-
-<img src="https://media.gettr.com/group28/origin/2022/06/16/11/9208a970-70a3-40a4-fc9d-538bed084635/aa2bbb6a3d936c4930f9f686c37e9ce0.png" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/06/08/11/9a600512-453f-c388-b240-fb7979dc94ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Biochemical Warfare Of COVID-19 and Its Vaccines – A joint effort between the 
 People often deny the presence of a catastrophe while facing it. This is the reason...
 
 <img src="https://media.gettr.com/group5/origin/2022/06/15/09/b1db1b6c-de9b-6955-8051-51c6d6ec8e73/d833b81af8c5095bae1120a9550f42ef.jpg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1e7svb3e7c.md)
-
-2022-6-14《鸡血王喜币大作战》 第二百二十六集 嘉宾：无双柳薇薇、文空
-
-<img src="https://media.gettr.com/group16/origin/2022/06/15/03/27a5ab24-9bd5-2821-dd2a-734cccc34e3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
