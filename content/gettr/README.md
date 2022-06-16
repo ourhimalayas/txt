@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/16/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1egwe0d1ee.md)
+
+2022.06.16  新中国联邦 | 喜健康  郭先生说的比父母还重要的是什么？世界上的哪个地方深深影响了他？
+
+<img src="https://media.gettr.com/group34/origin/2022/06/16/20/5e22c0d3-1ef6-3513-5efd-e354126a41ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 7:56 PM UTC ](/content/gettr/p1eh9ed539b.md)
 
 🙏🙏🙏🙏🙏🙏🙏🙏🙏
@@ -60,11 +68,19 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1egwe0d1ee.md)
+[@newyorkrock 6/16/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1eg020baa6.md)
 
-2022.06.16  新中国联邦 | 喜健康  郭先生说的比父母还重要的是什么？世界上的哪个地方深深影响了他？
+No.2 ICU Doctor in the World breaks down over Adverse Reactions from the Covid jabs being ignored & calls it a #HumanitarianCrisis.
 
-<img src="https://media.gettr.com/group34/origin/2022/06/16/20/5e22c0d3-1ef6-3513-5efd-e354126a41ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+Heart broken
+
+
+
+世界ICU行业排名第二的 #保罗·马瑞克医生，谈到对疫苗真相的所见所闻和感受时，称此次 #人道危机和灾难 让他感到无法控制的悲伤和心痛。
+
+
+
+<img src="https://media.gettr.com/group25/getter/2022/06/16/16/07ae8ac7-d734-8a1c-4cc6-a0a7361de069/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +171,6 @@ The best way to take down the Chinese Communist Party is to make yourself strong
 2022.06.015 晚 新中国联邦 | 新闻 躺平币将在全球交易市场上线   郭先生谈爱战友 相信人在做天在看  卖美贼改变不了灭共的正义大势  加拿大将解除中共病毒疫苗接种令  
 
 <img src="https://media.gettr.com/group42/origin/2022/06/16/00/52dfdb9a-9842-bd02-21b1-ad646980cbda/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1ecrlqa778.md)
-
-2022.06.15 PM NFSC Fringe   Current crypto market; CCP quietly building its own blockchain platform
-
-<img src="https://media.gettr.com/group22/origin/2022/06/15/23/e8198fe5-e0f1-f591-80bf-9cf7448ca625/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
