@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/16/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ei50f1331.md)
+
+2022.06.16 PM NFSC News   Tang Ping Coin Will Be Traded on Global Crypto Exchanges
+
+<img src="https://media.gettr.com/group12/origin/2022/06/16/23/9e959d3a-4a6c-191c-30dc-38daa845aba8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1ehsny89b4.md)
 
 飞飞秀 · 六四篇《文宝老奶奶》2022-06-17
@@ -94,11 +102,11 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ei50f1331.md)
+[@miles 6/16/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p1ehw08a37c.md)
 
-2022.06.16 PM NFSC News   Tang Ping Coin Will Be Traded on Global Crypto Exchanges
+2022.06.16   NFSC Fringe
 
-<img src="https://media.gettr.com/group12/origin/2022/06/16/23/9e959d3a-4a6c-191c-30dc-38daa845aba8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/06/16/23/07ee0bce-12be-12fb-de76-c0a3a6f94272/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ The best way to take down the Chinese Communist Party is to make yourself strong
 6/12/2022 文贵直播：中共国今年可能爆发灾难、战争、军事或政治革命，只要...
 
 <img src="https://media.gettr.com/group5/getter/2022/06/16/02/a1a39217-010f-5b3e-3c95-f27b28224f31/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1ecq66193a.md)
-
-2022.06.15 新中国联邦 | 喜财经 第80期  汇丰银行：百年前掏空大清使其灭亡，如今喜币躺平币掏干中共
-
-<img src="https://media.gettr.com/group39/origin/2022/06/16/02/383f9d98-b097-145e-2b89-d178d57a5564/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
