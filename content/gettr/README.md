@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/16/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1egi6tfbb9.md)
+
+2022.06.16 文贵大直播精华版
+
+<img src="https://media.gettr.com/group11/origin/2022/06/16/17/102fb189-4f01-f0a5-c56e-e834487bbe3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@himalayaaus 6/16/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1ef1zs7614.md)
 
 2022.06.16 澳喜深挖爆料 ABC 的 Echo Hui是谁？揭开ABC幕后的黑手  — Echo Hui  系列节目，澳喜深挖echo hui，“人权”记者之路
@@ -32,11 +40,11 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1egi6tfbb9.md)
+[@miles 6/16/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eh8j9068f.md)
 
-2022.06.16 文贵大直播精华版
+2022-6-16《避风港》(60) 疫苗后儿童多系统炎症综合症MIS-C
 
-<img src="https://media.gettr.com/group11/origin/2022/06/16/17/102fb189-4f01-f0a5-c56e-e834487bbe3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ The best way to take down the Chinese Communist Party is to make yourself strong
 For English：gettr.com/post/p1ec4yb8c1c
 
 <img src="https://media.gettr.com/group45/origin/2022/06/15/22/fe377507-96a8-2771-c8a7-9f0292389382/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 8:54 PM UTC  - :tv:直播](/content/gettr/p1ebwts82c0.md)
-
-2022年6月15日 新中国联邦 | 喜健康  《医学观察》 PCR 病毒检测骗局 - 核酸政治
-
-<img src="https://media.gettr.com/group11/origin/2022/06/15/20/e3e5bc10-ce9e-86d8-0718-45a2360ea5ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
