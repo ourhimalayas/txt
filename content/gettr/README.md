@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/15/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1ecrlqa778.md)
+
+2022.06.15 PM NFSC Fringe   Current crypto market; CCP quietly building its own blockchain platform
+
+<img src="https://media.gettr.com/group22/origin/2022/06/15/23/e8198fe5-e0f1-f591-80bf-9cf7448ca625/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/15/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1eclf5fcce.md)
 
 2022.06.15 PM NFSC news  International Citizen-led Survey Shows Unvaccinated Are Less Hospitalized
@@ -136,11 +144,11 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/15/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1ecrlqa778.md)
+[@miles 6/16/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ed8kna3df.md)
 
-2022.06.15 PM NFSC Fringe   Current crypto market; CCP quietly building its own blockchain platform
+2022.06.015 晚 新中国联邦 | 新闻 躺平币将在全球交易市场上线   郭先生谈爱战友 相信人在做天在看  卖美贼改变不了灭共的正义大势  加拿大将解除中共病毒疫苗接种令  
 
-<img src="https://media.gettr.com/group22/origin/2022/06/15/23/e8198fe5-e0f1-f591-80bf-9cf7448ca625/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/06/16/00/52dfdb9a-9842-bd02-21b1-ad646980cbda/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 For English：gettr.com/streaming/p1e6fdu8e99
 
 <img src="https://media.gettr.com/group20/origin/2022/06/14/22/b42e0932-902d-c61d-bb38-0bc79468cfaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/14/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1e5y3n84bb.md)
-
-2022年06月14日  新中国联邦 | 喜健康 《CCP解剖学》 新西兰农场“文疯而逃”讲述前线战友 CCP 病毒感染康复历程；病毒，疫苗子母弹之异同，康复用药探讨。
-
-<img src="https://media.gettr.com/group42/origin/2022/06/14/20/744949ca-d21a-43ac-a030-b28a61c93dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
