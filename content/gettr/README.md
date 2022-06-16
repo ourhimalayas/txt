@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/16/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1ed6ht28c3.md)
+
+2022.06.15 晚 新中国联邦 | 新闻访谈 陈全国遭遇冷藏，入常无望； 中共国家粮储局前局长张务峰落马； 47国敦促联合国，尽快发布新疆人权报告； 美国国务院称，台湾海峡为“国际水道”
+
+
+
+<img src="https://media.gettr.com/group42/origin/2022/06/16/01/1304b1ca-6bbb-9a81-d7bc-39f79c3892b7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ed8kna3df.md)
 
 2022.06.015 晚 新中国联邦 | 新闻 躺平币将在全球交易市场上线   郭先生谈爱战友 相信人在做天在看  卖美贼改变不了灭共的正义大势  加拿大将解除中共病毒疫苗接种令  
@@ -144,21 +154,11 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 
 ---
 
-[@miles 6/14/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1e7063b59b.md)
+[@miles 6/16/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1ecq66193a.md)
 
-2022.06.14 PM NFSC news  Canadian Man Receives Compensation for CCP Virus Vaccine Injury
+2022.06.15 新中国联邦 | 喜财经 第80期  汇丰银行：百年前掏空大清使其灭亡，如今喜币躺平币掏干中共
 
-<img src="https://media.gettr.com/group24/origin/2022/06/14/22/bede6ab9-14f5-c636-7258-9c21ea6f2676/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/16/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1ed6ht28c3.md)
-
-2022.06.15 晚 新中国联邦 | 新闻访谈 陈全国遭遇冷藏，入常无望； 中共国家粮储局前局长张务峰落马； 47国敦促联合国，尽快发布新疆人权报告； 美国国务院称，台湾海峡为“国际水道”
-
-
-
-<img src="https://media.gettr.com/group42/origin/2022/06/16/01/1304b1ca-6bbb-9a81-d7bc-39f79c3892b7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/06/16/02/383f9d98-b097-145e-2b89-d178d57a5564/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
