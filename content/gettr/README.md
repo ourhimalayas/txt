@@ -2,6 +2,22 @@
 ---
 
 
+[@newyorkrock 6/16/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1eg020baa6.md)
+
+No.2 ICU Doctor in the World breaks down over Adverse Reactions from the Covid jabs being ignored & calls it a #HumanitarianCrisis.
+
+Heart broken
+
+
+
+世界ICU行业排名第二的 #保罗·马瑞克医生，谈到对疫苗真相的所见所闻和感受时，称此次 #人道危机和灾难 让他感到无法控制的悲伤和心痛。
+
+
+
+<img src="https://media.gettr.com/group25/getter/2022/06/16/16/07ae8ac7-d734-8a1c-4cc6-a0a7361de069/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1egwe0d1ee.md)
 
 2022.06.16  新中国联邦 | 喜健康  郭先生说的比父母还重要的是什么？世界上的哪个地方深深影响了他？
@@ -68,19 +84,13 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@newyorkrock 6/16/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1eg020baa6.md)
+[@miles 6/16/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1ehsny89b4.md)
 
-No.2 ICU Doctor in the World breaks down over Adverse Reactions from the Covid jabs being ignored & calls it a #HumanitarianCrisis.
+飞飞秀 · 六四篇《文宝老奶奶》2022-06-17
 
-Heart broken
+For English：gettr.com/streaming/p1eha1u92bd
 
-
-
-世界ICU行业排名第二的 #保罗·马瑞克医生，谈到对疫苗真相的所见所闻和感受时，称此次 #人道危机和灾难 让他感到无法控制的悲伤和心痛。
-
-
-
-<img src="https://media.gettr.com/group25/getter/2022/06/16/16/07ae8ac7-d734-8a1c-4cc6-a0a7361de069/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/06/16/22/f21c53eb-0a6f-1cd6-a7e7-6332864bc2f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ The best way to take down the Chinese Communist Party is to make yourself strong
 
 
 <img src="https://media.gettr.com/group42/origin/2022/06/16/01/1304b1ca-6bbb-9a81-d7bc-39f79c3892b7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/16/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ed8kna3df.md)
-
-2022.06.015 晚 新中国联邦 | 新闻 躺平币将在全球交易市场上线   郭先生谈爱战友 相信人在做天在看  卖美贼改变不了灭共的正义大势  加拿大将解除中共病毒疫苗接种令  
-
-<img src="https://media.gettr.com/group42/origin/2022/06/16/00/52dfdb9a-9842-bd02-21b1-ad646980cbda/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
