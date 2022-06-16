@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/16/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p1edv8a9545.md)
+
+6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: I hope young people stick to principles when dealing with matters. Don’t echo the views of others. The CCP intends to brainwash young peop...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/16/03/bd2ab158-9b6d-b3c3-177c-c31b99d86900/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1ednfvdafb.md)
 
 2022-6-15《鸡血王喜币大作战》 第二百二十七集 嘉宾：齐天二圣、Nick
@@ -10,11 +18,13 @@
 
 ---
 
-[@miles 6/16/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p1edv8a9545.md)
+[@miles 6/16/2022 11:14 AM UTC ](/content/gettr/p1ef22a5155.md)
 
-6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: I hope young people stick to principles when dealing with matters. Don’t echo the views of others. The CCP intends to brainwash young peop...
+Multiple media and platforms reported the 2nd anniversary celebration of the New Federal State of China (NFSC)
 
-<img src="https://media.gettr.com/group48/getter/2022/06/16/03/bd2ab158-9b6d-b3c3-177c-c31b99d86900/out.jpg" width="506" height="284">
+On June 15, multiple media and platforms reported or reprinted the 2nd anniversary celebration of the NFSC with the hea...
+
+<img src="https://media.gettr.com/group28/origin/2022/06/16/11/9208a970-70a3-40a4-fc9d-538bed084635/aa2bbb6a3d936c4930f9f686c37e9ce0.png" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ People often deny the presence of a catastrophe while facing it. This is the rea
 2022-6-14《鸡血王喜币大作战》 第二百二十六集 嘉宾：无双柳薇薇、文空
 
 <img src="https://media.gettr.com/group16/origin/2022/06/15/03/27a5ab24-9bd5-2821-dd2a-734cccc34e3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1e73dme127.md)
-
-2022.06.14 新中国联邦 | 喜财经 第79期 六四简短回顾；熙姐谈股市汇市黄金石油人民币走势；国内乱象，哀鸣遍野；世界经济危机的加速到来；数字货币的全面暴跌，喜币和躺平币的后市展望
-
-<img src="https://media.gettr.com/group15/origin/2022/06/15/02/37223f77-5cc3-3542-e6a3-a0ce47239ffa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
