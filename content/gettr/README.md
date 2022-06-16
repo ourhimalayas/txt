@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/16/2022 7:31 PM UTC ](/content/gettr/p1eh7ul0d64.md)
+
+6月16日：🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💪💪💪💪💪💪💪💪💪💪💪💪
+
+---
+
 [@miles 6/16/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eh8j9068f.md)
 
 2022-6-16《避风港》(60) 疫苗后儿童多系统炎症综合症MIS-C
@@ -48,9 +54,9 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 7:31 PM UTC ](/content/gettr/p1eh7ul0d64.md)
+[@miles 6/16/2022 7:56 PM UTC ](/content/gettr/p1eh9ed539b.md)
 
-6月16日：🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💪💪💪💪💪💪💪💪💪💪💪💪
+🙏🙏🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
@@ -157,14 +163,6 @@ The best way to take down the Chinese Communist Party is to make yourself strong
 2022.06.15 PM NFSC news  International Citizen-led Survey Shows Unvaccinated Are Less Hospitalized
 
 <img src="https://media.gettr.com/group26/origin/2022/06/15/22/170f4373-d998-35e5-0710-524fea37befa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/15/2022 10:47 PM UTC  - :tv:直播](/content/gettr/p1ech4x41b7.md)
-
-6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: The celebration of the second anniversary of the New Federal State of China is fundamentally different from last year’s celebration. Becau...
-
-<img src="https://media.gettr.com/group4/getter/2022/06/15/22/edfac31f-cedc-bc0f-ee3a-30ee8bbe0ffe/out.jpg" width="506" height="284">
 
 ---
 
