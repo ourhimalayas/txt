@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/16/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eh8j9068f.md)
+
+2022-6-16《避风港》(60) 疫苗后儿童多系统炎症综合症MIS-C
+
+<img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1egi6tfbb9.md)
 
 2022.06.16 文贵大直播精华版
@@ -40,11 +48,9 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eh8j9068f.md)
+[@miles 6/16/2022 7:31 PM UTC ](/content/gettr/p1eh7ul0d64.md)
 
-2022-6-16《避风港》(60) 疫苗后儿童多系统炎症综合症MIS-C
-
-<img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+6月16日：🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💪💪💪💪💪💪💪💪💪💪💪💪
 
 ---
 
@@ -159,16 +165,6 @@ The best way to take down the Chinese Communist Party is to make yourself strong
 6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: The celebration of the second anniversary of the New Federal State of China is fundamentally different from last year’s celebration. Becau...
 
 <img src="https://media.gettr.com/group4/getter/2022/06/15/22/edfac31f-cedc-bc0f-ee3a-30ee8bbe0ffe/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/15/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ecia0aa50.md)
-
-飞飞秀Live with Fayfay 《喜币最干净！》2022-06-15
-
-For English：gettr.com/post/p1ec4yb8c1c
-
-<img src="https://media.gettr.com/group45/origin/2022/06/15/22/fe377507-96a8-2771-c8a7-9f0292389382/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
