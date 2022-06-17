@@ -2,6 +2,16 @@
 ---
 
 
+[@himalayaathena 6/16/2022 12:02 PM UTC ](/content/gettr/p1ef9xzb8c3.md)
+
+7·24系列——改变历史的“深山老林”（一）
+
+2022年6月13日，郭文贵先生再一次宣布要进深山老林开会。“深山老林”一般是指人迹罕至的原始森林，但在爆料革命里却具有特殊的含义，它表示文贵先生会和一些影响甚至主宰世界命运的人物聚在一起开会。回顾过往，文贵先生每一次进深山老林开会后，灭共进程都发生了重大的转变，某种意义上说也影响了人类前进的步伐。
+
+https://gnews.org/post/p5cvdddf
+
+---
+
 [@miles 6/17/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p1ehxtgfdbf.md)
 
 2022.06.16  新中国联邦 | 喜财经  第81期 河南银行暴雷会引发剩下80多家银行暴雷
@@ -150,19 +160,11 @@ Heart broken
 
 ---
 
-[@miles 6/16/2022 12:02 PM UTC ](/content/gettr/p1efdnf647a.md)
+[@miles 6/17/2022 3:34 AM UTC  - :tv:直播](/content/gettr/p1ej0khb879.md)
 
-https://gettr.com/streaming/p1ef1zs7614
+2022-6-16《鸡血王喜币大作战》 第二百二十八集 嘉宾：无双柳薇薇、文空
 
----
-
-[@himalayaathena 6/16/2022 12:02 PM UTC ](/content/gettr/p1ef9xzb8c3.md)
-
-7·24系列——改变历史的“深山老林”（一）
-
-2022年6月13日，郭文贵先生再一次宣布要进深山老林开会。“深山老林”一般是指人迹罕至的原始森林，但在爆料革命里却具有特殊的含义，它表示文贵先生会和一些影响甚至主宰世界命运的人物聚在一起开会。回顾过往，文贵先生每一次进深山老林开会后，灭共进程都发生了重大的转变，某种意义上说也影响了人类前进的步伐。
-
-https://gnews.org/post/p5cvdddf
+<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
