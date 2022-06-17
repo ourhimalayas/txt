@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/17/2022 3:57 PM UTC  - :tv:直播](/content/gettr/p1el8zv63b1.md)
+
+6/8/2022 Miles Guo: To disrupt the 2nd anniversary of the New Federal State of China, the CCP hacked the elevator that I was in. This is exactly the same technique used by the CCP to cause Lady May to lose control on the Hudson Riv...
+
+<img src="https://media.gettr.com/group40/getter/2022/06/17/15/decff1c2-d167-bd92-b074-98926a52a9de/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/17/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1ekpsz459d.md)
+
+2022年6月17日 文贵大直播：全球数字货币暴跌；世界金融市场动荡；中共金融危机乱象；良币必将驱逐劣币
+
+<img src="https://media.gettr.com/group28/origin/2022/06/17/12/2b7f0bd9-e3c7-466b-fbee-5e24145eddb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 11:33 AM UTC  - :tv:直播](/content/gettr/p1ekquu2ae7.md)
 
 20220617 NFSCニュース　米国　中国に最終通告
@@ -23,14 +39,6 @@
 2022.06.17 新中国联邦 | 军情室  漫步欧洲国际防务展 Eurosatory 2022----看欧洲新世代坦克
 
 <img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1ekpsz459d.md)
-
-2022年6月17日 文贵大直播：全球数字货币暴跌；世界金融市场动荡；中共金融危机乱象；良币必将驱逐劣币
-
-<img src="https://media.gettr.com/group28/origin/2022/06/17/12/2b7f0bd9-e3c7-466b-fbee-5e24145eddb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,12 +179,6 @@ Heart broken
 [@miles 6/16/2022 7:56 PM UTC ](/content/gettr/p1eh9ed539b.md)
 
 🙏🙏🙏🙏🙏🙏🙏🙏🙏
-
----
-
-[@miles 6/16/2022 7:31 PM UTC ](/content/gettr/p1eh7ul0d64.md)
-
-6月16日：🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💪💪💪💪💪💪💪💪💪💪💪💪
 
 ---
 
