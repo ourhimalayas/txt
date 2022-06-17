@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ehtbb32e3.md)
+
+2022.06.16  晚 新中国联邦⎪新闻  二十大是中共政治斗争的决战场；喜币是当今世界唯一真正稳定的数字货币；港共新版教材恶意篡改历史；台湾警告世界，中共攻台将对全球贸易造成更大破坏
+
+<img src="https://media.gettr.com/group33/origin/2022/06/17/00/db28048d-0d68-403a-0956-097a9d2ad6f3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 12:10 AM UTC  - :tv:直播](/content/gettr/p1ehqrm2d40.md)
 
 6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background; Alvin Jiang’s grudge against Xi is extraordinary!
@@ -132,11 +140,11 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/17/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ehtbb32e3.md)
+[@miles 6/17/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1ehzyi5fa6.md)
 
-2022.06.16  晚 新中国联邦⎪新闻  二十大是中共政治斗争的决战场；喜币是当今世界唯一真正稳定的数字货币；港共新版教材恶意篡改历史；台湾警告世界，中共攻台将对全球贸易造成更大破坏
+2022.06.16 晚 新中国联邦 | 新闻访谈 台海局势日趋紧张；加息抗通胀？金融泡沫扛不住；摩根时代
 
-<img src="https://media.gettr.com/group33/origin/2022/06/17/00/db28048d-0d68-403a-0956-097a9d2ad6f3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/06/17/01/2b8bc5a6-1036-0989-ce36-fb8383733982/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Multiple media and platforms reported the 2nd anniversary celebration of the New
 On June 15, multiple media and platforms reported or reprinted the 2nd anniversary celebration of the NFSC with the hea...
 
 <img src="https://media.gettr.com/group28/origin/2022/06/16/11/9208a970-70a3-40a4-fc9d-538bed084635/aa2bbb6a3d936c4930f9f686c37e9ce0.png" width="506" height="284">
-
----
-
-[@miles 6/16/2022 3:15 AM UTC  - :tv:直播](/content/gettr/p1edv8a9545.md)
-
-6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: I hope young people stick to principles when dealing with matters. Don’t echo the views of others. The CCP intends to brainwash young peop...
-
-<img src="https://media.gettr.com/group48/getter/2022/06/16/03/bd2ab158-9b6d-b3c3-177c-c31b99d86900/out.jpg" width="506" height="284">
 
 ---
 
