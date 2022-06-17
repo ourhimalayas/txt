@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1ehzyi5fa6.md)
+
+2022.06.16 晚 新中国联邦 | 新闻访谈 台海局势日趋紧张；加息抗通胀？金融泡沫扛不住；摩根时代
+
+<img src="https://media.gettr.com/group25/origin/2022/06/17/01/2b8bc5a6-1036-0989-ce36-fb8383733982/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ehtbb32e3.md)
 
 2022.06.16  晚 新中国联邦⎪新闻  二十大是中共政治斗争的决战场；喜币是当今世界唯一真正稳定的数字货币；港共新版教材恶意篡改历史；台湾警告世界，中共攻台将对全球贸易造成更大破坏
@@ -140,11 +148,11 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/17/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1ehzyi5fa6.md)
+[@miles 6/17/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p1ehxtgfdbf.md)
 
-2022.06.16 晚 新中国联邦 | 新闻访谈 台海局势日趋紧张；加息抗通胀？金融泡沫扛不住；摩根时代
+2022.06.16  新中国联邦 | 喜财经  第81期 河南银行暴雷会引发剩下80多家银行暴雷
 
-<img src="https://media.gettr.com/group25/origin/2022/06/17/01/2b8bc5a6-1036-0989-ce36-fb8383733982/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/06/17/01/fd66b280-f65c-92ea-4472-a3b8e788135b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ https://gettr.com/streaming/p1ef1zs7614
 20220616 NFSC·ニュース　カナダ、国内外旅行における予防接種の制限を一時停止
 
 <img src="https://media.gettr.com/group38/origin/2022/06/08/11/9a600512-453f-c388-b240-fb7979dc94ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 11:14 AM UTC ](/content/gettr/p1ef22a5155.md)
-
-Multiple media and platforms reported the 2nd anniversary celebration of the New Federal State of China (NFSC)
-
-On June 15, multiple media and platforms reported or reprinted the 2nd anniversary celebration of the NFSC with the hea...
-
-<img src="https://media.gettr.com/group28/origin/2022/06/16/11/9208a970-70a3-40a4-fc9d-538bed084635/aa2bbb6a3d936c4930f9f686c37e9ce0.png" width="506" height="284">
 
 ---
 
