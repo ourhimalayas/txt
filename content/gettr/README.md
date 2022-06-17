@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/17/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1ekehs95ae.md)
+[@miles 6/17/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1ekawtda23.md)
 
-2022.06.17 新中国联邦 | 军情室  漫步欧洲国际防务展 Eurosatory 2022----看欧洲新世代坦克
+2022年6月17日 文贵大直播：全球数字货币暴跌；世界金融市场动荡；中共金融危机乱象；良币必将驱逐劣币
 
-<img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/06/17/12/4ff465dd-aef1-777f-72a8-1cad5077f73c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 20220617 NFSCニュース　米国　中国に最終通告
 
 <img src="https://media.gettr.com/group7/origin/2022/06/17/11/488487da-02a7-6cd6-126a-a0d4f79eee16/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/17/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1ekehs95ae.md)
+
+2022.06.17 新中国联邦 | 军情室  漫步欧洲国际防务展 Eurosatory 2022----看欧洲新世代坦克
+
+<img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/17/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1ekpsz459d.md)
+
+2022年6月17日 文贵大直播：全球数字货币暴跌；世界金融市场动荡；中共金融危机乱象；良币必将驱逐劣币
+
+<img src="https://media.gettr.com/group28/origin/2022/06/17/12/2b7f0bd9-e3c7-466b-fbee-5e24145eddb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,22 +177,6 @@ Heart broken
 [@miles 6/16/2022 7:31 PM UTC ](/content/gettr/p1eh7ul0d64.md)
 
 6月16日：🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💪💪💪💪💪💪💪💪💪💪💪💪
-
----
-
-[@miles 6/16/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eh8j9068f.md)
-
-2022-6-16《避风港》(60) 疫苗后儿童多系统炎症综合症MIS-C
-
-<img src="https://media.gettr.com/group12/origin/2022/04/12/18/3e07c456-6441-10ce-8aa2-430e4d0f70be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1egi6tfbb9.md)
-
-2022.06.16 文贵大直播精华版
-
-<img src="https://media.gettr.com/group11/origin/2022/06/16/17/102fb189-4f01-f0a5-c56e-e834487bbe3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
