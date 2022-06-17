@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 3:57 PM UTC  - :tv:直播](/content/gettr/p1el8zv63b1.md)
+
+6/8/2022 Miles Guo: To disrupt the 2nd anniversary of the New Federal State of China, the CCP hacked the elevator that I was in. This is exactly the same technique used by the CCP to cause Lady May to lose control on the Hudson Riv...
+
+<img src="https://media.gettr.com/group40/getter/2022/06/17/15/decff1c2-d167-bd92-b074-98926a52a9de/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1ekawtda23.md)
 
 2022年6月17日 文贵大直播：全球数字货币暴跌；世界金融市场动荡；中共金融危机乱象；良币必将驱逐劣币
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/17/2022 3:57 PM UTC  - :tv:直播](/content/gettr/p1el8zv63b1.md)
+[@miles 6/17/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1elj43c5fa.md)
 
-6/8/2022 Miles Guo: To disrupt the 2nd anniversary of the New Federal State of China, the CCP hacked the elevator that I was in. This is exactly the same technique used by the CCP to cause Lady May to lose control on the Hudson Riv...
+2022年6月17日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group40/getter/2022/06/17/15/decff1c2-d167-bd92-b074-98926a52a9de/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/06/17/16/bb7181b4-d22d-cc18-18b6-98600aa722a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,12 +181,6 @@ Heart broken
 2022.06.16  新中国联邦 | 喜健康  郭先生说的比父母还重要的是什么？世界上的哪个地方深深影响了他？
 
 <img src="https://media.gettr.com/group34/origin/2022/06/16/20/5e22c0d3-1ef6-3513-5efd-e354126a41ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 7:56 PM UTC ](/content/gettr/p1eh9ed539b.md)
-
-🙏🙏🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
