@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1elj43c5fa.md)
+
+2022年6月17日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group34/origin/2022/06/17/16/bb7181b4-d22d-cc18-18b6-98600aa722a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 3:57 PM UTC  - :tv:直播](/content/gettr/p1el8zv63b1.md)
 
 6/8/2022 Miles Guo: To disrupt the 2nd anniversary of the New Federal State of China, the CCP hacked the elevator that I was in. This is exactly the same technique used by the CCP to cause Lady May to lose control on the Hudson Riv...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/17/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1elj43c5fa.md)
+[@miles 6/17/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1emlfe08a5.md)
 
-2022年6月17日 俄乌战争战况播报
+2022年6月17日 新中国联邦 | 喜健康  寻医问药：在线答疑； 《心理访谈》唐山恶人如何炼成？
 
-<img src="https://media.gettr.com/group34/origin/2022/06/17/16/bb7181b4-d22d-cc18-18b6-98600aa722a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Heart broken
 
 
 <img src="https://media.gettr.com/group25/getter/2022/06/16/16/07ae8ac7-d734-8a1c-4cc6-a0a7361de069/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p1egwe0d1ee.md)
-
-2022.06.16  新中国联邦 | 喜健康  郭先生说的比父母还重要的是什么？世界上的哪个地方深深影响了他？
-
-<img src="https://media.gettr.com/group34/origin/2022/06/16/20/5e22c0d3-1ef6-3513-5efd-e354126a41ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
