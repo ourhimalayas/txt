@@ -14,6 +14,24 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 
 ---
 
+[@miles 6/17/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1elw10632c.md)
+
+6/8/2022 Miles Guo: Due to a series of threats and the false positive COVID test of our fellow fighters, people in charge of my security from the local government, Mr Bannon and my own security team were all against that I particip...
+
+<img src="https://media.gettr.com/group11/getter/2022/06/17/22/2ae584f8-8bd4-7e5f-5cf3-7e300e35a2f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/17/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1em3co8fc6.md)
+
+飞飞秀《明道篇》2022-06-17
+
+For English：gettr.com/post/p1elwqe9db5
+
+<img src="https://media.gettr.com/group18/origin/2022/06/17/21/bf1c9a1c-23e6-be75-bcab-3fc31448ff43/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@cornfieldsis 6/17/2022 9:27 PM UTC  - :tv:直播](/content/gettr/p1em23u411d.md)
 
 米兰现场好high啊！  Jhay Cortez 穿的是 G | Fashion 的 鳄鱼皮马甲+ 我们的信仰之星； 新款G |Fashion 的裤子！ 
@@ -25,16 +43,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 @Miles @gfashion
 
 <img src="https://media.gettr.com/group42/origin/2022/06/17/21/5a2ac398-12a4-64fc-32bd-a638660a4a18/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1em3co8fc6.md)
-
-飞飞秀《明道篇》2022-06-17
-
-For English：gettr.com/post/p1elwqe9db5
-
-<img src="https://media.gettr.com/group18/origin/2022/06/17/21/bf1c9a1c-23e6-be75-bcab-3fc31448ff43/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,12 +189,6 @@ https://gnews.org/post/p5cvdddf
 
 
 <img src="https://media.gettr.com/group40/getter/2022/06/17/00/a03902ef-9b8d-52f4-f98e-388b59c041e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 11:46 PM UTC ](/content/gettr/p1ehp8h8a93.md)
-
-https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
