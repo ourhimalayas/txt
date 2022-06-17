@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/16/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p1efdl24608.md)
+[@miles 6/17/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1ekehs95ae.md)
 
-2022.06.16 早 新中国联邦 | 新闻  二十大，中共政治斗争的决战场; 喜币，当今世界唯一真正稳定的数字货币;港共新版教材恶意篡改历史
+2022.06.17 新中国联邦 | 军情室  漫步欧洲国际防务展 Eurosatory 2022----看欧洲新世代坦克
 
-<img src="https://media.gettr.com/group22/origin/2022/06/16/12/884188e0-abdf-86ff-9017-71aabea6bfbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
