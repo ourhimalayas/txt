@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/16/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p1ehw08a37c.md)
+
+2022.06.16   NFSC Fringe
+
+<img src="https://media.gettr.com/group24/origin/2022/06/16/23/07ee0bce-12be-12fb-de76-c0a3a6f94272/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ei50f1331.md)
 
 2022.06.16 PM NFSC News   Tang Ping Coin Will Be Traded on Global Crypto Exchanges
@@ -102,11 +110,9 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p1ehw08a37c.md)
+[@miles 6/16/2022 11:46 PM UTC ](/content/gettr/p1ehp8h8a93.md)
 
-2022.06.16   NFSC Fringe
-
-<img src="https://media.gettr.com/group24/origin/2022/06/16/23/07ee0bce-12be-12fb-de76-c0a3a6f94272/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
@@ -159,18 +165,6 @@ On June 15, multiple media and platforms reported or reprinted the 2nd anniversa
 The best way to take down the Chinese Communist Party is to make yourself strong. Whatever young people would do, they must first decide...
 
 <img src="https://media.gettr.com/group33/getter/2022/06/16/03/a0ba5dde-1489-e5ba-5819-469140c75a40/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 2:27 AM UTC  - :tv:直播](/content/gettr/p1edg9t49a5.md)
-
-6/12/2022 Miles Guo: Communist China may experience natural disasters, wars, military coups, or political revolutions this year. As long as one of these happens, the CCP will be finished.
-
-
-
-6/12/2022 文贵直播：中共国今年可能爆发灾难、战争、军事或政治革命，只要...
-
-<img src="https://media.gettr.com/group5/getter/2022/06/16/02/a1a39217-010f-5b3e-3c95-f27b28224f31/out.jpg" width="506" height="284">
 
 ---
 
