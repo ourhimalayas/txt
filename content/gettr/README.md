@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p1ehxtgfdbf.md)
+
+2022.06.16  新中国联邦 | 喜财经  第81期 河南银行暴雷会引发剩下80多家银行暴雷
+
+<img src="https://media.gettr.com/group49/origin/2022/06/17/01/fd66b280-f65c-92ea-4472-a3b8e788135b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1ehzyi5fa6.md)
 
 2022.06.16 晚 新中国联邦 | 新闻访谈 台海局势日趋紧张；加息抗通胀？金融泡沫扛不住；摩根时代
@@ -148,11 +156,13 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/17/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p1ehxtgfdbf.md)
+[@himalayaathena 6/16/2022 12:02 PM UTC ](/content/gettr/p1ef9xzb8c3.md)
 
-2022.06.16  新中国联邦 | 喜财经  第81期 河南银行暴雷会引发剩下80多家银行暴雷
+7·24系列——改变历史的“深山老林”（一）
 
-<img src="https://media.gettr.com/group49/origin/2022/06/17/01/fd66b280-f65c-92ea-4472-a3b8e788135b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+2022年6月13日，郭文贵先生再一次宣布要进深山老林开会。“深山老林”一般是指人迹罕至的原始森林，但在爆料革命里却具有特殊的含义，它表示文贵先生会和一些影响甚至主宰世界命运的人物聚在一起开会。回顾过往，文贵先生每一次进深山老林开会后，灭共进程都发生了重大的转变，某种意义上说也影响了人类前进的步伐。
+
+https://gnews.org/post/p5cvdddf
 
 ---
 
@@ -161,14 +171,6 @@ https://gettr.com/streaming/p1ef1zs7614
 2022.06.16 AM NFSC news  IKEA closes two stores within three months in Communist China
 
 <img src="https://media.gettr.com/group23/origin/2022/05/28/12/07219e32-55cc-4841-91f0-88f2f4252c5d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/16/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1efna4cc39.md)
-
-20220616 NFSC·ニュース　カナダ、国内外旅行における予防接種の制限を一時停止
-
-<img src="https://media.gettr.com/group38/origin/2022/06/08/11/9a600512-453f-c388-b240-fb7979dc94ac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
