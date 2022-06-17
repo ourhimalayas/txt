@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 3:34 AM UTC  - :tv:直播](/content/gettr/p1ej0khb879.md)
+
+2022-6-16《鸡血王喜币大作战》 第二百二十八集 嘉宾：无双柳薇薇、文空
+
+<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@himalayaathena 6/16/2022 12:02 PM UTC ](/content/gettr/p1ef9xzb8c3.md)
 
 7·24系列——改变历史的“深山老林”（一）
@@ -160,19 +168,11 @@ Heart broken
 
 ---
 
-[@miles 6/17/2022 3:34 AM UTC  - :tv:直播](/content/gettr/p1ej0khb879.md)
+[@miles 6/17/2022 6:02 AM UTC  - :tv:直播](/content/gettr/p1ejievbf09.md)
 
-2022-6-16《鸡血王喜币大作战》 第二百二十八集 嘉宾：无双柳薇薇、文空
+6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Years of brainwashing and totalitarian rule of the CCP has ruined the notion of poetry recital, which have a long history in both China and the rest of the...
 
-<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 12:05 PM UTC  - :tv:直播](/content/gettr/p1efo559115.md)
-
-2022.06.16 AM NFSC news  IKEA closes two stores within three months in Communist China
-
-<img src="https://media.gettr.com/group23/origin/2022/05/28/12/07219e32-55cc-4841-91f0-88f2f4252c5d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/06/17/06/8235c068-3d97-1adc-ecf4-d64e7c45fde8/out.jpg" width="506" height="284">
 
 ---
 
