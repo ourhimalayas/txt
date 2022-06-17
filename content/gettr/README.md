@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/17/2022 11:32 PM UTC  - :tv:直播](/content/gettr/p1emge8dd80.md)
+
+2022.06.17 NFSC fringe Episode 212 The States need to UNITE
+
+<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/17/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1emugh4b1c.md)
+
+2022.06.17 PM NFSC news  CCP Virus Vaccine Severely Endangers Fetal Health
+
+<img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1elw10632c.md)
 
 6/8/2022 Miles Guo: Due to a series of threats and the false positive COVID test of our fellow fighters, people in charge of my security from the local government, Mr Bannon and my own security team were all against that I particip...
@@ -22,11 +38,11 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 
 ---
 
-[@miles 6/17/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1emugh4b1c.md)
+[@miles 6/17/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1emmrrcabb.md)
 
-2022.06.17 PM NFSC news  CCP Virus Vaccine Severely Endangers Fetal Health
+6/17/2022 Fellow fighters in Milan: Although the world’s economy and the digital currencies have been plummeting every day, the GFashion team is highly confident about the future of GFashion. The designs of GFashion are very creati...
 
-<img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/06/17/23/e94ff96e-1b67-94d0-f3a8-c867949ca6b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +181,6 @@ https://gnews.org/post/p5cvdddf
 2022.06.16  新中国联邦 | 喜财经  第81期 河南银行暴雷会引发剩下80多家银行暴雷
 
 <img src="https://media.gettr.com/group49/origin/2022/06/17/01/fd66b280-f65c-92ea-4472-a3b8e788135b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/17/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1ehzyi5fa6.md)
-
-2022.06.16 晚 新中国联邦 | 新闻访谈 台海局势日趋紧张；加息抗通胀？金融泡沫扛不住；摩根时代
-
-<img src="https://media.gettr.com/group25/origin/2022/06/17/01/2b8bc5a6-1036-0989-ce36-fb8383733982/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/17/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ehtbb32e3.md)
-
-2022.06.16  晚 新中国联邦⎪新闻  二十大是中共政治斗争的决战场；喜币是当今世界唯一真正稳定的数字货币；港共新版教材恶意篡改历史；台湾警告世界，中共攻台将对全球贸易造成更大破坏
-
-<img src="https://media.gettr.com/group33/origin/2022/06/17/00/db28048d-0d68-403a-0956-097a9d2ad6f3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
