@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/17/2022 11:33 AM UTC  - :tv:直播](/content/gettr/p1ekquu2ae7.md)
+
+20220617 NFSCニュース　米国　中国に最終通告
+
+<img src="https://media.gettr.com/group7/origin/2022/06/17/11/488487da-02a7-6cd6-126a-a0d4f79eee16/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 7:53 AM UTC ](/content/gettr/p1ejappfa61.md)
 
 U.S. Department of State says Taiwan Strait is international waters
@@ -169,14 +177,6 @@ Heart broken
 2022.06.16 文贵大直播精华版
 
 <img src="https://media.gettr.com/group11/origin/2022/06/16/17/102fb189-4f01-f0a5-c56e-e834487bbe3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1ef05z20a3.md)
-
-2022.06.16早 新中国联邦 | 新闻访谈 中俄承诺深化合作 美批北京站错边；抗通胀：美联储升息0.75%；美国会拟推新法限制美企业在华投资，俄经济论坛抱团取暖；德法意领导人访基辅；福奇感染新冠
-
-<img src="https://media.gettr.com/group46/origin/2022/06/16/13/1ab4ccac-6b52-cd85-d62c-2f3463dfd209/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
