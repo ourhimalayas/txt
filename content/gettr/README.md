@@ -2,6 +2,28 @@
 ---
 
 
+[@cornfieldsis 6/17/2022 9:27 PM UTC  - :tv:直播](/content/gettr/p1em23u411d.md)
+
+米兰现场好high啊！  Jhay Cortez 穿的是 G | Fashion 的 鳄鱼皮马甲+ 我们的信仰之星； 新款G |Fashion 的裤子！ 
+
+燥起来吧～～～～～ 
+
+
+
+@Miles @gfashion
+
+<img src="https://media.gettr.com/group42/origin/2022/06/17/21/5a2ac398-12a4-64fc-32bd-a638660a4a18/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/17/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1emlfe08a5.md)
+
+2022年6月17日 新中国联邦 | 喜健康  寻医问药：在线答疑； 《心理访谈》唐山恶人如何炼成？
+
+<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1elj43c5fa.md)
 
 2022年6月17日 俄乌战争战况播报
@@ -26,11 +48,15 @@
 
 ---
 
-[@miles 6/17/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1emlfe08a5.md)
+[@cornfieldsis 6/17/2022 9:24 PM UTC  - :tv:直播](/content/gettr/p1eluvhd82c.md)
 
-2022年6月17日 新中国联邦 | 喜健康  寻医问药：在线答疑； 《心理访谈》唐山恶人如何炼成？
+Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Instagram 上面拥有4.8 M 粉丝 ！ 🔥🔥🔥 大家转发起来吧！  G ｜ Fashion ❤️❤️❤️
 
-<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+@Miles @gfashion
+
+<img src="https://media.gettr.com/group36/origin/2022/06/17/21/e3000740-7df8-dd9e-e802-158343155a8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,32 +181,6 @@ https://gettr.com/streaming/p1ef1zs7614
 2022.06.16 PM NFSC News   Tang Ping Coin Will Be Traded on Global Crypto Exchanges
 
 <img src="https://media.gettr.com/group12/origin/2022/06/16/23/9e959d3a-4a6c-191c-30dc-38daa845aba8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/16/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1ehsny89b4.md)
-
-飞飞秀 · 六四篇《文宝老奶奶》2022-06-17
-
-For English：gettr.com/streaming/p1eha1u92bd
-
-<img src="https://media.gettr.com/group47/origin/2022/06/16/22/f21c53eb-0a6f-1cd6-a7e7-6332864bc2f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 6/16/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1eg020baa6.md)
-
-No.2 ICU Doctor in the World breaks down over Adverse Reactions from the Covid jabs being ignored & calls it a #HumanitarianCrisis.
-
-Heart broken
-
-
-
-世界ICU行业排名第二的 #保罗·马瑞克医生，谈到对疫苗真相的所见所闻和感受时，称此次 #人道危机和灾难 让他感到无法控制的悲伤和心痛。
-
-
-
-<img src="https://media.gettr.com/group25/getter/2022/06/16/16/07ae8ac7-d734-8a1c-4cc6-a0a7361de069/out.jpg" width="506" height="284">
 
 ---
 
