@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/16/2022 11:46 PM UTC ](/content/gettr/p1ehp8h8a93.md)
+
+https://gettr.com/streaming/p1ef1zs7614
+
+---
+
 [@miles 6/16/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p1ehw08a37c.md)
 
 2022.06.16   NFSC Fringe
@@ -110,9 +116,19 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/16/2022 11:46 PM UTC ](/content/gettr/p1ehp8h8a93.md)
+[@miles 6/17/2022 12:10 AM UTC  - :tv:直播](/content/gettr/p1ehqrm2d40.md)
 
-https://gettr.com/streaming/p1ef1zs7614
+6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background; Alvin Jiang’s grudge against Xi is extraordinary!
+
+
+
+6/12/2022 文贵直播：知识界和文化界支持李克强是源于他的法律背景；江志成对习的仇恨非同寻常！
+
+
+
+
+
+<img src="https://media.gettr.com/group40/getter/2022/06/17/00/a03902ef-9b8d-52f4-f98e-388b59c041e4/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +163,6 @@ On June 15, multiple media and platforms reported or reprinted the 2nd anniversa
 6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: I hope young people stick to principles when dealing with matters. Don’t echo the views of others. The CCP intends to brainwash young peop...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/16/03/bd2ab158-9b6d-b3c3-177c-c31b99d86900/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1ednfvdafb.md)
-
-2022-6-15《鸡血王喜币大作战》 第二百二十七集 嘉宾：齐天二圣、Nick
-
-<img src="https://media.gettr.com/group13/origin/2022/06/16/03/994a1883-016e-3b97-3d4d-d09a93b7e116/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
