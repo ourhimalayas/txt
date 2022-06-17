@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1elw10632c.md)
+
+6/8/2022 Miles Guo: Due to a series of threats and the false positive COVID test of our fellow fighters, people in charge of my security from the local government, Mr Bannon and my own security team were all against that I particip...
+
+<img src="https://media.gettr.com/group11/getter/2022/06/17/22/2ae584f8-8bd4-7e5f-5cf3-7e300e35a2f5/out.jpg" width="506" height="284">
+
+---
+
 [@cornfieldsis 6/17/2022 3:36 PM UTC  - 3圖](/content/gettr/p1elhjmeab3.md)
 
 Jason Derulo 穿G｜Fashion, 怎么样，是不是很有型？ 
@@ -14,11 +22,11 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 
 ---
 
-[@miles 6/17/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1elw10632c.md)
+[@miles 6/17/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1emugh4b1c.md)
 
-6/8/2022 Miles Guo: Due to a series of threats and the false positive COVID test of our fellow fighters, people in charge of my security from the local government, Mr Bannon and my own security team were all against that I particip...
+2022.06.17 PM NFSC news  CCP Virus Vaccine Severely Endangers Fetal Health
 
-<img src="https://media.gettr.com/group11/getter/2022/06/17/22/2ae584f8-8bd4-7e5f-5cf3-7e300e35a2f5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -173,22 +181,6 @@ https://gnews.org/post/p5cvdddf
 2022.06.16  晚 新中国联邦⎪新闻  二十大是中共政治斗争的决战场；喜币是当今世界唯一真正稳定的数字货币；港共新版教材恶意篡改历史；台湾警告世界，中共攻台将对全球贸易造成更大破坏
 
 <img src="https://media.gettr.com/group33/origin/2022/06/17/00/db28048d-0d68-403a-0956-097a9d2ad6f3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 12:10 AM UTC  - :tv:直播](/content/gettr/p1ehqrm2d40.md)
-
-6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background; Alvin Jiang’s grudge against Xi is extraordinary!
-
-
-
-6/12/2022 文贵直播：知识界和文化界支持李克强是源于他的法律背景；江志成对习的仇恨非同寻常！
-
-
-
-
-
-<img src="https://media.gettr.com/group40/getter/2022/06/17/00/a03902ef-9b8d-52f4-f98e-388b59c041e4/out.jpg" width="506" height="284">
 
 ---
 
