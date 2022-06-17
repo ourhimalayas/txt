@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/17/2022 12:10 AM UTC  - :tv:直播](/content/gettr/p1ehqrm2d40.md)
+
+6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background; Alvin Jiang’s grudge against Xi is extraordinary!
+
+
+
+6/12/2022 文贵直播：知识界和文化界支持李克强是源于他的法律背景；江志成对习的仇恨非同寻常！
+
+
+
+
+
+<img src="https://media.gettr.com/group40/getter/2022/06/17/00/a03902ef-9b8d-52f4-f98e-388b59c041e4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/16/2022 11:46 PM UTC ](/content/gettr/p1ehp8h8a93.md)
 
 https://gettr.com/streaming/p1ef1zs7614
@@ -116,19 +132,11 @@ https://gettr.com/streaming/p1ef1zs7614
 
 ---
 
-[@miles 6/17/2022 12:10 AM UTC  - :tv:直播](/content/gettr/p1ehqrm2d40.md)
+[@miles 6/17/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ehtbb32e3.md)
 
-6/12/2022 Miles Guo: The intellectual and cultural circles support Li Keqiang because of his legal background; Alvin Jiang’s grudge against Xi is extraordinary!
+2022.06.16  晚 新中国联邦⎪新闻  二十大是中共政治斗争的决战场；喜币是当今世界唯一真正稳定的数字货币；港共新版教材恶意篡改历史；台湾警告世界，中共攻台将对全球贸易造成更大破坏
 
-
-
-6/12/2022 文贵直播：知识界和文化界支持李克强是源于他的法律背景；江志成对习的仇恨非同寻常！
-
-
-
-
-
-<img src="https://media.gettr.com/group40/getter/2022/06/17/00/a03902ef-9b8d-52f4-f98e-388b59c041e4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/17/00/db28048d-0d68-403a-0956-097a9d2ad6f3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ On June 15, multiple media and platforms reported or reprinted the 2nd anniversa
 6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: I hope young people stick to principles when dealing with matters. Don’t echo the views of others. The CCP intends to brainwash young peop...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/16/03/bd2ab158-9b6d-b3c3-177c-c31b99d86900/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1edlwjf3e9.md)
-
-6/5/2022 Miles Guo with the 2nd gen. of the fellow fighters of the Whistleblowers’ Movement: 
-
-The best way to take down the Chinese Communist Party is to make yourself strong. Whatever young people would do, they must first decide...
-
-<img src="https://media.gettr.com/group33/getter/2022/06/16/03/a0ba5dde-1489-e5ba-5819-469140c75a40/out.jpg" width="506" height="284">
 
 ---
 
