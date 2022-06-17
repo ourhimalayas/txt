@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 6:02 AM UTC  - :tv:直播](/content/gettr/p1ejievbf09.md)
+
+6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Years of brainwashing and totalitarian rule of the CCP has ruined the notion of poetry recital, which have a long history in both China and the rest of the...
+
+<img src="https://media.gettr.com/group5/getter/2022/06/17/06/8235c068-3d97-1adc-ecf4-d64e7c45fde8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 3:34 AM UTC  - :tv:直播](/content/gettr/p1ej0khb879.md)
 
 2022-6-16《鸡血王喜币大作战》 第二百二十八集 嘉宾：无双柳薇薇、文空
@@ -160,19 +168,15 @@ Heart broken
 
 ---
 
-[@miles 6/16/2022 12:41 PM UTC  - :tv:直播](/content/gettr/p1efdl24608.md)
+[@miles 6/17/2022 7:53 AM UTC ](/content/gettr/p1ejappfa61.md)
 
-2022.06.16 早 新中国联邦 | 新闻  二十大，中共政治斗争的决战场; 喜币，当今世界唯一真正稳定的数字货币;港共新版教材恶意篡改历史
+U.S. Department of State says Taiwan Strait is international waters
 
-<img src="https://media.gettr.com/group22/origin/2022/06/16/12/884188e0-abdf-86ff-9017-71aabea6bfbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
----
 
-[@miles 6/17/2022 6:02 AM UTC  - :tv:直播](/content/gettr/p1ejievbf09.md)
+Citing related media reports on June 15, the U.S. State Department said Tuesday (14) that the Taiwan Strait is international waters, guaranteed by international...
 
-6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Years of brainwashing and totalitarian rule of the CCP has ruined the notion of poetry recital, which have a long history in both China and the rest of the...
-
-<img src="https://media.gettr.com/group5/getter/2022/06/17/06/8235c068-3d97-1adc-ecf4-d64e7c45fde8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/06/17/07/c8863c17-edca-ef9a-bbba-3b4653b15dc4/1bbb2e7e86c688713d4c494e0f991455.jpg" width="506" height="284">
 
 ---
 
