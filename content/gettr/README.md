@@ -2,6 +2,18 @@
 ---
 
 
+[@cornfieldsis 6/17/2022 3:36 PM UTC  - 3圖](/content/gettr/p1elhjmeab3.md)
+
+Jason Derulo 穿G｜Fashion, 怎么样，是不是很有型？ 
+
+
+
+Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Derulo ，美国歌手、词曲作者和舞者。自2009年开始他的个人唱片生涯以来，他的单曲销量已经超过3000万，并获得了11首白金单曲，包括《Wiggle》、《Talk Dirty》、《Want to Want Me》、《Trumpets》、《It Girl》、《in My He...
+
+<img src="https://media.gettr.com/group5/origin/2022/06/17/15/023d2f8f-0e07-9d14-b425-3108ddc2df0b/dd61100ab3dc019b4396a3ae479876ea.png" width="506" height="284">
+
+---
+
 [@cornfieldsis 6/17/2022 9:27 PM UTC  - :tv:直播](/content/gettr/p1em23u411d.md)
 
 米兰现场好high啊！  Jhay Cortez 穿的是 G | Fashion 的 鳄鱼皮马甲+ 我们的信仰之星； 新款G |Fashion 的裤子！ 
@@ -13,6 +25,28 @@
 @Miles @gfashion
 
 <img src="https://media.gettr.com/group42/origin/2022/06/17/21/5a2ac398-12a4-64fc-32bd-a638660a4a18/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/17/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1em3co8fc6.md)
+
+飞飞秀《明道篇》2022-06-17
+
+For English：gettr.com/post/p1elwqe9db5
+
+<img src="https://media.gettr.com/group18/origin/2022/06/17/21/bf1c9a1c-23e6-be75-bcab-3fc31448ff43/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@cornfieldsis 6/17/2022 9:24 PM UTC  - :tv:直播](/content/gettr/p1eluvhd82c.md)
+
+Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Instagram 上面拥有4.8 M 粉丝 ！ 🔥🔥🔥 大家转发起来吧！  G ｜ Fashion ❤️❤️❤️
+
+
+
+@Miles @gfashion
+
+<img src="https://media.gettr.com/group36/origin/2022/06/17/21/e3000740-7df8-dd9e-e802-158343155a8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -45,18 +79,6 @@
 2022年6月17日 文贵大直播：全球数字货币暴跌；世界金融市场动荡；中共金融危机乱象；良币必将驱逐劣币
 
 <img src="https://media.gettr.com/group41/origin/2022/06/17/12/4ff465dd-aef1-777f-72a8-1cad5077f73c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@cornfieldsis 6/17/2022 9:24 PM UTC  - :tv:直播](/content/gettr/p1eluvhd82c.md)
-
-Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Instagram 上面拥有4.8 M 粉丝 ！ 🔥🔥🔥 大家转发起来吧！  G ｜ Fashion ❤️❤️❤️
-
-
-
-@Miles @gfashion
-
-<img src="https://media.gettr.com/group36/origin/2022/06/17/21/e3000740-7df8-dd9e-e802-158343155a8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +187,6 @@ https://gnews.org/post/p5cvdddf
 [@miles 6/16/2022 11:46 PM UTC ](/content/gettr/p1ehp8h8a93.md)
 
 https://gettr.com/streaming/p1ef1zs7614
-
----
-
-[@miles 6/16/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p1ehw08a37c.md)
-
-2022.06.16   NFSC Fringe
-
-<img src="https://media.gettr.com/group24/origin/2022/06/16/23/07ee0bce-12be-12fb-de76-c0a3a6f94272/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/16/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ei50f1331.md)
-
-2022.06.16 PM NFSC News   Tang Ping Coin Will Be Traded on Global Crypto Exchanges
-
-<img src="https://media.gettr.com/group12/origin/2022/06/16/23/9e959d3a-4a6c-191c-30dc-38daa845aba8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
