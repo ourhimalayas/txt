@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/18/2022 5:29 PM UTC  - :tv:直播](/content/gettr/p1eq9hs8de9.md)
+
+2022年06月18日 文贵大直播精华版
+
+<img src="https://media.gettr.com/group42/origin/2022/06/18/17/41329a49-9408-b778-cc90-73b0c79512dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 2:45 PM UTC  - :tv:直播](/content/gettr/p1ep2do559b.md)
 
 新中国联邦｜真人真事 第57期   香草山农场 大卫王     4k
@@ -12,11 +20,11 @@ For English: https://gettr.com/streaming/p1eouob0b09
 
 ---
 
-[@miles 6/18/2022 5:29 PM UTC  - :tv:直播](/content/gettr/p1eq9hs8de9.md)
+[@miles 6/18/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eq4kqf57c.md)
 
-2022年06月18日 文贵大直播精华版
+2022-6-18《避风港》(61) 疫苗导致运动员死亡数增加17倍
 
-<img src="https://media.gettr.com/group42/origin/2022/06/18/17/41329a49-9408-b778-cc90-73b0c79512dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/06/18/18/8222f109-b56b-f68e-0f1e-6f16e4eb76ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 2022.06.17 NFSC fringe Episode 212 The States need to UNITE
 
 <img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1emugh4b1c.md)
-
-2022.06.17 PM NFSC news  CCP Virus Vaccine Severely Endangers Fetal Health
-
-<img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
