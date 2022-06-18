@@ -10,13 +10,11 @@
 
 ---
 
-[@himalayaathena 6/16/2022 12:02 PM UTC ](/content/gettr/p1ef9xzb8c3.md)
+[@miles 6/18/2022 2:41 AM UTC  - :tv:直播](/content/gettr/p1en7gieb44.md)
 
-7·24系列——改变历史的“深山老林”（一）
+6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Poetry recital is not the patent of the CCP! The CCP is a cult with nothing original and has spoiled everything it copied. The poetry recital competition h...
 
-2022年6月13日，郭文贵先生再一次宣布要进深山老林开会。“深山老林”一般是指人迹罕至的原始森林，但在爆料革命里却具有特殊的含义，它表示文贵先生会和一些影响甚至主宰世界命运的人物聚在一起开会。回顾过往，文贵先生每一次进深山老林开会后，灭共进程都发生了重大的转变，某种意义上说也影响了人类前进的步伐。
-
-https://gnews.org/post/p5cvdddf
+<img src="https://media.gettr.com/group9/getter/2022/06/18/02/cbc25137-7832-7f24-ee13-fa0c831c3d7f/out.jpg" width="506" height="284">
 
 ---
 
