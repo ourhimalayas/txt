@@ -2,6 +2,14 @@
 ---
 
 
+[@himalayanz 6/18/2022 3:42 AM UTC  - :tv:直播](/content/gettr/p1enkum4813.md)
+
+ 国庆后特别节目  专访老班长分享
+
+<img src="https://media.gettr.com/group3/origin/2022/06/18/03/d87ce2b2-6622-d9c1-0f69-387c607234eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 3:31 AM UTC  - :tv:直播](/content/gettr/p1en2jhd2ec.md)
 
 米兰现场好high啊！  Jhay Cortez 穿的是 G | Fashion 的 鳄鱼皮马甲+信仰之星； 还有G |Fashion 新款的裤子！ 🔥🔥🔥
@@ -10,11 +18,11 @@
 
 ---
 
-[@himalayanz 6/18/2022 3:42 AM UTC  - :tv:直播](/content/gettr/p1enkum4813.md)
+[@miles 6/18/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1eov8be5a5.md)
 
- 国庆后特别节目  专访老班长分享
+2022.06.18 NFSCニュース　中共は、米国と世界の脅威
 
-<img src="https://media.gettr.com/group3/origin/2022/06/18/03/d87ce2b2-6622-d9c1-0f69-387c607234eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/06/18/10/69583323-56f8-88d4-3c28-c5aef8249a09/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English：gettr.com/post/p1elwqe9db5
 6/8/2022 Miles Guo: To disrupt the 2nd anniversary of the New Federal State of China, the CCP hacked the elevator that I was in. This is exactly the same technique used by the CCP to cause Lady May to lose control on the Hudson Riv...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/17/15/decff1c2-d167-bd92-b074-98926a52a9de/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1ekawtda23.md)
-
-2022年6月17日 文贵大直播：全球数字货币暴跌；世界金融市场动荡；中共金融危机乱象；良币必将驱逐劣币
-
-<img src="https://media.gettr.com/group41/origin/2022/06/17/12/4ff465dd-aef1-777f-72a8-1cad5077f73c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
