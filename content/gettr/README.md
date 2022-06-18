@@ -10,6 +10,14 @@
 
 ---
 
+[@himalayanz 6/18/2022 3:42 AM UTC  - :tv:直播](/content/gettr/p1enkum4813.md)
+
+ 国庆后特别节目  专访老班长分享
+
+<img src="https://media.gettr.com/group3/origin/2022/06/18/03/d87ce2b2-6622-d9c1-0f69-387c607234eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 3:33 AM UTC  - :tv:直播](/content/gettr/p1en8v30132.md)
 
 Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Instagram 上面拥有4.8 M 粉丝 ！ 🔥🔥🔥 大家转发起来吧！  G ｜ Fashion ❤️❤️❤️
@@ -17,6 +25,18 @@ Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Insta
 
 
 <img src="https://media.gettr.com/group37/getter/2022/06/18/03/0679a3fd-4f73-00b3-3bc1-4d7fad534ffc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/18/2022 3:35 AM UTC  - 3圖](/content/gettr/p1enbsf8069.md)
+
+Jason Derulo 穿G｜Fashion佛教系列，你们觉得好看吗？ ❤️❤️  
+
+
+
+Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Derulo ，美国歌手、词曲作者和舞者。自2009年开始他的个人唱片生涯以来，他的单曲销量已经超过3000万，并获得了11首白金单曲，包括《Wiggle》、《Talk Dirty》、《Want to Want Me》、《Trumpets》、《It Girl》、《in...
+
+<img src="https://media.gettr.com/group43/getter/2022/06/18/03/2ca40156-ce6f-b239-4bcd-9132abafcdac/b2ee844df8b7efd27bdfe0f9050456c5.jpg" width="506" height="284">
 
 ---
 
@@ -41,18 +61,6 @@ Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Insta
 2022.06.17 新中国联邦 | 喜财经 第82期  經濟危機引發全球震盪 完美金融風暴已經形成
 
 <img src="https://media.gettr.com/group12/origin/2022/06/18/02/d15f258b-191a-4e57-2b59-f3334e2b735e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/18/2022 3:35 AM UTC  - 3圖](/content/gettr/p1enbsf8069.md)
-
-Jason Derulo 穿G｜Fashion佛教系列，你们觉得好看吗？ ❤️❤️  
-
-
-
-Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Derulo ，美国歌手、词曲作者和舞者。自2009年开始他的个人唱片生涯以来，他的单曲销量已经超过3000万，并获得了11首白金单曲，包括《Wiggle》、《Talk Dirty》、《Want to Want Me》、《Trumpets》、《It Girl》、《in...
-
-<img src="https://media.gettr.com/group43/getter/2022/06/18/03/2ca40156-ce6f-b239-4bcd-9132abafcdac/b2ee844df8b7efd27bdfe0f9050456c5.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/post/p1elwqe9db5
 2022年6月17日 文贵大直播：全球数字货币暴跌；世界金融市场动荡；中共金融危机乱象；良币必将驱逐劣币
 
 <img src="https://media.gettr.com/group28/origin/2022/06/17/12/2b7f0bd9-e3c7-466b-fbee-5e24145eddb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 11:33 AM UTC  - :tv:直播](/content/gettr/p1ekquu2ae7.md)
-
-20220617 NFSCニュース　米国　中国に最終通告
-
-<img src="https://media.gettr.com/group7/origin/2022/06/17/11/488487da-02a7-6cd6-126a-a0d4f79eee16/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
