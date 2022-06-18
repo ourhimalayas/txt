@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/18/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1ep1huaf9c.md)
+
+2022.06.18  早 新中国联邦 | 新闻   专心是成功的前提，行动是成功的催化剂；新中国联邦标准适合任何人
+
+<img src="https://media.gettr.com/group20/origin/2022/06/18/12/3c782b36-93b7-6ca6-4e73-1d23d38bf3f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1ep1y7dd6c.md)
 
 2022.06.18 AM NFSC news
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 6/18/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1ep1huaf9c.md)
+[@miles 6/18/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1eot0x41f1.md)
 
-2022.06.18  早 新中国联邦 | 新闻   专心是成功的前提，行动是成功的催化剂；新中国联邦标准适合任何人
+2022.06.18 早 新中国联邦 | 新闻访谈 #唐山 黑社会重度殴打无辜女士，#河南 健康码维稳， #摩根 引入去中心化金融
 
-<img src="https://media.gettr.com/group20/origin/2022/06/18/12/3c782b36-93b7-6ca6-4e73-1d23d38bf3f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/06/18/13/56b86c5c-b22d-3f19-3ed2-1b76419f1986/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/post/p1elwqe9db5
 2022年6月17日 新中国联邦 | 喜健康  寻医问药：在线答疑； 《心理访谈》唐山恶人如何炼成？
 
 <img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1elj43c5fa.md)
-
-2022年6月17日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group34/origin/2022/06/17/16/bb7181b4-d22d-cc18-18b6-98600aa722a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
