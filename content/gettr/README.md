@@ -12,6 +12,24 @@ For English: https://gettr.com/streaming/p1eouob0b09
 
 ---
 
+[@miles 6/18/2022 5:29 PM UTC  - :tv:直播](/content/gettr/p1eq9hs8de9.md)
+
+2022年06月18日 文贵大直播精华版
+
+<img src="https://media.gettr.com/group42/origin/2022/06/18/17/41329a49-9408-b778-cc90-73b0c79512dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/18/2022 2:49 PM UTC  - :tv:直播](/content/gettr/p1epfcif48b.md)
+
+新中国联邦｜真人真事 第57期   香草山农场 大卫王     1080P
+
+For English: https://gettr.com/streaming/p1eouob0b09
+
+<img src="https://media.gettr.com/group4/origin/2022/06/18/14/9f40a8cd-a64e-80d2-ed19-0a342c7ef07c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1eot0x41f1.md)
 
 2022.06.18 早 新中国联邦 | 新闻访谈 #唐山 黑社会重度殴打无辜女士，#河南 健康码维稳， #摩根 引入去中心化金融
@@ -57,16 +75,6 @@ For English: https://gettr.com/streaming/p1eouob0b09
 米兰现场好high啊！  Jhay Cortez 穿的是 G | Fashion 的 鳄鱼皮马甲+信仰之星； 还有G |Fashion 新款的裤子！ 🔥🔥🔥
 
 <img src="https://media.gettr.com/group14/getter/2022/06/18/03/a463205d-8fc3-fc83-c156-6f4c6ce7c2f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 2:49 PM UTC  - :tv:直播](/content/gettr/p1epfcif48b.md)
-
-新中国联邦｜真人真事 第57期   香草山农场 大卫王     1080P
-
-For English: https://gettr.com/streaming/p1eouob0b09
-
-<img src="https://media.gettr.com/group4/origin/2022/06/18/14/9f40a8cd-a64e-80d2-ed19-0a342c7ef07c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 2022.06.17 PM NFSC news  CCP Virus Vaccine Severely Endangers Fetal Health
 
 <img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/17/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1elw10632c.md)
-
-6/8/2022 Miles Guo: Due to a series of threats and the false positive COVID test of our fellow fighters, people in charge of my security from the local government, Mr Bannon and my own security team were all against that I particip...
-
-<img src="https://media.gettr.com/group11/getter/2022/06/17/22/2ae584f8-8bd4-7e5f-5cf3-7e300e35a2f5/out.jpg" width="506" height="284">
 
 ---
 
