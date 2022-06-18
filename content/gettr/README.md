@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/18/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1emk9oa1e6.md)
+
+6/17/2022 Fellow fighters in Milan: Before going to Jhayco (Jhay Cortéz) concert in Milan, our fellow fighters visited the GFashion’s showroom there, and had a 15-minute interview with the CEO of GFashion and key executives. Throug...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/18/00/8dcae658-bf80-3d37-8006-3ca79f8857b3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1emo88f1d1.md)
 
 6/17/2022 Fellow fighters in Milan: Although the world’s economy and the digital currencies have been plummeting every day, the GFashion team is highly confident about the future of GFashion. The designs of GFashion are very creati...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/18/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1emk9oa1e6.md)
+[@miles 6/18/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1emkhqe917.md)
 
-6/17/2022 Fellow fighters in Milan: Before going to Jhayco (Jhay Cortéz) concert in Milan, our fellow fighters visited the GFashion’s showroom there, and had a 15-minute interview with the CEO of GFashion and key executives. Throug...
+2022.06.17  晚  新中国联邦 | 新闻  中共演艺界再严查偷税漏税 印证郭先生爆料  珠江流域117条河发生超警洪水 墙内洪灾初露端倪
 
-<img src="https://media.gettr.com/group38/getter/2022/06/18/00/8dcae658-bf80-3d37-8006-3ca79f8857b3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/06/18/00/24399667-18cb-86d5-c47a-95b09c24e9c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ Citing related media reports on June 15, the U.S. State Department said Tuesday 
 2022-6-16《鸡血王喜币大作战》 第二百二十八集 嘉宾：无双柳薇薇、文空
 
 <img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayaathena 6/16/2022 12:02 PM UTC ](/content/gettr/p1ef9xzb8c3.md)
-
-7·24系列——改变历史的“深山老林”（一）
-
-2022年6月13日，郭文贵先生再一次宣布要进深山老林开会。“深山老林”一般是指人迹罕至的原始森林，但在爆料革命里却具有特殊的含义，它表示文贵先生会和一些影响甚至主宰世界命运的人物聚在一起开会。回顾过往，文贵先生每一次进深山老林开会后，灭共进程都发生了重大的转变，某种意义上说也影响了人类前进的步伐。
-
-https://gnews.org/post/p5cvdddf
 
 ---
 
