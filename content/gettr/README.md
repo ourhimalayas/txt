@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 6/18/2022 3:31 AM UTC  - :tv:直播](/content/gettr/p1en2jhd2ec.md)
+
+米兰现场好high啊！  Jhay Cortez 穿的是 G | Fashion 的 鳄鱼皮马甲+信仰之星； 还有G |Fashion 新款的裤子！ 🔥🔥🔥
+
+<img src="https://media.gettr.com/group14/getter/2022/06/18/03/a463205d-8fc3-fc83-c156-6f4c6ce7c2f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/18/2022 3:33 AM UTC  - :tv:直播](/content/gettr/p1en8v30132.md)
+
+Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Instagram 上面拥有4.8 M 粉丝 ！ 🔥🔥🔥 大家转发起来吧！  G ｜ Fashion ❤️❤️❤️
+
+
+
+<img src="https://media.gettr.com/group37/getter/2022/06/18/03/0679a3fd-4f73-00b3-3bc1-4d7fad534ffc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/18/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1enbpfe7bb.md)
+
+2022-6-17《鸡血王喜币大作战》 第二百二十九集 嘉宾：青藤、风雨之中
+
+<img src="https://media.gettr.com/group27/origin/2022/04/30/02/c9e02a3b-3999-06f7-028e-b964b23fbcab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 2:41 AM UTC  - :tv:直播](/content/gettr/p1en7gieb44.md)
 
 6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Poetry recital is not the patent of the CCP! The CCP is a cult with nothing original and has spoiled everything it copied. The poetry recital competition h...
@@ -18,11 +44,15 @@
 
 ---
 
-[@miles 6/18/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1enbpfe7bb.md)
+[@miles 6/18/2022 3:35 AM UTC  - 3圖](/content/gettr/p1enbsf8069.md)
 
-2022-6-17《鸡血王喜币大作战》 第二百二十九集 嘉宾：青藤、风雨之中
+Jason Derulo 穿G｜Fashion佛教系列，你们觉得好看吗？ ❤️❤️  
 
-<img src="https://media.gettr.com/group27/origin/2022/04/30/02/c9e02a3b-3999-06f7-028e-b964b23fbcab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Derulo ，美国歌手、词曲作者和舞者。自2009年开始他的个人唱片生涯以来，他的单曲销量已经超过3000万，并获得了11首白金单曲，包括《Wiggle》、《Talk Dirty》、《Want to Want Me》、《Trumpets》、《It Girl》、《in...
+
+<img src="https://media.gettr.com/group43/getter/2022/06/18/03/2ca40156-ce6f-b239-4bcd-9132abafcdac/b2ee844df8b7efd27bdfe0f9050456c5.jpg" width="506" height="284">
 
 ---
 
@@ -137,34 +167,6 @@ For English：gettr.com/post/p1elwqe9db5
 20220617 NFSCニュース　米国　中国に最終通告
 
 <img src="https://media.gettr.com/group7/origin/2022/06/17/11/488487da-02a7-6cd6-126a-a0d4f79eee16/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1ekehs95ae.md)
-
-2022.06.17 新中国联邦 | 军情室  漫步欧洲国际防务展 Eurosatory 2022----看欧洲新世代坦克
-
-<img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 7:53 AM UTC ](/content/gettr/p1ejappfa61.md)
-
-U.S. Department of State says Taiwan Strait is international waters
-
-
-
-Citing related media reports on June 15, the U.S. State Department said Tuesday (14) that the Taiwan Strait is international waters, guaranteed by international...
-
-<img src="https://media.gettr.com/group23/origin/2022/06/17/07/c8863c17-edca-ef9a-bbba-3b4653b15dc4/1bbb2e7e86c688713d4c494e0f991455.jpg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 6:02 AM UTC  - :tv:直播](/content/gettr/p1ejievbf09.md)
-
-6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Years of brainwashing and totalitarian rule of the CCP has ruined the notion of poetry recital, which have a long history in both China and the rest of the...
-
-<img src="https://media.gettr.com/group5/getter/2022/06/17/06/8235c068-3d97-1adc-ecf4-d64e7c45fde8/out.jpg" width="506" height="284">
 
 ---
 
