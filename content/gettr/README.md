@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 6/18/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1emnc4e9c9.md)
-
-2022.06.17 新中国联邦 | 喜财经 第82期  經濟危機引發全球震盪 完美金融風暴已經形成
-
-<img src="https://media.gettr.com/group12/origin/2022/06/18/02/d15f258b-191a-4e57-2b59-f3334e2b735e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 6/18/2022 2:41 AM UTC  - :tv:直播](/content/gettr/p1en7gieb44.md)
 
 6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Poetry recital is not the patent of the CCP! The CCP is a cult with nothing original and has spoiled everything it copied. The poetry recital competition h...
@@ -18,11 +10,19 @@
 
 ---
 
-[@miles 6/17/2022 3:34 AM UTC  - :tv:直播](/content/gettr/p1ej0khb879.md)
+[@miles 6/18/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1emnc4e9c9.md)
 
-2022-6-16《鸡血王喜币大作战》 第二百二十八集 嘉宾：无双柳薇薇、文空
+2022.06.17 新中国联邦 | 喜财经 第82期  經濟危機引發全球震盪 完美金融風暴已經形成
 
-<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/06/18/02/d15f258b-191a-4e57-2b59-f3334e2b735e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/18/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1enbpfe7bb.md)
+
+2022-6-17《鸡血王喜币大作战》 第二百二十九集 嘉宾：青藤、风雨之中
+
+<img src="https://media.gettr.com/group27/origin/2022/04/30/02/c9e02a3b-3999-06f7-028e-b964b23fbcab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
