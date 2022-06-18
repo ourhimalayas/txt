@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/18/2022 10:01 PM UTC  - :tv:直播](/content/gettr/p1eqprsb61a.md)
+
+飞飞秀 《六四 · 长岛篇》 2022-06-18
+
+For English: gettr.com/streaming/p1eqi511f4c
+
+<img src="https://media.gettr.com/group8/origin/2022/06/18/21/2b978e62-941b-d970-b7fd-7a18a8e2fcfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1er73j7c9a.md)
 
 2022.06.18  新中国联邦 | 喜健康  文翡博士专访：六四改变的一代人
@@ -33,16 +43,6 @@
 For English: https://gettr.com/streaming/p1eouob0b09
 
 <img src="https://media.gettr.com/group15/origin/2022/06/18/14/1b64acb9-841c-d6ff-0abf-ff69c502b9a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 10:01 PM UTC  - :tv:直播](/content/gettr/p1eqprsb61a.md)
-
-飞飞秀 《六四 · 长岛篇》 2022-06-18
-
-For English: gettr.com/streaming/p1eqi511f4c
-
-<img src="https://media.gettr.com/group8/origin/2022/06/18/21/2b978e62-941b-d970-b7fd-7a18a8e2fcfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +163,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 2022.06.17  晚  新中国联邦 | 新闻  中共演艺界再严查偷税漏税 印证郭先生爆料  珠江流域117条河发生超警洪水 墙内洪灾初露端倪
 
 <img src="https://media.gettr.com/group25/origin/2022/06/18/00/24399667-18cb-86d5-c47a-95b09c24e9c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1emk9oa1e6.md)
-
-6/17/2022 Fellow fighters in Milan: Before going to Jhayco (Jhay Cortéz) concert in Milan, our fellow fighters visited the GFashion’s showroom there, and had a 15-minute interview with the CEO of GFashion and key executives. Throug...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/18/00/8dcae658-bf80-3d37-8006-3ca79f8857b3/out.jpg" width="506" height="284">
 
 ---
 
