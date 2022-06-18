@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/17/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1emo88f1d1.md)
+
+6/17/2022 Fellow fighters in Milan: Although the world’s economy and the digital currencies have been plummeting every day, the GFashion team is highly confident about the future of GFashion. The designs of GFashion are very creati...
+
+<img src="https://media.gettr.com/group46/getter/2022/06/17/23/e29b51ee-6da8-e496-c25d-d11a69391baa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 11:32 PM UTC  - :tv:直播](/content/gettr/p1emge8dd80.md)
 
 2022.06.17 NFSC fringe Episode 212 The States need to UNITE
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/17/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1emo88f1d1.md)
+[@miles 6/18/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1emk9oa1e6.md)
 
-6/17/2022 Fellow fighters in Milan: Although the world’s economy and the digital currencies have been plummeting every day, the GFashion team is highly confident about the future of GFashion. The designs of GFashion are very creati...
+6/17/2022 Fellow fighters in Milan: Before going to Jhayco (Jhay Cortéz) concert in Milan, our fellow fighters visited the GFashion’s showroom there, and had a 15-minute interview with the CEO of GFashion and key executives. Throug...
 
-<img src="https://media.gettr.com/group46/getter/2022/06/17/23/e29b51ee-6da8-e496-c25d-d11a69391baa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/06/18/00/8dcae658-bf80-3d37-8006-3ca79f8857b3/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Citing related media reports on June 15, the U.S. State Department said Tuesday 
 2022年6月13日，郭文贵先生再一次宣布要进深山老林开会。“深山老林”一般是指人迹罕至的原始森林，但在爆料革命里却具有特殊的含义，它表示文贵先生会和一些影响甚至主宰世界命运的人物聚在一起开会。回顾过往，文贵先生每一次进深山老林开会后，灭共进程都发生了重大的转变，某种意义上说也影响了人类前进的步伐。
 
 https://gnews.org/post/p5cvdddf
-
----
-
-[@miles 6/17/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p1ehxtgfdbf.md)
-
-2022.06.16  新中国联邦 | 喜财经  第81期 河南银行暴雷会引发剩下80多家银行暴雷
-
-<img src="https://media.gettr.com/group49/origin/2022/06/17/01/fd66b280-f65c-92ea-4472-a3b8e788135b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
