@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/18/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1er73j7c9a.md)
+
+2022.06.18  新中国联邦 | 喜健康  文翡博士专访：六四改变的一代人
+
+<img src="https://media.gettr.com/group13/origin/2022/06/18/20/6a2f63fa-d6ac-1b37-0e81-94dce598756d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eq4kqf57c.md)
 
 2022-6-18《避风港》(61) 疫苗导致运动员死亡数增加17倍
@@ -28,11 +36,13 @@ For English: https://gettr.com/streaming/p1eouob0b09
 
 ---
 
-[@miles 6/18/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1er73j7c9a.md)
+[@miles 6/18/2022 10:01 PM UTC  - :tv:直播](/content/gettr/p1eqprsb61a.md)
 
-2022.06.18  新中国联邦 | 喜健康  文翡博士专访：六四改变的一代人
+飞飞秀 《六四 · 长岛篇》 2022-06-18
 
-<img src="https://media.gettr.com/group13/origin/2022/06/18/20/6a2f63fa-d6ac-1b37-0e81-94dce598756d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English: gettr.com/streaming/p1eqi511f4c
+
+<img src="https://media.gettr.com/group8/origin/2022/06/18/21/2b978e62-941b-d970-b7fd-7a18a8e2fcfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 6/17/2022 Fellow fighters in Milan: Before going to Jhayco (Jhay Cortéz) concert in Milan, our fellow fighters visited the GFashion’s showroom there, and had a 15-minute interview with the CEO of GFashion and key executives. Throug...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/18/00/8dcae658-bf80-3d37-8006-3ca79f8857b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1emo88f1d1.md)
-
-6/17/2022 Fellow fighters in Milan: Although the world’s economy and the digital currencies have been plummeting every day, the GFashion team is highly confident about the future of GFashion. The designs of GFashion are very creati...
-
-<img src="https://media.gettr.com/group46/getter/2022/06/17/23/e29b51ee-6da8-e496-c25d-d11a69391baa/out.jpg" width="506" height="284">
 
 ---
 
