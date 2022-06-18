@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/18/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1emkhqe917.md)
+
+2022.06.17  晚  新中国联邦 | 新闻  中共演艺界再严查偷税漏税 印证郭先生爆料  珠江流域117条河发生超警洪水 墙内洪灾初露端倪
+
+<img src="https://media.gettr.com/group25/origin/2022/06/18/00/24399667-18cb-86d5-c47a-95b09c24e9c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1emk9oa1e6.md)
 
 6/17/2022 Fellow fighters in Milan: Before going to Jhayco (Jhay Cortéz) concert in Milan, our fellow fighters visited the GFashion’s showroom there, and had a 15-minute interview with the CEO of GFashion and key executives. Throug...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/18/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1emkhqe917.md)
+[@miles 6/18/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1en3ctff87.md)
 
-2022.06.17  晚  新中国联邦 | 新闻  中共演艺界再严查偷税漏税 印证郭先生爆料  珠江流域117条河发生超警洪水 墙内洪灾初露端倪
+2022.06.17 晚 新中国联邦 | 新闻访谈  中共继续站在俄国一边；中东欧国家欲中共拉开距离，匈牙利却屡次站队中共
 
-<img src="https://media.gettr.com/group25/origin/2022/06/18/00/24399667-18cb-86d5-c47a-95b09c24e9c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/06/18/00/725d0d70-2036-3cc0-291a-17db6e43c6b6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Citing related media reports on June 15, the U.S. State Department said Tuesday 
 6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Years of brainwashing and totalitarian rule of the CCP has ruined the notion of poetry recital, which have a long history in both China and the rest of the...
 
 <img src="https://media.gettr.com/group5/getter/2022/06/17/06/8235c068-3d97-1adc-ecf4-d64e7c45fde8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 3:34 AM UTC  - :tv:直播](/content/gettr/p1ej0khb879.md)
-
-2022-6-16《鸡血王喜币大作战》 第二百二十八集 嘉宾：无双柳薇薇、文空
-
-<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
