@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/18/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eq4kqf57c.md)
+
+2022-6-18《避风港》(61) 疫苗导致运动员死亡数增加17倍
+
+<img src="https://media.gettr.com/group42/origin/2022/06/18/18/8222f109-b56b-f68e-0f1e-6f16e4eb76ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 5:29 PM UTC  - :tv:直播](/content/gettr/p1eq9hs8de9.md)
 
 2022年06月18日 文贵大直播精华版
@@ -20,11 +28,11 @@ For English: https://gettr.com/streaming/p1eouob0b09
 
 ---
 
-[@miles 6/18/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eq4kqf57c.md)
+[@miles 6/18/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1er73j7c9a.md)
 
-2022-6-18《避风港》(61) 疫苗导致运动员死亡数增加17倍
+2022.06.18  新中国联邦 | 喜健康  文翡博士专访：六四改变的一代人
 
-<img src="https://media.gettr.com/group42/origin/2022/06/18/18/8222f109-b56b-f68e-0f1e-6f16e4eb76ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/06/18/20/6a2f63fa-d6ac-1b37-0e81-94dce598756d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 6/17/2022 Fellow fighters in Milan: Although the world’s economy and the digital currencies have been plummeting every day, the GFashion team is highly confident about the future of GFashion. The designs of GFashion are very creati...
 
 <img src="https://media.gettr.com/group46/getter/2022/06/17/23/e29b51ee-6da8-e496-c25d-d11a69391baa/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 11:32 PM UTC  - :tv:直播](/content/gettr/p1emge8dd80.md)
-
-2022.06.17 NFSC fringe Episode 212 The States need to UNITE
-
-<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
