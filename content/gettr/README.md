@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/17/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1emo88f1d1.md)
+
+6/17/2022 Fellow fighters in Milan: Although the world’s economy and the digital currencies have been plummeting every day, the GFashion team is highly confident about the future of GFashion. The designs of GFashion are very creati...
+
+<img src="https://media.gettr.com/group46/getter/2022/06/17/23/e29b51ee-6da8-e496-c25d-d11a69391baa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/17/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1emugh4b1c.md)
 
 2022.06.17 PM NFSC news  CCP Virus Vaccine Severely Endangers Fetal Health
@@ -35,14 +43,6 @@ Jason Derulo 穿G｜Fashion, 怎么样，是不是很有型？
 Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Derulo ，美国歌手、词曲作者和舞者。自2009年开始他的个人唱片生涯以来，他的单曲销量已经超过3000万，并获得了11首白金单曲，包括《Wiggle》、《Talk Dirty》、《Want to Want Me》、《Trumpets》、《It Girl》、《in My He...
 
 <img src="https://media.gettr.com/group5/origin/2022/06/17/15/023d2f8f-0e07-9d14-b425-3108ddc2df0b/dd61100ab3dc019b4396a3ae479876ea.png" width="506" height="284">
-
----
-
-[@miles 6/17/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1emmrrcabb.md)
-
-6/17/2022 Fellow fighters in Milan: Although the world’s economy and the digital currencies have been plummeting every day, the GFashion team is highly confident about the future of GFashion. The designs of GFashion are very creati...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/17/23/e94ff96e-1b67-94d0-f3a8-c867949ca6b2/out.jpg" width="506" height="284">
 
 ---
 
