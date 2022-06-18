@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/18/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1ep1y7dd6c.md)
+
+2022.06.18 AM NFSC news
+
+<img src="https://media.gettr.com/group28/origin/2022/06/18/11/7cffd23a-a060-a9a4-f309-413f3f786dd2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1eov8be5a5.md)
 
 2022.06.18 NFSCニュース　中共は、米国と世界の脅威
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/18/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1ep1y7dd6c.md)
+[@miles 6/18/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1ep1huaf9c.md)
 
-2022.06.18 AM NFSC news
+2022.06.18  早 新中国联邦 | 新闻   专心是成功的前提，行动是成功的催化剂；新中国联邦标准适合任何人
 
-<img src="https://media.gettr.com/group28/origin/2022/06/18/11/7cffd23a-a060-a9a4-f309-413f3f786dd2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/06/18/12/3c782b36-93b7-6ca6-4e73-1d23d38bf3f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/post/p1elwqe9db5
 2022年6月17日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group34/origin/2022/06/17/16/bb7181b4-d22d-cc18-18b6-98600aa722a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/17/2022 3:57 PM UTC  - :tv:直播](/content/gettr/p1el8zv63b1.md)
-
-6/8/2022 Miles Guo: To disrupt the 2nd anniversary of the New Federal State of China, the CCP hacked the elevator that I was in. This is exactly the same technique used by the CCP to cause Lady May to lose control on the Hudson Riv...
-
-<img src="https://media.gettr.com/group40/getter/2022/06/17/15/decff1c2-d167-bd92-b074-98926a52a9de/out.jpg" width="506" height="284">
 
 ---
 
