@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/18/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p1eqzg7d352.md)
+
+2022.06.18 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group17/origin/2022/06/18/23/bb3d8afb-1c9f-1f79-eb38-ad665c50ce0f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 10:01 PM UTC  - :tv:直播](/content/gettr/p1eqprsb61a.md)
 
 飞飞秀 《六四 · 长岛篇》 2022-06-18
@@ -43,6 +51,14 @@ For English: gettr.com/streaming/p1eqi511f4c
 For English: https://gettr.com/streaming/p1eouob0b09
 
 <img src="https://media.gettr.com/group15/origin/2022/06/18/14/1b64acb9-841c-d6ff-0abf-ff69c502b9a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/18/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1ergqjcb94.md)
+
+6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communism China. Our June 4th event was not only dedicated to celebrating the 2nd anniversary of the New Federal State of China...
+
+<img src="https://media.gettr.com/group7/getter/2022/06/18/23/6679ba53-5202-dc2c-90ce-bf9fc52c786a/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,14 +155,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Poetry recital is not the patent of the CCP! The CCP is a cult with nothing original and has spoiled everything it copied. The poetry recital competition h...
 
 <img src="https://media.gettr.com/group9/getter/2022/06/18/02/cbc25137-7832-7f24-ee13-fa0c831c3d7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1emnc4e9c9.md)
-
-2022.06.17 新中国联邦 | 喜财经 第82期  經濟危機引發全球震盪 完美金融風暴已經形成
-
-<img src="https://media.gettr.com/group12/origin/2022/06/18/02/d15f258b-191a-4e57-2b59-f3334e2b735e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
