@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ettxi04d1.md)
+
+2022.06.19  NFSCニュース　　郭文貴氏が10個中国国営企業の真相を暴露
+
+<img src="https://media.gettr.com/group15/origin/2022/06/19/11/0d0d8ab2-475d-f855-a9b0-99461633ad76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1et13q2d7d.md)
 
 2022.06.19 新中国联邦 | 喜财经 第84期    躺平币+量子科技（续）
@@ -58,11 +66,11 @@
 
 ---
 
-[@miles 6/19/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ettxi04d1.md)
+[@miles 6/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1etjogd3ac.md)
 
-2022.06.19  NFSCニュース　　郭文貴氏が10個中国国営企業の真相を暴露
+2022.06.19 AM NFSC news  Concentration is a Prerequisite for Success, Action is a Catalyst
 
-<img src="https://media.gettr.com/group15/origin/2022/06/19/11/0d0d8ab2-475d-f855-a9b0-99461633ad76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English: https://gettr.com/streaming/p1eouob0b09
 2022.06.18 NFSCニュース　中共は、米国と世界の脅威
 
 <img src="https://media.gettr.com/group36/origin/2022/06/18/10/69583323-56f8-88d4-3c28-c5aef8249a09/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayanz 6/18/2022 3:42 AM UTC  - :tv:直播](/content/gettr/p1enkum4813.md)
-
- 国庆后特别节目  专访老班长分享
-
-<img src="https://media.gettr.com/group3/origin/2022/06/18/03/d87ce2b2-6622-d9c1-0f69-387c607234eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
