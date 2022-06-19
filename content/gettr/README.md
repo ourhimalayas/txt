@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1eqsqk97a5.md)
+
+6/8/2022  Miles Guo: Both parties in the U.S. have been paying attention to the NFSC and know our actions mean a lot to the U.S.; The CCP has spent a large amount of money in order to stop us from doing the livestream of the NFSC's...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/19/00/4d99f575-5f13-e0b0-1fd9-96aad276c8c8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1eqyfo62c2.md)
 
 6/8/2022 Miles Guo: The US is preparing for six legislations targeting the CCP. Once these legislations get passed, the atrocities committed by the CCP in Tibet and Hong Kong, just like the genocide it committed in Xinjiang, will b...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/19/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1eqsqk97a5.md)
+[@miles 6/19/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1errmpfcf9.md)
 
-6/8/2022  Miles Guo: Both parties in the U.S. have been paying attention to the NFSC and know our actions mean a lot to the U.S.; The CCP has spent a large amount of money in order to stop us from doing the livestream of the NFSC's...
+2022.06.18 晚 新中国联邦 | 新闻访谈 F1传奇赛车手以HDO交易 俄圣彼得堡下周可交易港股，腾讯阿里等将登场 泰国保险公司因 中共病毒索赔而陷入破产 美前国防部长表示美中终需一战
 
-<img src="https://media.gettr.com/group12/getter/2022/06/19/00/4d99f575-5f13-e0b0-1fd9-96aad276c8c8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/06/19/00/17e0f491-3f5c-6674-ec90-44070d14bf59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 2022-6-17《鸡血王喜币大作战》 第二百二十九集 嘉宾：青藤、风雨之中
 
 <img src="https://media.gettr.com/group27/origin/2022/04/30/02/c9e02a3b-3999-06f7-028e-b964b23fbcab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 2:41 AM UTC  - :tv:直播](/content/gettr/p1en7gieb44.md)
-
-6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Poetry recital is not the patent of the CCP! The CCP is a cult with nothing original and has spoiled everything it copied. The poetry recital competition h...
-
-<img src="https://media.gettr.com/group9/getter/2022/06/18/02/cbc25137-7832-7f24-ee13-fa0c831c3d7f/out.jpg" width="506" height="284">
 
 ---
 
