@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ev1sz2751.md)
+
+2022.06.19 PM NFSC News   GFashion is Praised in Milan
+
+<img src="https://media.gettr.com/group7/origin/2022/06/19/22/7e17f51d-b3d5-399e-50ae-7995bc37301b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 10:34 PM UTC ](/content/gettr/p1euy8v4af1.md)
 
 U.S. senators introduce Taiwan Policy Act to designate Taiwan as a major non-NATO ally
@@ -12,11 +20,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/19/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ev1sz2751.md)
+[@miles 6/19/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ev7nz3bc8.md)
 
-2022.06.19 PM NFSC News   GFashion is Praised in Milan
+6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai have communicated with each other. Han Zheng said China would become a Western-style democratic society under the rule of law. This American friend t...
 
-<img src="https://media.gettr.com/group7/origin/2022/06/19/22/7e17f51d-b3d5-399e-50ae-7995bc37301b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/06/19/23/a87037bb-6cf7-65c0-2d39-6e7e13875479/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ The truth starts here: Gnews
 For English: gettr.com/streaming/p1eqi511f4c
 
 <img src="https://media.gettr.com/group8/origin/2022/06/18/21/2b978e62-941b-d970-b7fd-7a18a8e2fcfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1er73j7c9a.md)
-
-2022.06.18  新中国联邦 | 喜健康  文翡博士专访：六四改变的一代人
-
-<img src="https://media.gettr.com/group13/origin/2022/06/18/20/6a2f63fa-d6ac-1b37-0e81-94dce598756d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
