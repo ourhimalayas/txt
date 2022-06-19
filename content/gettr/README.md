@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1eqyfo62c2.md)
+
+6/8/2022 Miles Guo: The US is preparing for six legislations targeting the CCP. Once these legislations get passed, the atrocities committed by the CCP in Tibet and Hong Kong, just like the genocide it committed in Xinjiang, will b...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/19/00/29de68e9-c325-0025-0470-8edbb7381e78/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/18/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1ergqjcb94.md)
+
+6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communism China. Our June 4th event was not only dedicated to celebrating the 2nd anniversary of the New Federal State of China...
+
+<img src="https://media.gettr.com/group7/getter/2022/06/18/23/6679ba53-5202-dc2c-90ce-bf9fc52c786a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 10:01 PM UTC  - :tv:直播](/content/gettr/p1eqprsb61a.md)
 
 飞飞秀 《六四 · 长岛篇》 2022-06-18
@@ -51,14 +67,6 @@ For English: gettr.com/streaming/p1eqi511f4c
 For English: https://gettr.com/streaming/p1eouob0b09
 
 <img src="https://media.gettr.com/group15/origin/2022/06/18/14/1b64acb9-841c-d6ff-0abf-ff69c502b9a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1ergqjcb94.md)
-
-6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communism China. Our June 4th event was not only dedicated to celebrating the 2nd anniversary of the New Federal State of China...
-
-<img src="https://media.gettr.com/group7/getter/2022/06/18/23/6679ba53-5202-dc2c-90ce-bf9fc52c786a/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 2022.06.17 晚 新中国联邦 | 新闻访谈  中共继续站在俄国一边；中东欧国家欲中共拉开距离，匈牙利却屡次站队中共
 
 <img src="https://media.gettr.com/group32/origin/2022/06/18/00/725d0d70-2036-3cc0-291a-17db6e43c6b6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1emkhqe917.md)
-
-2022.06.17  晚  新中国联邦 | 新闻  中共演艺界再严查偷税漏税 印证郭先生爆料  珠江流域117条河发生超警洪水 墙内洪灾初露端倪
-
-<img src="https://media.gettr.com/group25/origin/2022/06/18/00/24399667-18cb-86d5-c47a-95b09c24e9c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
