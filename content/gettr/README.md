@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1et13q2d7d.md)
+
+2022.06.19 新中国联邦 | 喜财经 第84期    躺平币+量子科技（续）
+
+<img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1eruvz5ef3.md)
 
 2022-6-18《鸡血王喜币大作战》 第二百三十集 嘉宾：卡丽熙、Happy
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 6/19/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1et13q2d7d.md)
+[@miles 6/19/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ettxi04d1.md)
 
-2022.06.19 新中国联邦 | 喜财经 第84期    躺平币+量子科技（续）
+2022.06.19  NFSCニュース　　郭文貴氏が10個中国国営企業の真相を暴露
 
-<img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/06/19/11/0d0d8ab2-475d-f855-a9b0-99461633ad76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,18 +165,6 @@ For English: https://gettr.com/streaming/p1eouob0b09
  国庆后特别节目  专访老班长分享
 
 <img src="https://media.gettr.com/group3/origin/2022/06/18/03/d87ce2b2-6622-d9c1-0f69-387c607234eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 3:35 AM UTC  - 3圖](/content/gettr/p1enbsf8069.md)
-
-Jason Derulo 穿G｜Fashion佛教系列，你们觉得好看吗？ ❤️❤️  
-
-
-
-Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Derulo ，美国歌手、词曲作者和舞者。自2009年开始他的个人唱片生涯以来，他的单曲销量已经超过3000万，并获得了11首白金单曲，包括《Wiggle》、《Talk Dirty》、《Want to Want Me》、《Trumpets》、《It Girl》、《in...
-
-<img src="https://media.gettr.com/group43/getter/2022/06/18/03/2ca40156-ce6f-b239-4bcd-9132abafcdac/b2ee844df8b7efd27bdfe0f9050456c5.jpg" width="506" height="284">
 
 ---
 
