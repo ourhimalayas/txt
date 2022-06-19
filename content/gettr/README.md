@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1eruvz5ef3.md)
+
+2022-6-18《鸡血王喜币大作战》 第二百三十集 嘉宾：卡丽熙、Happy
+
+<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1ernee67bf.md)
 
 2022.06.18 新中国联邦 | 喜财经 第83期  数字货币专栏： 比特币、以太坊血崩式下跌  数字美元、数字欧元最新进展
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 6/19/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1eruvz5ef3.md)
+[@miles 6/19/2022 10:05 AM UTC  - :tv:直播](/content/gettr/p1et13q2d7d.md)
 
-2022-6-18《鸡血王喜币大作战》 第二百三十集 嘉宾：卡丽熙、Happy
+2022.06.19 新中国联邦 | 喜财经 第84期    躺平币+量子科技（续）
 
-<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,16 +157,6 @@ For English: https://gettr.com/streaming/p1eouob0b09
  国庆后特别节目  专访老班长分享
 
 <img src="https://media.gettr.com/group3/origin/2022/06/18/03/d87ce2b2-6622-d9c1-0f69-387c607234eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 3:33 AM UTC  - :tv:直播](/content/gettr/p1en8v30132.md)
-
-Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Instagram 上面拥有4.8 M 粉丝 ！ 🔥🔥🔥 大家转发起来吧！  G ｜ Fashion ❤️❤️❤️
-
-
-
-<img src="https://media.gettr.com/group37/getter/2022/06/18/03/0679a3fd-4f73-00b3-3bc1-4d7fad534ffc/out.jpg" width="506" height="284">
 
 ---
 
