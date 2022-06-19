@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1evgj35803.md)
+
+6/10/2022 Miles Guo: Education of the New Federal State of China (NFSC) will emphasize the basic understanding of human history and civilization; teachers of the NFSC should not worry about money, because without financial independ...
+
+<img src="https://media.gettr.com/group24/getter/2022/06/19/23/b81adcdc-15eb-b671-9672-19116fcf75fb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ev7nz3bc8.md)
 
 6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai have communicated with each other. Han Zheng said China would become a Western-style democratic society under the rule of law. This American friend t...
@@ -28,11 +36,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1evgj35803.md)
+[@miles 6/19/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1eve5g4c40.md)
 
-6/10/2022 Miles Guo: Education of the New Federal State of China (NFSC) will emphasize the basic understanding of human history and civilization; teachers of the NFSC should not worry about money, because without financial independ...
+6/10/2022 Miles Guo: The so-called intellectuals in Communist China are just the extremely evil tools and accomplices of the CCP! Is there real education in a huge country like Communist China? It was really shocking to me that Wan...
 
-<img src="https://media.gettr.com/group24/getter/2022/06/19/23/b81adcdc-15eb-b671-9672-19116fcf75fb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/06/19/23/9bedc87c-b137-c54d-4e38-e681f8caa3be/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ The truth starts here: Gnews
 6/8/2022 Miles Guo: The US is preparing for six legislations targeting the CCP. Once these legislations get passed, the atrocities committed by the CCP in Tibet and Hong Kong, just like the genocide it committed in Xinjiang, will b...
 
 <img src="https://media.gettr.com/group34/getter/2022/06/19/00/29de68e9-c325-0025-0470-8edbb7381e78/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p1eqzg7d352.md)
-
-2022.06.18 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-
-<img src="https://media.gettr.com/group17/origin/2022/06/18/23/bb3d8afb-1c9f-1f79-eb38-ad665c50ce0f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
