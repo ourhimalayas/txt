@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ev7nz3bc8.md)
+
+6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai have communicated with each other. Han Zheng said China would become a Western-style democratic society under the rule of law. This American friend t...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/19/23/a87037bb-6cf7-65c0-2d39-6e7e13875479/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ev1sz2751.md)
 
 2022.06.19 PM NFSC News   GFashion is Praised in Milan
@@ -20,11 +28,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/19/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ev7nz3bc8.md)
+[@miles 6/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1evgj35803.md)
 
-6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai have communicated with each other. Han Zheng said China would become a Western-style democratic society under the rule of law. This American friend t...
+6/10/2022 Miles Guo: Education of the New Federal State of China (NFSC) will emphasize the basic understanding of human history and civilization; teachers of the NFSC should not worry about money, because without financial independ...
 
-<img src="https://media.gettr.com/group12/getter/2022/06/19/23/a87037bb-6cf7-65c0-2d39-6e7e13875479/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/06/19/23/b81adcdc-15eb-b671-9672-19116fcf75fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ The truth starts here: Gnews
 6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communism China. Our June 4th event was not only dedicated to celebrating the 2nd anniversary of the New Federal State of China...
 
 <img src="https://media.gettr.com/group7/getter/2022/06/18/23/6679ba53-5202-dc2c-90ce-bf9fc52c786a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 10:01 PM UTC  - :tv:直播](/content/gettr/p1eqprsb61a.md)
-
-飞飞秀 《六四 · 长岛篇》 2022-06-18
-
-For English: gettr.com/streaming/p1eqi511f4c
-
-<img src="https://media.gettr.com/group8/origin/2022/06/18/21/2b978e62-941b-d970-b7fd-7a18a8e2fcfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
