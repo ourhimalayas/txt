@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/19/2022 2:09 PM UTC ](/content/gettr/p1etjsjd27e.md)
+
+6月19日：这一家子太可爱了：大早上的让我心潮澎湃！🙏🙏🙏🙏🙏🙏🙏🙏🙏
+
+永远要相信．好人比坏人多……聪明人比笨人多！
+
+---
+
+[@miles 6/19/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p1etdwm476f.md)
+
+（4K版）文贵大直播 《潜水艇 · 逃出墙内特别专场》 2022-06-19
+
+<img src="https://media.gettr.com/group27/origin/2022/06/19/13/d60c7f23-7a4c-a88a-3081-20dd1efb526a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1etjogd3ac.md)
 
 2022.06.19 AM NFSC news  Concentration is a Prerequisite for Success, Action is a Catalyst
@@ -82,14 +98,6 @@
 
 ---
 
-[@miles 6/19/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p1etdwm476f.md)
-
-（4K版）文贵大直播 《潜水艇 · 逃出墙内特别专场》 2022-06-19
-
-<img src="https://media.gettr.com/group27/origin/2022/06/19/13/d60c7f23-7a4c-a88a-3081-20dd1efb526a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/18/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1ergqjcb94.md)
 
 6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communism China. Our June 4th event was not only dedicated to celebrating the 2nd anniversary of the New Federal State of China...
@@ -157,14 +165,6 @@ For English: https://gettr.com/streaming/p1eouob0b09
 2022.06.18 早 新中国联邦 | 新闻访谈 #唐山 黑社会重度殴打无辜女士，#河南 健康码维稳， #摩根 引入去中心化金融
 
 <img src="https://media.gettr.com/group39/origin/2022/06/18/13/56b86c5c-b22d-3f19-3ed2-1b76419f1986/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/18/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1ep1huaf9c.md)
-
-2022.06.18  早 新中国联邦 | 新闻   专心是成功的前提，行动是成功的催化剂；新中国联邦标准适合任何人
-
-<img src="https://media.gettr.com/group20/origin/2022/06/18/12/3c782b36-93b7-6ca6-4e73-1d23d38bf3f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
