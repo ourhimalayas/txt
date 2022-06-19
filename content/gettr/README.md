@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/19/2022 10:34 PM UTC ](/content/gettr/p1euy8v4af1.md)
+
+U.S. senators introduce Taiwan Policy Act to designate Taiwan as a major non-NATO ally
+
+On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" bill to significantly adjust U.S. policy toward Taiwan, provide ...
+
+<img src="https://media.gettr.com/group47/origin/2022/06/19/22/ce7d0eca-4e40-e186-258e-81911b54ab16/5601961a5a43552b6b589bb8bb785213.png" width="506" height="284">
+
+---
+
+[@miles 6/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1evd6h6422.md)
+
+2022.06.19  新中国联邦 | 喜健康 《医学视角》 S蛋白毒性及误区 疫苗解毒方案再读
+
+<img src="https://media.gettr.com/group30/origin/2022/06/19/20/99798290-fbfb-b804-47ff-c9b5b690a87c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1eu4pr6a87.md)
 
 2022-6-19「真爱💝父出」——父亲是儿女的荣耀🌟 #小小尼莫音乐会 🎼第十六期，父亲节特辑，父亲是强壮的臂膀💪宽阔的肩，父亲是无声的慈爱遮风的墙，父亲无条件爱我们🏠父亲们，节日快乐❤️
@@ -26,11 +44,15 @@
 
 ---
 
-[@miles 6/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1evd6h6422.md)
+[@miles 6/19/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1euwmoa672.md)
 
-2022.06.19  新中国联邦 | 喜健康 《医学视角》 S蛋白毒性及误区 疫苗解毒方案再读
+The truth starts here: Gnews
 
-<img src="https://media.gettr.com/group30/origin/2022/06/19/20/99798290-fbfb-b804-47ff-c9b5b690a87c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+真相从这里开始：Gnews
+
+<img src="https://media.gettr.com/group32/origin/2022/06/19/22/5de29cd3-46ab-7ccd-9545-44bde8fc5862/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,24 +167,6 @@ For English: gettr.com/streaming/p1eqi511f4c
 2022-6-18《避风港》(61) 疫苗导致运动员死亡数增加17倍
 
 <img src="https://media.gettr.com/group42/origin/2022/06/18/18/8222f109-b56b-f68e-0f1e-6f16e4eb76ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 5:29 PM UTC  - :tv:直播](/content/gettr/p1eq9hs8de9.md)
-
-2022年06月18日 文贵大直播精华版
-
-<img src="https://media.gettr.com/group42/origin/2022/06/18/17/41329a49-9408-b778-cc90-73b0c79512dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 2:49 PM UTC  - :tv:直播](/content/gettr/p1epfcif48b.md)
-
-新中国联邦｜真人真事 第57期   香草山农场 大卫王     1080P
-
-For English: https://gettr.com/streaming/p1eouob0b09
-
-<img src="https://media.gettr.com/group4/origin/2022/06/18/14/9f40a8cd-a64e-80d2-ed19-0a342c7ef07c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
