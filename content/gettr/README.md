@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1errmpfcf9.md)
+
+2022.06.18 晚 新中国联邦 | 新闻访谈 F1传奇赛车手以HDO交易 俄圣彼得堡下周可交易港股，腾讯阿里等将登场 泰国保险公司因 中共病毒索赔而陷入破产 美前国防部长表示美中终需一战
+
+<img src="https://media.gettr.com/group41/origin/2022/06/19/00/17e0f491-3f5c-6674-ec90-44070d14bf59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1eqsqk97a5.md)
 
 6/8/2022  Miles Guo: Both parties in the U.S. have been paying attention to the NFSC and know our actions mean a lot to the U.S.; The CCP has spent a large amount of money in order to stop us from doing the livestream of the NFSC's...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/19/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1errmpfcf9.md)
+[@miles 6/19/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1ernee67bf.md)
 
-2022.06.18 晚 新中国联邦 | 新闻访谈 F1传奇赛车手以HDO交易 俄圣彼得堡下周可交易港股，腾讯阿里等将登场 泰国保险公司因 中共病毒索赔而陷入破产 美前国防部长表示美中终需一战
+2022.06.18 新中国联邦 | 喜财经 第83期  数字货币专栏： 比特币、以太坊血崩式下跌  数字美元、数字欧元最新进展
 
-<img src="https://media.gettr.com/group41/origin/2022/06/19/00/17e0f491-3f5c-6674-ec90-44070d14bf59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/06/19/01/d1c9d598-2c4c-3d39-cbb8-c064345ae260/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Jason Derulo 穿G｜Fashion佛教系列，你们觉得好看吗？ ❤️❤️
 Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Derulo ，美国歌手、词曲作者和舞者。自2009年开始他的个人唱片生涯以来，他的单曲销量已经超过3000万，并获得了11首白金单曲，包括《Wiggle》、《Talk Dirty》、《Want to Want Me》、《Trumpets》、《It Girl》、《in...
 
 <img src="https://media.gettr.com/group43/getter/2022/06/18/03/2ca40156-ce6f-b239-4bcd-9132abafcdac/b2ee844df8b7efd27bdfe0f9050456c5.jpg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1enbpfe7bb.md)
-
-2022-6-17《鸡血王喜币大作战》 第二百二十九集 嘉宾：青藤、风雨之中
-
-<img src="https://media.gettr.com/group27/origin/2022/04/30/02/c9e02a3b-3999-06f7-028e-b964b23fbcab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
