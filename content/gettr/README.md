@@ -12,6 +12,26 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
+[@miles 6/19/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ev1sz2751.md)
+
+2022.06.19 PM NFSC News   GFashion is Praised in Milan
+
+<img src="https://media.gettr.com/group7/origin/2022/06/19/22/7e17f51d-b3d5-399e-50ae-7995bc37301b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/19/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1euwmoa672.md)
+
+The truth starts here: Gnews
+
+
+
+真相从这里开始：Gnews
+
+<img src="https://media.gettr.com/group32/origin/2022/06/19/22/5de29cd3-46ab-7ccd-9545-44bde8fc5862/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1evd6h6422.md)
 
 2022.06.19  新中国联邦 | 喜健康 《医学视角》 S蛋白毒性及误区 疫苗解毒方案再读
@@ -41,18 +61,6 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 (1080版) 文贵大直播 《潜水艇 · 逃出墙内特别专场》 2022-06-19
 
 <img src="https://media.gettr.com/group11/origin/2022/06/19/12/20344c07-43c8-d13c-7d5d-8f3d1feec776/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1euwmoa672.md)
-
-The truth starts here: Gnews
-
-
-
-真相从这里开始：Gnews
-
-<img src="https://media.gettr.com/group32/origin/2022/06/19/22/5de29cd3-46ab-7ccd-9545-44bde8fc5862/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English: gettr.com/streaming/p1eqi511f4c
 2022.06.18  新中国联邦 | 喜健康  文翡博士专访：六四改变的一代人
 
 <img src="https://media.gettr.com/group13/origin/2022/06/18/20/6a2f63fa-d6ac-1b37-0e81-94dce598756d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p1eq4kqf57c.md)
-
-2022-6-18《避风港》(61) 疫苗导致运动员死亡数增加17倍
-
-<img src="https://media.gettr.com/group42/origin/2022/06/18/18/8222f109-b56b-f68e-0f1e-6f16e4eb76ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
