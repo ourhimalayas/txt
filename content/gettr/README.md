@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/19/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p1et5475900.md)
+
+(1080版) 文贵大直播 《潜水艇 · 逃出墙内特别专场》 2022-06-19
+
+<img src="https://media.gettr.com/group11/origin/2022/06/19/12/20344c07-43c8-d13c-7d5d-8f3d1feec776/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1etjogd3ac.md)
+
+2022.06.19 AM NFSC news  Concentration is a Prerequisite for Success, Action is a Catalyst
+
+<img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ettxi04d1.md)
 
 2022.06.19  NFSCニュース　　郭文貴氏が10個中国国営企業の真相を暴露
@@ -66,11 +82,11 @@
 
 ---
 
-[@miles 6/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1etjogd3ac.md)
+[@miles 6/19/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p1etdwm476f.md)
 
-2022.06.19 AM NFSC news  Concentration is a Prerequisite for Success, Action is a Catalyst
+（4K版）文贵大直播 《潜水艇 · 逃出墙内特别专场》 2022-06-19
 
-<img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/19/13/d60c7f23-7a4c-a88a-3081-20dd1efb526a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,22 +165,6 @@ For English: https://gettr.com/streaming/p1eouob0b09
 2022.06.18  早 新中国联邦 | 新闻   专心是成功的前提，行动是成功的催化剂；新中国联邦标准适合任何人
 
 <img src="https://media.gettr.com/group20/origin/2022/06/18/12/3c782b36-93b7-6ca6-4e73-1d23d38bf3f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1ep1y7dd6c.md)
-
-2022.06.18 AM NFSC news
-
-<img src="https://media.gettr.com/group28/origin/2022/06/18/11/7cffd23a-a060-a9a4-f309-413f3f786dd2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/18/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1eov8be5a5.md)
-
-2022.06.18 NFSCニュース　中共は、米国と世界の脅威
-
-<img src="https://media.gettr.com/group36/origin/2022/06/18/10/69583323-56f8-88d4-3c28-c5aef8249a09/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
