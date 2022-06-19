@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1eqyfo62c2.md)
+
+6/8/2022 Miles Guo: The US is preparing for six legislations targeting the CCP. Once these legislations get passed, the atrocities committed by the CCP in Tibet and Hong Kong, just like the genocide it committed in Xinjiang, will b...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/19/00/29de68e9-c325-0025-0470-8edbb7381e78/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p1eqzg7d352.md)
 
 2022.06.18 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1eqyfo62c2.md)
+[@miles 6/19/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1eqsqk97a5.md)
 
-6/8/2022 Miles Guo: The US is preparing for six legislations targeting the CCP. Once these legislations get passed, the atrocities committed by the CCP in Tibet and Hong Kong, just like the genocide it committed in Xinjiang, will b...
+6/8/2022  Miles Guo: Both parties in the U.S. have been paying attention to the NFSC and know our actions mean a lot to the U.S.; The CCP has spent a large amount of money in order to stop us from doing the livestream of the NFSC's...
 
-<img src="https://media.gettr.com/group34/getter/2022/06/19/00/29de68e9-c325-0025-0470-8edbb7381e78/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/06/19/00/4d99f575-5f13-e0b0-1fd9-96aad276c8c8/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 6/2/2022 Miles Guo at the Himalaya Alliance Cup Poetry Recital Competition: Poetry recital is not the patent of the CCP! The CCP is a cult with nothing original and has spoiled everything it copied. The poetry recital competition h...
 
 <img src="https://media.gettr.com/group9/getter/2022/06/18/02/cbc25137-7832-7f24-ee13-fa0c831c3d7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1en3ctff87.md)
-
-2022.06.17 晚 新中国联邦 | 新闻访谈  中共继续站在俄国一边；中东欧国家欲中共拉开距离，匈牙利却屡次站队中共
-
-<img src="https://media.gettr.com/group32/origin/2022/06/18/00/725d0d70-2036-3cc0-291a-17db6e43c6b6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
