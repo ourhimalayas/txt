@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ey5hw7849.md)
+
+20220620　NFSCニュース　上海石化で重大な爆発事故が発生
+
+<img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1exygeb41c.md)
 
 2022.06.20 新中国联邦 | 军情室 中美军事实力对比
@@ -120,11 +128,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ey5hw7849.md)
+[@miles 6/20/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1ey2c041b1.md)
 
-20220620　NFSCニュース　上海石化で重大な爆発事故が発生
+2022.06.20 AM NFSC News  Australia Says the Solomon Islands Not Rely on CCP for Security
 
-<img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/06/20/11/406a9a42-c57a-ded7-16fe-5ccb453ae506/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ The truth starts here: Gnews
 6月19日：这一家子太可爱了：大早上的让我心潮澎湃！🙏🙏🙏🙏🙏🙏🙏🙏🙏
 
 永远要相信．好人比坏人多……聪明人比笨人多！
-
----
-
-[@miles 6/19/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p1et5475900.md)
-
-(1080版) 文贵大直播 《潜水艇 · 逃出墙内特别专场》 2022-06-19
-
-<img src="https://media.gettr.com/group11/origin/2022/06/19/12/20344c07-43c8-d13c-7d5d-8f3d1feec776/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
