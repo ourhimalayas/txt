@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1ey2c041b1.md)
+
+2022.06.20 AM NFSC News  Australia Says the Solomon Islands Not Rely on CCP for Security
+
+<img src="https://media.gettr.com/group31/origin/2022/06/20/11/406a9a42-c57a-ded7-16fe-5ccb453ae506/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ey5hw7849.md)
 
 20220620　NFSCニュース　上海石化で重大な爆発事故が発生
@@ -128,11 +136,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1ey2c041b1.md)
+[@miles 6/20/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p1ey5qfdf1c.md)
 
-2022.06.20 AM NFSC News  Australia Says the Solomon Islands Not Rely on CCP for Security
+2022.06.20 早 新中国联邦 | 新闻  中共无力阻挡新中国联邦的力量  新中国联邦未来会有华盛顿大使馆和曼哈顿领事馆  国际歌手演唱会全程穿着GFashion表演
 
-<img src="https://media.gettr.com/group31/origin/2022/06/20/11/406a9a42-c57a-ded7-16fe-5ccb453ae506/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/06/20/12/499cd556-403e-3dd0-f4bf-660b1cac54c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ The truth starts here: Gnews
 6月19日：这一家子太可爱了：大早上的让我心潮澎湃！🙏🙏🙏🙏🙏🙏🙏🙏🙏
 
 永远要相信．好人比坏人多……聪明人比笨人多！
-
----
-
-[@miles 6/19/2022 1:05 PM UTC  - :tv:直播](/content/gettr/p1etdwm476f.md)
-
-（4K版）文贵大直播 《潜水艇 · 逃出墙内特别专场》 2022-06-19
-
-<img src="https://media.gettr.com/group27/origin/2022/06/19/13/d60c7f23-7a4c-a88a-3081-20dd1efb526a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
