@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1ezyf7a236.md)
+
+2022.06.20 PM NFSC news  NATO warns Russia-Ukraine war could last for years
+
+<img src="https://media.gettr.com/group46/origin/2022/06/20/23/d1dd15b1-c935-0b6e-d18c-b0ccf89478ff/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1ezuegbc3a.md)
 
 （4K版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
@@ -9,6 +17,24 @@
 For English：gettr.com/post/p1ez8excd83
 
 <img src="https://media.gettr.com/group7/origin/2022/06/20/22/e7ab7dc2-1633-99ad-9cd1-3490d2edb700/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/20/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1f0ay56417.md)
+
+6/12/2022 Miles Guo: Putin attempted twice to use nuclear weapons a month ago, but was stopped by his nuclear weapon deployment committee; if Xi attacks Taiwan, the US will absolutely deploy its killer weapon and completely destroy...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/20/23/467537e8-50b2-aef9-2130-561592afb315/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/20/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ezmmkb3ce.md)
+
+（1080版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
+
+For English：gettr.com/post/p1ez8excd83
+
+<img src="https://media.gettr.com/group11/origin/2022/06/20/22/28fcaadb-1247-0394-e7ac-92a531c0be88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,32 +175,6 @@ The New Federal State of China Focus:
 6/10/2022 Miles Guo: The so-called intellectuals in Communist China are just the extremely evil tools and accomplices of the CCP! Is there real education in a huge country like Communist China? It was really shocking to me that Wan...
 
 <img src="https://media.gettr.com/group24/getter/2022/06/19/23/9bedc87c-b137-c54d-4e38-e681f8caa3be/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1evgj35803.md)
-
-6/10/2022 Miles Guo: Education of the New Federal State of China (NFSC) will emphasize the basic understanding of human history and civilization; teachers of the NFSC should not worry about money, because without financial independ...
-
-<img src="https://media.gettr.com/group24/getter/2022/06/19/23/b81adcdc-15eb-b671-9672-19116fcf75fb/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1ev7nz3bc8.md)
-
-6/12/2022 Miles Guo: Li Keqiang, the Jiang family, and the CCP cadres in Shanghai have communicated with each other. Han Zheng said China would become a Western-style democratic society under the rule of law. This American friend t...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/19/23/a87037bb-6cf7-65c0-2d39-6e7e13875479/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ezmmkb3ce.md)
-
-（1080版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
-
-For English：gettr.com/post/p1ez8excd83
-
-<img src="https://media.gettr.com/group11/origin/2022/06/20/22/28fcaadb-1247-0394-e7ac-92a531c0be88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
