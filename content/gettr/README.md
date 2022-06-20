@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/20/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1ezuegbc3a.md)
+
+（4K版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
+
+For English：gettr.com/post/p1ez8excd83
+
+<img src="https://media.gettr.com/group7/origin/2022/06/20/22/e7ab7dc2-1633-99ad-9cd1-3490d2edb700/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@globalalliance 6/20/2022 8:24 PM UTC  - :tv:直播](/content/gettr/p1ezeet49e7.md)
+
+2022.06.20  新中国联邦 | 喜健康 《寻医问药》美国执业神经内科医生在线答疑；《正道医学》读罗素·布雷洛克博士《冠状病毒的真相》（二）
+
+<img src="https://media.gettr.com/group9/origin/2022/06/20/20/92910e0d-8a4b-c961-1bb3-1a18f8c63104/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 6:39 PM UTC  - :tv:直播](/content/gettr/p1eyitd8d64.md)
 
   2022年06月22日 《焦点》87期：爆料革命需要高效率、高执行力的团队迎接灭共新高度；农场服务战友，发现、培养和输送人才。
@@ -150,31 +168,13 @@ The New Federal State of China Focus:
 
 ---
 
-[@miles 6/19/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ev1sz2751.md)
+[@miles 6/20/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ezmmkb3ce.md)
 
-2022.06.19 PM NFSC News   GFashion is Praised in Milan
+（1080版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
 
-<img src="https://media.gettr.com/group7/origin/2022/06/19/22/7e17f51d-b3d5-399e-50ae-7995bc37301b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+For English：gettr.com/post/p1ez8excd83
 
----
-
-[@globalalliance 6/20/2022 8:24 PM UTC  - :tv:直播](/content/gettr/p1ezeet49e7.md)
-
-2022.06.20  新中国联邦 | 喜健康 《寻医问药》美国执业神经内科医生在线答疑；《正道医学》读罗素·布雷洛克博士《冠状病毒的真相》（二）
-
-<img src="https://media.gettr.com/group9/origin/2022/06/20/20/92910e0d-8a4b-c961-1bb3-1a18f8c63104/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1euwmoa672.md)
-
-The truth starts here: Gnews
-
-
-
-真相从这里开始：Gnews
-
-<img src="https://media.gettr.com/group32/origin/2022/06/19/22/5de29cd3-46ab-7ccd-9545-44bde8fc5862/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/06/20/22/28fcaadb-1247-0394-e7ac-92a531c0be88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
