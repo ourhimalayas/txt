@@ -10,13 +10,11 @@
 
 ---
 
-[@miles 6/20/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1ezuegbc3a.md)
+[@miles 6/20/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1ezwnj9ccb.md)
 
-（4K版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
+6/12/2022 Miles Guo: Liang Guanglie (former CCP Defense Minister) and his son wreck women everywhere, and they even shared the same girlfriend. Liang Guanglie said himself that the Sino-Vietnamese war was for the CCP to send the Ch...
 
-For English：gettr.com/post/p1ez8excd83
-
-<img src="https://media.gettr.com/group7/origin/2022/06/20/22/e7ab7dc2-1633-99ad-9cd1-3490d2edb700/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/06/20/23/eb10a817-0882-b677-20dd-79866bb7ac80/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +23,16 @@ For English：gettr.com/post/p1ez8excd83
 6/12/2022 Miles Guo: Putin attempted twice to use nuclear weapons a month ago, but was stopped by his nuclear weapon deployment committee; if Xi attacks Taiwan, the US will absolutely deploy its killer weapon and completely destroy...
 
 <img src="https://media.gettr.com/group22/getter/2022/06/20/23/467537e8-50b2-aef9-2130-561592afb315/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/20/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1ezuegbc3a.md)
+
+（4K版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
+
+For English：gettr.com/post/p1ez8excd83
+
+<img src="https://media.gettr.com/group7/origin/2022/06/20/22/e7ab7dc2-1633-99ad-9cd1-3490d2edb700/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ The New Federal State of China Focus:
 2022.06.19 晚 新中国联邦 | 新闻  北约警告俄乌战争可能陷入长期对峙；所罗门保证：中共不会在该国驻常规军
 
 <img src="https://media.gettr.com/group10/origin/2022/06/20/00/00640eb8-f882-10e0-0193-52c345513cb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1eve5g4c40.md)
-
-6/10/2022 Miles Guo: The so-called intellectuals in Communist China are just the extremely evil tools and accomplices of the CCP! Is there real education in a huge country like Communist China? It was really shocking to me that Wan...
-
-<img src="https://media.gettr.com/group24/getter/2022/06/19/23/9bedc87c-b137-c54d-4e38-e681f8caa3be/out.jpg" width="506" height="284">
 
 ---
 
