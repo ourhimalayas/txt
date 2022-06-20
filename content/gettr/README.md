@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 6:39 PM UTC  - :tv:直播](/content/gettr/p1eyitd8d64.md)
+
+  2022年06月22日 《焦点》87期：爆料革命需要高效率、高执行力的团队迎接灭共新高度；农场服务战友，发现、培养和输送人才。
+
+<img src="https://media.gettr.com/group3/origin/2022/06/20/18/dd8bbc79-7b2d-fbeb-aea9-6157841b6000/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1eyb0x855c.md)
 
   2022年06月22日 文贵大直播精华版
@@ -150,21 +158,11 @@ The New Federal State of China Focus:
 
 ---
 
-[@miles 6/19/2022 10:34 PM UTC ](/content/gettr/p1euy8v4af1.md)
+[@globalalliance 6/20/2022 8:24 PM UTC  - :tv:直播](/content/gettr/p1ezeet49e7.md)
 
-U.S. senators introduce Taiwan Policy Act to designate Taiwan as a major non-NATO ally
+2022.06.20  新中国联邦 | 喜健康 《寻医问药》美国执业神经内科医生在线答疑；《正道医学》读罗素·布雷洛克博士《冠状病毒的真相》（二）
 
-On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" bill to significantly adjust U.S. policy toward Taiwan, provide ...
-
-<img src="https://media.gettr.com/group47/origin/2022/06/19/22/ce7d0eca-4e40-e186-258e-81911b54ab16/5601961a5a43552b6b589bb8bb785213.png" width="506" height="284">
-
----
-
-[@miles 6/20/2022 6:39 PM UTC  - :tv:直播](/content/gettr/p1eyitd8d64.md)
-
-  2022年06月22日 《焦点》87期：爆料革命需要高效率、高执行力的团队迎接灭共新高度；农场服务战友，发现、培养和输送人才。
-
-<img src="https://media.gettr.com/group3/origin/2022/06/20/18/dd8bbc79-7b2d-fbeb-aea9-6157841b6000/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/06/20/20/92910e0d-8a4b-c961-1bb3-1a18f8c63104/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
