@@ -2,6 +2,28 @@
 ---
 
 
+[@19y6shidyaskp6g 6/20/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1evtbmb407.md)
+
+The New Federal State of China Focus: 
+
+🈚️🈚️🈚️The CCP Will Be Finished If Xi Is Done
+
+聚焦新中国联邦：
+
+🈚️🈚️🈚️无习无共党
+
+#新中国联邦
+
+#NFSC
+
+#爆料革命
+
+#WhistleblowerMovement
+
+<img src="https://media.gettr.com/group11/getter/2022/06/20/01/7799bb6b-d0f6-5d4d-29a5-fde99783c114/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1evnna9a0d.md)
 
 2022.06.19 农场联盟工作汇报
@@ -76,25 +98,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@19y6shidyaskp6g 6/20/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1evtbmb407.md)
+[@miles 6/20/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1evqpnb51a.md)
 
-The New Federal State of China Focus: 
+2022-6-19《鸡血王喜币大作战》 第二百三十一集 嘉宾：七里香、封神榜
 
-🈚️🈚️🈚️The CCP Will Be Finished If Xi Is Done
-
-聚焦新中国联邦：
-
-🈚️🈚️🈚️无习无共党
-
-#新中国联邦
-
-#NFSC
-
-#爆料革命
-
-#WhistleblowerMovement
-
-<img src="https://media.gettr.com/group11/getter/2022/06/20/01/7799bb6b-d0f6-5d4d-29a5-fde99783c114/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/06/20/03/ac6bbc8c-e929-bcdf-d997-68cd01d0125a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ The truth starts here: Gnews
 2022.06.19 新中国联邦 | 喜财经 第84期    躺平币+量子科技（续）
 
 <img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/19/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p1eruvz5ef3.md)
-
-2022-6-18《鸡血王喜币大作战》 第二百三十集 嘉宾：卡丽熙、Happy
-
-<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
