@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1eyb0x855c.md)
+
+  2022年06月22日 文贵大直播精华版
+
+<img src="https://media.gettr.com/group8/origin/2022/06/20/17/7e00252c-976d-5837-b641-8921ecf743da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1ey0kg8d44.md)
 
 22.06.20 早   新中国联邦 | 新闻访谈  美参院两党领袖推“台湾政策法” 拟列台湾为“重要非北约盟友”，美国土安全部公布战略，阻止中共国维吾尔族强迫劳动制造的商品
@@ -152,11 +160,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1eyb0x855c.md)
+[@miles 6/20/2022 6:39 PM UTC  - :tv:直播](/content/gettr/p1eyitd8d64.md)
 
-  2022年06月22日 文贵大直播精华版
+  2022年06月22日 《焦点》87期：爆料革命需要高效率、高执行力的团队迎接灭共新高度；农场服务战友，发现、培养和输送人才。
 
-<img src="https://media.gettr.com/group8/origin/2022/06/20/17/7e00252c-976d-5837-b641-8921ecf743da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/06/20/18/dd8bbc79-7b2d-fbeb-aea9-6157841b6000/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ The truth starts here: Gnews
 真相从这里开始：Gnews
 
 <img src="https://media.gettr.com/group32/origin/2022/06/19/22/5de29cd3-46ab-7ccd-9545-44bde8fc5862/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1evd6h6422.md)
-
-2022.06.19  新中国联邦 | 喜健康 《医学视角》 S蛋白毒性及误区 疫苗解毒方案再读
-
-<img src="https://media.gettr.com/group30/origin/2022/06/19/20/99798290-fbfb-b804-47ff-c9b5b690a87c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
