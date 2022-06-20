@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1exygeb41c.md)
+
+2022.06.20 新中国联邦 | 军情室 中美军事实力对比
+
+<img src="https://media.gettr.com/group27/origin/2022/06/20/09/6b29782c-84ce-9111-0eb5-a2d212f3783b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 4:06 AM UTC ](/content/gettr/p1ew0a0ec3f.md)
 
 ❤️❤️❤️❤️❤️❤️❤️❤️❤️
@@ -112,11 +120,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1exygeb41c.md)
+[@miles 6/20/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ey5hw7849.md)
 
-2022.06.20 新中国联邦 | 军情室 中美军事实力对比
+20220620　NFSCニュース　上海石化で重大な爆発事故が発生
 
-<img src="https://media.gettr.com/group27/origin/2022/06/20/09/6b29782c-84ce-9111-0eb5-a2d212f3783b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ The truth starts here: Gnews
 （4K版）文贵大直播 《潜水艇 · 逃出墙内特别专场》 2022-06-19
 
 <img src="https://media.gettr.com/group27/origin/2022/06/19/13/d60c7f23-7a4c-a88a-3081-20dd1efb526a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1etjogd3ac.md)
-
-2022.06.19 AM NFSC news  Concentration is a Prerequisite for Success, Action is a Catalyst
-
-<img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
