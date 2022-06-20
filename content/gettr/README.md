@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/20/2022 4:06 AM UTC ](/content/gettr/p1ew0a0ec3f.md)
+
+❤️❤️❤️❤️❤️❤️❤️❤️❤️
+
+---
+
 [@miles 6/20/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1evqpnb51a.md)
 
 2022-6-19《鸡血王喜币大作战》 第二百三十一集 嘉宾：七里香、封神榜
@@ -106,9 +112,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 4:06 AM UTC ](/content/gettr/p1ew0a0ec3f.md)
+[@miles 6/20/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1exygeb41c.md)
 
-❤️❤️❤️❤️❤️❤️❤️❤️❤️
+2022.06.20 新中国联邦 | 军情室 中美军事实力对比
+
+<img src="https://media.gettr.com/group27/origin/2022/06/20/09/6b29782c-84ce-9111-0eb5-a2d212f3783b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ The truth starts here: Gnews
 2022.06.19 AM NFSC news  Concentration is a Prerequisite for Success, Action is a Catalyst
 
 <img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/19/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ettxi04d1.md)
-
-2022.06.19  NFSCニュース　　郭文貴氏が10個中国国営企業の真相を暴露
-
-<img src="https://media.gettr.com/group15/origin/2022/06/19/11/0d0d8ab2-475d-f855-a9b0-99461633ad76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
