@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1evnna9a0d.md)
+
+2022.06.19 农场联盟工作汇报
+
+<img src="https://media.gettr.com/group19/origin/2022/01/24/02/bd613978-1725-3a5b-3d72-ba5ecfb1f562/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1ewbw4c470.md)
 
 6/10/2022 Miles Guo: In some poor areas in Gansu, when people died from COVID vaccinations, the local governments didn't allow their family members to cremate them and have their Hukou (the system of household registration in China...
@@ -68,11 +76,25 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1evnna9a0d.md)
+[@19y6shidyaskp6g 6/20/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1evtbmb407.md)
 
-2022.06.19 农场联盟工作汇报
+The New Federal State of China Focus: 
 
-<img src="https://media.gettr.com/group19/origin/2022/01/24/02/bd613978-1725-3a5b-3d72-ba5ecfb1f562/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+🈚️🈚️🈚️The CCP Will Be Finished If Xi Is Done
+
+聚焦新中国联邦：
+
+🈚️🈚️🈚️无习无共党
+
+#新中国联邦
+
+#NFSC
+
+#爆料革命
+
+#WhistleblowerMovement
+
+<img src="https://media.gettr.com/group11/getter/2022/06/20/01/7799bb6b-d0f6-5d4d-29a5-fde99783c114/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +179,6 @@ The truth starts here: Gnews
 2022-6-18《鸡血王喜币大作战》 第二百三十集 嘉宾：卡丽熙、Happy
 
 <img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1ernee67bf.md)
-
-2022.06.18 新中国联邦 | 喜财经 第83期  数字货币专栏： 比特币、以太坊血崩式下跌  数字美元、数字欧元最新进展
-
-<img src="https://media.gettr.com/group11/origin/2022/06/19/01/d1c9d598-2c4c-3d39-cbb8-c064345ae260/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
