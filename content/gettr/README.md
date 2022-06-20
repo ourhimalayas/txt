@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1ewbw4c470.md)
+
+6/10/2022 Miles Guo: In some poor areas in Gansu, when people died from COVID vaccinations, the local governments didn't allow their family members to cremate them and have their Hukou (the system of household registration in China...
+
+<img src="https://media.gettr.com/group35/getter/2022/06/20/01/4013c404-f406-cd84-faa6-516be37bc49a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1evxpf9e41.md)
 
 2022.06.19 晚 新中国联邦 | 新闻访谈  中共社会罪与罚，海外经济危机重重，新中国联邦希望明灯！
@@ -60,11 +68,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1ewbw4c470.md)
+[@miles 6/20/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1evnna9a0d.md)
 
-6/10/2022 Miles Guo: In some poor areas in Gansu, when people died from COVID vaccinations, the local governments didn't allow their family members to cremate them and have their Hukou (the system of household registration in China...
+2022.06.19 农场联盟工作汇报
 
-<img src="https://media.gettr.com/group35/getter/2022/06/20/01/4013c404-f406-cd84-faa6-516be37bc49a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/01/24/02/bd613978-1725-3a5b-3d72-ba5ecfb1f562/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ The truth starts here: Gnews
 2022.06.18 新中国联邦 | 喜财经 第83期  数字货币专栏： 比特币、以太坊血崩式下跌  数字美元、数字欧元最新进展
 
 <img src="https://media.gettr.com/group11/origin/2022/06/19/01/d1c9d598-2c4c-3d39-cbb8-c064345ae260/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/19/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1errmpfcf9.md)
-
-2022.06.18 晚 新中国联邦 | 新闻访谈 F1传奇赛车手以HDO交易 俄圣彼得堡下周可交易港股，腾讯阿里等将登场 泰国保险公司因 中共病毒索赔而陷入破产 美前国防部长表示美中终需一战
-
-<img src="https://media.gettr.com/group41/origin/2022/06/19/00/17e0f491-3f5c-6674-ec90-44070d14bf59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
