@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1ey0kg8d44.md)
+
+22.06.20 早   新中国联邦 | 新闻访谈  美参院两党领袖推“台湾政策法” 拟列台湾为“重要非北约盟友”，美国土安全部公布战略，阻止中共国维吾尔族强迫劳动制造的商品
+
+<img src="https://media.gettr.com/group9/origin/2022/06/20/13/b81db171-5cfd-80a8-8c6b-132b15aaf959/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p1ey5qfdf1c.md)
 
 2022.06.20 早 新中国联邦 | 新闻  中共无力阻挡新中国联邦的力量  新中国联邦未来会有华盛顿大使馆和曼哈顿领事馆  国际歌手演唱会全程穿着GFashion表演
@@ -144,11 +152,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1ey0kg8d44.md)
+[@miles 6/20/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1eyb0x855c.md)
 
-22.06.20 早   新中国联邦 | 新闻访谈  美参院两党领袖推“台湾政策法” 拟列台湾为“重要非北约盟友”，美国土安全部公布战略，阻止中共国维吾尔族强迫劳动制造的商品
+  2022年06月22日 文贵大直播精华版
 
-<img src="https://media.gettr.com/group9/origin/2022/06/20/13/b81db171-5cfd-80a8-8c6b-132b15aaf959/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/06/20/17/7e00252c-976d-5837-b641-8921ecf743da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ The truth starts here: Gnews
 2022.06.19  新中国联邦 | 喜健康 《医学视角》 S蛋白毒性及误区 疫苗解毒方案再读
 
 <img src="https://media.gettr.com/group30/origin/2022/06/19/20/99798290-fbfb-b804-47ff-c9b5b690a87c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1eu4pr6a87.md)
-
-2022-6-19「真爱💝父出」——父亲是儿女的荣耀🌟 #小小尼莫音乐会 🎼第十六期，父亲节特辑，父亲是强壮的臂膀💪宽阔的肩，父亲是无声的慈爱遮风的墙，父亲无条件爱我们🏠父亲们，节日快乐❤️
-
-<img src="https://media.gettr.com/group41/origin/2022/06/19/18/e8020a68-541e-7fb7-dbed-d5e3045678ce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
