@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ev5igc7ea.md)
+
+2022.06.19 晚 新中国联邦 | 新闻  北约警告俄乌战争可能陷入长期对峙；所罗门保证：中共不会在该国驻常规军
+
+<img src="https://media.gettr.com/group10/origin/2022/06/20/00/00640eb8-f882-10e0-0193-52c345513cb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1eve5g4c40.md)
 
 6/10/2022 Miles Guo: The so-called intellectuals in Communist China are just the extremely evil tools and accomplices of the CCP! Is there real education in a huge country like Communist China? It was really shocking to me that Wan...
@@ -44,11 +52,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ev5igc7ea.md)
+[@miles 6/20/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1evxpf9e41.md)
 
-2022.06.19 晚 新中国联邦 | 新闻  北约警告俄乌战争可能陷入长期对峙；所罗门保证：中共不会在该国驻常规军
+2022.06.19 晚 新中国联邦 | 新闻访谈  中共社会罪与罚，海外经济危机重重，新中国联邦希望明灯！
 
-<img src="https://media.gettr.com/group10/origin/2022/06/20/00/00640eb8-f882-10e0-0193-52c345513cb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/06/20/00/154f8179-296d-7161-a5b7-6a62beb509cf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ The truth starts here: Gnews
 6/8/2022  Miles Guo: Both parties in the U.S. have been paying attention to the NFSC and know our actions mean a lot to the U.S.; The CCP has spent a large amount of money in order to stop us from doing the livestream of the NFSC's...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/19/00/4d99f575-5f13-e0b0-1fd9-96aad276c8c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/19/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1eqyfo62c2.md)
-
-6/8/2022 Miles Guo: The US is preparing for six legislations targeting the CCP. Once these legislations get passed, the atrocities committed by the CCP in Tibet and Hong Kong, just like the genocide it committed in Xinjiang, will b...
-
-<img src="https://media.gettr.com/group34/getter/2022/06/19/00/29de68e9-c325-0025-0470-8edbb7381e78/out.jpg" width="506" height="284">
 
 ---
 
