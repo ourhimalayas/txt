@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1evxpf9e41.md)
+
+2022.06.19 晚 新中国联邦 | 新闻访谈  中共社会罪与罚，海外经济危机重重，新中国联邦希望明灯！
+
+<img src="https://media.gettr.com/group16/origin/2022/06/20/00/154f8179-296d-7161-a5b7-6a62beb509cf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ev5igc7ea.md)
 
 2022.06.19 晚 新中国联邦 | 新闻  北约警告俄乌战争可能陷入长期对峙；所罗门保证：中共不会在该国驻常规军
@@ -52,11 +60,11 @@ On June 17,  A duo of U.S. senators introduced the "Taiwan Policy Act of 2022" b
 
 ---
 
-[@miles 6/20/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1evxpf9e41.md)
+[@miles 6/20/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1ewbw4c470.md)
 
-2022.06.19 晚 新中国联邦 | 新闻访谈  中共社会罪与罚，海外经济危机重重，新中国联邦希望明灯！
+6/10/2022 Miles Guo: In some poor areas in Gansu, when people died from COVID vaccinations, the local governments didn't allow their family members to cremate them and have their Hukou (the system of household registration in China...
 
-<img src="https://media.gettr.com/group16/origin/2022/06/20/00/154f8179-296d-7161-a5b7-6a62beb509cf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/06/20/01/4013c404-f406-cd84-faa6-516be37bc49a/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ The truth starts here: Gnews
 2022.06.18 晚 新中国联邦 | 新闻访谈 F1传奇赛车手以HDO交易 俄圣彼得堡下周可交易港股，腾讯阿里等将登场 泰国保险公司因 中共病毒索赔而陷入破产 美前国防部长表示美中终需一战
 
 <img src="https://media.gettr.com/group41/origin/2022/06/19/00/17e0f491-3f5c-6674-ec90-44070d14bf59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/19/2022 12:28 AM UTC  - :tv:直播](/content/gettr/p1eqsqk97a5.md)
-
-6/8/2022  Miles Guo: Both parties in the U.S. have been paying attention to the NFSC and know our actions mean a lot to the U.S.; The CCP has spent a large amount of money in order to stop us from doing the livestream of the NFSC's...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/19/00/4d99f575-5f13-e0b0-1fd9-96aad276c8c8/out.jpg" width="506" height="284">
 
 ---
 
