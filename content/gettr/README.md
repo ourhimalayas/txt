@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1ezwnj9ccb.md)
+
+6/12/2022 Miles Guo: Liang Guanglie (former CCP Defense Minister) and his son wreck women everywhere, and they even shared the same girlfriend. Liang Guanglie said himself that the Sino-Vietnamese war was for the CCP to send the Ch...
+
+<img src="https://media.gettr.com/group32/getter/2022/06/20/23/eb10a817-0882-b677-20dd-79866bb7ac80/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1ezyf7a236.md)
 
 2022.06.20 PM NFSC news  NATO warns Russia-Ukraine war could last for years
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/20/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1ezwnj9ccb.md)
+[@miles 6/20/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1ezuvxc618.md)
 
-6/12/2022 Miles Guo: Liang Guanglie (former CCP Defense Minister) and his son wreck women everywhere, and they even shared the same girlfriend. Liang Guanglie said himself that the Sino-Vietnamese war was for the CCP to send the Ch...
+2022.06.20 PM NFSC Fringe   CCP's judicial unrestricted warfare,  "witness" in Cyprus extradition
 
-<img src="https://media.gettr.com/group32/getter/2022/06/20/23/eb10a817-0882-b677-20dd-79866bb7ac80/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/06/20/23/df7c11dd-ece5-adb3-f682-911e78d91049/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ The New Federal State of China Focus:
 2022.06.19 晚 新中国联邦 | 新闻访谈  中共社会罪与罚，海外经济危机重重，新中国联邦希望明灯！
 
 <img src="https://media.gettr.com/group16/origin/2022/06/20/00/154f8179-296d-7161-a5b7-6a62beb509cf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/20/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1ev5igc7ea.md)
-
-2022.06.19 晚 新中国联邦 | 新闻  北约警告俄乌战争可能陷入长期对峙；所罗门保证：中共不会在该国驻常规军
-
-<img src="https://media.gettr.com/group10/origin/2022/06/20/00/00640eb8-f882-10e0-0193-52c345513cb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
