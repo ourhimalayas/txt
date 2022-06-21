@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1f0exma321.md)
+
+2022.06.20 新中国联邦 | 喜财经 第85期 美国三大股指自一月以来连续暴跌；通胀高企，加息不能解决本质问题；数字货币市场跌跌不休，唯有喜币走势平稳；中共布局数字货币市场，引爆数字货币大战
+
+<img src="https://media.gettr.com/group27/origin/2022/06/21/01/14415f9b-afb8-c6a3-1f08-ba623b2e54ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1f01wk3dc9.md)
 
 2022.06.16  晚 新中国联邦⎪新闻访谈   #美国前线重症联盟 与我们一起关注 #苗毒 对妇科的损伤； #乌克兰 加入 #欧洲区块链合作组织 #EBP ；水深火热：#北方旱灾 #南方水灾
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 6/21/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1f0exma321.md)
+[@miles 6/21/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1f0myh47bd.md)
 
-2022.06.20 新中国联邦 | 喜财经 第85期 美国三大股指自一月以来连续暴跌；通胀高企，加息不能解决本质问题；数字货币市场跌跌不休，唯有喜币走势平稳；中共布局数字货币市场，引爆数字货币大战
+2022-6-20《鸡血王喜币大作战》 第二百三十二集 嘉宾：Nick、文空
 
-<img src="https://media.gettr.com/group27/origin/2022/06/21/01/14415f9b-afb8-c6a3-1f08-ba623b2e54ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/06/21/03/ee78e0fc-bd44-d8c0-8039-05db7a8652e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,28 +161,6 @@ For English：gettr.com/post/p1ez8excd83
 2022-6-19《鸡血王喜币大作战》 第二百三十一集 嘉宾：七里香、封神榜
 
 <img src="https://media.gettr.com/group36/origin/2022/06/20/03/ac6bbc8c-e929-bcdf-d997-68cd01d0125a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@19y6shidyaskp6g 6/20/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1evtbmb407.md)
-
-The New Federal State of China Focus: 
-
-🈚️🈚️🈚️The CCP Will Be Finished If Xi Is Done
-
-聚焦新中国联邦：
-
-🈚️🈚️🈚️无习无共党
-
-#新中国联邦
-
-#NFSC
-
-#爆料革命
-
-#WhistleblowerMovement
-
-<img src="https://media.gettr.com/group11/getter/2022/06/20/01/7799bb6b-d0f6-5d4d-29a5-fde99783c114/out.jpg" width="506" height="284">
 
 ---
 
