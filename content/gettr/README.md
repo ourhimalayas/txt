@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1f0myh47bd.md)
+
+2022-6-20《鸡血王喜币大作战》 第二百三十二集 嘉宾：Nick、文空
+
+<img src="https://media.gettr.com/group5/origin/2022/06/21/03/ee78e0fc-bd44-d8c0-8039-05db7a8652e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1f0exma321.md)
 
 2022.06.20 新中国联邦 | 喜财经 第85期 美国三大股指自一月以来连续暴跌；通胀高企，加息不能解决本质问题；数字货币市场跌跌不休，唯有喜币走势平稳；中共布局数字货币市场，引爆数字货币大战
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 6/21/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1f0myh47bd.md)
+[@miles 6/21/2022 8:50 AM UTC  - :tv:直播](/content/gettr/p1f2qlm0d3c.md)
 
-2022-6-20《鸡血王喜币大作战》 第二百三十二集 嘉宾：Nick、文空
+6/12/2022 Miles Guo: Communist China's military is run by liars and womanizers and has zero combat capability; one of our fellow fighters from the CCP's submarine disclosed that the CCP does not have any capability of launching nuc...
 
-<img src="https://media.gettr.com/group5/origin/2022/06/21/03/ee78e0fc-bd44-d8c0-8039-05db7a8652e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/06/21/08/97ac9a74-e18d-edf5-c230-6959667e0183/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English：gettr.com/post/p1ez8excd83
 [@miles 6/20/2022 4:06 AM UTC ](/content/gettr/p1ew0a0ec3f.md)
 
 ❤️❤️❤️❤️❤️❤️❤️❤️❤️
-
----
-
-[@miles 6/20/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1evqpnb51a.md)
-
-2022-6-19《鸡血王喜币大作战》 第二百三十一集 嘉宾：七里香、封神榜
-
-<img src="https://media.gettr.com/group36/origin/2022/06/20/03/ac6bbc8c-e929-bcdf-d997-68cd01d0125a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
