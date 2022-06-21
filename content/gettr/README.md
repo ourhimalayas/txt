@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/21/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1f3zz95440.md)
+
+2022年6月21日 MOS 《回响》第二期
+
+<img src="https://media.gettr.com/group50/origin/2022/06/21/14/db2967b4-946d-fef4-68f1-d36a52ee5a10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/21/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1f3x7y5bc3.md)
+
+22.06.21 早   新中国联邦 | 新闻访谈  乌东战局紧张，急需更多武器援助; 俄罗斯要求立陶宛解除“公然敌对”封锁；失去议会多数，马克龙遭遇重挫
+
+<img src="https://media.gettr.com/group47/origin/2022/06/21/12/2cd0499a-bc4d-34a2-30ef-07f34e006380/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1f344z448f.md)
 
 2022.06.21 早 新中国联邦 | 新闻  七哥回忆盘古时期与摩根家族渊源  郭先生忆8964英灵  辉瑞疫苗比堕胎药更容易导致孕妇流产
@@ -96,11 +112,11 @@ https://gettr.com/streaming/p1f2ugp1824
 
 ---
 
-[@miles 6/21/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1f3x7y5bc3.md)
+[@miles 6/21/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1f3o8j93b4.md)
 
-22.06.21 早   新中国联邦 | 新闻访谈  乌东战局紧张，急需更多武器援助; 俄罗斯要求立陶宛解除“公然敌对”封锁；失去议会多数，马克龙遭遇重挫
+2022年6月21日 MOS 《回响》第二期
 
-<img src="https://media.gettr.com/group47/origin/2022/06/21/12/2cd0499a-bc4d-34a2-30ef-07f34e006380/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/21/14/8d5af03f-2c98-8ab6-0bd6-a2490a5432b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,22 +161,6 @@ For English：gettr.com/post/p1ez8excd83
   2022年06月22日 《焦点》87期：爆料革命需要高效率、高执行力的团队迎接灭共新高度；农场服务战友，发现、培养和输送人才。
 
 <img src="https://media.gettr.com/group3/origin/2022/06/20/18/dd8bbc79-7b2d-fbeb-aea9-6157841b6000/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1eyb0x855c.md)
-
-  2022年06月22日 文贵大直播精华版
-
-<img src="https://media.gettr.com/group8/origin/2022/06/20/17/7e00252c-976d-5837-b641-8921ecf743da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1ey0kg8d44.md)
-
-22.06.20 早   新中国联邦 | 新闻访谈  美参院两党领袖推“台湾政策法” 拟列台湾为“重要非北约盟友”，美国土安全部公布战略，阻止中共国维吾尔族强迫劳动制造的商品
-
-<img src="https://media.gettr.com/group9/origin/2022/06/20/13/b81db171-5cfd-80a8-8c6b-132b15aaf959/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
