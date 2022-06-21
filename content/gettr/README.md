@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 6/21/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1f5djt0941.md)
+
+2022.06.21  新中国联邦 | 喜健康  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
+
+<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@xskiy 6/21/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1f549i4149.md)
 
 采访6/4/2022庆典总导演：草根小哥
 
 <img src="https://media.gettr.com/group35/getter/2022/06/21/19/77183d00-9c1b-a1b9-29a2-9cf63cd1da34/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/21/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1f5mps8a39.md)
+
+2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
+
+<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/21/2022 7:20 PM UTC  - :tv:直播](/content/gettr/p1f4tv73b43.md)
+
+2022-6-21 《避风港》（62）疫苗副反应的新名称“成人猝死综合症”
+
+<img src="https://media.gettr.com/group11/origin/2022/06/21/18/5f356e05-914e-3a97-0329-8443861a59fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -31,14 +55,6 @@
 2022年6月21日 MOS 《回响》第二期
 
 <img src="https://media.gettr.com/group50/origin/2022/06/21/14/db2967b4-946d-fef4-68f1-d36a52ee5a10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 7:20 PM UTC  - :tv:直播](/content/gettr/p1f4tv73b43.md)
-
-2022-6-21 《避风港》（62）疫苗副反应的新名称“成人猝死综合症”
-
-<img src="https://media.gettr.com/group11/origin/2022/06/21/18/5f356e05-914e-3a97-0329-8443861a59fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,22 +157,6 @@ https://gettr.com/streaming/p1f2ugp1824
 6/12/2022 Miles Guo: Liang Guanglie (former CCP Defense Minister) and his son wreck women everywhere, and they even shared the same girlfriend. Liang Guanglie said himself that the Sino-Vietnamese war was for the CCP to send the Ch...
 
 <img src="https://media.gettr.com/group32/getter/2022/06/20/23/eb10a817-0882-b677-20dd-79866bb7ac80/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1ezyf7a236.md)
-
-2022.06.20 PM NFSC news  NATO warns Russia-Ukraine war could last for years
-
-<img src="https://media.gettr.com/group46/origin/2022/06/20/23/d1dd15b1-c935-0b6e-d18c-b0ccf89478ff/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/20/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1f0ay56417.md)
-
-6/12/2022 Miles Guo: Putin attempted twice to use nuclear weapons a month ago, but was stopped by his nuclear weapon deployment committee; if Xi attacks Taiwan, the US will absolutely deploy its killer weapon and completely destroy...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/20/23/467537e8-50b2-aef9-2130-561592afb315/out.jpg" width="506" height="284">
 
 ---
 
