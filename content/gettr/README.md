@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1f01wk3dc9.md)
+
+2022.06.16  晚 新中国联邦⎪新闻访谈   #美国前线重症联盟 与我们一起关注 #苗毒 对妇科的损伤； #乌克兰 加入 #欧洲区块链合作组织 #EBP ；水深火热：#北方旱灾 #南方水灾
+
+<img src="https://media.gettr.com/group45/origin/2022/06/21/01/28261307-734d-3296-aa2d-9cd21d2abfb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1f04yd81e7.md)
 
 2022.06.20 晚 新中国联邦 | 新闻 世界唯一真的稳定币就是HDO 墙内逃离战友分享其经历 谭德赛私下承认中共病毒源于武汉实验室
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 6/21/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1f01wk3dc9.md)
+[@miles 6/21/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1f0exma321.md)
 
-2022.06.16  晚 新中国联邦⎪新闻访谈   #美国前线重症联盟 与我们一起关注 #苗毒 对妇科的损伤； #乌克兰 加入 #欧洲区块链合作组织 #EBP ；水深火热：#北方旱灾 #南方水灾
+2022.06.20 新中国联邦 | 喜财经 第85期 美国三大股指自一月以来连续暴跌；通胀高企，加息不能解决本质问题；数字货币市场跌跌不休，唯有喜币走势平稳；中共布局数字货币市场，引爆数字货币大战
 
-<img src="https://media.gettr.com/group45/origin/2022/06/21/01/28261307-734d-3296-aa2d-9cd21d2abfb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/21/01/14415f9b-afb8-c6a3-1f08-ba623b2e54ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ The New Federal State of China Focus:
 #WhistleblowerMovement
 
 <img src="https://media.gettr.com/group11/getter/2022/06/20/01/7799bb6b-d0f6-5d4d-29a5-fde99783c114/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1evnna9a0d.md)
-
-2022.06.19 农场联盟工作汇报
-
-<img src="https://media.gettr.com/group19/origin/2022/01/24/02/bd613978-1725-3a5b-3d72-ba5ecfb1f562/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
