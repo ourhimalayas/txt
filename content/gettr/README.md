@@ -12,6 +12,24 @@ For English：gettr.com/post/p1f5dbs4b86
 
 ---
 
+[@miles 6/21/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1f5v154195.md)
+
+2022.06.21 PM NFSC news  New Study Confirms Pfizer CCP Virus Vaccine Weakens Male Fertility
+
+<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1f58jscb8b.md)
+
+（1080版）飞飞秀 《中原佛手篇》 2022-06-21
+
+For English: gettr.com/post/p1f5dbs4b86
+
+<img src="https://media.gettr.com/group8/origin/2022/06/21/22/85bb68d1-ed6c-4fe4-666d-c4370cc279ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 9:09 PM UTC  - :tv:直播](/content/gettr/p1f5fxt3130.md)
 
 2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动邀请猫本小哥作客新西兰农场探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
@@ -25,16 +43,6 @@ For English：gettr.com/post/p1f5dbs4b86
 2022.06.21  新中国联邦 | 喜健康  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
 
 <img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1f58jscb8b.md)
-
-（1080版）飞飞秀 《中原佛手篇》 2022-06-21
-
-For English: gettr.com/post/p1f5dbs4b86
-
-<img src="https://media.gettr.com/group8/origin/2022/06/21/22/85bb68d1-ed6c-4fe4-666d-c4370cc279ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ https://gettr.com/streaming/p1f2ugp1824
 2022.06.20 新中国联邦 | 喜财经 第85期 美国三大股指自一月以来连续暴跌；通胀高企，加息不能解决本质问题；数字货币市场跌跌不休，唯有喜币走势平稳；中共布局数字货币市场，引爆数字货币大战
 
 <img src="https://media.gettr.com/group27/origin/2022/06/21/01/14415f9b-afb8-c6a3-1f08-ba623b2e54ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/21/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1f01wk3dc9.md)
-
-2022.06.16  晚 新中国联邦⎪新闻访谈   #美国前线重症联盟 与我们一起关注 #苗毒 对妇科的损伤； #乌克兰 加入 #欧洲区块链合作组织 #EBP ；水深火热：#北方旱灾 #南方水灾
-
-<img src="https://media.gettr.com/group45/origin/2022/06/21/01/28261307-734d-3296-aa2d-9cd21d2abfb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
