@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/21/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1f4la7e9e3.md)
+
+6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. Changpeng Zhao will either be taken out by t...
+
+<img src="https://media.gettr.com/group10/getter/2022/06/21/16/be5e4338-21f8-4586-986e-973b98ea0b32/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/21/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1f3o8j93b4.md)
+
+2022年6月21日 MOS 《回响》第二期
+
+<img src="https://media.gettr.com/group27/origin/2022/06/21/14/8d5af03f-2c98-8ab6-0bd6-a2490a5432b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1f3x7y5bc3.md)
 
 22.06.21 早   新中国联邦 | 新闻访谈  乌东战局紧张，急需更多武器援助; 俄罗斯要求立陶宛解除“公然敌对”封锁；失去议会多数，马克龙遭遇重挫
@@ -112,14 +128,6 @@ https://gettr.com/streaming/p1f2ugp1824
 
 ---
 
-[@miles 6/21/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1f3o8j93b4.md)
-
-2022年6月21日 MOS 《回响》第二期
-
-<img src="https://media.gettr.com/group27/origin/2022/06/21/14/8d5af03f-2c98-8ab6-0bd6-a2490a5432b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/20/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1f0ay56417.md)
 
 6/12/2022 Miles Guo: Putin attempted twice to use nuclear weapons a month ago, but was stopped by his nuclear weapon deployment committee; if Xi attacks Taiwan, the US will absolutely deploy its killer weapon and completely destroy...
@@ -153,14 +161,6 @@ For English：gettr.com/post/p1ez8excd83
 2022.06.20  新中国联邦 | 喜健康 《寻医问药》美国执业神经内科医生在线答疑；《正道医学》读罗素·布雷洛克博士《冠状病毒的真相》（二）
 
 <img src="https://media.gettr.com/group9/origin/2022/06/20/20/92910e0d-8a4b-c961-1bb3-1a18f8c63104/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 6:39 PM UTC  - :tv:直播](/content/gettr/p1eyitd8d64.md)
-
-  2022年06月22日 《焦点》87期：爆料革命需要高效率、高执行力的团队迎接灭共新高度；农场服务战友，发现、培养和输送人才。
-
-<img src="https://media.gettr.com/group3/origin/2022/06/20/18/dd8bbc79-7b2d-fbeb-aea9-6157841b6000/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
