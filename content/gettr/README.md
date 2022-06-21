@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1f5v154195.md)
+
+2022.06.21 PM NFSC news  New Study Confirms Pfizer CCP Virus Vaccine Weakens Male Fertility
+
+<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1f56pa9f11.md)
 
 （4K版）飞飞秀 《中原佛手篇》 2022-06-21
@@ -12,11 +20,13 @@ For English：gettr.com/post/p1f5dbs4b86
 
 ---
 
-[@miles 6/21/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1f5v154195.md)
+[@miles 6/21/2022 11:27 PM UTC ](/content/gettr/p1f677v82f6.md)
 
-2022.06.21 PM NFSC news  New Study Confirms Pfizer CCP Virus Vaccine Weakens Male Fertility
+Xi, the Sun, imitates Putin, the King’s “Special Martial Operation” with “No-war Military Operation”
 
-<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+George Orwell indicated in his famous novel “1984" that totalitarian regimes are notorious for making new terms to replace existi...
+
+<img src="https://media.gettr.com/group8/origin/2022/06/21/23/70e01328-6953-c00a-7109-6509ff186455/a9a87045506ec0a07a01106c69b96e8b.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@ https://gettr.com/streaming/p1f2ugp1824
 2022-6-20《鸡血王喜币大作战》 第二百三十二集 嘉宾：Nick、文空
 
 <img src="https://media.gettr.com/group5/origin/2022/06/21/03/ee78e0fc-bd44-d8c0-8039-05db7a8652e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/21/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1f0exma321.md)
-
-2022.06.20 新中国联邦 | 喜财经 第85期 美国三大股指自一月以来连续暴跌；通胀高企，加息不能解决本质问题；数字货币市场跌跌不休，唯有喜币走势平稳；中共布局数字货币市场，引爆数字货币大战
-
-<img src="https://media.gettr.com/group27/origin/2022/06/21/01/14415f9b-afb8-c6a3-1f08-ba623b2e54ae/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
