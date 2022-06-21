@@ -2,11 +2,13 @@
 ---
 
 
-[@miles 6/21/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1f5djt0941.md)
+[@miles 6/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1f56pa9f11.md)
 
-2022.06.21  新中国联邦 | 喜健康  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
+（4K版）飞飞秀 《中原佛手篇》 2022-06-21
 
-<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/post/p1f5dbs4b86
+
+<img src="https://media.gettr.com/group40/origin/2022/06/21/22/11d8d478-198d-4f23-bc60-8d577f7c8399/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,24 @@
 2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动邀请猫本小哥作客新西兰农场探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
 
 <img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/21/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1f5djt0941.md)
+
+2022.06.21  新中国联邦 | 喜健康  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
+
+<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1f58jscb8b.md)
+
+（1080版）飞飞秀 《中原佛手篇》 2022-06-21
+
+For English: gettr.com/post/p1f5dbs4b86
+
+<img src="https://media.gettr.com/group8/origin/2022/06/21/22/85bb68d1-ed6c-4fe4-666d-c4370cc279ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,22 +161,6 @@ https://gettr.com/streaming/p1f2ugp1824
 2022.06.16  晚 新中国联邦⎪新闻访谈   #美国前线重症联盟 与我们一起关注 #苗毒 对妇科的损伤； #乌克兰 加入 #欧洲区块链合作组织 #EBP ；水深火热：#北方旱灾 #南方水灾
 
 <img src="https://media.gettr.com/group45/origin/2022/06/21/01/28261307-734d-3296-aa2d-9cd21d2abfb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1f04yd81e7.md)
-
-2022.06.20 晚 新中国联邦 | 新闻 世界唯一真的稳定币就是HDO 墙内逃离战友分享其经历 谭德赛私下承认中共病毒源于武汉实验室
-
-<img src="https://media.gettr.com/group10/origin/2022/06/21/00/c98223b1-c1f2-7d59-853d-5e3901dd52b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1ezuvxc618.md)
-
-2022.06.20 PM NFSC Fringe   CCP's judicial unrestricted warfare,  "witness" in Cyprus extradition
-
-<img src="https://media.gettr.com/group16/origin/2022/06/20/23/df7c11dd-ece5-adb3-f682-911e78d91049/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
