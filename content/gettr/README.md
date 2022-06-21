@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 8:50 AM UTC  - :tv:直播](/content/gettr/p1f2qlm0d3c.md)
+
+6/12/2022 Miles Guo: Communist China's military is run by liars and womanizers and has zero combat capability; one of our fellow fighters from the CCP's submarine disclosed that the CCP does not have any capability of launching nuc...
+
+<img src="https://media.gettr.com/group44/getter/2022/06/21/08/97ac9a74-e18d-edf5-c230-6959667e0183/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1f0myh47bd.md)
 
 2022-6-20《鸡血王喜币大作战》 第二百三十二集 嘉宾：Nick、文空
@@ -58,11 +66,9 @@
 
 ---
 
-[@miles 6/21/2022 8:50 AM UTC  - :tv:直播](/content/gettr/p1f2qlm0d3c.md)
+[@miles 6/21/2022 9:08 AM UTC ](/content/gettr/p1f2zpf0474.md)
 
-6/12/2022 Miles Guo: Communist China's military is run by liars and womanizers and has zero combat capability; one of our fellow fighters from the CCP's submarine disclosed that the CCP does not have any capability of launching nuc...
-
-<img src="https://media.gettr.com/group44/getter/2022/06/21/08/97ac9a74-e18d-edf5-c230-6959667e0183/out.jpg" width="506" height="284">
+https://gettr.com/streaming/p1f2ugp1824
 
 ---
 
@@ -155,12 +161,6 @@ For English：gettr.com/post/p1ez8excd83
 2022.06.20 新中国联邦 | 军情室 中美军事实力对比
 
 <img src="https://media.gettr.com/group27/origin/2022/06/20/09/6b29782c-84ce-9111-0eb5-a2d212f3783b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 4:06 AM UTC ](/content/gettr/p1ew0a0ec3f.md)
-
-❤️❤️❤️❤️❤️❤️❤️❤️❤️
 
 ---
 
