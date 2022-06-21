@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1f04yd81e7.md)
+
+2022.06.20 晚 新中国联邦 | 新闻 世界唯一真的稳定币就是HDO 墙内逃离战友分享其经历 谭德赛私下承认中共病毒源于武汉实验室
+
+<img src="https://media.gettr.com/group10/origin/2022/06/21/00/c98223b1-c1f2-7d59-853d-5e3901dd52b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1ezuvxc618.md)
 
 2022.06.20 PM NFSC Fringe   CCP's judicial unrestricted warfare,  "witness" in Cyprus extradition
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/21/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1f04yd81e7.md)
+[@miles 6/21/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1f01wk3dc9.md)
 
-2022.06.20 晚 新中国联邦 | 新闻 世界唯一真的稳定币就是HDO 墙内逃离战友分享其经历 谭德赛私下承认中共病毒源于武汉实验室
+2022.06.16  晚 新中国联邦⎪新闻访谈   #美国前线重症联盟 与我们一起关注 #苗毒 对妇科的损伤； #乌克兰 加入 #欧洲区块链合作组织 #EBP ；水深火热：#北方旱灾 #南方水灾
 
-<img src="https://media.gettr.com/group10/origin/2022/06/21/00/c98223b1-c1f2-7d59-853d-5e3901dd52b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/06/21/01/28261307-734d-3296-aa2d-9cd21d2abfb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ The New Federal State of China Focus:
 2022.06.19 农场联盟工作汇报
 
 <img src="https://media.gettr.com/group19/origin/2022/01/24/02/bd613978-1725-3a5b-3d72-ba5ecfb1f562/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1ewbw4c470.md)
-
-6/10/2022 Miles Guo: In some poor areas in Gansu, when people died from COVID vaccinations, the local governments didn't allow their family members to cremate them and have their Hukou (the system of household registration in China...
-
-<img src="https://media.gettr.com/group35/getter/2022/06/20/01/4013c404-f406-cd84-faa6-516be37bc49a/out.jpg" width="506" height="284">
 
 ---
 
