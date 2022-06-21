@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/20/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1ezuvxc618.md)
+
+2022.06.20 PM NFSC Fringe   CCP's judicial unrestricted warfare,  "witness" in Cyprus extradition
+
+<img src="https://media.gettr.com/group16/origin/2022/06/20/23/df7c11dd-ece5-adb3-f682-911e78d91049/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/20/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1ezwnj9ccb.md)
 
 6/12/2022 Miles Guo: Liang Guanglie (former CCP Defense Minister) and his son wreck women everywhere, and they even shared the same girlfriend. Liang Guanglie said himself that the Sino-Vietnamese war was for the CCP to send the Ch...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/20/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1ezuvxc618.md)
+[@miles 6/21/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1f04yd81e7.md)
 
-2022.06.20 PM NFSC Fringe   CCP's judicial unrestricted warfare,  "witness" in Cyprus extradition
+2022.06.20 晚 新中国联邦 | 新闻 世界唯一真的稳定币就是HDO 墙内逃离战友分享其经历 谭德赛私下承认中共病毒源于武汉实验室
 
-<img src="https://media.gettr.com/group16/origin/2022/06/20/23/df7c11dd-ece5-adb3-f682-911e78d91049/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/06/21/00/c98223b1-c1f2-7d59-853d-5e3901dd52b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ The New Federal State of China Focus:
 6/10/2022 Miles Guo: In some poor areas in Gansu, when people died from COVID vaccinations, the local governments didn't allow their family members to cremate them and have their Hukou (the system of household registration in China...
 
 <img src="https://media.gettr.com/group35/getter/2022/06/20/01/4013c404-f406-cd84-faa6-516be37bc49a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1evxpf9e41.md)
-
-2022.06.19 晚 新中国联邦 | 新闻访谈  中共社会罪与罚，海外经济危机重重，新中国联邦希望明灯！
-
-<img src="https://media.gettr.com/group16/origin/2022/06/20/00/154f8179-296d-7161-a5b7-6a62beb509cf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
