@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 6/21/2022 9:08 AM UTC ](/content/gettr/p1f2zpf0474.md)
+
+https://gettr.com/streaming/p1f2ugp1824
+
+---
+
 [@miles 6/21/2022 8:50 AM UTC  - :tv:直播](/content/gettr/p1f2qlm0d3c.md)
 
 6/12/2022 Miles Guo: Communist China's military is run by liars and womanizers and has zero combat capability; one of our fellow fighters from the CCP's submarine disclosed that the CCP does not have any capability of launching nuc...
@@ -66,9 +72,11 @@
 
 ---
 
-[@miles 6/21/2022 9:08 AM UTC ](/content/gettr/p1f2zpf0474.md)
+[@miles 6/21/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1f3kjy1e89.md)
 
-https://gettr.com/streaming/p1f2ugp1824
+2022.06.21　NFSCニュース　　アルテミシニンはサル痘の最適な解毒剤である
+
+<img src="https://media.gettr.com/group50/origin/2022/06/21/11/c243b9bf-d0f7-9913-db9c-f010134913d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English：gettr.com/post/p1ez8excd83
 20220620　NFSCニュース　上海石化で重大な爆発事故が発生
 
 <img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1exygeb41c.md)
-
-2022.06.20 新中国联邦 | 军情室 中美军事实力对比
-
-<img src="https://media.gettr.com/group27/origin/2022/06/20/09/6b29782c-84ce-9111-0eb5-a2d212f3783b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
