@@ -10,11 +10,11 @@
 
 ---
 
-[@xskiy 6/21/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1f549i4149.md)
+[@miles 6/21/2022 9:09 PM UTC  - :tv:直播](/content/gettr/p1f5fxt3130.md)
 
-采访6/4/2022庆典总导演：草根小哥
+2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动邀请猫本小哥作客新西兰农场探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
 
-<img src="https://media.gettr.com/group35/getter/2022/06/21/19/77183d00-9c1b-a1b9-29a2-9cf63cd1da34/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
 
 <img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@xskiy 6/21/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1f549i4149.md)
+
+采访6/4/2022庆典总导演：草根小哥
+
+<img src="https://media.gettr.com/group35/getter/2022/06/21/19/77183d00-9c1b-a1b9-29a2-9cf63cd1da34/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ https://gettr.com/streaming/p1f2ugp1824
 2022.06.20 PM NFSC Fringe   CCP's judicial unrestricted warfare,  "witness" in Cyprus extradition
 
 <img src="https://media.gettr.com/group16/origin/2022/06/20/23/df7c11dd-ece5-adb3-f682-911e78d91049/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 11:25 PM UTC  - :tv:直播](/content/gettr/p1ezwnj9ccb.md)
-
-6/12/2022 Miles Guo: Liang Guanglie (former CCP Defense Minister) and his son wreck women everywhere, and they even shared the same girlfriend. Liang Guanglie said himself that the Sino-Vietnamese war was for the CCP to send the Ch...
-
-<img src="https://media.gettr.com/group32/getter/2022/06/20/23/eb10a817-0882-b677-20dd-79866bb7ac80/out.jpg" width="506" height="284">
 
 ---
 
