@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1f4la7e9e3.md)
+
+6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. Changpeng Zhao will either be taken out by t...
+
+<img src="https://media.gettr.com/group10/getter/2022/06/21/16/be5e4338-21f8-4586-986e-973b98ea0b32/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1f3zz95440.md)
 
 2022年6月21日 MOS 《回响》第二期
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/21/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1f4la7e9e3.md)
+[@miles 6/21/2022 4:16 PM UTC  - :tv:直播](/content/gettr/p1f4nmcd10b.md)
 
-6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. Changpeng Zhao will either be taken out by t...
+6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communist China. The 2nd anniversary of the New Federal State of China showed the audiences that were inside or outside of Comm...
 
-<img src="https://media.gettr.com/group10/getter/2022/06/21/16/be5e4338-21f8-4586-986e-973b98ea0b32/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/06/21/16/161492ac-5a6a-8adc-de74-40b638ba4bab/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English：gettr.com/post/p1ez8excd83
 For English：gettr.com/post/p1ez8excd83
 
 <img src="https://media.gettr.com/group11/origin/2022/06/20/22/28fcaadb-1247-0394-e7ac-92a531c0be88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@globalalliance 6/20/2022 8:24 PM UTC  - :tv:直播](/content/gettr/p1ezeet49e7.md)
-
-2022.06.20  新中国联邦 | 喜健康 《寻医问药》美国执业神经内科医生在线答疑；《正道医学》读罗素·布雷洛克博士《冠状病毒的真相》（二）
-
-<img src="https://media.gettr.com/group9/origin/2022/06/20/20/92910e0d-8a4b-c961-1bb3-1a18f8c63104/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
