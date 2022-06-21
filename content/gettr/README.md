@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1f3ex07e99.md)
+
+2022.06.21 AM NFSC News    China's 618 Shopping Festival Showing E-Commerce Sales Decline  
+
+<img src="https://media.gettr.com/group34/origin/2022/06/21/11/9b05841b-c4da-99ec-e43e-4b0d4e8d9849/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1f3kjy1e89.md)
 
 2022.06.21　NFSCニュース　　アルテミシニンはサル痘の最適な解毒剤である
@@ -80,11 +88,11 @@ https://gettr.com/streaming/p1f2ugp1824
 
 ---
 
-[@miles 6/21/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1f3ex07e99.md)
+[@miles 6/21/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1f344z448f.md)
 
-2022.06.21 AM NFSC News    China's 618 Shopping Festival Showing E-Commerce Sales Decline  
+2022.06.21 早 新中国联邦 | 新闻  七哥回忆盘古时期与摩根家族渊源  郭先生忆8964英灵  辉瑞疫苗比堕胎药更容易导致孕妇流产
 
-<img src="https://media.gettr.com/group34/origin/2022/06/21/11/9b05841b-c4da-99ec-e43e-4b0d4e8d9849/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/06/21/12/cdbcd16a-566a-5a3e-edbf-22ee9dadb90f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English：gettr.com/post/p1ez8excd83
 2022.06.20 早 新中国联邦 | 新闻  中共无力阻挡新中国联邦的力量  新中国联邦未来会有华盛顿大使馆和曼哈顿领事馆  国际歌手演唱会全程穿着GFashion表演
 
 <img src="https://media.gettr.com/group37/origin/2022/06/20/12/499cd556-403e-3dd0-f4bf-660b1cac54c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1ey2c041b1.md)
-
-2022.06.20 AM NFSC News  Australia Says the Solomon Islands Not Rely on CCP for Security
-
-<img src="https://media.gettr.com/group31/origin/2022/06/20/11/406a9a42-c57a-ded7-16fe-5ccb453ae506/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
