@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1f3kjy1e89.md)
+
+2022.06.21　NFSCニュース　　アルテミシニンはサル痘の最適な解毒剤である
+
+<img src="https://media.gettr.com/group50/origin/2022/06/21/11/c243b9bf-d0f7-9913-db9c-f010134913d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 9:08 AM UTC ](/content/gettr/p1f2zpf0474.md)
 
 https://gettr.com/streaming/p1f2ugp1824
@@ -72,11 +80,11 @@ https://gettr.com/streaming/p1f2ugp1824
 
 ---
 
-[@miles 6/21/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1f3kjy1e89.md)
+[@miles 6/21/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1f3ex07e99.md)
 
-2022.06.21　NFSCニュース　　アルテミシニンはサル痘の最適な解毒剤である
+2022.06.21 AM NFSC News    China's 618 Shopping Festival Showing E-Commerce Sales Decline  
 
-<img src="https://media.gettr.com/group50/origin/2022/06/21/11/c243b9bf-d0f7-9913-db9c-f010134913d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/06/21/11/9b05841b-c4da-99ec-e43e-4b0d4e8d9849/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English：gettr.com/post/p1ez8excd83
 2022.06.20 AM NFSC News  Australia Says the Solomon Islands Not Rely on CCP for Security
 
 <img src="https://media.gettr.com/group31/origin/2022/06/20/11/406a9a42-c57a-ded7-16fe-5ccb453ae506/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/20/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1ey5hw7849.md)
-
-20220620　NFSCニュース　上海石化で重大な爆発事故が発生
-
-<img src="https://media.gettr.com/group12/origin/2022/06/10/11/b9806088-36e4-165e-cc92-2039a0ad2de9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
