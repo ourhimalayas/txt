@@ -2,6 +2,22 @@
 ---
 
 
+[@xskiy 6/21/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1f549i4149.md)
+
+采访6/4/2022庆典总导演：草根小哥
+
+<img src="https://media.gettr.com/group35/getter/2022/06/21/19/77183d00-9c1b-a1b9-29a2-9cf63cd1da34/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/21/2022 4:16 PM UTC  - :tv:直播](/content/gettr/p1f4nmcd10b.md)
+
+6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communist China. The 2nd anniversary of the New Federal State of China showed the audiences that were inside or outside of Comm...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/21/16/161492ac-5a6a-8adc-de74-40b638ba4bab/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1f4la7e9e3.md)
 
 6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. Changpeng Zhao will either be taken out by t...
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 6/21/2022 4:16 PM UTC  - :tv:直播](/content/gettr/p1f4nmcd10b.md)
+[@miles 6/21/2022 7:20 PM UTC  - :tv:直播](/content/gettr/p1f4tv73b43.md)
 
-6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communist China. The 2nd anniversary of the New Federal State of China showed the audiences that were inside or outside of Comm...
+2022-6-21 《避风港》（62）疫苗副反应的新名称“成人猝死综合症”
 
-<img src="https://media.gettr.com/group36/getter/2022/06/21/16/161492ac-5a6a-8adc-de74-40b638ba4bab/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/06/21/18/5f356e05-914e-3a97-0329-8443861a59fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,26 +157,6 @@ https://gettr.com/streaming/p1f2ugp1824
 6/12/2022 Miles Guo: Putin attempted twice to use nuclear weapons a month ago, but was stopped by his nuclear weapon deployment committee; if Xi attacks Taiwan, the US will absolutely deploy its killer weapon and completely destroy...
 
 <img src="https://media.gettr.com/group22/getter/2022/06/20/23/467537e8-50b2-aef9-2130-561592afb315/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1ezuegbc3a.md)
-
-（4K版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
-
-For English：gettr.com/post/p1ez8excd83
-
-<img src="https://media.gettr.com/group7/origin/2022/06/20/22/e7ab7dc2-1633-99ad-9cd1-3490d2edb700/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/20/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ezmmkb3ce.md)
-
-（1080版）飞飞秀 《六四 · 正义小Sarah篇》 2022-06-20
-
-For English：gettr.com/post/p1ez8excd83
-
-<img src="https://media.gettr.com/group11/origin/2022/06/20/22/28fcaadb-1247-0394-e7ac-92a531c0be88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
