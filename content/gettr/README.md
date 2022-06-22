@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/22/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1f8cpzf805.md)
+
+2022.06.22 早 新中国联邦 | 新闻  蓬佩奥先生指出美国应如对抗前苏联般抗击中共  俄记者拍卖诺奖奖章援助乌克兰儿童  大部分被关闭的孔子学院仍在暗中运营
+
+<img src="https://media.gettr.com/group25/origin/2022/06/22/12/2dd7a054-8ae0-2898-92a8-e10d5dedec29/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1f8j3z4f81.md)
 
 2022.06.22 AM NFSC News    Pfizer Vaccine Causes More Miscarriages Than Abortifacients
@@ -30,11 +38,11 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
-[@miles 6/22/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1f8cpzf805.md)
+[@miles 6/22/2022 1:06 PM UTC  - :tv:直播](/content/gettr/p1f86pt2145.md)
 
-2022.06.22 早 新中国联邦 | 新闻  蓬佩奥先生指出美国应如对抗前苏联般抗击中共  俄记者拍卖诺奖奖章援助乌克兰儿童  大部分被关闭的孔子学院仍在暗中运营
+2022.06.22  早 新中国联邦 | 新闻访谈  中共国出现罕见以长江为界南涝北旱 大部分被关闭的孔子学仍在暗中运营
 
-<img src="https://media.gettr.com/group25/origin/2022/06/22/12/2dd7a054-8ae0-2898-92a8-e10d5dedec29/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/04/16/12/a775a275-75e9-af1a-4b83-1a811d8f75b6/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ George Orwell indicated in his famous novel “1984" that totalitarian regimes a
 2022.06.21 PM NFSC news  New Study Confirms Pfizer CCP Virus Vaccine Weakens Male Fertility
 
 <img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1f56pa9f11.md)
-
-（4K版）飞飞秀 《中原佛手篇》 2022-06-21
-
-For English：gettr.com/post/p1f5dbs4b86
-
-<img src="https://media.gettr.com/group40/origin/2022/06/21/22/11d8d478-198d-4f23-bc60-8d577f7c8399/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
