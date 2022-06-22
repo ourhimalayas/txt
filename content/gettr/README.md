@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/21/2022 11:27 PM UTC ](/content/gettr/p1f677v82f6.md)
+
+Xi, the Sun, imitates Putin, the King’s “Special Martial Operation” with “No-war Military Operation”
+
+George Orwell indicated in his famous novel “1984" that totalitarian regimes are notorious for making new terms to replace existi...
+
+<img src="https://media.gettr.com/group8/origin/2022/06/21/23/70e01328-6953-c00a-7109-6509ff186455/a9a87045506ec0a07a01106c69b96e8b.jpg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1f5v154195.md)
 
 2022.06.21 PM NFSC news  New Study Confirms Pfizer CCP Virus Vaccine Weakens Male Fertility
@@ -20,13 +30,11 @@ For English：gettr.com/post/p1f5dbs4b86
 
 ---
 
-[@miles 6/21/2022 11:27 PM UTC ](/content/gettr/p1f677v82f6.md)
+[@miles 6/21/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1f5zz729ac.md)
 
-Xi, the Sun, imitates Putin, the King’s “Special Martial Operation” with “No-war Military Operation”
+2022.06.21 PM NFSC Fringe COLOMBIA,ANOTHER ONE TO FALL
 
-George Orwell indicated in his famous novel “1984" that totalitarian regimes are notorious for making new terms to replace existi...
-
-<img src="https://media.gettr.com/group8/origin/2022/06/21/23/70e01328-6953-c00a-7109-6509ff186455/a9a87045506ec0a07a01106c69b96e8b.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/06/21/23/2578d034-931a-23dd-796e-d8c5264eb721/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ https://gettr.com/streaming/p1f2ugp1824
 6/12/2022 Miles Guo: Communist China's military is run by liars and womanizers and has zero combat capability; one of our fellow fighters from the CCP's submarine disclosed that the CCP does not have any capability of launching nuc...
 
 <img src="https://media.gettr.com/group44/getter/2022/06/21/08/97ac9a74-e18d-edf5-c230-6959667e0183/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1f0myh47bd.md)
-
-2022-6-20《鸡血王喜币大作战》 第二百三十二集 嘉宾：Nick、文空
-
-<img src="https://media.gettr.com/group5/origin/2022/06/21/03/ee78e0fc-bd44-d8c0-8039-05db7a8652e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
