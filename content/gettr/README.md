@@ -14,6 +14,14 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
+[@miles 6/22/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1f8bmb58ea.md)
+
+20220622  NFSCニュース　テドロス、新型コロナの起源は武漢 "を認める
+
+<img src="https://media.gettr.com/group7/origin/2022/06/22/11/aa985190-5c42-cd32-fd57-20863280b6bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1f8ban2d2c.md)
 
 2022.06.22 新中国联邦 | 军情室 一周俄乌战事回顾，西方两派在俄乌战争上的分歧
@@ -175,14 +183,6 @@ For English: gettr.com/post/p1f5dbs4b86
 [@miles 6/21/2022 9:09 PM UTC  - :tv:直播](/content/gettr/p1f5fxt3130.md)
 
 2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动邀请猫本小哥作客新西兰农场探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
-
-<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1f5djt0941.md)
-
-2022.06.21  新中国联邦 | 喜健康  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
 
 <img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
