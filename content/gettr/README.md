@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 6/22/2022 3:48 AM UTC  - 2圖](/content/gettr/p1f708c3503.md)
+
+七哥明天大直播啦！🥳🥳🥳
+
+
+
+战友们要提前准备好咯！😆没有吃青蒿素的战友，在七哥出场前，一定要喝上一两杯小酒🍷，预预热，热热身！还要记得准备好赵岩牌纸巾若干盒🧻哦！
+
+
+
+七哥和战友们几天不见，彼此甚是想念！七哥还带来了新歌🎵送给大家，希望战友们能喜欢！ 
+
+
+
+明天大直播时，战友们一定要多留言，随时问七哥任何问题哦！💬明天大直播，绝对有惊喜、绝对有爆料！👊
+
+
+
+期待期待！等不及啦！🥰🥰😍😍🎉🎉
+
+<img src="https://media.gettr.com/group28/origin/2022/06/22/03/d3be863d-6ca3-3980-c869-701b27e64531/0da596262996fa39b44707acb2fc3b38.jpg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1f6dljed05.md)
 
 2022-6-21《鸡血王喜币大作战》 第二百三十三集 嘉宾：青藤、风雨之中
@@ -62,27 +86,13 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
-[@miles 6/22/2022 3:48 AM UTC  - 2圖](/content/gettr/p1f708c3503.md)
+[@miles 6/22/2022 7:55 AM UTC  - :tv:直播](/content/gettr/p1f828be17e.md)
 
-七哥明天大直播啦！🥳🥳🥳
-
-
-
-战友们要提前准备好咯！😆没有吃青蒿素的战友，在七哥出场前，一定要喝上一两杯小酒🍷，预预热，热热身！还要记得准备好赵岩牌纸巾若干盒🧻哦！
+《焦点》88期：灭共进入关键时期，农场未来的重要任务；躺平币，喜币，喜贷款，关乎战友们的切身利益。
 
 
 
-七哥和战友们几天不见，彼此甚是想念！七哥还带来了新歌🎵送给大家，希望战友们能喜欢！ 
-
-
-
-明天大直播时，战友们一定要多留言，随时问七哥任何问题哦！💬明天大直播，绝对有惊喜、绝对有爆料！👊
-
-
-
-期待期待！等不及啦！🥰🥰😍😍🎉🎉
-
-<img src="https://media.gettr.com/group28/origin/2022/06/22/03/d3be863d-6ca3-3980-c869-701b27e64531/0da596262996fa39b44707acb2fc3b38.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/06/22/07/6f0ce821-db0e-e41a-92f6-b0ed79af6673/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ For English: gettr.com/post/p1f5dbs4b86
 2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
 
 <img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@xskiy 6/21/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1f549i4149.md)
-
-采访6/4/2022庆典总导演：草根小哥
-
-<img src="https://media.gettr.com/group35/getter/2022/06/21/19/77183d00-9c1b-a1b9-29a2-9cf63cd1da34/out.jpg" width="506" height="284">
 
 ---
 
