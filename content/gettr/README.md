@@ -10,6 +10,18 @@
 
 ---
 
+[@miles 6/22/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1farcz2d05.md)
+
+6月22日七哥回归首播： 现场演唱《酒灭中共》
+
+
+
+June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP” 
+
+<img src="https://media.gettr.com/group50/getter/2022/06/22/23/84800b2a-6deb-f115-75eb-cf7531ac321f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 9:03 PM UTC  - :tv:直播](/content/gettr/p1fa4p84e28.md)
 
    2022年6月22日 622郭先生出山大直播  1080P
@@ -179,14 +191,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
 2022.06.21  晚 新中国联邦⎪新闻  美国佛罗里达州州长重申反对幼儿疫苗，绝不订购；美国保险公司数据证实：2021年18～64岁死亡人数暴增；FDA刚刚承认了一个众所周知、显而易见的痛苦事实
 
 <img src="https://media.gettr.com/group27/origin/2022/06/22/00/fdc5159f-cb5a-f56f-a098-75a773be7024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1f5zz729ac.md)
-
-2022.06.21 PM NFSC Fringe COLOMBIA,ANOTHER ONE TO FALL
-
-<img src="https://media.gettr.com/group44/origin/2022/06/21/23/2578d034-931a-23dd-796e-d8c5264eb721/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
