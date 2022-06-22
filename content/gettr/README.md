@@ -14,6 +14,14 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
+[@miles 6/22/2022 12:43 AM UTC  - :tv:直播](/content/gettr/p1f6i90e944.md)
+
+5/29/2022 Miles Guo: The entire family of Yan Fuqing, a famous Chinese medical practitioner, were killed by the CCP. Yan and others invited to dinner by Mao all ended up miserably. Yan Fuqing was the first to advocate for the idea ...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/22/00/3061e283-0628-0290-bab9-33e675cdecf3/out.jpg" width="506" height="284">
+
+---
+
 [@athenagnews 6/21/2022 12:51 PM UTC ](/content/gettr/p1f3rle52c3.md)
 
 随着中共病毒疫情的不断蔓延，全球各国政府从2020年开始推行所谓的新冠疫苗，疫苗成为中共与黑暗沼泽地垂死挣扎、绑架世界的最后一根救命稻草，而反对接种新冠疫苗则成为爆料革命2021年最伟大的主张，拯救了无数的生命。
@@ -25,6 +33,14 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 
 随着疫苗灾难的来临，人类面临着经济、政治、宗教和人心的大变革，数字货币的普及已是大...
+
+---
+
+[@miles 6/22/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1f695tc9cc.md)
+
+2022.06.21  晚 新中国联邦⎪新闻  美国佛罗里达州州长重申反对幼儿疫苗，绝不订购；美国保险公司数据证实：2021年18～64岁死亡人数暴增；FDA刚刚承认了一个众所周知、显而易见的痛苦事实
+
+<img src="https://media.gettr.com/group27/origin/2022/06/22/00/fdc5159f-cb5a-f56f-a098-75a773be7024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -61,14 +77,6 @@ George Orwell indicated in his famous novel “1984" that totalitarian regimes a
 For English：gettr.com/post/p1f5dbs4b86
 
 <img src="https://media.gettr.com/group40/origin/2022/06/21/22/11d8d478-198d-4f23-bc60-8d577f7c8399/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1f695tc9cc.md)
-
-2022.06.21  晚 新中国联邦⎪新闻  美国佛罗里达州州长重申反对幼儿疫苗，绝不订购；美国保险公司数据证实：2021年18～64岁死亡人数暴增；FDA刚刚承认了一个众所周知、显而易见的痛苦事实
-
-<img src="https://media.gettr.com/group27/origin/2022/06/22/00/fdc5159f-cb5a-f56f-a098-75a773be7024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English: gettr.com/post/p1f5dbs4b86
 2022.06.21 早 新中国联邦 | 新闻  七哥回忆盘古时期与摩根家族渊源  郭先生忆8964英灵  辉瑞疫苗比堕胎药更容易导致孕妇流产
 
 <img src="https://media.gettr.com/group14/origin/2022/06/21/12/cdbcd16a-566a-5a3e-edbf-22ee9dadb90f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1f3ex07e99.md)
-
-2022.06.21 AM NFSC News    China's 618 Shopping Festival Showing E-Commerce Sales Decline  
-
-<img src="https://media.gettr.com/group34/origin/2022/06/21/11/9b05841b-c4da-99ec-e43e-4b0d4e8d9849/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
