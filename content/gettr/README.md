@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/22/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1f8j3z4f81.md)
+
+2022.06.22 AM NFSC News    Pfizer Vaccine Causes More Miscarriages Than Abortifacients
+
+<img src="https://media.gettr.com/group17/origin/2022/06/22/11/212636e0-4c51-0485-408b-387f426214b2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1f8bmb58ea.md)
 
 20220622  NFSCニュース　テドロス、新型コロナの起源は武漢 "を認める
@@ -22,11 +30,11 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
-[@miles 6/22/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1f8j3z4f81.md)
+[@miles 6/22/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1f8cpzf805.md)
 
-2022.06.22 AM NFSC News    Pfizer Vaccine Causes More Miscarriages Than Abortifacients
+2022.06.22 早 新中国联邦 | 新闻  蓬佩奥先生指出美国应如对抗前苏联般抗击中共  俄记者拍卖诺奖奖章援助乌克兰儿童  大部分被关闭的孔子学院仍在暗中运营
 
-<img src="https://media.gettr.com/group17/origin/2022/06/22/11/212636e0-4c51-0485-408b-387f426214b2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/06/22/12/2dd7a054-8ae0-2898-92a8-e10d5dedec29/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ For English：gettr.com/post/p1f5dbs4b86
 For English: gettr.com/post/p1f5dbs4b86
 
 <img src="https://media.gettr.com/group8/origin/2022/06/21/22/85bb68d1-ed6c-4fe4-666d-c4370cc279ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 9:09 PM UTC  - :tv:直播](/content/gettr/p1f5fxt3130.md)
-
-2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动邀请猫本小哥作客新西兰农场探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
-
-<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
