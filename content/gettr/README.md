@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/21/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1f5v154195.md)
+
+2022.06.21 PM NFSC news  New Study Confirms Pfizer CCP Virus Vaccine Weakens Male Fertility
+
+<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 4:34 PM UTC  - :tv:直播](/content/gettr/p1f9gjb3446.md)
 
 2022年6月22日 俄乌战争战况播报
@@ -51,14 +59,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
  千招会不如一招绝，法律是制胜绝招
 
 <img src="https://media.gettr.com/group23/origin/2022/06/22/10/6a4fa773-61b8-140e-41dc-433404cfb729/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 8:01 PM UTC  - :tv:直播](/content/gettr/p1fa9duda88.md)
-
-2022.06.22  新中国联邦 | 喜健康  《寻医问药》美国执业心里医生在线答疑，系统性红斑狼疮，抑郁症，3岁小孩解疫苗毒；《医学观察》 生物电脑，量子电脑，生物计算-窥探天机
-
-<img src="https://media.gettr.com/group12/origin/2022/06/22/19/ec848bc1-9976-71a7-05c3-d33062a0fed1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
