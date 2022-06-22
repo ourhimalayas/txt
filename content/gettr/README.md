@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/22/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1f6i1x6371.md)
+
+2022.06.21 新中国联邦 | 喜财经 第86期  熙姐谈股市汇市黄金石油人民币走势  国内乱象北京落雹、河北落雪、河南干旱，四川地震、广西暴雨、广东水灾，全部6 月发生
+
+<img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 1:46 AM UTC  - :tv:直播](/content/gettr/p1f5rgr8773.md)
 
 2022.06.21 晚 新中国联邦 | 新闻访谈 “疫苗”魔抓伸向美加婴幼儿 谭德赛私下承认实验室泄露为那般？ 通胀萧条势不可挡，加息、加税、发救济管用吗？ 蓬佩奥指出对付CCP就该像对前苏联
@@ -38,11 +46,11 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
-[@miles 6/22/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1f6i1x6371.md)
+[@miles 6/22/2022 2:31 AM UTC  - :tv:直播](/content/gettr/p1f6ovw16e8.md)
 
-2022.06.21 新中国联邦 | 喜财经 第86期  熙姐谈股市汇市黄金石油人民币走势  国内乱象北京落雹、河北落雪、河南干旱，四川地震、广西暴雨、广东水灾，全部6 月发生
+5/29/2022 Miles Guo: He Zizhen, Mao Zedong's ex-wife, depicted Mao as the worst rogue of all rogues and the biggest liar of all liars. Zhang Yufeng, Mao's mistress, said Mao is an ignorant, fearless and extremely selfish person; th...
 
-<img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/06/22/02/77339fb2-a329-69ce-51e5-77ae4a6eb62a/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English: gettr.com/post/p1f5dbs4b86
 6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. Changpeng Zhao will either be taken out by t...
 
 <img src="https://media.gettr.com/group10/getter/2022/06/21/16/be5e4338-21f8-4586-986e-973b98ea0b32/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1f3o8j93b4.md)
-
-2022年6月21日 MOS 《回响》第二期
-
-<img src="https://media.gettr.com/group27/origin/2022/06/21/14/8d5af03f-2c98-8ab6-0bd6-a2490a5432b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
