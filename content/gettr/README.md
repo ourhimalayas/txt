@@ -2,6 +2,40 @@
 ---
 
 
+[@miles 6/22/2022 12:22 AM UTC  - :tv:直播](/content/gettr/p1f5qzb3618.md)
+
+One trump card is better than a thousand common cards. Law is the trump card.
+
+
+
+千招会不如一招绝，法律是制胜绝招。
+
+<img src="https://media.gettr.com/group29/origin/2022/06/22/00/d185ed6f-31a7-f278-a7be-d3c69d49c5d8/out.jpg" width="506" height="284">
+
+---
+
+[@athenagnews 6/21/2022 12:51 PM UTC ](/content/gettr/p1f3rle52c3.md)
+
+随着中共病毒疫情的不断蔓延，全球各国政府从2020年开始推行所谓的新冠疫苗，疫苗成为中共与黑暗沼泽地垂死挣扎、绑架世界的最后一根救命稻草，而反对接种新冠疫苗则成为爆料革命2021年最伟大的主张，拯救了无数的生命。
+
+
+
+2021年9月20日，文贵先生突然出现在深山老林里，而文贵先生此次进山就与停止疫苗接种有关。除了疫苗话题之外，G系列和喜马拉雅币也是秘密会议的主题之一。
+
+
+
+随着疫苗灾难的来临，人类面临着经济、政治、宗教和人心的大变革，数字货币的普及已是大...
+
+---
+
+[@miles 6/21/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1f5zz729ac.md)
+
+2022.06.21 PM NFSC Fringe COLOMBIA,ANOTHER ONE TO FALL
+
+<img src="https://media.gettr.com/group44/origin/2022/06/21/23/2578d034-931a-23dd-796e-d8c5264eb721/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/21/2022 11:27 PM UTC ](/content/gettr/p1f677v82f6.md)
 
 Xi, the Sun, imitates Putin, the King’s “Special Martial Operation” with “No-war Military Operation”
@@ -30,11 +64,11 @@ For English：gettr.com/post/p1f5dbs4b86
 
 ---
 
-[@miles 6/21/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1f5zz729ac.md)
+[@miles 6/22/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1f695tc9cc.md)
 
-2022.06.21 PM NFSC Fringe COLOMBIA,ANOTHER ONE TO FALL
+2022.06.21  晚 新中国联邦⎪新闻  美国佛罗里达州州长重申反对幼儿疫苗，绝不订购；美国保险公司数据证实：2021年18～64岁死亡人数暴增；FDA刚刚承认了一个众所周知、显而易见的痛苦事实
 
-<img src="https://media.gettr.com/group44/origin/2022/06/21/23/2578d034-931a-23dd-796e-d8c5264eb721/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/22/00/fdc5159f-cb5a-f56f-a098-75a773be7024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,28 +175,6 @@ For English: gettr.com/post/p1f5dbs4b86
 2022.06.21 AM NFSC News    China's 618 Shopping Festival Showing E-Commerce Sales Decline  
 
 <img src="https://media.gettr.com/group34/origin/2022/06/21/11/9b05841b-c4da-99ec-e43e-4b0d4e8d9849/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/21/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1f3kjy1e89.md)
-
-2022.06.21　NFSCニュース　　アルテミシニンはサル痘の最適な解毒剤である
-
-<img src="https://media.gettr.com/group50/origin/2022/06/21/11/c243b9bf-d0f7-9913-db9c-f010134913d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 9:08 AM UTC ](/content/gettr/p1f2zpf0474.md)
-
-https://gettr.com/streaming/p1f2ugp1824
-
----
-
-[@miles 6/21/2022 8:50 AM UTC  - :tv:直播](/content/gettr/p1f2qlm0d3c.md)
-
-6/12/2022 Miles Guo: Communist China's military is run by liars and womanizers and has zero combat capability; one of our fellow fighters from the CCP's submarine disclosed that the CCP does not have any capability of launching nuc...
-
-<img src="https://media.gettr.com/group44/getter/2022/06/21/08/97ac9a74-e18d-edf5-c230-6959667e0183/out.jpg" width="506" height="284">
 
 ---
 
