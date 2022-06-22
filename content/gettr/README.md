@@ -2,6 +2,24 @@
 ---
 
 
+[@xskiy 6/21/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1f549i4149.md)
+
+采访6/4/2022庆典总导演：草根小哥
+
+<img src="https://media.gettr.com/group35/getter/2022/06/21/19/77183d00-9c1b-a1b9-29a2-9cf63cd1da34/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/22/2022 7:55 AM UTC  - :tv:直播](/content/gettr/p1f828be17e.md)
+
+《焦点》88期：灭共进入关键时期，农场未来的重要任务；躺平币，喜币，喜贷款，关乎战友们的切身利益。
+
+
+
+<img src="https://media.gettr.com/group34/origin/2022/06/22/07/6f0ce821-db0e-e41a-92f6-b0ed79af6673/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 3:48 AM UTC  - 2圖](/content/gettr/p1f708c3503.md)
 
 七哥明天大直播啦！🥳🥳🥳
@@ -71,28 +89,6 @@
 5/29/2022 Miles Guo: The entire family of Yan Fuqing, a famous Chinese medical practitioner, were killed by the CCP. Yan and others invited to dinner by Mao all ended up miserably. Yan Fuqing was the first to advocate for the idea ...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/22/00/3061e283-0628-0290-bab9-33e675cdecf3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 12:22 AM UTC  - :tv:直播](/content/gettr/p1f5qzb3618.md)
-
-One trump card is better than a thousand common cards. Law is the trump card.
-
-
-
-千招会不如一招绝，法律是制胜绝招。
-
-<img src="https://media.gettr.com/group29/origin/2022/06/22/00/d185ed6f-31a7-f278-a7be-d3c69d49c5d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 7:55 AM UTC  - :tv:直播](/content/gettr/p1f828be17e.md)
-
-《焦点》88期：灭共进入关键时期，农场未来的重要任务；躺平币，喜币，喜贷款，关乎战友们的切身利益。
-
-
-
-<img src="https://media.gettr.com/group34/origin/2022/06/22/07/6f0ce821-db0e-e41a-92f6-b0ed79af6673/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
