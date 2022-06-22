@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/22/2022 1:46 AM UTC  - :tv:直播](/content/gettr/p1f5rgr8773.md)
+
+2022.06.21 晚 新中国联邦 | 新闻访谈 “疫苗”魔抓伸向美加婴幼儿 谭德赛私下承认实验室泄露为那般？ 通胀萧条势不可挡，加息、加税、发救济管用吗？ 蓬佩奥指出对付CCP就该像对前苏联
+
+<img src="https://media.gettr.com/group26/origin/2022/06/22/00/c2fa4f17-afdc-f8f1-3a09-be0eb3cd18d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1f6f77d25f.md)
 
 5/29/2022 Miles Guo: The CCP has been capitalizing on the fact that the Chinese people have fantasies about the Western medicine by using Western medical practices such as PCR testing and COVID vaccines to harm the Chinese. Mao Zed...
@@ -30,11 +38,11 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
-[@miles 6/22/2022 1:46 AM UTC  - :tv:直播](/content/gettr/p1f5rgr8773.md)
+[@miles 6/22/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1f6i1x6371.md)
 
-2022.06.21 晚 新中国联邦 | 新闻访谈 “疫苗”魔抓伸向美加婴幼儿 谭德赛私下承认实验室泄露为那般？ 通胀萧条势不可挡，加息、加税、发救济管用吗？ 蓬佩奥指出对付CCP就该像对前苏联
+2022.06.21 新中国联邦 | 喜财经 第86期  熙姐谈股市汇市黄金石油人民币走势  国内乱象北京落雹、河北落雪、河南干旱，四川地震、广西暴雨、广东水灾，全部6 月发生
 
-<img src="https://media.gettr.com/group26/origin/2022/06/22/00/c2fa4f17-afdc-f8f1-3a09-be0eb3cd18d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English: gettr.com/post/p1f5dbs4b86
 6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. Changpeng Zhao will either be taken out by t...
 
 <img src="https://media.gettr.com/group10/getter/2022/06/21/16/be5e4338-21f8-4586-986e-973b98ea0b32/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 2:34 PM UTC  - :tv:直播](/content/gettr/p1f3zz95440.md)
-
-2022年6月21日 MOS 《回响》第二期
-
-<img src="https://media.gettr.com/group50/origin/2022/06/21/14/db2967b4-946d-fef4-68f1-d36a52ee5a10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
