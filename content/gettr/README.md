@@ -2,11 +2,23 @@
 ---
 
 
-[@xskiy 6/21/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1f549i4149.md)
+[@miles 6/22/2022 10:21 AM UTC  - :tv:直播](/content/gettr/p1f7s7n3bbd.md)
 
-采访6/4/2022庆典总导演：草根小哥
+One trump card is better than a thousand common cards. Law is the trump card.
 
-<img src="https://media.gettr.com/group35/getter/2022/06/21/19/77183d00-9c1b-a1b9-29a2-9cf63cd1da34/out.jpg" width="506" height="284">
+
+
+ 千招会不如一招绝，法律是制胜绝招
+
+<img src="https://media.gettr.com/group23/origin/2022/06/22/10/6a4fa773-61b8-140e-41dc-433404cfb729/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/22/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1f8ban2d2c.md)
+
+2022.06.22 新中国联邦 | 军情室 一周俄乌战事回顾，西方两派在俄乌战争上的分歧
+
+<img src="https://media.gettr.com/group11/origin/2022/06/22/09/768d613d-8c7c-ab94-c6cb-49c0d01991f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +193,6 @@ For English: gettr.com/post/p1f5dbs4b86
 2022.06.21  新中国联邦 | 喜健康 《CCP解剖学》  文疯而动与新西兰农场医疗小组探讨CCP 病毒感染后儿童用药；脑雾等后遗症；青蒿素壮阳机理。
 
 <img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 7:20 PM UTC  - :tv:直播](/content/gettr/p1f4tv73b43.md)
-
-2022-6-21 《避风港》（62）疫苗副反应的新名称“成人猝死综合症”
-
-<img src="https://media.gettr.com/group11/origin/2022/06/21/18/5f356e05-914e-3a97-0329-8443861a59fc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
