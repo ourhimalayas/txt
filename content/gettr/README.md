@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/22/2022 2:31 AM UTC  - :tv:直播](/content/gettr/p1f6ovw16e8.md)
+
+5/29/2022 Miles Guo: He Zizhen, Mao Zedong's ex-wife, depicted Mao as the worst rogue of all rogues and the biggest liar of all liars. Zhang Yufeng, Mao's mistress, said Mao is an ignorant, fearless and extremely selfish person; th...
+
+<img src="https://media.gettr.com/group37/getter/2022/06/22/02/77339fb2-a329-69ce-51e5-77ae4a6eb62a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1f6i1x6371.md)
 
 2022.06.21 新中国联邦 | 喜财经 第86期  熙姐谈股市汇市黄金石油人民币走势  国内乱象北京落雹、河北落雪、河南干旱，四川地震、广西暴雨、广东水灾，全部6 月发生
@@ -46,11 +54,11 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
-[@miles 6/22/2022 2:31 AM UTC  - :tv:直播](/content/gettr/p1f6ovw16e8.md)
+[@miles 6/22/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1f6dljed05.md)
 
-5/29/2022 Miles Guo: He Zizhen, Mao Zedong's ex-wife, depicted Mao as the worst rogue of all rogues and the biggest liar of all liars. Zhang Yufeng, Mao's mistress, said Mao is an ignorant, fearless and extremely selfish person; th...
+2022-6-21《鸡血王喜币大作战》 第二百三十三集 嘉宾：青藤、风雨之中
 
-<img src="https://media.gettr.com/group37/getter/2022/06/22/02/77339fb2-a329-69ce-51e5-77ae4a6eb62a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/06/22/03/7f7f72dd-3bac-1a10-09cc-f0320f8a60b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English: gettr.com/post/p1f5dbs4b86
 6/8/2022 Miles Guo: It is said that BlackRock, Bridgewater, and Blackstone are all going to divest from Communist China. The 2nd anniversary of the New Federal State of China showed the audiences that were inside or outside of Comm...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/21/16/161492ac-5a6a-8adc-de74-40b638ba4bab/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1f4la7e9e3.md)
-
-6/8/2022 Miles Guo: The obfuscation (untraceable) digital coins like the Monero (XMR) are owned by Wall Street and several rogue countries including the CCP and Russia behind the scenes. Changpeng Zhao will either be taken out by t...
-
-<img src="https://media.gettr.com/group10/getter/2022/06/21/16/be5e4338-21f8-4586-986e-973b98ea0b32/out.jpg" width="506" height="284">
 
 ---
 
