@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/22/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1f6f77d25f.md)
+
+5/29/2022 Miles Guo: The CCP has been capitalizing on the fact that the Chinese people have fantasies about the Western medicine by using Western medical practices such as PCR testing and COVID vaccines to harm the Chinese. Mao Zed...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/22/01/e8fbfe09-84f7-6000-8c7c-69abf158457f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 12:43 AM UTC  - :tv:直播](/content/gettr/p1f6i90e944.md)
 
 5/29/2022 Miles Guo: The entire family of Yan Fuqing, a famous Chinese medical practitioner, were killed by the CCP. Yan and others invited to dinner by Mao all ended up miserably. Yan Fuqing was the first to advocate for the idea ...
@@ -22,11 +30,11 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
-[@miles 6/22/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1f6f77d25f.md)
+[@miles 6/22/2022 1:46 AM UTC  - :tv:直播](/content/gettr/p1f5rgr8773.md)
 
-5/29/2022 Miles Guo: The CCP has been capitalizing on the fact that the Chinese people have fantasies about the Western medicine by using Western medical practices such as PCR testing and COVID vaccines to harm the Chinese. Mao Zed...
+2022.06.21 晚 新中国联邦 | 新闻访谈 “疫苗”魔抓伸向美加婴幼儿 谭德赛私下承认实验室泄露为那般？ 通胀萧条势不可挡，加息、加税、发救济管用吗？ 蓬佩奥指出对付CCP就该像对前苏联
 
-<img src="https://media.gettr.com/group47/getter/2022/06/22/01/e8fbfe09-84f7-6000-8c7c-69abf158457f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/06/22/00/c2fa4f17-afdc-f8f1-3a09-be0eb3cd18d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English: gettr.com/post/p1f5dbs4b86
 2022年6月21日 MOS 《回响》第二期
 
 <img src="https://media.gettr.com/group27/origin/2022/06/21/14/8d5af03f-2c98-8ab6-0bd6-a2490a5432b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1f3x7y5bc3.md)
-
-22.06.21 早   新中国联邦 | 新闻访谈  乌东战局紧张，急需更多武器援助; 俄罗斯要求立陶宛解除“公然敌对”封锁；失去议会多数，马克龙遭遇重挫
-
-<img src="https://media.gettr.com/group47/origin/2022/06/21/12/2cd0499a-bc4d-34a2-30ef-07f34e006380/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
