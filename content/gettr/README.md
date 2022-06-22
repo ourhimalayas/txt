@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/22/2022 4:34 PM UTC  - :tv:直播](/content/gettr/p1f9gjb3446.md)
+
+2022年6月22日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group33/origin/2022/06/22/16/d989eced-d621-1ef2-78a4-303071185e1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 1:06 PM UTC  - :tv:直播](/content/gettr/p1f86pt2145.md)
 
 2022.06.22  早 新中国联邦 | 新闻访谈  中共国出现罕见以长江为界南涝北旱 大部分被关闭的孔子学仍在暗中运营
@@ -46,11 +54,11 @@ One trump card is better than a thousand common cards. Law is the trump card.
 
 ---
 
-[@miles 6/22/2022 4:34 PM UTC  - :tv:直播](/content/gettr/p1f9gjb3446.md)
+[@miles 6/22/2022 8:01 PM UTC  - :tv:直播](/content/gettr/p1fa9duda88.md)
 
-2022年6月22日 俄乌战争战况播报
+2022.06.22  新中国联邦 | 喜健康  《寻医问药》美国执业心里医生在线答疑，系统性红斑狼疮，抑郁症，3岁小孩解疫苗毒；《医学观察》 生物电脑，量子电脑，生物计算-窥探天机
 
-<img src="https://media.gettr.com/group33/origin/2022/06/22/16/d989eced-d621-1ef2-78a4-303071185e1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/06/22/19/ec848bc1-9976-71a7-05c3-d33062a0fed1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Xi, the Sun, imitates Putin, the King’s “Special Martial Operation” with �
 George Orwell indicated in his famous novel “1984" that totalitarian regimes are notorious for making new terms to replace existi...
 
 <img src="https://media.gettr.com/group8/origin/2022/06/21/23/70e01328-6953-c00a-7109-6509ff186455/a9a87045506ec0a07a01106c69b96e8b.jpg" width="506" height="284">
-
----
-
-[@miles 6/21/2022 10:58 PM UTC  - :tv:直播](/content/gettr/p1f5v154195.md)
-
-2022.06.21 PM NFSC news  New Study Confirms Pfizer CCP Virus Vaccine Weakens Male Fertility
-
-<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
