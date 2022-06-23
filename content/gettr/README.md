@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/23/2022 3:46 PM UTC  - :tv:直播](/content/gettr/p1fe4r49d7e.md)
+
+【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
+
+<img src="https://media.gettr.com/group9/getter/2022/06/23/15/c3f69ac8-bd13-8dce-e2d0-9ee3d187908f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p1fe6c8f9f1.md)
 
 【Miles Grand Live】06/22/2022: Miles Guo revealed that Wang Qishan used to be the spokesperson of the western deep states and the CCP. But now he is finished, we have to take back the money they stole from the Chinese people.
@@ -66,11 +74,11 @@
 
 ---
 
-[@miles 6/23/2022 3:46 PM UTC  - :tv:直播](/content/gettr/p1fe4r49d7e.md)
+[@miles 6/23/2022 4:25 PM UTC  - :tv:直播](/content/gettr/p1feoszd5ad.md)
 
-【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
+6月23号：尊敬的战友们好……昨天大直播后．很多话还没有说透．很多感情还没有表达，让我们感恩万佛了神．和所有我们的战友吧，明天继续大直播、一切都已经开始！
 
-<img src="https://media.gettr.com/group9/getter/2022/06/23/15/c3f69ac8-bd13-8dce-e2d0-9ee3d187908f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/06/23/16/4d6e1457-d73a-77b7-074c-0734935608d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ June 22, 2022 Miles Guo singing new song “ Night in Phoenix “ live, to show 
 June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP” 
 
 <img src="https://media.gettr.com/group50/getter/2022/06/22/23/84800b2a-6deb-f115-75eb-cf7531ac321f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 9:03 PM UTC  - :tv:直播](/content/gettr/p1fa5unf02f.md)
-
-2022年6月22日 622郭先生出山大直播
-
-<img src="https://media.gettr.com/group3/origin/2022/06/22/20/4e3dd2b6-f9fa-ca51-7735-91ce17278dd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
