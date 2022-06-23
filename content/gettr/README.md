@@ -10,11 +10,9 @@
 
 ---
 
-[@miles 6/23/2022 3:53 AM UTC  - :tv:直播](/content/gettr/p1fbodp219a.md)
+[@miles 6/23/2022 4:01 AM UTC ](/content/gettr/p1fbv34df2c.md)
 
 2022-6-22《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、文空
-
-<img src="https://media.gettr.com/group14/origin/2022/06/23/03/b4c2f384-7833-7de3-cfb2-b224ad2fd3ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
