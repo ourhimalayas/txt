@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/23/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ff878e73c.md)
+
+(1080版) 飞飞秀 《Nicole篇》 2022-06-23 
+
+For English: gettr.com/streaming/p1ffcda443d
+
+<img src="https://media.gettr.com/group13/origin/2022/06/23/22/12943476-a79a-f711-3882-800f84baa99f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1ff73ocf5d.md)
+
+2022.06.23  新中国联邦 | 喜健康 《健康生活》 阳光地里的健康生活 - 如何预防肥胖引起的癌症
+
+<img src="https://media.gettr.com/group38/origin/2022/06/23/20/31edcf00-ab5a-d62a-ca34-d5faaa658faf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 6:51 PM UTC  - :tv:直播](/content/gettr/p1ff9dsee26.md)
 
 2022-6-23 《避风港》（63）WHO数据显示，伊维菌素有效减少81%的死亡
@@ -98,11 +116,13 @@
 
 ---
 
-[@miles 6/23/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1ff73ocf5d.md)
+[@miles 6/23/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ffolm25af.md)
 
-2022.06.23  新中国联邦 | 喜健康 《健康生活》 阳光地里的健康生活 - 如何预防肥胖引起的癌症
+(4K版) 飞飞秀 《Nicole篇》 2022-06-23 
 
-<img src="https://media.gettr.com/group38/origin/2022/06/23/20/31edcf00-ab5a-d62a-ca34-d5faaa658faf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English: gettr.com/streaming/p1ffcda443d
+
+<img src="https://media.gettr.com/group29/origin/2022/06/23/22/4af862e2-e7fa-c256-c5c0-1a275c5fba89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,26 +167,6 @@ https://gettr.com/streaming/p1fbaaafecc
 【Miles Grand Live】6/22/2022 : Chinese people are good in forgetting about hate and disasters, and always find excuses for their cowardice; on the other hand, Chinese people are very harsh on other people and don't tolerate others' ...
 
 <img src="https://media.gettr.com/group39/getter/2022/06/23/02/02cbd9ab-ccf7-7bd9-5b91-d37acf28976f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fb7g710e7.md)
-
-【Miles Grand Live】 06/22/2022: Fellow fighters of our Whistleblowers’ Movement will be the future creators of the new century. According to a big guy in the Swamp: Your greatest strength is that you are young,  that you are transpa...
-
-<img src="https://media.gettr.com/group35/getter/2022/06/23/02/70baf1d7-4034-6745-99f7-f2e587c2935a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 12:45 AM UTC  - :tv:直播](/content/gettr/p1fass0b6a6.md)
-
-6月22日 七哥现场演唱新歌《凤亲凰》，表达对战友们的思念之情❤️❤️❤️❤️❤️❤️❤️
-
-
-
-June 22, 2022 Miles Guo singing new song “ Night in Phoenix “ live, to show how much he missing all  the fellow fighters❤️❤️❤️❤️❤️❤️❤️
-
-<img src="https://media.gettr.com/group20/getter/2022/06/23/00/6fb0ce56-388f-f3c7-e8e6-0fb469d87ddc/out.jpg" width="506" height="284">
 
 ---
 
