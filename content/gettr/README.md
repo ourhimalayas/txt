@@ -10,9 +10,11 @@
 
 ---
 
-[@miles 6/23/2022 2:16 AM UTC ](/content/gettr/p1fbmqq04a4.md)
+[@miles 6/23/2022 3:53 AM UTC  - :tv:直播](/content/gettr/p1fbodp219a.md)
 
-https://gettr.com/streaming/p1fbaaafecc
+2022-6-22《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、文空
+
+<img src="https://media.gettr.com/group14/origin/2022/06/23/03/b4c2f384-7833-7de3-cfb2-b224ad2fd3ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -21,6 +23,12 @@ https://gettr.com/streaming/p1fbaaafecc
 【Miles Grand Live】6/22/2022: The decision-makers in the mountains will never allow the CCP to continue in power with a different disguise in the future! Those bigwigs who met with me in the mountains have their own determination an...
 
 <img src="https://media.gettr.com/group14/getter/2022/06/23/03/f118ade8-065a-2e58-fcfe-e7f14ca6de9e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 2:16 AM UTC ](/content/gettr/p1fbmqq04a4.md)
+
+https://gettr.com/streaming/p1fbaaafecc
 
 ---
 
@@ -183,14 +191,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
 期待期待！等不及啦！🥰🥰😍😍🎉🎉
 
 <img src="https://media.gettr.com/group28/origin/2022/06/22/03/d3be863d-6ca3-3980-c869-701b27e64531/0da596262996fa39b44707acb2fc3b38.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1f6dljed05.md)
-
-2022-6-21《鸡血王喜币大作战》 第二百三十三集 嘉宾：青藤、风雨之中
-
-<img src="https://media.gettr.com/group31/origin/2022/06/22/03/7f7f72dd-3bac-1a10-09cc-f0320f8a60b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
