@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/23/2022 6:51 PM UTC  - :tv:直播](/content/gettr/p1ff9dsee26.md)
+
+2022-6-23 《避风港》（63）WHO数据显示，伊维菌素有效减少81%的死亡
+
+<img src="https://media.gettr.com/group45/origin/2022/06/23/18/ecdf9894-4f78-ffe4-4098-3b126b3e0a6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 4:42 PM UTC  - :tv:直播](/content/gettr/p1feot64a0d.md)
 
 2022.06.23 文贵大直播精华版
@@ -90,11 +98,11 @@
 
 ---
 
-[@miles 6/23/2022 6:51 PM UTC  - :tv:直播](/content/gettr/p1ff9dsee26.md)
+[@miles 6/23/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1ff73ocf5d.md)
 
-2022-6-23 《避风港》（63）WHO数据显示，伊维菌素有效减少81%的死亡
+2022.06.23  新中国联邦 | 喜健康 《健康生活》 阳光地里的健康生活 - 如何预防肥胖引起的癌症
 
-<img src="https://media.gettr.com/group45/origin/2022/06/23/18/ecdf9894-4f78-ffe4-4098-3b126b3e0a6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/06/23/20/31edcf00-ab5a-d62a-ca34-d5faaa658faf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,18 +167,6 @@ https://gettr.com/streaming/p1fbaaafecc
 June 22, 2022 Miles Guo singing new song “ Night in Phoenix “ live, to show how much he missing all  the fellow fighters❤️❤️❤️❤️❤️❤️❤️
 
 <img src="https://media.gettr.com/group20/getter/2022/06/23/00/6fb0ce56-388f-f3c7-e8e6-0fb469d87ddc/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1fbe6y42cd.md)
-
-【Miles Grand Live】06/22/2022: In our Whistleblowers' Movement, the West is attracted the most since 2021 by live broadcast about the COVID-19, especially the ones about the vaccine, again and again.
-
-
-
-【文贵大直播】06/22/2022：我们爆料革命从2021...
-
-<img src="https://media.gettr.com/group26/getter/2022/06/23/00/20008514-e4df-c4d2-c25b-06326b39f277/out.jpg" width="506" height="284">
 
 ---
 
