@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/23/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1fbe6y42cd.md)
+
+【Miles Grand Live】06/22/2022: In our Whistleblowers' Movement, the West is attracted the most since 2021 by live broadcast about the COVID-19, especially the ones about the vaccine, again and again.
+
+
+
+【文贵大直播】06/22/2022：我们爆料革命从2021...
+
+<img src="https://media.gettr.com/group26/getter/2022/06/23/00/20008514-e4df-c4d2-c25b-06326b39f277/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/22/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1farcz2d05.md)
 
 6月22日七哥回归首播： 现场演唱《酒灭中共》
@@ -22,15 +34,15 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
 
 ---
 
-[@miles 6/23/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1fbe6y42cd.md)
+[@miles 6/23/2022 12:45 AM UTC  - :tv:直播](/content/gettr/p1fass0b6a6.md)
 
-【Miles Grand Live】06/22/2022: In our Whistleblowers' Movement, the West is attracted the most since 2021 by live broadcast about the COVID-19, especially the ones about the vaccine, again and again.
+6月22日 七哥现场演唱新歌《凤亲凰》，表达对战友们的思念之情❤️❤️❤️❤️❤️❤️❤️
 
 
 
-【文贵大直播】06/22/2022：我们爆料革命从2021...
+June 22, 2022 Miles Guo singing new song “ Night in Phoenix “ live, to show how much he missing all  the fellow fighters❤️❤️❤️❤️❤️❤️❤️
 
-<img src="https://media.gettr.com/group26/getter/2022/06/23/00/20008514-e4df-c4d2-c25b-06326b39f277/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/getter/2022/06/23/00/6fb0ce56-388f-f3c7-e8e6-0fb469d87ddc/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +193,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
 5/29/2022 Miles Guo: The entire family of Yan Fuqing, a famous Chinese medical practitioner, were killed by the CCP. Yan and others invited to dinner by Mao all ended up miserably. Yan Fuqing was the first to advocate for the idea ...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/22/00/3061e283-0628-0290-bab9-33e675cdecf3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1f695tc9cc.md)
-
-2022.06.21  晚 新中国联邦⎪新闻  美国佛罗里达州州长重申反对幼儿疫苗，绝不订购；美国保险公司数据证实：2021年18～64岁死亡人数暴增；FDA刚刚承认了一个众所周知、显而易见的痛苦事实
-
-<img src="https://media.gettr.com/group27/origin/2022/06/22/00/fdc5159f-cb5a-f56f-a098-75a773be7024/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
