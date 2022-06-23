@@ -12,6 +12,24 @@ For English: gettr.com/streaming/p1ffcda443d
 
 ---
 
+[@miles 6/23/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ffu5u129f.md)
+
+2022.06.24 PM NFSC news  US Import Ban on Xinjiang Products Takes Effect
+
+<img src="https://media.gettr.com/group26/origin/2022/06/15/22/170f4373-d998-35e5-0710-524fea37befa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ffolm25af.md)
+
+(4K版) 飞飞秀 《Nicole篇》 2022-06-23 
+
+For English: gettr.com/streaming/p1ffcda443d
+
+<img src="https://media.gettr.com/group29/origin/2022/06/23/22/4af862e2-e7fa-c256-c5c0-1a275c5fba89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1ff73ocf5d.md)
 
 2022.06.23  新中国联邦 | 喜健康 《健康生活》 阳光地里的健康生活 - 如何预防肥胖引起的癌症
@@ -116,16 +134,6 @@ For English: gettr.com/streaming/p1ffcda443d
 
 ---
 
-[@miles 6/23/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ffolm25af.md)
-
-(4K版) 飞飞秀 《Nicole篇》 2022-06-23 
-
-For English: gettr.com/streaming/p1ffcda443d
-
-<img src="https://media.gettr.com/group29/origin/2022/06/23/22/4af862e2-e7fa-c256-c5c0-1a275c5fba89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/23/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p1fcq6a7276.md)
 
 【Miles Grand Live】6/22/2022: The Chinese Communist Party's regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP's illicit funds are flowing. The New Federal State of China will take legal acti...
@@ -153,12 +161,6 @@ For English: gettr.com/streaming/p1ffcda443d
 【Miles Grand Live】6/22/2022: The decision-makers in the mountains will never allow the CCP to continue in power with a different disguise in the future! Those bigwigs who met with me in the mountains have their own determination an...
 
 <img src="https://media.gettr.com/group14/getter/2022/06/23/03/f118ade8-065a-2e58-fcfe-e7f14ca6de9e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 2:16 AM UTC ](/content/gettr/p1fbmqq04a4.md)
-
-https://gettr.com/streaming/p1fbaaafecc
 
 ---
 
