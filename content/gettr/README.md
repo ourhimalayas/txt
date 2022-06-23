@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 6/23/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1fcmmj24f4.md)
-
-【Miles Grand Live】6/22/2022: The case of Beijing International Trust is a big deal, which is like what had happened to the Ping An Group back then. The shareholders of Beijing International Trust are either the Standing Committee m...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/23/05/f41c5a76-e2ee-f35c-fde9-1a4217efbd7b/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/23/2022 7:30 AM UTC  - :tv:直播](/content/gettr/p1fcdx87ed3.md)
 
 【Miles Grand Live】06/22/2022: Forget about all the excuses and take down the evil CCP
@@ -19,6 +11,22 @@
 【文贵大直播】06/22/2022：放下所有借口，消灭邪恶的中共
 
 <img src="https://media.gettr.com/group19/getter/2022/06/23/07/dd5a040d-f29f-4fb1-4f84-af932c3c7d03/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1fcmmj24f4.md)
+
+【Miles Grand Live】6/22/2022: The case of Beijing International Trust is a big deal, which is like what had happened to the Ping An Group back then. The shareholders of Beijing International Trust are either the Standing Committee m...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/23/05/f41c5a76-e2ee-f35c-fde9-1a4217efbd7b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1fdu5j0d88.md)
+
+20220623 NFSC·ニュース   米 新疆の輸入を全面的禁止へ
+
+<img src="https://media.gettr.com/group16/origin/2022/06/23/11/6bea2ef4-7903-3249-508f-d8ad79dcf7c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
 20220622  NFSCニュース　テドロス、新型コロナの起源は武漢 "を認める
 
 <img src="https://media.gettr.com/group7/origin/2022/06/22/11/aa985190-5c42-cd32-fd57-20863280b6bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 10:28 AM UTC  - :tv:直播](/content/gettr/p1f8ban2d2c.md)
-
-2022.06.22 新中国联邦 | 军情室 一周俄乌战事回顾，西方两派在俄乌战争上的分歧
-
-<img src="https://media.gettr.com/group11/origin/2022/06/22/09/768d613d-8c7c-ab94-c6cb-49c0d01991f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
