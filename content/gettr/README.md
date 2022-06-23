@@ -2,9 +2,33 @@
 ---
 
 
+[@miles 6/23/2022 3:23 AM UTC  - :tv:直播](/content/gettr/p1fb0qr0041.md)
+
+【Miles Grand Live】6/22/2022 : The document with thousands of pages sent by the fellow fighters could be used as evidence to sue Wang Qishan. Beijing International Trust has set up its office in the Asian Games Village of Beijing si...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/23/03/4c981503-1762-f94b-1c70-a0014ef80c52/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 2:16 AM UTC ](/content/gettr/p1fbmqq04a4.md)
 
 https://gettr.com/streaming/p1fbaaafecc
+
+---
+
+[@miles 6/23/2022 3:26 AM UTC  - :tv:直播](/content/gettr/p1fbagb5f47.md)
+
+【Miles Grand Live】6/22/2022: The decision-makers in the mountains will never allow the CCP to continue in power with a different disguise in the future! Those bigwigs who met with me in the mountains have their own determination an...
+
+<img src="https://media.gettr.com/group14/getter/2022/06/23/03/f118ade8-065a-2e58-fcfe-e7f14ca6de9e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1fbionf1ab.md)
+
+【Miles Grand Live】6/22/2022 : Chinese people are good in forgetting about hate and disasters, and always find excuses for their cowardice; on the other hand, Chinese people are very harsh on other people and don't tolerate others' ...
+
+<img src="https://media.gettr.com/group39/getter/2022/06/23/02/02cbd9ab-ccf7-7bd9-5b91-d37acf28976f/out.jpg" width="506" height="284">
 
 ---
 
@@ -57,14 +81,6 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
 2022年6月22日 622郭先生出山大直播
 
 <img src="https://media.gettr.com/group3/origin/2022/06/22/20/4e3dd2b6-f9fa-ca51-7735-91ce17278dd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1fbionf1ab.md)
-
-【Miles Grand Live】6/22/2022 : Chinese people are good in forgetting about hate and disasters, and always find excuses for their cowardice; on the other hand, Chinese people are very harsh on other people and don't tolerate others' ...
-
-<img src="https://media.gettr.com/group39/getter/2022/06/23/02/02cbd9ab-ccf7-7bd9-5b91-d37acf28976f/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,22 +191,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
 2022-6-21《鸡血王喜币大作战》 第二百三十三集 嘉宾：青藤、风雨之中
 
 <img src="https://media.gettr.com/group31/origin/2022/06/22/03/7f7f72dd-3bac-1a10-09cc-f0320f8a60b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/22/2022 2:31 AM UTC  - :tv:直播](/content/gettr/p1f6ovw16e8.md)
-
-5/29/2022 Miles Guo: He Zizhen, Mao Zedong's ex-wife, depicted Mao as the worst rogue of all rogues and the biggest liar of all liars. Zhang Yufeng, Mao's mistress, said Mao is an ignorant, fearless and extremely selfish person; th...
-
-<img src="https://media.gettr.com/group37/getter/2022/06/22/02/77339fb2-a329-69ce-51e5-77ae4a6eb62a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1f6i1x6371.md)
-
-2022.06.21 新中国联邦 | 喜财经 第86期  熙姐谈股市汇市黄金石油人民币走势  国内乱象北京落雹、河北落雪、河南干旱，四川地震、广西暴雨、广东水灾，全部6 月发生
-
-<img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
