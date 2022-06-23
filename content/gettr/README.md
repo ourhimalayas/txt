@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/23/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ffu5u129f.md)
+
+2022.06.24 PM NFSC news  US Import Ban on Xinjiang Products Takes Effect
+
+<img src="https://media.gettr.com/group26/origin/2022/06/15/22/170f4373-d998-35e5-0710-524fea37befa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ff878e73c.md)
 
 (1080版) 飞飞秀 《Nicole篇》 2022-06-23 
@@ -12,11 +20,15 @@ For English: gettr.com/streaming/p1ffcda443d
 
 ---
 
-[@miles 6/23/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ffu5u129f.md)
+[@miles 6/23/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1fgc9h1bc2.md)
 
-2022.06.24 PM NFSC news  US Import Ban on Xinjiang Products Takes Effect
+【Miles Grand Live】06/22/2022: Miles Guo revealed that Wang Qishan used to be the spokesperson of the western deep states and the CCP. But now he is finished, we have to take back the money they stole from the Chinese people.
 
-<img src="https://media.gettr.com/group26/origin/2022/06/15/22/170f4373-d998-35e5-0710-524fea37befa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+【文贵...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/23/23/3134facb-f78f-94f2-35c0-5f0b8c2e475f/out.jpg" width="506" height="284">
 
 ---
 
@@ -67,18 +79,6 @@ For English: gettr.com/streaming/p1ffcda443d
 【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
 
 <img src="https://media.gettr.com/group9/getter/2022/06/23/15/c3f69ac8-bd13-8dce-e2d0-9ee3d187908f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p1fe6c8f9f1.md)
-
-【Miles Grand Live】06/22/2022: Miles Guo revealed that Wang Qishan used to be the spokesperson of the western deep states and the CCP. But now he is finished, we have to take back the money they stole from the Chinese people.
-
-
-
-【文贵...
-
-<img src="https://media.gettr.com/group36/getter/2022/06/23/14/ad64d51e-8279-23b8-b3b1-7b6d59d76a9e/out.jpg" width="506" height="284">
 
 ---
 
