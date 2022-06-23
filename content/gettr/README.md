@@ -2,6 +2,52 @@
 ---
 
 
+[@miles 6/23/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1fg9155f44.md)
+
+【Miles Grand Live】06/22/2022: The New Federal State of China earned the highest respect and highest interest in the world because we alerted the world that the virus came from the CCP, and the most deadly weapon is actually the vac...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/23/23/95bd82eb-6cec-40e7-42c7-7a85f49b3f4d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p1ffs583c75.md)
+
+【Miles Grand Live】 06/22/2022: Vital people’s words to NFSC: We will greet you in Sedona and Phoenix with our actions and will share weal and woe with you
+
+
+
+【文贵大直播】06/22/2022：“沼泽地”大佬寄语新中国联邦战友：我们会用行动欢迎你们，与你们同生死共患难
+
+
+
+
+
+<img src="https://media.gettr.com/group19/getter/2022/06/23/23/f2cd9fce-23ca-5928-5c03-3133e9b3f6c3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:21 PM UTC ](/content/gettr/p1fg2emdd86.md)
+
+Xi Jinping and Wang Qishan will not survive after the end of next year. 
+
+On June 22, Mr. Miles Guo broke the news that everyone who attended the meeting believes that Xi Jinping and Wang Qishan will not live to see the end of next...
+
+<img src="https://media.gettr.com/group39/origin/2022/06/23/23/c37fffa5-b1aa-0dbf-5ece-7a71ce214231/8973ec0ccfcc58c1aa6ee2a481e25804.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1fgc9h1bc2.md)
+
+【Miles Grand Live】06/22/2022: Miles Guo revealed that Wang Qishan used to be the spokesperson of the western deep states and the CCP. But now he is finished, we have to take back the money they stole from the Chinese people.
+
+
+
+【文贵...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/23/23/3134facb-f78f-94f2-35c0-5f0b8c2e475f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1ffu5u129f.md)
 
 2022.06.24 PM NFSC news  US Import Ban on Xinjiang Products Takes Effect
@@ -20,15 +66,11 @@ For English: gettr.com/streaming/p1ffcda443d
 
 ---
 
-[@miles 6/23/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1fgc9h1bc2.md)
+[@miles 6/23/2022 11:29 PM UTC  - :tv:直播](/content/gettr/p1fg7vr85cb.md)
 
-【Miles Grand Live】06/22/2022: Miles Guo revealed that Wang Qishan used to be the spokesperson of the western deep states and the CCP. But now he is finished, we have to take back the money they stole from the Chinese people.
+【Miles Grand Live】 06/22/2022: The CCP took advantage of the 2008 U.S. financial crisis to open a journey of cooperation between the CCP and the deep state by helping the U.S. and building relationships with the West and the United...
 
-
-
-【文贵...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/23/23/3134facb-f78f-94f2-35c0-5f0b8c2e475f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/06/23/23/f3f55821-ddea-651b-b314-2d12bc5d7c88/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,36 +181,6 @@ For English: gettr.com/streaming/p1ffcda443d
 【Miles Grand Live】6/22/2022: The Chinese Communist Party's regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP's illicit funds are flowing. The New Federal State of China will take legal acti...
 
 <img src="https://media.gettr.com/group14/getter/2022/06/23/05/888dbc9e-58df-c4fe-e7b7-4a20f85aa475/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 4:01 AM UTC ](/content/gettr/p1fbv34df2c.md)
-
-2022-6-22《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、文空
-
----
-
-[@miles 6/23/2022 3:23 AM UTC  - :tv:直播](/content/gettr/p1fb0qr0041.md)
-
-【Miles Grand Live】6/22/2022 : The document with thousands of pages sent by the fellow fighters could be used as evidence to sue Wang Qishan. Beijing International Trust has set up its office in the Asian Games Village of Beijing si...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/23/03/4c981503-1762-f94b-1c70-a0014ef80c52/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 3:26 AM UTC  - :tv:直播](/content/gettr/p1fbagb5f47.md)
-
-【Miles Grand Live】6/22/2022: The decision-makers in the mountains will never allow the CCP to continue in power with a different disguise in the future! Those bigwigs who met with me in the mountains have their own determination an...
-
-<img src="https://media.gettr.com/group14/getter/2022/06/23/03/f118ade8-065a-2e58-fcfe-e7f14ca6de9e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1fbionf1ab.md)
-
-【Miles Grand Live】6/22/2022 : Chinese people are good in forgetting about hate and disasters, and always find excuses for their cowardice; on the other hand, Chinese people are very harsh on other people and don't tolerate others' ...
-
-<img src="https://media.gettr.com/group39/getter/2022/06/23/02/02cbd9ab-ccf7-7bd9-5b91-d37acf28976f/out.jpg" width="506" height="284">
 
 ---
 
