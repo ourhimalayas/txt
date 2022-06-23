@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/23/2022 4:42 PM UTC  - :tv:直播](/content/gettr/p1feot64a0d.md)
+
+2022.06.23 文贵大直播精华版
+
+<img src="https://media.gettr.com/group32/origin/2022/06/23/16/dd4e4a53-f8b8-e45b-1927-5ee37a99f889/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 4:25 PM UTC  - :tv:直播](/content/gettr/p1feoszd5ad.md)
 
 6月23号：尊敬的战友们好……昨天大直播后．很多话还没有说透．很多感情还没有表达，让我们感恩万佛了神．和所有我们的战友吧，明天继续大直播、一切都已经开始！
@@ -82,11 +90,11 @@
 
 ---
 
-[@miles 6/23/2022 4:42 PM UTC  - :tv:直播](/content/gettr/p1feot64a0d.md)
+[@miles 6/23/2022 6:51 PM UTC  - :tv:直播](/content/gettr/p1ff9dsee26.md)
 
-2022.06.23 文贵大直播精华版
+2022-6-23 《避风港》（63）WHO数据显示，伊维菌素有效减少81%的死亡
 
-<img src="https://media.gettr.com/group32/origin/2022/06/23/16/dd4e4a53-f8b8-e45b-1927-5ee37a99f889/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/06/23/18/ecdf9894-4f78-ffe4-4098-3b126b3e0a6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,18 +171,6 @@ June 22, 2022 Miles Guo singing new song “ Night in Phoenix “ live, to show 
 【文贵大直播】06/22/2022：我们爆料革命从2021...
 
 <img src="https://media.gettr.com/group26/getter/2022/06/23/00/20008514-e4df-c4d2-c25b-06326b39f277/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1farcz2d05.md)
-
-6月22日七哥回归首播： 现场演唱《酒灭中共》
-
-
-
-June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP” 
-
-<img src="https://media.gettr.com/group50/getter/2022/06/22/23/84800b2a-6deb-f115-75eb-cf7531ac321f/out.jpg" width="506" height="284">
 
 ---
 
