@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 6/23/2022 2:16 AM UTC ](/content/gettr/p1fbmqq04a4.md)
+
+https://gettr.com/streaming/p1fbaaafecc
+
+---
+
+[@miles 6/23/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fb7g710e7.md)
+
+【Miles Grand Live】 06/22/2022: Fellow fighters of our Whistleblowers’ Movement will be the future creators of the new century. According to a big guy in the Swamp: Your greatest strength is that you are young,  that you are transpa...
+
+<img src="https://media.gettr.com/group35/getter/2022/06/23/02/70baf1d7-4034-6745-99f7-f2e587c2935a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 12:45 AM UTC  - :tv:直播](/content/gettr/p1fass0b6a6.md)
 
 6月22日 七哥现场演唱新歌《凤亲凰》，表达对战友们的思念之情❤️❤️❤️❤️❤️❤️❤️
@@ -46,11 +60,11 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
 
 ---
 
-[@miles 6/23/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fb7g710e7.md)
+[@miles 6/23/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1fbionf1ab.md)
 
-【Miles Grand Live】 06/22/2022: Fellow fighters of our Whistleblowers’ Movement will be the future creators of the new century. According to a big guy in the Swamp: Your greatest strength is that you are young,  that you are transpa...
+【Miles Grand Live】6/22/2022 : Chinese people are good in forgetting about hate and disasters, and always find excuses for their cowardice; on the other hand, Chinese people are very harsh on other people and don't tolerate others' ...
 
-<img src="https://media.gettr.com/group35/getter/2022/06/23/02/70baf1d7-4034-6745-99f7-f2e587c2935a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/06/23/02/02cbd9ab-ccf7-7bd9-5b91-d37acf28976f/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,22 +191,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
 2022.06.21 新中国联邦 | 喜财经 第86期  熙姐谈股市汇市黄金石油人民币走势  国内乱象北京落雹、河北落雪、河南干旱，四川地震、广西暴雨、广东水灾，全部6 月发生
 
 <img src="https://media.gettr.com/group35/origin/2022/06/19/09/beefeb27-8ebe-ea01-a064-c74044348587/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/22/2022 1:46 AM UTC  - :tv:直播](/content/gettr/p1f5rgr8773.md)
-
-2022.06.21 晚 新中国联邦 | 新闻访谈 “疫苗”魔抓伸向美加婴幼儿 谭德赛私下承认实验室泄露为那般？ 通胀萧条势不可挡，加息、加税、发救济管用吗？ 蓬佩奥指出对付CCP就该像对前苏联
-
-<img src="https://media.gettr.com/group26/origin/2022/06/22/00/c2fa4f17-afdc-f8f1-3a09-be0eb3cd18d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/22/2022 1:25 AM UTC  - :tv:直播](/content/gettr/p1f6f77d25f.md)
-
-5/29/2022 Miles Guo: The CCP has been capitalizing on the fact that the Chinese people have fantasies about the Western medicine by using Western medical practices such as PCR testing and COVID vaccines to harm the Chinese. Mao Zed...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/22/01/e8fbfe09-84f7-6000-8c7c-69abf158457f/out.jpg" width="506" height="284">
 
 ---
 
