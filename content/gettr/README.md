@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/23/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1fdu5j0d88.md)
+
+20220623 NFSC·ニュース   米 新疆の輸入を全面的禁止へ
+
+<img src="https://media.gettr.com/group16/origin/2022/06/23/11/6bea2ef4-7903-3249-508f-d8ad79dcf7c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 7:30 AM UTC  - :tv:直播](/content/gettr/p1fcdx87ed3.md)
 
 【Miles Grand Live】06/22/2022: Forget about all the excuses and take down the evil CCP
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 6/23/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1fdu5j0d88.md)
+[@miles 6/23/2022 12:28 PM UTC  - :tv:直播](/content/gettr/p1fdel444f5.md)
 
-20220623 NFSC·ニュース   米 新疆の輸入を全面的禁止へ
+2022.06.23 早 新中国联邦 | 新闻 新中国联邦是新时代的创造者开拓者；郭先生对比爆料革命五年来时局异同；数字货币春秋战国时代 新中国联邦将成最后赢家
 
-<img src="https://media.gettr.com/group16/origin/2022/06/23/11/6bea2ef4-7903-3249-508f-d8ad79dcf7c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/06/23/12/2418f394-a513-de0e-c296-75959882c9c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
 2022.06.22 AM NFSC News    Pfizer Vaccine Causes More Miscarriages Than Abortifacients
 
 <img src="https://media.gettr.com/group17/origin/2022/06/22/11/212636e0-4c51-0485-408b-387f426214b2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/22/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1f8bmb58ea.md)
-
-20220622  NFSCニュース　テドロス、新型コロナの起源は武漢 "を認める
-
-<img src="https://media.gettr.com/group7/origin/2022/06/22/11/aa985190-5c42-cd32-fd57-20863280b6bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
