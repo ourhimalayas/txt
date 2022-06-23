@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 6/23/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1fcmmj24f4.md)
+
+【Miles Grand Live】6/22/2022: The case of Beijing International Trust is a big deal, which is like what had happened to the Ping An Group back then. The shareholders of Beijing International Trust are either the Standing Committee m...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/23/05/f41c5a76-e2ee-f35c-fde9-1a4217efbd7b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 4:01 AM UTC ](/content/gettr/p1fbv34df2c.md)
+
+2022-6-22《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、文空
+
+---
+
 [@miles 6/23/2022 3:23 AM UTC  - :tv:直播](/content/gettr/p1fb0qr0041.md)
 
 【Miles Grand Live】6/22/2022 : The document with thousands of pages sent by the fellow fighters could be used as evidence to sue Wang Qishan. Beijing International Trust has set up its office in the Asian Games Village of Beijing si...
@@ -10,9 +24,11 @@
 
 ---
 
-[@miles 6/23/2022 4:01 AM UTC ](/content/gettr/p1fbv34df2c.md)
+[@miles 6/23/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p1fcq6a7276.md)
 
-2022-6-22《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、文空
+【Miles Grand Live】6/22/2022: The Chinese Communist Party's regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP's illicit funds are flowing. The New Federal State of China will take legal acti...
+
+<img src="https://media.gettr.com/group14/getter/2022/06/23/05/888dbc9e-58df-c4fe-e7b7-4a20f85aa475/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,40 +171,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
 2022.06.22 新中国联邦 | 军情室 一周俄乌战事回顾，西方两派在俄乌战争上的分歧
 
 <img src="https://media.gettr.com/group11/origin/2022/06/22/09/768d613d-8c7c-ab94-c6cb-49c0d01991f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 7:55 AM UTC  - :tv:直播](/content/gettr/p1f828be17e.md)
-
-《焦点》88期：灭共进入关键时期，农场未来的重要任务；躺平币，喜币，喜贷款，关乎战友们的切身利益。
-
-
-
-<img src="https://media.gettr.com/group34/origin/2022/06/22/07/6f0ce821-db0e-e41a-92f6-b0ed79af6673/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 3:48 AM UTC  - 2圖](/content/gettr/p1f708c3503.md)
-
-七哥明天大直播啦！🥳🥳🥳
-
-
-
-战友们要提前准备好咯！😆没有吃青蒿素的战友，在七哥出场前，一定要喝上一两杯小酒🍷，预预热，热热身！还要记得准备好赵岩牌纸巾若干盒🧻哦！
-
-
-
-七哥和战友们几天不见，彼此甚是想念！七哥还带来了新歌🎵送给大家，希望战友们能喜欢！ 
-
-
-
-明天大直播时，战友们一定要多留言，随时问七哥任何问题哦！💬明天大直播，绝对有惊喜、绝对有爆料！👊
-
-
-
-期待期待！等不及啦！🥰🥰😍😍🎉🎉
-
-<img src="https://media.gettr.com/group28/origin/2022/06/22/03/d3be863d-6ca3-3980-c869-701b27e64531/0da596262996fa39b44707acb2fc3b38.jpg" width="506" height="284">
 
 ---
 
