@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/23/2022 12:45 AM UTC  - :tv:直播](/content/gettr/p1fass0b6a6.md)
+
+6月22日 七哥现场演唱新歌《凤亲凰》，表达对战友们的思念之情❤️❤️❤️❤️❤️❤️❤️
+
+
+
+June 22, 2022 Miles Guo singing new song “ Night in Phoenix “ live, to show how much he missing all  the fellow fighters❤️❤️❤️❤️❤️❤️❤️
+
+<img src="https://media.gettr.com/group20/getter/2022/06/23/00/6fb0ce56-388f-f3c7-e8e6-0fb469d87ddc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1fbe6y42cd.md)
 
 【Miles Grand Live】06/22/2022: In our Whistleblowers' Movement, the West is attracted the most since 2021 by live broadcast about the COVID-19, especially the ones about the vaccine, again and again.
@@ -34,15 +46,11 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
 
 ---
 
-[@miles 6/23/2022 12:45 AM UTC  - :tv:直播](/content/gettr/p1fass0b6a6.md)
+[@miles 6/23/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fb7g710e7.md)
 
-6月22日 七哥现场演唱新歌《凤亲凰》，表达对战友们的思念之情❤️❤️❤️❤️❤️❤️❤️
+【Miles Grand Live】 06/22/2022: Fellow fighters of our Whistleblowers’ Movement will be the future creators of the new century. According to a big guy in the Swamp: Your greatest strength is that you are young,  that you are transpa...
 
-
-
-June 22, 2022 Miles Guo singing new song “ Night in Phoenix “ live, to show how much he missing all  the fellow fighters❤️❤️❤️❤️❤️❤️❤️
-
-<img src="https://media.gettr.com/group20/getter/2022/06/23/00/6fb0ce56-388f-f3c7-e8e6-0fb469d87ddc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/06/23/02/70baf1d7-4034-6745-99f7-f2e587c2935a/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
 5/29/2022 Miles Guo: The CCP has been capitalizing on the fact that the Chinese people have fantasies about the Western medicine by using Western medical practices such as PCR testing and COVID vaccines to harm the Chinese. Mao Zed...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/22/01/e8fbfe09-84f7-6000-8c7c-69abf158457f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 12:43 AM UTC  - :tv:直播](/content/gettr/p1f6i90e944.md)
-
-5/29/2022 Miles Guo: The entire family of Yan Fuqing, a famous Chinese medical practitioner, were killed by the CCP. Yan and others invited to dinner by Mao all ended up miserably. Yan Fuqing was the first to advocate for the idea ...
-
-<img src="https://media.gettr.com/group36/getter/2022/06/22/00/3061e283-0628-0290-bab9-33e675cdecf3/out.jpg" width="506" height="284">
 
 ---
 
