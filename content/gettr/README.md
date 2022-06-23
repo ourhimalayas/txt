@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/23/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1fg66o9458.md)
+
+【Miles Grand Live】 06/22/2022: The June 4 Massacre was a political game played by several families of the CCP and the deep states. Yao Yilin , Chen Yun and Wang Zhen families exploited the opportunity and finally controlled the cou...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/23/23/98b237a5-05d5-c299-7977-188e9625b673/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p1ffs583c75.md)
 
 【Miles Grand Live】 06/22/2022: Vital people’s words to NFSC: We will greet you in Sedona and Phoenix with our actions and will share weal and woe with you
@@ -33,6 +41,14 @@ Xi Jinping and Wang Qishan will not survive after the end of next year.
 On June 22, Mr. Miles Guo broke the news that everyone who attended the meeting believes that Xi Jinping and Wang Qishan will not live to see the end of next...
 
 <img src="https://media.gettr.com/group39/origin/2022/06/23/23/c37fffa5-b1aa-0dbf-5ece-7a71ce214231/8973ec0ccfcc58c1aa6ee2a481e25804.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:29 PM UTC  - :tv:直播](/content/gettr/p1fg7vr85cb.md)
+
+【Miles Grand Live】 06/22/2022: The CCP took advantage of the 2008 U.S. financial crisis to open a journey of cooperation between the CCP and the deep state by helping the U.S. and building relationships with the West and the United...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/23/23/f3f55821-ddea-651b-b314-2d12bc5d7c88/out.jpg" width="506" height="284">
 
 ---
 
@@ -63,14 +79,6 @@ On June 22, Mr. Miles Guo broke the news that everyone who attended the meeting 
 For English: gettr.com/streaming/p1ffcda443d
 
 <img src="https://media.gettr.com/group13/origin/2022/06/23/22/12943476-a79a-f711-3882-800f84baa99f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:29 PM UTC  - :tv:直播](/content/gettr/p1fg7vr85cb.md)
-
-【Miles Grand Live】 06/22/2022: The CCP took advantage of the 2008 U.S. financial crisis to open a journey of cooperation between the CCP and the deep state by helping the U.S. and building relationships with the West and the United...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/23/23/f3f55821-ddea-651b-b314-2d12bc5d7c88/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English: gettr.com/streaming/p1ffcda443d
 【文贵大直播】06/22/2022：放下所有借口，消灭邪恶的中共
 
 <img src="https://media.gettr.com/group19/getter/2022/06/23/07/dd5a040d-f29f-4fb1-4f84-af932c3c7d03/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1fcmmj24f4.md)
-
-【Miles Grand Live】6/22/2022: The case of Beijing International Trust is a big deal, which is like what had happened to the Ping An Group back then. The shareholders of Beijing International Trust are either the Standing Committee m...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/23/05/f41c5a76-e2ee-f35c-fde9-1a4217efbd7b/out.jpg" width="506" height="284">
 
 ---
 
