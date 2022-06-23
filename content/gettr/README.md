@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/23/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p1fe6c8f9f1.md)
+
+【Miles Grand Live】06/22/2022: Miles Guo revealed that Wang Qishan used to be the spokesperson of the western deep states and the CCP. But now he is finished, we have to take back the money they stole from the Chinese people.
+
+
+
+【文贵...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/23/14/ad64d51e-8279-23b8-b3b1-7b6d59d76a9e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 1:38 PM UTC  - :tv:直播](/content/gettr/p1fdok9f13d.md)
 
 【Miles Grand Live】6/22/2022 : A senior lady of the Swamp said the various tragedies happened in Hong Kong, Tibet and Xinjiang showed that the biggest problem of the people in Communist China is not their lack of faith but humanity;...
@@ -54,15 +66,11 @@
 
 ---
 
-[@miles 6/23/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p1fe6c8f9f1.md)
+[@miles 6/23/2022 3:46 PM UTC  - :tv:直播](/content/gettr/p1fe4r49d7e.md)
 
-【Miles Grand Live】06/22/2022: Miles Guo revealed that Wang Qishan used to be the spokesperson of the western deep states and the CCP. But now he is finished, we have to take back the money they stole from the Chinese people.
+【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
 
-
-
-【文贵...
-
-<img src="https://media.gettr.com/group36/getter/2022/06/23/14/ad64d51e-8279-23b8-b3b1-7b6d59d76a9e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/06/23/15/c3f69ac8-bd13-8dce-e2d0-9ee3d187908f/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
    2022年6月22日 622郭先生出山大直播  1080P
 
 <img src="https://media.gettr.com/group9/origin/2022/06/22/20/68326a53-2b05-17f2-8d71-bfcda6bb1f7f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 4:34 PM UTC  - :tv:直播](/content/gettr/p1f9gjb3446.md)
-
-2022年6月22日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group33/origin/2022/06/22/16/d989eced-d621-1ef2-78a4-303071185e1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
