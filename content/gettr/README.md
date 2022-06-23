@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/23/2022 12:28 PM UTC  - :tv:直播](/content/gettr/p1fdel444f5.md)
+
+2022.06.23 早 新中国联邦 | 新闻 新中国联邦是新时代的创造者开拓者；郭先生对比爆料革命五年来时局异同；数字货币春秋战国时代 新中国联邦将成最后赢家
+
+<img src="https://media.gettr.com/group10/origin/2022/06/23/12/2418f394-a513-de0e-c296-75959882c9c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1fdu5j0d88.md)
 
 20220623 NFSC·ニュース   米 新疆の輸入を全面的禁止へ
@@ -30,11 +38,11 @@
 
 ---
 
-[@miles 6/23/2022 12:28 PM UTC  - :tv:直播](/content/gettr/p1fdel444f5.md)
+[@miles 6/23/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1fdvmwf998.md)
 
-2022.06.23 早 新中国联邦 | 新闻 新中国联邦是新时代的创造者开拓者；郭先生对比爆料革命五年来时局异同；数字货币春秋战国时代 新中国联邦将成最后赢家
+2022.06.23 早 新中国联邦 | 新闻访谈 G7与北约领袖将聚焦中国及加大对俄施压；中共国靠监控稳固政权；用户数据让北京“一览无遗” 美国该拿TikTok怎么办；“疫苗伤害赔偿计划”不堪重负
 
-<img src="https://media.gettr.com/group10/origin/2022/06/23/12/2418f394-a513-de0e-c296-75959882c9c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/06/23/12/d686fcba-d3cc-28a1-d8c7-2856cf379324/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
 2022.06.22 早 新中国联邦 | 新闻  蓬佩奥先生指出美国应如对抗前苏联般抗击中共  俄记者拍卖诺奖奖章援助乌克兰儿童  大部分被关闭的孔子学院仍在暗中运营
 
 <img src="https://media.gettr.com/group25/origin/2022/06/22/12/2dd7a054-8ae0-2898-92a8-e10d5dedec29/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1f8j3z4f81.md)
-
-2022.06.22 AM NFSC News    Pfizer Vaccine Causes More Miscarriages Than Abortifacients
-
-<img src="https://media.gettr.com/group17/origin/2022/06/22/11/212636e0-4c51-0485-408b-387f426214b2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
