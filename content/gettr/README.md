@@ -10,6 +10,26 @@
 
 ---
 
+[@miles 6/23/2022 7:30 AM UTC  - :tv:直播](/content/gettr/p1fcdx87ed3.md)
+
+【Miles Grand Live】06/22/2022: Forget about all the excuses and take down the evil CCP
+
+
+
+【文贵大直播】06/22/2022：放下所有借口，消灭邪恶的中共
+
+<img src="https://media.gettr.com/group19/getter/2022/06/23/07/dd5a040d-f29f-4fb1-4f84-af932c3c7d03/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p1fcq6a7276.md)
+
+【Miles Grand Live】6/22/2022: The Chinese Communist Party's regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP's illicit funds are flowing. The New Federal State of China will take legal acti...
+
+<img src="https://media.gettr.com/group14/getter/2022/06/23/05/888dbc9e-58df-c4fe-e7b7-4a20f85aa475/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 4:01 AM UTC ](/content/gettr/p1fbv34df2c.md)
 
 2022-6-22《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、文空
@@ -21,14 +41,6 @@
 【Miles Grand Live】6/22/2022 : The document with thousands of pages sent by the fellow fighters could be used as evidence to sue Wang Qishan. Beijing International Trust has set up its office in the Asian Games Village of Beijing si...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/23/03/4c981503-1762-f94b-1c70-a0014ef80c52/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p1fcq6a7276.md)
-
-【Miles Grand Live】6/22/2022: The Chinese Communist Party's regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP's illicit funds are flowing. The New Federal State of China will take legal acti...
-
-<img src="https://media.gettr.com/group14/getter/2022/06/23/05/888dbc9e-58df-c4fe-e7b7-4a20f85aa475/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,18 +163,6 @@ June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP”
 20220622  NFSCニュース　テドロス、新型コロナの起源は武漢 "を認める
 
 <img src="https://media.gettr.com/group7/origin/2022/06/22/11/aa985190-5c42-cd32-fd57-20863280b6bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/22/2022 10:21 AM UTC  - :tv:直播](/content/gettr/p1f7s7n3bbd.md)
-
-One trump card is better than a thousand common cards. Law is the trump card.
-
-
-
- 千招会不如一招绝，法律是制胜绝招
-
-<img src="https://media.gettr.com/group23/origin/2022/06/22/10/6a4fa773-61b8-140e-41dc-433404cfb729/out.jpg" width="506" height="284">
 
 ---
 
