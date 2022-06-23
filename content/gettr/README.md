@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 6/22/2022 9:03 PM UTC  - :tv:直播](/content/gettr/p1fa5unf02f.md)
-
-2022年6月22日 622郭先生出山大直播
-
-<img src="https://media.gettr.com/group3/origin/2022/06/22/20/4e3dd2b6-f9fa-ca51-7735-91ce17278dd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/22/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1farcz2d05.md)
 
 6月22日七哥回归首播： 现场演唱《酒灭中共》
@@ -19,6 +11,26 @@
 June 22, 2022 Miles Guo live show: singing “ Drinking Down The CCP” 
 
 <img src="https://media.gettr.com/group50/getter/2022/06/22/23/84800b2a-6deb-f115-75eb-cf7531ac321f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/22/2022 9:03 PM UTC  - :tv:直播](/content/gettr/p1fa5unf02f.md)
+
+2022年6月22日 622郭先生出山大直播
+
+<img src="https://media.gettr.com/group3/origin/2022/06/22/20/4e3dd2b6-f9fa-ca51-7735-91ce17278dd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1fbe6y42cd.md)
+
+【Miles Grand Live】06/22/2022: In our Whistleblowers' Movement, the West is attracted the most since 2021 by live broadcast about the COVID-19, especially the ones about the vaccine, again and again.
+
+
+
+【文贵大直播】06/22/2022：我们爆料革命从2021...
+
+<img src="https://media.gettr.com/group26/getter/2022/06/23/00/20008514-e4df-c4d2-c25b-06326b39f277/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,20 +181,6 @@ One trump card is better than a thousand common cards. Law is the trump card.
 5/29/2022 Miles Guo: The entire family of Yan Fuqing, a famous Chinese medical practitioner, were killed by the CCP. Yan and others invited to dinner by Mao all ended up miserably. Yan Fuqing was the first to advocate for the idea ...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/22/00/3061e283-0628-0290-bab9-33e675cdecf3/out.jpg" width="506" height="284">
-
----
-
-[@athenagnews 6/21/2022 12:51 PM UTC ](/content/gettr/p1f3rle52c3.md)
-
-随着中共病毒疫情的不断蔓延，全球各国政府从2020年开始推行所谓的新冠疫苗，疫苗成为中共与黑暗沼泽地垂死挣扎、绑架世界的最后一根救命稻草，而反对接种新冠疫苗则成为爆料革命2021年最伟大的主张，拯救了无数的生命。
-
-
-
-2021年9月20日，文贵先生突然出现在深山老林里，而文贵先生此次进山就与停止疫苗接种有关。除了疫苗话题之外，G系列和喜马拉雅币也是秘密会议的主题之一。
-
-
-
-随着疫苗灾难的来临，人类面临着经济、政治、宗教和人心的大变革，数字货币的普及已是大...
 
 ---
 
