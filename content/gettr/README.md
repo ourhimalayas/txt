@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/24/2022 6:43 AM UTC  - :tv:直播](/content/gettr/p1fiy17dc52.md)
+
+【Miles Grand Live】6/22/2022: The great female judge in Connecticut rejected my petition of  withdrawing my bankruptcy case, even thought it means I've lost control over my assets, it actually prevent me from receiving an arrest war...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/24/06/f586ad8e-3f33-696c-d199-dbdd41466948/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1fhkk3c134.md)
 
 【Miles Grand Live】6/22/2022: Himalaya Coin will be accepted by sovereign states and become the circulating currency in those countries; in addition, Himalaya Coin can even circulate in the financial institutions controlled by the S...
@@ -10,11 +18,15 @@
 
 ---
 
-[@miles 6/24/2022 6:43 AM UTC  - :tv:直播](/content/gettr/p1fiy17dc52.md)
+[@miles 6/24/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p1fjn5y24cb.md)
 
-【Miles Grand Live】6/22/2022: The great female judge in Connecticut rejected my petition of  withdrawing my bankruptcy case, even thought it means I've lost control over my assets, it actually prevent me from receiving an arrest war...
+Digital currency is the unification of human power and finance.
 
-<img src="https://media.gettr.com/group48/getter/2022/06/24/06/f586ad8e-3f33-696c-d199-dbdd41466948/out.jpg" width="506" height="284">
+
+
+数字货币是人类权力和金融的统一
+
+<img src="https://media.gettr.com/group12/origin/2022/06/24/09/686b5f37-d325-b39d-44e7-5ed273ca2716/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,14 +147,6 @@
 【Miles Grand Live】 06/22/2022: The June 4 Massacre was a political game played by several families of the CCP and the deep states. Yao Yilin , Chen Yun and Wang Zhen families exploited the opportunity and finally controlled the cou...
 
 <img src="https://media.gettr.com/group22/getter/2022/06/23/23/98b237a5-05d5-c299-7977-188e9625b673/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1fg9155f44.md)
-
-【Miles Grand Live】06/22/2022: The New Federal State of China earned the highest respect and highest interest in the world because we alerted the world that the virus came from the CCP, and the most deadly weapon is actually the vac...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/23/23/95bd82eb-6cec-40e7-42c7-7a85f49b3f4d/out.jpg" width="506" height="284">
 
 ---
 
