@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/24/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1ffo912ddb.md)
+
+【Miles Grand Live】6/22/2022: People from the Swamp believe the fact that we established the New Federal State of China on June 4th has demonstrated our "infinite courage and wisdom". They believe that Xi, Macron, Scholz, Putin, and...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/24/00/04ff41da-e006-f02b-1866-edbf19a5c66c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1ffwc86a4d.md)
 
 2022年6月23日 跟着 七哥 练新歌
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/23/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1ffyepd24a.md)
+[@miles 6/24/2022 12:24 AM UTC  - :tv:直播](/content/gettr/p1fgd22d79e.md)
 
-2022.06.23 NFSC Fringe
+【Miles Grand Live】6/22/2022: The key takeaway of today's live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
 
-<img src="https://media.gettr.com/group43/origin/2022/06/23/23/12f3847f-562b-72d9-c864-004365fdd8e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/06/24/00/d632599a-1380-b2c9-a608-5c29155aa19b/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@
 【Miles Grand Live】6/22/2022: Ever since 1991, I have been meeting with the Swamp once every year. The only exception was the past two years due to the pandemic; two years later when we met again, I was treated with unprecedented re...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/24/00/a23938e9-ebf9-182d-c762-4765676552c2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1ffyepd24a.md)
+
+2022.06.23 NFSC Fringe
+
+<img src="https://media.gettr.com/group43/origin/2022/06/23/23/12f3847f-562b-72d9-c864-004365fdd8e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,22 +181,6 @@ For English: gettr.com/streaming/p1ffcda443d
 【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
 
 <img src="https://media.gettr.com/group9/getter/2022/06/23/15/c3f69ac8-bd13-8dce-e2d0-9ee3d187908f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 1:38 PM UTC  - :tv:直播](/content/gettr/p1fdok9f13d.md)
-
-【Miles Grand Live】6/22/2022 : A senior lady of the Swamp said the various tragedies happened in Hong Kong, Tibet and Xinjiang showed that the biggest problem of the people in Communist China is not their lack of faith but humanity;...
-
-<img src="https://media.gettr.com/group3/getter/2022/06/23/13/1c9a9426-30af-959c-e893-d2fef99fbb55/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1fdvmwf998.md)
-
-2022.06.23 早 新中国联邦 | 新闻访谈 G7与北约领袖将聚焦中国及加大对俄施压；中共国靠监控稳固政权；用户数据让北京“一览无遗” 美国该拿TikTok怎么办；“疫苗伤害赔偿计划”不堪重负
-
-<img src="https://media.gettr.com/group32/origin/2022/06/23/12/d686fcba-d3cc-28a1-d8c7-2856cf379324/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
