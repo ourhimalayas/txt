@@ -2,11 +2,39 @@
 ---
 
 
+[@miles 6/24/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1ffwc86a4d.md)
+
+2022年6月23日 跟着 七哥 练新歌
+
+<img src="https://media.gettr.com/group12/origin/2022/06/24/00/c7f4950b-fa75-85d4-3555-5265bd1bf531/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/23/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1ffyepd24a.md)
 
 2022.06.23 NFSC Fringe
 
 <img src="https://media.gettr.com/group43/origin/2022/06/23/23/12f3847f-562b-72d9-c864-004365fdd8e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 12:09 AM UTC  - :tv:直播](/content/gettr/p1fg4t16012.md)
+
+【Miles Grand Live】6/22/2022: Ever since 1991, I have been meeting with the Swamp once every year. The only exception was the past two years due to the pandemic; two years later when we met again, I was treated with unprecedented re...
+
+<img src="https://media.gettr.com/group40/getter/2022/06/24/00/a23938e9-ebf9-182d-c762-4765676552c2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1ffubq34c8.md)
+
+【Miles Grand Live】6/22/2022:  Fiat currency and digital currency will coexist for a very long time. In the future, centralized and decentralized currencies that are pegged to gold will be most stable!
+
+
+
+【文贵大直播】6/22/2022：世界的法币会与数字货...
+
+<img src="https://media.gettr.com/group6/getter/2022/06/23/23/68c19e31-3814-4dd2-e227-a75110f976d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,18 +51,6 @@
 【Miles Grand Live】06/22/2022: The New Federal State of China earned the highest respect and highest interest in the world because we alerted the world that the virus came from the CCP, and the most deadly weapon is actually the vac...
 
 <img src="https://media.gettr.com/group27/getter/2022/06/23/23/95bd82eb-6cec-40e7-42c7-7a85f49b3f4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1ffubq34c8.md)
-
-【Miles Grand Live】6/22/2022:  Fiat currency and digital currency will coexist for a very long time. In the future, centralized and decentralized currencies that are pegged to gold will be most stable!
-
-
-
-【文贵大直播】6/22/2022：世界的法币会与数字货...
-
-<img src="https://media.gettr.com/group6/getter/2022/06/23/23/68c19e31-3814-4dd2-e227-a75110f976d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +181,6 @@ For English: gettr.com/streaming/p1ffcda443d
 2022.06.23 早 新中国联邦 | 新闻访谈 G7与北约领袖将聚焦中国及加大对俄施压；中共国靠监控稳固政权；用户数据让北京“一览无遗” 美国该拿TikTok怎么办；“疫苗伤害赔偿计划”不堪重负
 
 <img src="https://media.gettr.com/group32/origin/2022/06/23/12/d686fcba-d3cc-28a1-d8c7-2856cf379324/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/23/2022 12:28 PM UTC  - :tv:直播](/content/gettr/p1fdel444f5.md)
-
-2022.06.23 早 新中国联邦 | 新闻 新中国联邦是新时代的创造者开拓者；郭先生对比爆料革命五年来时局异同；数字货币春秋战国时代 新中国联邦将成最后赢家
-
-<img src="https://media.gettr.com/group10/origin/2022/06/23/12/2418f394-a513-de0e-c296-75959882c9c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1fdu5j0d88.md)
-
-20220623 NFSC·ニュース   米 新疆の輸入を全面的禁止へ
-
-<img src="https://media.gettr.com/group16/origin/2022/06/23/11/6bea2ef4-7903-3249-508f-d8ad79dcf7c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
