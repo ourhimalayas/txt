@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/24/2022 5:03 PM UTC  - :tv:直播](/content/gettr/p1flkyt4bbe.md)
+
+2022年6月24日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group42/origin/2022/06/24/16/cd817194-7fe2-f196-b715-19800f80a534/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 4:59 PM UTC  - :tv:直播](/content/gettr/p1fkvtw865d.md)
+
+2022年6月24日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group42/origin/2022/06/24/16/cd817194-7fe2-f196-b715-19800f80a534/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1fk2cucb2c.md)
 
 【Miles Grand Live】06/22/2022: Yang Jiechi from the ‘swamp’ went to Europe to launch a series of attacks against the Himalaya Reserve and Mr. Miles Guo, and has already fulfilled $26 billion in foreign commitments for this goal.
@@ -26,7 +42,7 @@
 
 ---
 
-[@miles 6/24/2022 4:59 PM UTC  - :tv:直播](/content/gettr/p1fkvtw865d.md)
+[@miles 6/24/2022 5:04 PM UTC  - :tv:直播](/content/gettr/p1fl1mk882d.md)
 
 2022年6月24日 俄乌战争战况播报
 
@@ -155,22 +171,6 @@
 【Miles Grand Live】6/22/2022 : The case of Beijing International Trust is a big deal, which is like what had happened to the Ping An Group back then. Wang Qishan has been manipulating Beijing International Trust, which ended up in h...
 
 <img src="https://media.gettr.com/group37/getter/2022/06/24/00/519745c0-1602-06db-d412-da6eb6fa4093/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1ffo912ddb.md)
-
-【Miles Grand Live】6/22/2022: People from the Swamp believe the fact that we established the New Federal State of China on June 4th has demonstrated our "infinite courage and wisdom". They believe that Xi, Macron, Scholz, Putin, and...
-
-<img src="https://media.gettr.com/group19/getter/2022/06/24/00/04ff41da-e006-f02b-1866-edbf19a5c66c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:24 AM UTC  - :tv:直播](/content/gettr/p1fgd22d79e.md)
-
-【Miles Grand Live】6/22/2022: The key takeaway of today's live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
-
-<img src="https://media.gettr.com/group45/getter/2022/06/24/00/d632599a-1380-b2c9-a608-5c29155aa19b/out.jpg" width="506" height="284">
 
 ---
 
