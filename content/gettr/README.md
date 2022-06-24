@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/24/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1ffo97c7ef.md)
+[@miles 6/24/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1fgsrt0f75.md)
 
-2022.06.23 晚   新中国联邦 | 新闻  战友传送绝密文件 爆料革命追讨王岐山海外资产   被世界沼泽地抛弃 中共政局已败
+2022.06.23 新中国联邦 | 喜财经 第88期  河南村镇银行储户的397亿存款去哪里啦？
 
-<img src="https://media.gettr.com/group27/origin/2022/06/24/00/87e2d044-840d-ad05-b991-3545d176ba7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/06/24/02/43d64461-fe51-f25b-179b-564661cdbc30/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 2022.06.23  晚 新中国联邦⎪新闻访谈   从战友视角看七哥进山的意义；尿袋子王岐山海外袋子里到底藏了多少钱；抖音疫苗
 
 <img src="https://media.gettr.com/group33/origin/2022/06/24/01/59798751-be4c-5650-05de-37fdd6b79f62/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1ffo97c7ef.md)
+
+2022.06.23 晚   新中国联邦 | 新闻  战友传送绝密文件 爆料革命追讨王岐山海外资产   被世界沼泽地抛弃 中共政局已败
+
+<img src="https://media.gettr.com/group27/origin/2022/06/24/00/87e2d044-840d-ad05-b991-3545d176ba7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 2:10 AM UTC  - :tv:直播](/content/gettr/p1fgjge1c33.md)
+
+【Miles Grand Live】6/22/2022: The CIA might not obtain the intelligence I can get; major military operations in Syria and Iran are going to take place; Yang Jiechi is writing checks to countries for the purpose of buying them off so...
+
+<img src="https://media.gettr.com/group3/getter/2022/06/24/02/ef5cc0bb-c44a-d213-0519-7dd75e3306bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +181,6 @@ For English: gettr.com/streaming/p1ffcda443d
 2022.06.23  新中国联邦 | 喜健康 《健康生活》 阳光地里的健康生活 - 如何预防肥胖引起的癌症
 
 <img src="https://media.gettr.com/group38/origin/2022/06/23/20/31edcf00-ab5a-d62a-ca34-d5faaa658faf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 6:51 PM UTC  - :tv:直播](/content/gettr/p1ff9dsee26.md)
-
-2022-6-23 《避风港》（63）WHO数据显示，伊维菌素有效减少81%的死亡
-
-<img src="https://media.gettr.com/group45/origin/2022/06/23/18/ecdf9894-4f78-ffe4-4098-3b126b3e0a6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 4:42 PM UTC  - :tv:直播](/content/gettr/p1feot64a0d.md)
-
-2022.06.23 文贵大直播精华版
-
-<img src="https://media.gettr.com/group32/origin/2022/06/23/16/dd4e4a53-f8b8-e45b-1927-5ee37a99f889/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
