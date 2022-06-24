@@ -10,6 +10,26 @@
 
 ---
 
+[@miles 6/24/2022 6:43 AM UTC  - :tv:直播](/content/gettr/p1fiy17dc52.md)
+
+【Miles Grand Live】6/22/2022: The great female judge in Connecticut rejected my petition of  withdrawing my bankruptcy case, even thought it means I've lost control over my assets, it actually prevent me from receiving an arrest war...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/24/06/f586ad8e-3f33-696c-d199-dbdd41466948/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 4:54 AM UTC  - :tv:直播](/content/gettr/p1fi7uqa1a1.md)
+
+【Miles Grand Live】6/22/2022: Never indulge in any unrealistic fantasies! As long as the Chinese Communist Party is in power,  it will be difficult for domestic fellow fighters to use the Tang Ping Coins properly.
+
+
+
+【文贵大直播】6/22/202...
+
+<img src="https://media.gettr.com/group9/getter/2022/06/24/04/cdf0de25-bc1e-8109-7a48-a7cb79d469d8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 4:38 AM UTC  - :tv:直播](/content/gettr/p1fhe2m6d24.md)
 
 【Miles Grand Live】6/22/2022: The CCP's qualification as the agent on behalf of the Swamp has been revoked. The Swamp believes that both Xi Jinping and Wang Qishan are over, and they're talking to several major families of the CCP s...
@@ -31,18 +51,6 @@
 2022.06.23 新中国联邦 | 喜财经 第88期  河南村镇银行储户的397亿存款去哪里啦？
 
 <img src="https://media.gettr.com/group12/origin/2022/06/24/02/43d64461-fe51-f25b-179b-564661cdbc30/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/24/2022 4:54 AM UTC  - :tv:直播](/content/gettr/p1fi7uqa1a1.md)
-
-【Miles Grand Live】6/22/2022: Never indulge in any unrealistic fantasies! As long as the Chinese Communist Party is in power,  it will be difficult for domestic fellow fighters to use the Tang Ping Coins properly.
-
-
-
-【文贵大直播】6/22/202...
-
-<img src="https://media.gettr.com/group9/getter/2022/06/24/04/cdf0de25-bc1e-8109-7a48-a7cb79d469d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ On June 22, Mr. Miles Guo broke the news that everyone who attended the meeting 
 【Miles Grand Live】 06/22/2022: The CCP took advantage of the 2008 U.S. financial crisis to open a journey of cooperation between the CCP and the deep state by helping the U.S. and building relationships with the West and the United...
 
 <img src="https://media.gettr.com/group27/getter/2022/06/23/23/f3f55821-ddea-651b-b314-2d12bc5d7c88/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1fgc9h1bc2.md)
-
-【Miles Grand Live】06/22/2022: Miles Guo revealed that Wang Qishan used to be the spokesperson of the western deep states and the CCP. But now he is finished, we have to take back the money they stole from the Chinese people.
-
-
-
-【文贵...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/23/23/3134facb-f78f-94f2-35c0-5f0b8c2e475f/out.jpg" width="506" height="284">
 
 ---
 
