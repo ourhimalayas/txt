@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/24/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1fmnjx53d9.md)
+
+2022.06.24 NFSC fringe Episode 217
+
+<img src="https://media.gettr.com/group44/origin/2022/03/30/23/70323d02-9a5a-fa4f-b47c-760f492e878f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmndxcc1f.md)
+
+2022.06.24 PM NFSC news   Abandoned By The World Swamp, CCP's Political Situation Has Been Doomed
+
+<img src="https://media.gettr.com/group27/origin/2022/06/24/22/ecedae7a-d867-1930-54fc-0eace90ea45b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1fn6bz6757.md)
 
 6/24/2022 Miles Guo:  In the CCP's detention center, there are various ways to torture someone to death, and the worst two are to starve you to death or make you die through mental inflictions. Several people related to Xiao Jianhu...
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmndxcc1f.md)
+[@longwood 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmsk2d7c1.md)
 
-2022.06.24 PM NFSC news   Abandoned By The World Swamp, CCP's Political Situation Has Been Doomed
+大根谭112-潜水艇一家
 
-<img src="https://media.gettr.com/group27/origin/2022/06/24/22/ecedae7a-d867-1930-54fc-0eace90ea45b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/06/24/22/4705ad38-fc05-103d-3c66-ee521076b9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@
 【Miles Grand Live】6/22/2022: The CCP's qualification as the agent on behalf of the Swamp has been revoked. The Swamp believes that both Xi Jinping and Wang Qishan are over, and they're talking to several major families of the CCP s...
 
 <img src="https://media.gettr.com/group7/getter/2022/06/24/03/0b49e514-5405-8038-2511-080022055f4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1fh5720795.md)
-
-2022-6-23《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、Nick
-
-<img src="https://media.gettr.com/group47/origin/2022/06/24/03/ebc978cb-c16e-7505-b192-6c00ab2cea72/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/24/2022 2:10 AM UTC  - :tv:直播](/content/gettr/p1fgjge1c33.md)
-
-【Miles Grand Live】6/22/2022: The CIA might not obtain the intelligence I can get; major military operations in Syria and Iran are going to take place; Yang Jiechi is writing checks to countries for the purpose of buying them off so...
-
-<img src="https://media.gettr.com/group3/getter/2022/06/24/02/ef5cc0bb-c44a-d213-0519-7dd75e3306bc/out.jpg" width="506" height="284">
 
 ---
 
