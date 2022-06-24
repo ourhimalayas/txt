@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/24/2022 11:01 AM UTC  - :tv:直播](/content/gettr/p1fk0zi3687.md)
+
+[Miles Grand Live] 06/22/2022: The ‘swamp’ bigwigs believe that the reason why HCN can still maintain a stable price amidst the current tide of wildly falling digital currencies is from faith and credit; only HDO is a truly central...
+
+<img src="https://media.gettr.com/group44/getter/2022/06/24/11/a4281c15-4dd4-2b9f-87a4-e2d06504294c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1fjyw72afe.md)
 
 2022.06.24 新中国联邦 | 军情室 回顾2022基辅战役
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/24/2022 11:01 AM UTC  - :tv:直播](/content/gettr/p1fk0zi3687.md)
+[@miles 6/24/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fkehu6ba1.md)
 
-[Miles Grand Live] 06/22/2022: The ‘swamp’ bigwigs believe that the reason why HCN can still maintain a stable price amidst the current tide of wildly falling digital currencies is from faith and credit; only HDO is a truly central...
+20220624 NFSCNFSCニュース　　これから、世界の主宰者達は新中国連邦と生死を共にする
 
-<img src="https://media.gettr.com/group44/getter/2022/06/24/11/a4281c15-4dd4-2b9f-87a4-e2d06504294c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/06/24/11/a1ce7cf0-1d49-9d24-b199-b8f404ebc9e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,16 +159,6 @@
 【Miles Grand Live】 06/22/2022: The June 4 Massacre was a political game played by several families of the CCP and the deep states. Yao Yilin , Chen Yun and Wang Zhen families exploited the opportunity and finally controlled the cou...
 
 <img src="https://media.gettr.com/group22/getter/2022/06/23/23/98b237a5-05d5-c299-7977-188e9625b673/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:21 PM UTC ](/content/gettr/p1fg2emdd86.md)
-
-Xi Jinping and Wang Qishan will not survive after the end of next year. 
-
-On June 22, Mr. Miles Guo broke the news that everyone who attended the meeting believes that Xi Jinping and Wang Qishan will not live to see the end of next...
-
-<img src="https://media.gettr.com/group39/origin/2022/06/23/23/c37fffa5-b1aa-0dbf-5ece-7a71ce214231/8973ec0ccfcc58c1aa6ee2a481e25804.jpg" width="506" height="284">
 
 ---
 
