@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/24/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1fn8soc22b.md)
+
+6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers'  Movement, and t...
+
+<img src="https://media.gettr.com/group40/getter/2022/06/24/22/3d300d22-acc0-7c58-822c-45770f70bb6e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1fn53j956f.md)
+
+（4K版）飞飞秀 《小皮匠谈警察局一日游》 2022-06-24
+
+<img src="https://media.gettr.com/group3/origin/2022/06/24/22/092d75a2-7255-45d0-66ee-167c4a3cee61/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 8:02 PM UTC  - :tv:直播](/content/gettr/p1flqmhc891.md)
 
 2022年6月24日  新中国联邦 | 喜健康  《寻医问药》美国执业家庭医生在线答疑、青蒿素服用注意事项；《心理访谈》清晨的日光 人性的光辉
@@ -10,11 +26,11 @@
 
 ---
 
-[@miles 6/24/2022 12:24 AM UTC  - :tv:直播](/content/gettr/p1fgd22d79e.md)
+[@miles 6/24/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1fmcm5d51a.md)
 
-【Miles Grand Live】6/22/2022: The key takeaway of today's live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
+【Miles Grand Live】06/22/2022: Intelligence from the swamp: the US and Europe have formed a strategy of never giving up, Asia will turn away from the CCP and join forces with the West to fight and eliminate the CCP； Xi's system will...
 
-<img src="https://media.gettr.com/group45/getter/2022/06/24/00/d632599a-1380-b2c9-a608-5c29155aa19b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/06/24/22/022b9b10-bc56-db90-2ba6-ea195da7021a/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@
 2022.06.23  晚 新中国联邦⎪新闻访谈   从战友视角看七哥进山的意义；尿袋子王岐山海外袋子里到底藏了多少钱；抖音疫苗
 
 <img src="https://media.gettr.com/group33/origin/2022/06/24/01/59798751-be4c-5650-05de-37fdd6b79f62/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1ffo97c7ef.md)
-
-2022.06.23 晚   新中国联邦 | 新闻  战友传送绝密文件 爆料革命追讨王岐山海外资产   被世界沼泽地抛弃 中共政局已败
-
-<img src="https://media.gettr.com/group27/origin/2022/06/24/00/87e2d044-840d-ad05-b991-3545d176ba7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p1fgbd41ae8.md)
-
-【Miles Grand Live】6/22/2022 : The case of Beijing International Trust is a big deal, which is like what had happened to the Ping An Group back then. Wang Qishan has been manipulating Beijing International Trust, which ended up in h...
-
-<img src="https://media.gettr.com/group37/getter/2022/06/24/00/519745c0-1602-06db-d412-da6eb6fa4093/out.jpg" width="506" height="284">
 
 ---
 
