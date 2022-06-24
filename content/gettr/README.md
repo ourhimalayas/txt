@@ -14,11 +14,31 @@
 
 ---
 
+[@miles 6/24/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1fk2cucb2c.md)
+
+【Miles Grand Live】06/22/2022: Yang Jiechi from the ‘swamp’ went to Europe to launch a series of attacks against the Himalaya Reserve and Mr. Miles Guo, and has already fulfilled $26 billion in foreign commitments for this goal.
+
+
+
+...
+
+<img src="https://media.gettr.com/group21/getter/2022/06/24/14/74ee3f9c-adc8-e534-c221-6b758ffee7a7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1fkqsj77be.md)
 
 2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （1080P版）
 
 <img src="https://media.gettr.com/group37/origin/2022/06/24/12/626840bd-4ff8-efe1-5f8a-ec22594335fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 12:54 PM UTC  - :tv:直播](/content/gettr/p1fk8id0a37.md)
+
+2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （4K版）
+
+<img src="https://media.gettr.com/group23/origin/2022/06/24/12/949d73fb-516f-2c75-aff0-6c5c1dde7f56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -59,14 +79,6 @@
 【Miles Grand Live】6/22/2022: Himalaya Coin will be accepted by sovereign states and become the circulating currency in those countries; in addition, Himalaya Coin can even circulate in the financial institutions controlled by the S...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/24/04/8486a555-351b-7607-b2e5-7b2d23c7c72f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:54 PM UTC  - :tv:直播](/content/gettr/p1fk8id0a37.md)
-
-2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （4K版）
-
-<img src="https://media.gettr.com/group23/origin/2022/06/24/12/949d73fb-516f-2c75-aff0-6c5c1dde7f56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,18 +171,6 @@
 【Miles Grand Live】6/22/2022: Ever since 1991, I have been meeting with the Swamp once every year. The only exception was the past two years due to the pandemic; two years later when we met again, I was treated with unprecedented re...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/24/00/a23938e9-ebf9-182d-c762-4765676552c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1ffubq34c8.md)
-
-【Miles Grand Live】6/22/2022:  Fiat currency and digital currency will coexist for a very long time. In the future, centralized and decentralized currencies that are pegged to gold will be most stable!
-
-
-
-【文贵大直播】6/22/2022：世界的法币会与数字货...
-
-<img src="https://media.gettr.com/group6/getter/2022/06/23/23/68c19e31-3814-4dd2-e227-a75110f976d9/out.jpg" width="506" height="284">
 
 ---
 
