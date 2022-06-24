@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/24/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1fh5720795.md)
+
+2022-6-23《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、Nick
+
+<img src="https://media.gettr.com/group47/origin/2022/06/24/03/ebc978cb-c16e-7505-b192-6c00ab2cea72/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 2:10 AM UTC  - :tv:直播](/content/gettr/p1fgjge1c33.md)
+
+【Miles Grand Live】6/22/2022: The CIA might not obtain the intelligence I can get; major military operations in Syria and Iran are going to take place; Yang Jiechi is writing checks to countries for the purpose of buying them off so...
+
+<img src="https://media.gettr.com/group3/getter/2022/06/24/02/ef5cc0bb-c44a-d213-0519-7dd75e3306bc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p1fg5dl5e87.md)
 
 2022.06.23  晚 新中国联邦⎪新闻访谈   从战友视角看七哥进山的意义；尿袋子王岐山海外袋子里到底藏了多少钱；抖音疫苗
@@ -23,14 +39,6 @@
 2022.06.23 晚   新中国联邦 | 新闻  战友传送绝密文件 爆料革命追讨王岐山海外资产   被世界沼泽地抛弃 中共政局已败
 
 <img src="https://media.gettr.com/group27/origin/2022/06/24/00/87e2d044-840d-ad05-b991-3545d176ba7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 2:10 AM UTC  - :tv:直播](/content/gettr/p1fgjge1c33.md)
-
-【Miles Grand Live】6/22/2022: The CIA might not obtain the intelligence I can get; major military operations in Syria and Iran are going to take place; Yang Jiechi is writing checks to countries for the purpose of buying them off so...
-
-<img src="https://media.gettr.com/group3/getter/2022/06/24/02/ef5cc0bb-c44a-d213-0519-7dd75e3306bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ For English: gettr.com/streaming/p1ffcda443d
 For English: gettr.com/streaming/p1ffcda443d
 
 <img src="https://media.gettr.com/group29/origin/2022/06/23/22/4af862e2-e7fa-c256-c5c0-1a275c5fba89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1ff73ocf5d.md)
-
-2022.06.23  新中国联邦 | 喜健康 《健康生活》 阳光地里的健康生活 - 如何预防肥胖引起的癌症
-
-<img src="https://media.gettr.com/group38/origin/2022/06/23/20/31edcf00-ab5a-d62a-ca34-d5faaa658faf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
