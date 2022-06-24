@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/23/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1fg9155f44.md)
+[@miles 6/23/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1ffyepd24a.md)
 
-【Miles Grand Live】06/22/2022: The New Federal State of China earned the highest respect and highest interest in the world because we alerted the world that the virus came from the CCP, and the most deadly weapon is actually the vac...
+2022.06.23 NFSC Fringe
 
-<img src="https://media.gettr.com/group27/getter/2022/06/23/23/95bd82eb-6cec-40e7-42c7-7a85f49b3f4d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/06/23/23/12f3847f-562b-72d9-c864-004365fdd8e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,26 @@
 【Miles Grand Live】 06/22/2022: The June 4 Massacre was a political game played by several families of the CCP and the deep states. Yao Yilin , Chen Yun and Wang Zhen families exploited the opportunity and finally controlled the cou...
 
 <img src="https://media.gettr.com/group22/getter/2022/06/23/23/98b237a5-05d5-c299-7977-188e9625b673/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1fg9155f44.md)
+
+【Miles Grand Live】06/22/2022: The New Federal State of China earned the highest respect and highest interest in the world because we alerted the world that the virus came from the CCP, and the most deadly weapon is actually the vac...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/23/23/95bd82eb-6cec-40e7-42c7-7a85f49b3f4d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/23/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1ffubq34c8.md)
+
+【Miles Grand Live】6/22/2022:  Fiat currency and digital currency will coexist for a very long time. In the future, centralized and decentralized currencies that are pegged to gold will be most stable!
+
+
+
+【文贵大直播】6/22/2022：世界的法币会与数字货...
+
+<img src="https://media.gettr.com/group6/getter/2022/06/23/23/68c19e31-3814-4dd2-e227-a75110f976d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,26 +181,6 @@ For English: gettr.com/streaming/p1ffcda443d
 20220623 NFSC·ニュース   米 新疆の輸入を全面的禁止へ
 
 <img src="https://media.gettr.com/group16/origin/2022/06/23/11/6bea2ef4-7903-3249-508f-d8ad79dcf7c4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 7:30 AM UTC  - :tv:直播](/content/gettr/p1fcdx87ed3.md)
-
-【Miles Grand Live】06/22/2022: Forget about all the excuses and take down the evil CCP
-
-
-
-【文贵大直播】06/22/2022：放下所有借口，消灭邪恶的中共
-
-<img src="https://media.gettr.com/group19/getter/2022/06/23/07/dd5a040d-f29f-4fb1-4f84-af932c3c7d03/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p1fcq6a7276.md)
-
-【Miles Grand Live】6/22/2022: The Chinese Communist Party's regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP's illicit funds are flowing. The New Federal State of China will take legal acti...
-
-<img src="https://media.gettr.com/group14/getter/2022/06/23/05/888dbc9e-58df-c4fe-e7b7-4a20f85aa475/out.jpg" width="506" height="284">
 
 ---
 
