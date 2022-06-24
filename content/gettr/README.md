@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/24/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1ffo97c7ef.md)
+
+2022.06.23 晚   新中国联邦 | 新闻  战友传送绝密文件 爆料革命追讨王岐山海外资产   被世界沼泽地抛弃 中共政局已败
+
+<img src="https://media.gettr.com/group27/origin/2022/06/24/00/87e2d044-840d-ad05-b991-3545d176ba7c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1ffo912ddb.md)
 
 【Miles Grand Live】6/22/2022: People from the Swamp believe the fact that we established the New Federal State of China on June 4th has demonstrated our "infinite courage and wisdom". They believe that Xi, Macron, Scholz, Putin, and...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/24/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1ffwc86a4d.md)
+[@miles 6/24/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p1fgbd41ae8.md)
 
-2022年6月23日 跟着 七哥 练新歌
+【Miles Grand Live】6/22/2022 : The case of Beijing International Trust is a big deal, which is like what had happened to the Ping An Group back then. Wang Qishan has been manipulating Beijing International Trust, which ended up in h...
 
-<img src="https://media.gettr.com/group12/origin/2022/06/24/00/c7f4950b-fa75-85d4-3555-5265bd1bf531/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/06/24/00/519745c0-1602-06db-d412-da6eb6fa4093/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@
 【Miles Grand Live】6/22/2022: The key takeaway of today's live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
 
 <img src="https://media.gettr.com/group45/getter/2022/06/24/00/d632599a-1380-b2c9-a608-5c29155aa19b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1ffwc86a4d.md)
+
+2022年6月23日 跟着 七哥 练新歌
+
+<img src="https://media.gettr.com/group12/origin/2022/06/24/00/c7f4950b-fa75-85d4-3555-5265bd1bf531/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,22 +181,6 @@ For English: gettr.com/streaming/p1ffcda443d
 2022.06.23 文贵大直播精华版
 
 <img src="https://media.gettr.com/group32/origin/2022/06/23/16/dd4e4a53-f8b8-e45b-1927-5ee37a99f889/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 4:25 PM UTC  - :tv:直播](/content/gettr/p1feoszd5ad.md)
-
-6月23号：尊敬的战友们好……昨天大直播后．很多话还没有说透．很多感情还没有表达，让我们感恩万佛了神．和所有我们的战友吧，明天继续大直播、一切都已经开始！
-
-<img src="https://media.gettr.com/group45/getter/2022/06/23/16/4d6e1457-d73a-77b7-074c-0734935608d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 3:46 PM UTC  - :tv:直播](/content/gettr/p1fe4r49d7e.md)
-
-【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
-
-<img src="https://media.gettr.com/group9/getter/2022/06/23/15/c3f69ac8-bd13-8dce-e2d0-9ee3d187908f/out.jpg" width="506" height="284">
 
 ---
 
