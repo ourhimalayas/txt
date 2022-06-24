@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/24/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1fn6bz6757.md)
+
+6/24/2022 Miles Guo:  In the CCP's detention center, there are various ways to torture someone to death, and the worst two are to starve you to death or make you die through mental inflictions. Several people related to Xiao Jianhu...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/24/22/d2cbd884-d1b8-8b5b-580f-773c1b55e031/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1fn53j956f.md)
 
 （4K版）飞飞秀 《小皮匠谈警察局一日游》 2022-06-24
@@ -18,19 +26,19 @@
 
 ---
 
-[@miles 6/24/2022 8:02 PM UTC  - :tv:直播](/content/gettr/p1flqmhc891.md)
-
-2022年6月24日  新中国联邦 | 喜健康  《寻医问药》美国执业家庭医生在线答疑、青蒿素服用注意事项；《心理访谈》清晨的日光 人性的光辉
-
-<img src="https://media.gettr.com/group8/origin/2022/06/24/19/a2829426-ac8b-55e1-e48d-b237d39e5693/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/24/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1fmcm5d51a.md)
 
 【Miles Grand Live】06/22/2022: Intelligence from the swamp: the US and Europe have formed a strategy of never giving up, Asia will turn away from the CCP and join forces with the West to fight and eliminate the CCP； Xi's system will...
 
 <img src="https://media.gettr.com/group46/getter/2022/06/24/22/022b9b10-bc56-db90-2ba6-ea195da7021a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 8:02 PM UTC  - :tv:直播](/content/gettr/p1flqmhc891.md)
+
+2022年6月24日  新中国联邦 | 喜健康  《寻医问药》美国执业家庭医生在线答疑、青蒿素服用注意事项；《心理访谈》清晨的日光 人性的光辉
+
+<img src="https://media.gettr.com/group8/origin/2022/06/24/19/a2829426-ac8b-55e1-e48d-b237d39e5693/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@
 【Miles Grand Live】6/22/2022: The CIA might not obtain the intelligence I can get; major military operations in Syria and Iran are going to take place; Yang Jiechi is writing checks to countries for the purpose of buying them off so...
 
 <img src="https://media.gettr.com/group3/getter/2022/06/24/02/ef5cc0bb-c44a-d213-0519-7dd75e3306bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p1fg5dl5e87.md)
-
-2022.06.23  晚 新中国联邦⎪新闻访谈   从战友视角看七哥进山的意义；尿袋子王岐山海外袋子里到底藏了多少钱；抖音疫苗
-
-<img src="https://media.gettr.com/group33/origin/2022/06/24/01/59798751-be4c-5650-05de-37fdd6b79f62/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
