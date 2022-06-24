@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/24/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1fh5720795.md)
+
+2022-6-23《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、Nick
+
+<img src="https://media.gettr.com/group47/origin/2022/06/24/03/ebc978cb-c16e-7505-b192-6c00ab2cea72/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1fgsrt0f75.md)
 
 2022.06.23 新中国联邦 | 喜财经 第88期  河南村镇银行储户的397亿存款去哪里啦？
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/24/2022 3:06 AM UTC  - :tv:直播](/content/gettr/p1fh5720795.md)
+[@miles 6/24/2022 4:38 AM UTC  - :tv:直播](/content/gettr/p1fhe2m6d24.md)
 
-2022-6-23《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、Nick
+【Miles Grand Live】6/22/2022: The CCP's qualification as the agent on behalf of the Swamp has been revoked. The Swamp believes that both Xi Jinping and Wang Qishan are over, and they're talking to several major families of the CCP s...
 
-<img src="https://media.gettr.com/group47/origin/2022/06/24/03/ebc978cb-c16e-7505-b192-6c00ab2cea72/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/06/24/03/0b49e514-5405-8038-2511-080022055f4d/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ On June 22, Mr. Miles Guo broke the news that everyone who attended the meeting 
 2022.06.24 PM NFSC news  US Import Ban on Xinjiang Products Takes Effect
 
 <img src="https://media.gettr.com/group26/origin/2022/06/15/22/170f4373-d998-35e5-0710-524fea37befa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/23/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ff878e73c.md)
-
-(1080版) 飞飞秀 《Nicole篇》 2022-06-23 
-
-For English: gettr.com/streaming/p1ffcda443d
-
-<img src="https://media.gettr.com/group13/origin/2022/06/23/22/12943476-a79a-f711-3882-800f84baa99f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
