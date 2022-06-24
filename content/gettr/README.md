@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 6/24/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1ffo912ddb.md)
+[@miles 6/24/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p1fg5dl5e87.md)
 
-【Miles Grand Live】6/22/2022: People from the Swamp believe the fact that we established the New Federal State of China on June 4th has demonstrated our "infinite courage and wisdom". They believe that Xi, Macron, Scholz, Putin, and...
+2022.06.23  晚 新中国联邦⎪新闻访谈   从战友视角看七哥进山的意义；尿袋子王岐山海外袋子里到底藏了多少钱；抖音疫苗
 
-<img src="https://media.gettr.com/group19/getter/2022/06/24/00/04ff41da-e006-f02b-1866-edbf19a5c66c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/24/01/59798751-be4c-5650-05de-37fdd6b79f62/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -26,19 +26,19 @@
 
 ---
 
+[@miles 6/24/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1ffo912ddb.md)
+
+【Miles Grand Live】6/22/2022: People from the Swamp believe the fact that we established the New Federal State of China on June 4th has demonstrated our "infinite courage and wisdom". They believe that Xi, Macron, Scholz, Putin, and...
+
+<img src="https://media.gettr.com/group19/getter/2022/06/24/00/04ff41da-e006-f02b-1866-edbf19a5c66c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 12:24 AM UTC  - :tv:直播](/content/gettr/p1fgd22d79e.md)
 
 【Miles Grand Live】6/22/2022: The key takeaway of today's live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
 
 <img src="https://media.gettr.com/group45/getter/2022/06/24/00/d632599a-1380-b2c9-a608-5c29155aa19b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1ffwc86a4d.md)
-
-2022年6月23日 跟着 七哥 练新歌
-
-<img src="https://media.gettr.com/group12/origin/2022/06/24/00/c7f4950b-fa75-85d4-3555-5265bd1bf531/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
