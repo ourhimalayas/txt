@@ -2,6 +2,34 @@
 ---
 
 
+[@miles 6/24/2022 12:45 PM UTC  - :tv:直播](/content/gettr/p1fjybndd13.md)
+
+【Miles Grand Live】06/22/2022: Almost all the money in banks in China has been emptied by the ‘swamp’ and Wang Qishan through the game of financial instruments. The real disaster hasn't come yet.
+
+
+
+【文贵大直播】06/22/2022：中共国银行的钱几乎都被沼泽地和...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/24/12/8b18a25a-2d72-c28f-3220-2d7360fd7902/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1fkqsj77be.md)
+
+2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （1080P版）
+
+<img src="https://media.gettr.com/group37/origin/2022/06/24/12/626840bd-4ff8-efe1-5f8a-ec22594335fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/24/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fkehu6ba1.md)
+
+20220624 NFSCNFSCニュース　　これから、世界の主宰者達は新中国連邦と生死を共にする
+
+<img src="https://media.gettr.com/group18/origin/2022/06/24/11/a1ce7cf0-1d49-9d24-b199-b8f404ebc9e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 11:01 AM UTC  - :tv:直播](/content/gettr/p1fk0zi3687.md)
 
 [Miles Grand Live] 06/22/2022: The ‘swamp’ bigwigs believe that the reason why HCN can still maintain a stable price amidst the current tide of wildly falling digital currencies is from faith and credit; only HDO is a truly central...
@@ -34,11 +62,11 @@
 
 ---
 
-[@miles 6/24/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fkehu6ba1.md)
+[@miles 6/24/2022 12:54 PM UTC  - :tv:直播](/content/gettr/p1fk8id0a37.md)
 
-20220624 NFSCNFSCニュース　　これから、世界の主宰者達は新中国連邦と生死を共にする
+2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （4K版）
 
-<img src="https://media.gettr.com/group18/origin/2022/06/24/11/a1ce7cf0-1d49-9d24-b199-b8f404ebc9e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/06/24/12/949d73fb-516f-2c75-aff0-6c5c1dde7f56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -134,14 +162,6 @@
 
 ---
 
-[@miles 6/23/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1ffyepd24a.md)
-
-2022.06.23 NFSC Fringe
-
-<img src="https://media.gettr.com/group43/origin/2022/06/23/23/12f3847f-562b-72d9-c864-004365fdd8e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/23/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1ffubq34c8.md)
 
 【Miles Grand Live】6/22/2022:  Fiat currency and digital currency will coexist for a very long time. In the future, centralized and decentralized currencies that are pegged to gold will be most stable!
@@ -151,22 +171,6 @@
 【文贵大直播】6/22/2022：世界的法币会与数字货...
 
 <img src="https://media.gettr.com/group6/getter/2022/06/23/23/68c19e31-3814-4dd2-e227-a75110f976d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1fg66o9458.md)
-
-【Miles Grand Live】 06/22/2022: The June 4 Massacre was a political game played by several families of the CCP and the deep states. Yao Yilin , Chen Yun and Wang Zhen families exploited the opportunity and finally controlled the cou...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/23/23/98b237a5-05d5-c299-7977-188e9625b673/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:29 PM UTC  - :tv:直播](/content/gettr/p1fg7vr85cb.md)
-
-【Miles Grand Live】 06/22/2022: The CCP took advantage of the 2008 U.S. financial crisis to open a journey of cooperation between the CCP and the deep state by helping the U.S. and building relationships with the West and the United...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/23/23/f3f55821-ddea-651b-b314-2d12bc5d7c88/out.jpg" width="506" height="284">
 
 ---
 
