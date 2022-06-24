@@ -2,15 +2,11 @@
 ---
 
 
-[@miles 6/24/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p1fjn5y24cb.md)
+[@miles 6/24/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1fjyw72afe.md)
 
-Digital currency is the unification of human power and finance.
+2022.06.24 新中国联邦 | 军情室 回顾2022基辅战役
 
-
-
-数字货币是人类权力和金融的统一
-
-<img src="https://media.gettr.com/group12/origin/2022/06/24/09/686b5f37-d325-b39d-44e7-5ed273ca2716/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -30,11 +26,11 @@ Digital currency is the unification of human power and finance.
 
 ---
 
-[@miles 6/24/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1fjyw72afe.md)
+[@miles 6/24/2022 11:01 AM UTC  - :tv:直播](/content/gettr/p1fk0zi3687.md)
 
-2022.06.24 新中国联邦 | 军情室 回顾2022基辅战役
+[Miles Grand Live] 06/22/2022: The ‘swamp’ bigwigs believe that the reason why HCN can still maintain a stable price amidst the current tide of wildly falling digital currencies is from faith and credit; only HDO is a truly central...
 
-<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/06/24/11/a4281c15-4dd4-2b9f-87a4-e2d06504294c/out.jpg" width="506" height="284">
 
 ---
 
