@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/24/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1fn6bz6757.md)
+
+6/24/2022 Miles Guo:  In the CCP's detention center, there are various ways to torture someone to death, and the worst two are to starve you to death or make you die through mental inflictions. Several people related to Xiao Jianhu...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/24/22/d2cbd884-d1b8-8b5b-580f-773c1b55e031/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1fn8soc22b.md)
 
 6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers'  Movement, and t...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/24/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1fn6bz6757.md)
+[@miles 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmndxcc1f.md)
 
-6/24/2022 Miles Guo:  In the CCP's detention center, there are various ways to torture someone to death, and the worst two are to starve you to death or make you die through mental inflictions. Several people related to Xiao Jianhu...
+2022.06.24 PM NFSC news   Abandoned By The World Swamp, CCP's Political Situation Has Been Doomed
 
-<img src="https://media.gettr.com/group25/getter/2022/06/24/22/d2cbd884-d1b8-8b5b-580f-773c1b55e031/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/24/22/ecedae7a-d867-1930-54fc-0eace90ea45b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@
 2022-6-23《鸡血王喜币大作战》 第二百三十四集 嘉宾：齐天二圣、Nick
 
 <img src="https://media.gettr.com/group47/origin/2022/06/24/03/ebc978cb-c16e-7505-b192-6c00ab2cea72/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/24/2022 2:04 AM UTC  - :tv:直播](/content/gettr/p1fgsrt0f75.md)
-
-2022.06.23 新中国联邦 | 喜财经 第88期  河南村镇银行储户的397亿存款去哪里啦？
-
-<img src="https://media.gettr.com/group12/origin/2022/06/24/02/43d64461-fe51-f25b-179b-564661cdbc30/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
