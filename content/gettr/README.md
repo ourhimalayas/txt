@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/24/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p1fjn5y24cb.md)
+
+Digital currency is the unification of human power and finance.
+
+
+
+数字货币是人类权力和金融的统一
+
+<img src="https://media.gettr.com/group12/origin/2022/06/24/09/686b5f37-d325-b39d-44e7-5ed273ca2716/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 6:43 AM UTC  - :tv:直播](/content/gettr/p1fiy17dc52.md)
 
 【Miles Grand Live】6/22/2022: The great female judge in Connecticut rejected my petition of  withdrawing my bankruptcy case, even thought it means I've lost control over my assets, it actually prevent me from receiving an arrest war...
@@ -18,15 +30,11 @@
 
 ---
 
-[@miles 6/24/2022 9:18 AM UTC  - :tv:直播](/content/gettr/p1fjn5y24cb.md)
+[@miles 6/24/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1fjyw72afe.md)
 
-Digital currency is the unification of human power and finance.
+2022.06.24 新中国联邦 | 军情室 回顾2022基辅战役
 
-
-
-数字货币是人类权力和金融的统一
-
-<img src="https://media.gettr.com/group12/origin/2022/06/24/09/686b5f37-d325-b39d-44e7-5ed273ca2716/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,22 +155,6 @@ Digital currency is the unification of human power and finance.
 【Miles Grand Live】 06/22/2022: The June 4 Massacre was a political game played by several families of the CCP and the deep states. Yao Yilin , Chen Yun and Wang Zhen families exploited the opportunity and finally controlled the cou...
 
 <img src="https://media.gettr.com/group22/getter/2022/06/23/23/98b237a5-05d5-c299-7977-188e9625b673/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/23/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p1ffs583c75.md)
-
-【Miles Grand Live】 06/22/2022: Vital people’s words to NFSC: We will greet you in Sedona and Phoenix with our actions and will share weal and woe with you
-
-
-
-【文贵大直播】06/22/2022：“沼泽地”大佬寄语新中国联邦战友：我们会用行动欢迎你们，与你们同生死共患难
-
-
-
-
-
-<img src="https://media.gettr.com/group19/getter/2022/06/23/23/f2cd9fce-23ca-5928-5c03-3133e9b3f6c3/out.jpg" width="506" height="284">
 
 ---
 
