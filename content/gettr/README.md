@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/24/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1fk2cucb2c.md)
+
+【Miles Grand Live】06/22/2022: Yang Jiechi from the ‘swamp’ went to Europe to launch a series of attacks against the Himalaya Reserve and Mr. Miles Guo, and has already fulfilled $26 billion in foreign commitments for this goal.
+
+
+
+...
+
+<img src="https://media.gettr.com/group21/getter/2022/06/24/14/74ee3f9c-adc8-e534-c221-6b758ffee7a7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 12:45 PM UTC  - :tv:直播](/content/gettr/p1fjybndd13.md)
 
 【Miles Grand Live】06/22/2022: Almost all the money in banks in China has been emptied by the ‘swamp’ and Wang Qishan through the game of financial instruments. The real disaster hasn't come yet.
@@ -14,15 +26,11 @@
 
 ---
 
-[@miles 6/24/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1fk2cucb2c.md)
+[@miles 6/24/2022 4:59 PM UTC  - :tv:直播](/content/gettr/p1fkvtw865d.md)
 
-【Miles Grand Live】06/22/2022: Yang Jiechi from the ‘swamp’ went to Europe to launch a series of attacks against the Himalaya Reserve and Mr. Miles Guo, and has already fulfilled $26 billion in foreign commitments for this goal.
+2022年6月24日 俄乌战争战况播报
 
-
-
-...
-
-<img src="https://media.gettr.com/group21/getter/2022/06/24/14/74ee3f9c-adc8-e534-c221-6b758ffee7a7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/06/24/16/cd817194-7fe2-f196-b715-19800f80a534/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@
 【Miles Grand Live】6/22/2022: The key takeaway of today's live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
 
 <img src="https://media.gettr.com/group45/getter/2022/06/24/00/d632599a-1380-b2c9-a608-5c29155aa19b/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:09 AM UTC  - :tv:直播](/content/gettr/p1fg4t16012.md)
-
-【Miles Grand Live】6/22/2022: Ever since 1991, I have been meeting with the Swamp once every year. The only exception was the past two years due to the pandemic; two years later when we met again, I was treated with unprecedented re...
-
-<img src="https://media.gettr.com/group40/getter/2022/06/24/00/a23938e9-ebf9-182d-c762-4765676552c2/out.jpg" width="506" height="284">
 
 ---
 
