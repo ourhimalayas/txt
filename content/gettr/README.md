@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/25/2022 12:01 AM UTC ](/content/gettr/p1fmrq17f74.md)
+
+还记得奥地利当时出台一项规定，不接种疫苗的人最高面临3600欧元的罚款吗？这些规定因为不得民心从未真正实施过。 而现在，奥地利政府终于彻底取消了毒疫苗授权！！当然表面托词是因为造成了社会分裂，绝不会承认疫苗有毒。 对这个世界最有危害的职业绝对就是政客了……🙄🙄🙄 https://himoney.press/austria-drops-covid-19-vaccine-mandate-admits-social-division/ https://get...
+
+---
+
+[@fangceo 6/24/2022 6:54 PM UTC ](/content/gettr/c16xg6ke6d6.md)
+
+不知道为什么每次听七哥演唱的歌都会流泪😭七哥对战友的情对战友的爱体现在每个字每个音符🎵，只有爱着七哥的人才能感受得到❤️如果没有爆料革命，我们这些草根族是永远不知道七哥爆料的世界里的一切，我们每天像听天书一样了解未知的世界，让我们开智如何做一个好人，如何找到我们自己的根气，发现我们可以成为心中的菩萨，我们要发现自己的善根、慧根，才配拥有七哥对战友的情与爱，希望自己每天不断进步提升自己，让自己成为七哥想要的战友的称号🙏🙏
+
+---
+
 [@miles 6/24/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1fmnjx53d9.md)
 
 2022.06.24 NFSC fringe Episode 217
@@ -10,9 +22,11 @@
 
 ---
 
-[@fangceo 6/24/2022 6:54 PM UTC ](/content/gettr/c16xg6ke6d6.md)
+[@miles 6/25/2022 12:07 AM UTC  - :tv:直播](/content/gettr/p1fmxw27be0.md)
 
-不知道为什么每次听七哥演唱的歌都会流泪😭七哥对战友的情对战友的爱体现在每个字每个音符🎵，只有爱着七哥的人才能感受得到❤️如果没有爆料革命，我们这些草根族是永远不知道七哥爆料的世界里的一切，我们每天像听天书一样了解未知的世界，让我们开智如何做一个好人，如何找到我们自己的根气，发现我们可以成为心中的菩萨，我们要发现自己的善根、慧根，才配拥有七哥对战友的情与爱，希望自己每天不断进步提升自己，让自己成为七哥想要的战友的称号🙏🙏
+6月24号：【俄罗斯人不小心在卢甘斯克地区的阿尔切夫斯克轰炸了自己。】
+
+<img src="https://media.gettr.com/group27/getter/2022/06/25/00/05f142a8-1b66-f7e9-ba70-4930b35343ba/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,26 +163,6 @@
 【Miles Grand Live】6/22/2022: The great female judge in Connecticut rejected my petition of  withdrawing my bankruptcy case, even thought it means I've lost control over my assets, it actually prevent me from receiving an arrest war...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/24/06/f586ad8e-3f33-696c-d199-dbdd41466948/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1fhkk3c134.md)
-
-【Miles Grand Live】6/22/2022: Himalaya Coin will be accepted by sovereign states and become the circulating currency in those countries; in addition, Himalaya Coin can even circulate in the financial institutions controlled by the S...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/24/04/8486a555-351b-7607-b2e5-7b2d23c7c72f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 4:54 AM UTC  - :tv:直播](/content/gettr/p1fi7uqa1a1.md)
-
-【Miles Grand Live】6/22/2022: Never indulge in any unrealistic fantasies! As long as the Chinese Communist Party is in power,  it will be difficult for domestic fellow fighters to use the Tang Ping Coins properly.
-
-
-
-【文贵大直播】6/22/202...
-
-<img src="https://media.gettr.com/group9/getter/2022/06/24/04/cdf0de25-bc1e-8109-7a48-a7cb79d469d8/out.jpg" width="506" height="284">
 
 ---
 
