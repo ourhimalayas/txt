@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1fncme05ed.md)
+
+2022.06.24 晚 新中国联邦 | 新闻访谈 中共环球时报造谣比利时大游行是反对北约 中共出手！阿里等平台拟被禁止直接网上卖药！一句话带崩400亿 美最高院裁定人民有权在公共场所携枪 拜登批评
+
+<img src="https://media.gettr.com/group6/origin/2022/06/25/01/a29ad0fe-768c-1e47-0466-22eb5e4fbdfa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1fmste4c9b.md)
 
 2022.06.24 晚 新中国联邦 | 新闻 沼泽地大佬表示 全球灭共正在进行中 开启找回王岐山非法藏匿海外财富的合法钥匙 郭先生爆中共高层借08金融危机开启与沼泽地合作之旅 放下所有借口
@@ -16,11 +24,9 @@
 
 ---
 
-[@miles 6/25/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1fncme05ed.md)
+[@miles 6/25/2022 1:37 AM UTC ](/content/gettr/p1fnim4e5a5.md)
 
-2022.06.24 晚 新中国联邦 | 新闻访谈 中共环球时报造谣比利时大游行是反对北约 中共出手！阿里等平台拟被禁止直接网上卖药！一句话带崩400亿 美最高院裁定人民有权在公共场所携枪 拜登批评
-
-<img src="https://media.gettr.com/group6/origin/2022/06/25/01/a29ad0fe-768c-1e47-0466-22eb5e4fbdfa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专场 歌手：歌手：甜甜 @haotiantian 钢琴/歌手：QMay
 
 ---
 
@@ -155,14 +161,6 @@
 20220624 NFSCNFSCニュース　　これから、世界の主宰者達は新中国連邦と生死を共にする
 
 <img src="https://media.gettr.com/group18/origin/2022/06/24/11/a1ce7cf0-1d49-9d24-b199-b8f404ebc9e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 11:01 AM UTC  - :tv:直播](/content/gettr/p1fk0zi3687.md)
-
-[Miles Grand Live] 06/22/2022: The ‘swamp’ bigwigs believe that the reason why HCN can still maintain a stable price amidst the current tide of wildly falling digital currencies is from faith and credit; only HDO is a truly central...
-
-<img src="https://media.gettr.com/group44/getter/2022/06/24/11/a4281c15-4dd4-2b9f-87a4-e2d06504294c/out.jpg" width="506" height="284">
 
 ---
 
