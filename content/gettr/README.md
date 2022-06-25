@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 6/25/2022 2:15 AM UTC  - :tv:直播](/content/gettr/p1fnycf65ec.md)
+
+【Miles Grand Live】06/22/2022: The Lying Flat Coin will make up for the lack of quantity of HCN issuance and reach a truly global circulation. Digital currency is the unification of human power and finance, which will be the key to ...
+
+<img src="https://media.gettr.com/group41/getter/2022/06/25/02/8af06c92-e9d5-b3ff-8439-f8a57931e839/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1fna8u4313.md)
 
 2022.06.24 新中国联邦 | 喜财经 第89期  美联储将推出央行数字货币 比特币失守2万美元大关
 
 <img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 2:17 AM UTC  - :tv:直播](/content/gettr/p1fo1kv9293.md)
+
+6/24/2022 Miles Guo: The stability of Himalaya Coin is essential for it to become a circulating currency in the future, and only then will the wealth of our fellow fighters be safeguarded. The Swamp followed my advice and did not t...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/25/02/5ac4eb92-f385-d5e6-2130-e04b781fc321/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 2:12 AM UTC  - :tv:直播](/content/gettr/p1fnkh7a0d7.md)
+
+【Miles Grand Live】06/22/2022: Mr. Miles Guo  refused to be the proxy of the 'swamp'. We, the NFSC people, must always remember the promise to stay out of any Chinese regime and we must never promise to bring democracy to China and ...
+
+<img src="https://media.gettr.com/group6/getter/2022/06/25/02/6a3037a3-3401-6612-79bf-ecba861ad58a/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,14 +59,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 [@miles 6/25/2022 12:01 AM UTC ](/content/gettr/p1fmrq17f74.md)
 
 还记得奥地利当时出台一项规定，不接种疫苗的人最高面临3600欧元的罚款吗？这些规定因为不得民心从未真正实施过。 而现在，奥地利政府终于彻底取消了毒疫苗授权！！当然表面托词是因为造成了社会分裂，绝不会承认疫苗有毒。 对这个世界最有危害的职业绝对就是政客了……🙄🙄🙄 https://himoney.press/austria-drops-covid-19-vaccine-mandate-admits-social-division/ https://get...
-
----
-
-[@miles 6/25/2022 2:12 AM UTC  - :tv:直播](/content/gettr/p1fnkh7a0d7.md)
-
-【Miles Grand Live】06/22/2022: Mr. Miles Guo  refused to be the proxy of the 'swamp'. We, the NFSC people, must always remember the promise to stay out of any Chinese regime and we must never promise to bring democracy to China and ...
-
-<img src="https://media.gettr.com/group6/getter/2022/06/25/02/6a3037a3-3401-6612-79bf-ecba861ad58a/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,22 +157,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 ...
 
 <img src="https://media.gettr.com/group21/getter/2022/06/24/14/74ee3f9c-adc8-e534-c221-6b758ffee7a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1fkqsj77be.md)
-
-2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （1080P版）
-
-<img src="https://media.gettr.com/group37/origin/2022/06/24/12/626840bd-4ff8-efe1-5f8a-ec22594335fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 12:54 PM UTC  - :tv:直播](/content/gettr/p1fk8id0a37.md)
-
-2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （4K版）
-
-<img src="https://media.gettr.com/group23/origin/2022/06/24/12/949d73fb-516f-2c75-aff0-6c5c1dde7f56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
