@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 6/25/2022 4:58 PM UTC  - :tv:直播](/content/gettr/p1fq7xc2282.md)
+
+ 6月25号：我的乖乖嘞……
+
+<img src="https://media.gettr.com/group44/getter/2022/06/25/16/1f7d8eef-1ecf-ef42-d655-ff797870e5af/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 3:11 PM UTC  - :tv:直播](/content/gettr/p1fq6ld7997.md)
 
 新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG （1080P版）
 
 <img src="https://media.gettr.com/group49/origin/2022/06/25/14/fe06938f-2739-35b4-25f4-28c51addb17f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 3:14 PM UTC  - :tv:直播](/content/gettr/p1fq8de3bf0.md)
+
+新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG  （4K版）
+
+<img src="https://media.gettr.com/group28/origin/2022/06/25/14/eb40c2d2-50d9-f55b-3949-a3a3f72273dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -94,14 +110,6 @@
 
 ---
 
-[@miles 6/25/2022 3:14 PM UTC  - :tv:直播](/content/gettr/p1fq8de3bf0.md)
-
-新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG  （4K版）
-
-<img src="https://media.gettr.com/group28/origin/2022/06/25/14/eb40c2d2-50d9-f55b-3949-a3a3f72273dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/25/2022 4:51 AM UTC  - :tv:直播](/content/gettr/p1fobly3ed9.md)
 
 6/24/2022 Miles Guo: Those in the Swamp told me about the financial note that was issued 9 years ago with the total being 135 billion dollars, which will be due in 2028. It was Beijing International Trust that offered the note guar...
@@ -157,14 +165,6 @@ New heights of the Whistleblower Movement(WM) to take back the hidden wealth ove
 6/24/2022 Miles Guo: The stability of Himalaya Coin is essential for it to become a circulating currency in the future, and only then will the wealth of our fellow fighters be safeguarded. The Swamp followed my advice and did not t...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/25/02/5ac4eb92-f385-d5e6-2130-e04b781fc321/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 2:12 AM UTC  - :tv:直播](/content/gettr/p1fnkh7a0d7.md)
-
-【Miles Grand Live】06/22/2022: Mr. Miles Guo  refused to be the proxy of the 'swamp'. We, the NFSC people, must always remember the promise to stay out of any Chinese regime and we must never promise to bring democracy to China and ...
-
-<img src="https://media.gettr.com/group6/getter/2022/06/25/02/6a3037a3-3401-6612-79bf-ecba861ad58a/out.jpg" width="506" height="284">
 
 ---
 
