@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/25/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1foisb7e4e.md)
+
+6/24/2022 Miles Guo: Without paying a penny, Wang Qishan managed to transfer the shares and the control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group. So, the contract of this deal is invalid, and...
+
+<img src="https://media.gettr.com/group26/getter/2022/06/25/05/093dfc86-8d9b-c20d-61a3-d167daf7bbdd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 4:51 AM UTC  - :tv:直播](/content/gettr/p1fobly3ed9.md)
+
+6/24/2022 Miles Guo: Those in the Swamp told me about the financial note that was issued 9 years ago with the total being 135 billion dollars, which will be due in 2028. It was Beijing International Trust that offered the note guar...
+
+<img src="https://media.gettr.com/group41/getter/2022/06/25/04/609ad45a-43a3-69ed-4ddf-eaca120ddb6d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 4:44 AM UTC  - :tv:直播](/content/gettr/p1fonkfc374.md)
 
 6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
@@ -49,14 +65,6 @@ New heights of the Whistleblower Movement(WM) to take back the hidden wealth ove
 【Miles Grand Live】06/22/2022: The Lying Flat Coin will make up for the lack of quantity of HCN issuance and reach a truly global circulation. Digital currency is the unification of human power and finance, which will be the key to ...
 
 <img src="https://media.gettr.com/group41/getter/2022/06/25/02/8af06c92-e9d5-b3ff-8439-f8a57931e839/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 4:51 AM UTC  - :tv:直播](/content/gettr/p1fobly3ed9.md)
-
-6/24/2022 Miles Guo: Those in the Swamp told me about the financial note that was issued 9 years ago with the total being 135 billion dollars, which will be due in 2028. It was Beijing International Trust that offered the note guar...
-
-<img src="https://media.gettr.com/group41/getter/2022/06/25/04/609ad45a-43a3-69ed-4ddf-eaca120ddb6d/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 2022.06.24 PM NFSC news   Abandoned By The World Swamp, CCP's Political Situation Has Been Doomed
 
 <img src="https://media.gettr.com/group27/origin/2022/06/24/22/ecedae7a-d867-1930-54fc-0eace90ea45b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/24/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1fn6bz6757.md)
-
-6/24/2022 Miles Guo:  In the CCP's detention center, there are various ways to torture someone to death, and the worst two are to starve you to death or make you die through mental inflictions. Several people related to Xiao Jianhu...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/24/22/d2cbd884-d1b8-8b5b-580f-773c1b55e031/out.jpg" width="506" height="284">
 
 ---
 
