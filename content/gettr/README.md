@@ -10,11 +10,13 @@
 
 ---
 
-[@miles 6/25/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1fna8u4313.md)
+[@miles 6/25/2022 2:57 AM UTC ](/content/gettr/p1fnov9c66c.md)
 
-2022.06.24 新中国联邦 | 喜财经 第89期  美联储将推出央行数字货币 比特币失守2万美元大关
+New heights of the Whistleblower Movement(WM) to take back the hidden wealth overseas of the Chinese Communist Party (CCP)
 
-<img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+ On June 24, Mr. Miles Guo blew the whistle that China Energy Fund, Shenhua Investment, China Huaneng and C...
+
+<img src="https://media.gettr.com/group8/origin/2022/06/25/02/b75c5bfe-87f3-6d2c-03ba-b274c1f6566e/478f153d0031f97a7b85346e1ed6f462.png" width="506" height="284">
 
 ---
 
@@ -23,6 +25,14 @@
 6/24/2022 Miles Guo: The stability of Himalaya Coin is essential for it to become a circulating currency in the future, and only then will the wealth of our fellow fighters be safeguarded. The Swamp followed my advice and did not t...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/25/02/5ac4eb92-f385-d5e6-2130-e04b781fc321/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1fna8u4313.md)
+
+2022.06.24 新中国联邦 | 喜财经 第89期  美联储将推出央行数字货币 比特币失守2万美元大关
+
+<img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -145,18 +155,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 2022年6月24日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group42/origin/2022/06/24/16/cd817194-7fe2-f196-b715-19800f80a534/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1fk2cucb2c.md)
-
-【Miles Grand Live】06/22/2022: Yang Jiechi from the ‘swamp’ went to Europe to launch a series of attacks against the Himalaya Reserve and Mr. Miles Guo, and has already fulfilled $26 billion in foreign commitments for this goal.
-
-
-
-...
-
-<img src="https://media.gettr.com/group21/getter/2022/06/24/14/74ee3f9c-adc8-e534-c221-6b758ffee7a7/out.jpg" width="506" height="284">
 
 ---
 
