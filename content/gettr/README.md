@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 4:26 AM UTC  - :tv:直播](/content/gettr/p1foo9d2755.md)
+
+6月25号：新中国联邦的两年庆祝．招待的形式很失败呀😂😂😂😂😂😂😂😂😂😂
+
+<img src="https://media.gettr.com/group5/getter/2022/06/25/04/a878e1dc-c789-1a92-cf14-813f597641d4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1fnticd3f1.md)
 
 2022-6-24《鸡血王喜币大作战》 第二百三十六集 嘉宾：无双柳薇薇、封神榜
@@ -28,11 +36,11 @@ New heights of the Whistleblower Movement(WM) to take back the hidden wealth ove
 
 ---
 
-[@miles 6/25/2022 4:26 AM UTC  - :tv:直播](/content/gettr/p1foo9d2755.md)
+[@miles 6/25/2022 4:44 AM UTC  - :tv:直播](/content/gettr/p1fonkfc374.md)
 
-6月25号：新中国联邦的两年庆祝．招待的形式很失败呀😂😂😂😂😂😂😂😂😂😂
+6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
 
-<img src="https://media.gettr.com/group5/getter/2022/06/25/04/a878e1dc-c789-1a92-cf14-813f597641d4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/06/25/04/5d618ea4-3674-1173-3863-294162c09e6c/out.jpg" width="506" height="284">
 
 ---
 
@@ -131,14 +139,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 6/24/2022 Miles Guo:  In the CCP's detention center, there are various ways to torture someone to death, and the worst two are to starve you to death or make you die through mental inflictions. Several people related to Xiao Jianhu...
 
 <img src="https://media.gettr.com/group25/getter/2022/06/24/22/d2cbd884-d1b8-8b5b-580f-773c1b55e031/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1fn8soc22b.md)
-
-6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers'  Movement, and t...
-
-<img src="https://media.gettr.com/group40/getter/2022/06/24/22/3d300d22-acc0-7c58-822c-45770f70bb6e/out.jpg" width="506" height="284">
 
 ---
 
