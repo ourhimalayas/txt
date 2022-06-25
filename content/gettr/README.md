@@ -10,13 +10,11 @@
 
 ---
 
-[@miles 6/25/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1frmjnf48b.md)
+[@miles 6/25/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1frp9h0d22.md)
 
-（4K版）飞飞秀 《出山篇·博物馆 》 2022-06-25
+2022.06.25 PM NFSC News   “Swamp” Tycoons Say Global Effort to Take Down the CCP is Underway.
 
-For English: gettr.com/streaming/p1frg2n7892
-
-<img src="https://media.gettr.com/group27/origin/2022/06/25/22/f779eb16-54d0-621d-c1e0-77f9fb910057/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/06/25/22/11b7139a-8217-62b1-a874-f307489fa5d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -25,6 +23,16 @@ For English: gettr.com/streaming/p1frg2n7892
 6/24/2022 Miles Guo: The incident of the assault on female diners in Tangshan has been happening everywhere and every day in Communist China. Why does the CCP turn a blind eye to it? The CCP is the largest mafia in Communist China,...
 
 <img src="https://media.gettr.com/group50/getter/2022/06/25/22/935e30d5-9e8b-a811-2761-c7300ac5cc6e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1frmjnf48b.md)
+
+（4K版）飞飞秀 《出山篇·博物馆 》 2022-06-25
+
+For English: gettr.com/streaming/p1frg2n7892
+
+<img src="https://media.gettr.com/group27/origin/2022/06/25/22/f779eb16-54d0-621d-c1e0-77f9fb910057/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 【文贵大直播】06/22/2022：盗国贼王岐山将国有财产据为己有──北国投
 
 <img src="https://media.gettr.com/group30/getter/2022/06/25/11/fea39bb0-48e7-4e3f-5f23-232274603d67/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fpj7l0fd2.md)
-
-2022.06.25　NFSCニュース　　プーチンの核兵器を阻止した深層政府
-
-<img src="https://media.gettr.com/group50/origin/2022/06/25/11/d17bf3f1-14ca-c74f-9179-88a77d9ad351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
