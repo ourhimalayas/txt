@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 6/25/2022 3:10 PM UTC  - :tv:直播](/content/gettr/p1fqbapa0e1.md)
+
+ 6月25号：尊敬的战友们好，你们健身了吗？一切都已经开始！
+
+<img src="https://media.gettr.com/group33/getter/2022/06/25/15/3ed530ee-adb9-65bf-c9dc-e8f1d4c6e3c7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 3:11 PM UTC  - :tv:直播](/content/gettr/p1fq6ld7997.md)
+
+新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG （1080P版）
+
+<img src="https://media.gettr.com/group49/origin/2022/06/25/14/fe06938f-2739-35b4-25f4-28c51addb17f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1fpm40b810.md)
+
+6/24/2022 Miles Guo: The Hong Kong dollar is bound to collapse! The collapse of the HK dollar is the beginning of the collapse of the CNY. As many countries around the world decouple from the US dollar, Himalaya Exchange will be th...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/25/13/4498e770-04b9-7031-d257-c938b1720958/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1fpwcxe296.md)
 
 2022.06.25 早 新中国联邦 | 新闻访谈 多个国家和 #美元脱钩 ？#六四天安门事件 前的秘密；德英兩國排斥 #孔子学院
@@ -70,11 +94,11 @@
 
 ---
 
-[@miles 6/25/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1fpm40b810.md)
+[@miles 6/25/2022 3:14 PM UTC  - :tv:直播](/content/gettr/p1fq8de3bf0.md)
 
-6/24/2022 Miles Guo: The Hong Kong dollar is bound to collapse! The collapse of the HK dollar is the beginning of the collapse of the CNY. As many countries around the world decouple from the US dollar, Himalaya Exchange will be th...
+新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG  （4K版）
 
-<img src="https://media.gettr.com/group12/getter/2022/06/25/13/4498e770-04b9-7031-d257-c938b1720958/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/06/25/14/eb40c2d2-50d9-f55b-3949-a3a3f72273dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -136,33 +160,11 @@ New heights of the Whistleblower Movement(WM) to take back the hidden wealth ove
 
 ---
 
-[@miles 6/25/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1fna8u4313.md)
-
-2022.06.24 新中国联邦 | 喜财经 第89期  美联储将推出央行数字货币 比特币失守2万美元大关
-
-<img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@miles 6/25/2022 2:12 AM UTC  - :tv:直播](/content/gettr/p1fnkh7a0d7.md)
 
 【Miles Grand Live】06/22/2022: Mr. Miles Guo  refused to be the proxy of the 'swamp'. We, the NFSC people, must always remember the promise to stay out of any Chinese regime and we must never promise to bring democracy to China and ...
 
 <img src="https://media.gettr.com/group6/getter/2022/06/25/02/6a3037a3-3401-6612-79bf-ecba861ad58a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 1:37 AM UTC ](/content/gettr/p1fnim4e5a5.md)
-
-Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专场 歌手：歌手：甜甜 @haotiantian 钢琴/歌手：QMay
-
----
-
-[@miles 6/25/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1fncme05ed.md)
-
-2022.06.24 晚 新中国联邦 | 新闻访谈 中共环球时报造谣比利时大游行是反对北约 中共出手！阿里等平台拟被禁止直接网上卖药！一句话带崩400亿 美最高院裁定人民有权在公共场所携枪 拜登批评
-
-<img src="https://media.gettr.com/group6/origin/2022/06/25/01/a29ad0fe-768c-1e47-0466-22eb5e4fbdfa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
