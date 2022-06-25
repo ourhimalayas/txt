@@ -8,6 +8,22 @@
 
 ---
 
+[@miles 6/25/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1fmste4c9b.md)
+
+2022.06.24 晚 新中国联邦 | 新闻 沼泽地大佬表示 全球灭共正在进行中 开启找回王岐山非法藏匿海外财富的合法钥匙 郭先生爆中共高层借08金融危机开启与沼泽地合作之旅 放下所有借口
+
+<img src="https://media.gettr.com/group31/origin/2022/06/25/00/a3e469b9-7f81-df7a-ef6d-5421afcfc351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 12:07 AM UTC  - :tv:直播](/content/gettr/p1fmxw27be0.md)
+
+6月24号：【俄罗斯人不小心在卢甘斯克地区的阿尔切夫斯克轰炸了自己。】
+
+<img src="https://media.gettr.com/group27/getter/2022/06/25/00/05f142a8-1b66-f7e9-ba70-4930b35343ba/out.jpg" width="506" height="284">
+
+---
+
 [@fangceo 6/24/2022 6:54 PM UTC ](/content/gettr/c16xg6ke6d6.md)
 
 不知道为什么每次听七哥演唱的歌都会流泪😭七哥对战友的情对战友的爱体现在每个字每个音符🎵，只有爱着七哥的人才能感受得到❤️如果没有爆料革命，我们这些草根族是永远不知道七哥爆料的世界里的一切，我们每天像听天书一样了解未知的世界，让我们开智如何做一个好人，如何找到我们自己的根气，发现我们可以成为心中的菩萨，我们要发现自己的善根、慧根，才配拥有七哥对战友的情与爱，希望自己每天不断进步提升自己，让自己成为七哥想要的战友的称号🙏🙏
@@ -19,14 +35,6 @@
 2022.06.24 NFSC fringe Episode 217
 
 <img src="https://media.gettr.com/group44/origin/2022/03/30/23/70323d02-9a5a-fa4f-b47c-760f492e878f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 12:07 AM UTC  - :tv:直播](/content/gettr/p1fmxw27be0.md)
-
-6月24号：【俄罗斯人不小心在卢甘斯克地区的阿尔切夫斯克轰炸了自己。】
-
-<img src="https://media.gettr.com/group27/getter/2022/06/25/00/05f142a8-1b66-f7e9-ba70-4930b35343ba/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@
 2022.06.24 新中国联邦 | 军情室 回顾2022基辅战役
 
 <img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 6:43 AM UTC  - :tv:直播](/content/gettr/p1fiy17dc52.md)
-
-【Miles Grand Live】6/22/2022: The great female judge in Connecticut rejected my petition of  withdrawing my bankruptcy case, even thought it means I've lost control over my assets, it actually prevent me from receiving an arrest war...
-
-<img src="https://media.gettr.com/group48/getter/2022/06/24/06/f586ad8e-3f33-696c-d199-dbdd41466948/out.jpg" width="506" height="284">
 
 ---
 
