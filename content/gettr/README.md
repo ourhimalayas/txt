@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1foisb7e4e.md)
+
+6/24/2022 Miles Guo: Without paying a penny, Wang Qishan managed to transfer the shares and the control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group. So, the contract of this deal is invalid, and...
+
+<img src="https://media.gettr.com/group26/getter/2022/06/25/05/093dfc86-8d9b-c20d-61a3-d167daf7bbdd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p1fp4e080ca.md)
 
 6/24/2022 Miles Guo: Once again, I am the first one to say this in humanity - In the next two to three years, many currencies in the world that are currently pegged with the US dollar will completely decouple from the dollar and wi...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/25/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1foisb7e4e.md)
+[@miles 6/25/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1foz0q1fef.md)
 
-6/24/2022 Miles Guo: Without paying a penny, Wang Qishan managed to transfer the shares and the control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group. So, the contract of this deal is invalid, and...
+6/24/2022 Miles Guo: The power of the Swamp is intelligence! The US is going to let the world sign the new taxation standard for the digital currency network. As long as the Himalaya Exchange pays tax sincerely, it will be the No. ...
 
-<img src="https://media.gettr.com/group26/getter/2022/06/25/05/093dfc86-8d9b-c20d-61a3-d167daf7bbdd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/06/25/07/b4915460-d839-071c-4de3-82c67523d9c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 大根谭112-潜水艇一家
 
 <img src="https://media.gettr.com/group6/origin/2022/06/24/22/4705ad38-fc05-103d-3c66-ee521076b9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmndxcc1f.md)
-
-2022.06.24 PM NFSC news   Abandoned By The World Swamp, CCP's Political Situation Has Been Doomed
-
-<img src="https://media.gettr.com/group27/origin/2022/06/24/22/ecedae7a-d867-1930-54fc-0eace90ea45b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
