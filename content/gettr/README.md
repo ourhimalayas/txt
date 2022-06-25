@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1fpip2ddb9.md)
+
+2022.06.25  早 新中国联邦 | 新闻  郭先生谈爆料北国投将造成的三方面影响；西方纵容中共盗国家族利用“天安门屠杀”实现军政洗牌
+
+<img src="https://media.gettr.com/group31/origin/2022/06/25/12/e70ce170-96ff-169e-7a92-93ea110b9d1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p1fpi84df04.md)
 
 2022.06.25 AM NFSC news Attendees in Deep Mountains are Willing to ShareWeal and Woe with the NFSC
@@ -54,11 +62,11 @@
 
 ---
 
-[@miles 6/25/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1fpip2ddb9.md)
+[@miles 6/25/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1fpwcxe296.md)
 
-2022.06.25  早 新中国联邦 | 新闻  郭先生谈爆料北国投将造成的三方面影响；西方纵容中共盗国家族利用“天安门屠杀”实现军政洗牌
+2022.06.25 早 新中国联邦 | 新闻访谈 多个国家和 #美元脱钩 ？#六四天安门事件 前的秘密；德英兩國排斥 #孔子学院
 
-<img src="https://media.gettr.com/group31/origin/2022/06/25/12/e70ce170-96ff-169e-7a92-93ea110b9d1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/06/25/13/485cd5f0-2248-e641-fd3f-d9cf9968a5d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 2022.06.24 晚 新中国联邦 | 新闻 沼泽地大佬表示 全球灭共正在进行中 开启找回王岐山非法藏匿海外财富的合法钥匙 郭先生爆中共高层借08金融危机开启与沼泽地合作之旅 放下所有借口
 
 <img src="https://media.gettr.com/group31/origin/2022/06/25/00/a3e469b9-7f81-df7a-ef6d-5421afcfc351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 12:07 AM UTC  - :tv:直播](/content/gettr/p1fmxw27be0.md)
-
-6月24号：【俄罗斯人不小心在卢甘斯克地区的阿尔切夫斯克轰炸了自己。】
-
-<img src="https://media.gettr.com/group27/getter/2022/06/25/00/05f142a8-1b66-f7e9-ba70-4930b35343ba/out.jpg" width="506" height="284">
 
 ---
 
