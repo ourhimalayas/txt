@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fpj7l0fd2.md)
+
+2022.06.25　NFSCニュース　　プーチンの核兵器を阻止した深層政府
+
+<img src="https://media.gettr.com/group50/origin/2022/06/25/11/d17bf3f1-14ca-c74f-9179-88a77d9ad351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1foz0q1fef.md)
 
 6/24/2022 Miles Guo: The power of the Swamp is intelligence! The US is going to let the world sign the new taxation standard for the digital currency network. As long as the Himalaya Exchange pays tax sincerely, it will be the No. ...
@@ -26,11 +34,15 @@
 
 ---
 
-[@miles 6/25/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fpj7l0fd2.md)
+[@miles 6/25/2022 11:49 AM UTC  - :tv:直播](/content/gettr/p1fpr0bc824.md)
 
-2022.06.25　NFSCニュース　　プーチンの核兵器を阻止した深層政府
+【Miles Grand Live】06/22/2022: Kleptocrat Wang Qishan grabbed the state property as his own -- Beijing International Trust Co., Ltd
 
-<img src="https://media.gettr.com/group50/origin/2022/06/25/11/d17bf3f1-14ca-c74f-9179-88a77d9ad351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+【文贵大直播】06/22/2022：盗国贼王岐山将国有财产据为己有──北国投
+
+<img src="https://media.gettr.com/group30/getter/2022/06/25/11/fea39bb0-48e7-4e3f-5f23-232274603d67/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +159,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 [@fangceo 6/24/2022 6:54 PM UTC ](/content/gettr/c16xg6ke6d6.md)
 
 不知道为什么每次听七哥演唱的歌都会流泪😭七哥对战友的情对战友的爱体现在每个字每个音符🎵，只有爱着七哥的人才能感受得到❤️如果没有爆料革命，我们这些草根族是永远不知道七哥爆料的世界里的一切，我们每天像听天书一样了解未知的世界，让我们开智如何做一个好人，如何找到我们自己的根气，发现我们可以成为心中的菩萨，我们要发现自己的善根、慧根，才配拥有七哥对战友的情与爱，希望自己每天不断进步提升自己，让自己成为七哥想要的战友的称号🙏🙏
-
----
-
-[@longwood 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmsk2d7c1.md)
-
-大根谭112-潜水艇一家
-
-<img src="https://media.gettr.com/group6/origin/2022/06/24/22/4705ad38-fc05-103d-3c66-ee521076b9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
