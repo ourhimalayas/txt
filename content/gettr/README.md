@@ -2,6 +2,14 @@
 ---
 
 
+[@jasonmillerindc 6/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1fpfgvaa25.md)
+
+Jason Goes To A BBQ…In Germany!!! 2022-06-25
+
+<img src="https://media.gettr.com/group30/getter/2022/06/25/13/db1dcbfa-6a0a-6fe0-5391-f40ee1feb33e/dc131d3a1bc46440f2f4e77560a32662.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 6:30 PM UTC  - :tv:直播](/content/gettr/p1fqg51f193.md)
 
 2022-6-25 《避风港》（64）男性疫苗接种者面临灾难性的生育风险
@@ -26,11 +34,11 @@
 
 ---
 
-[@jasonmillerindc 6/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1fpfgvaa25.md)
+[@miles 6/25/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1frowt5fa8.md)
 
-Jason Goes To A BBQ…In Germany!!! 2022-06-25
+2022.06.25  新中国联邦 | 喜健康  《妙手仁心》：乌克兰前线的铿锵玫瑰-专访一口大锅闹革命战友
 
-<img src="https://media.gettr.com/group30/getter/2022/06/25/13/db1dcbfa-6a0a-6fe0-5391-f40ee1feb33e/dc131d3a1bc46440f2f4e77560a32662.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/06/25/20/8f2d149e-4209-8af1-1ebe-c51c2ace2ace/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 2022-6-24《鸡血王喜币大作战》 第二百三十六集 嘉宾：无双柳薇薇、封神榜
 
 <img src="https://media.gettr.com/group49/origin/2022/06/25/03/858349e9-15cf-0554-80c0-22ad4226fc23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/25/2022 2:57 AM UTC ](/content/gettr/p1fnov9c66c.md)
-
-New heights of the Whistleblower Movement(WM) to take back the hidden wealth overseas of the Chinese Communist Party (CCP)
-
- On June 24, Mr. Miles Guo blew the whistle that China Energy Fund, Shenhua Investment, China Huaneng and C...
-
-<img src="https://media.gettr.com/group8/origin/2022/06/25/02/b75c5bfe-87f3-6d2c-03ba-b274c1f6566e/478f153d0031f97a7b85346e1ed6f462.png" width="506" height="284">
 
 ---
 
