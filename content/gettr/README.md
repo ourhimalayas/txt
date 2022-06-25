@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 4:58 PM UTC  - :tv:直播](/content/gettr/p1fq7xc2282.md)
+
+ 6月25号：我的乖乖嘞……
+
+<img src="https://media.gettr.com/group44/getter/2022/06/25/16/1f7d8eef-1ecf-ef42-d655-ff797870e5af/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 3:10 PM UTC  - :tv:直播](/content/gettr/p1fqbapa0e1.md)
 
  6月25号：尊敬的战友们好，你们健身了吗？一切都已经开始！
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/25/2022 4:58 PM UTC  - :tv:直播](/content/gettr/p1fq7xc2282.md)
+[@miles 6/25/2022 6:30 PM UTC  - :tv:直播](/content/gettr/p1fqg51f193.md)
 
- 6月25号：我的乖乖嘞……
+2022-6-25 《避风港》（64）男性疫苗接种者面临灾难性的生育风险
 
-<img src="https://media.gettr.com/group44/getter/2022/06/25/16/1f7d8eef-1ecf-ef42-d655-ff797870e5af/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/03/17/19/deef0939-08b2-0a3a-e820-612048cb78d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ New heights of the Whistleblower Movement(WM) to take back the hidden wealth ove
  On June 24, Mr. Miles Guo blew the whistle that China Energy Fund, Shenhua Investment, China Huaneng and C...
 
 <img src="https://media.gettr.com/group8/origin/2022/06/25/02/b75c5bfe-87f3-6d2c-03ba-b274c1f6566e/478f153d0031f97a7b85346e1ed6f462.png" width="506" height="284">
-
----
-
-[@miles 6/25/2022 2:15 AM UTC  - :tv:直播](/content/gettr/p1fnycf65ec.md)
-
-【Miles Grand Live】06/22/2022: The Lying Flat Coin will make up for the lack of quantity of HCN issuance and reach a truly global circulation. Digital currency is the unification of human power and finance, which will be the key to ...
-
-<img src="https://media.gettr.com/group41/getter/2022/06/25/02/8af06c92-e9d5-b3ff-8439-f8a57931e839/out.jpg" width="506" height="284">
 
 ---
 
