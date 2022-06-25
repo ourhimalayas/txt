@@ -2,17 +2,25 @@
 ---
 
 
+[@miles 6/25/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1fmste4c9b.md)
+
+2022.06.24 晚 新中国联邦 | 新闻 沼泽地大佬表示 全球灭共正在进行中 开启找回王岐山非法藏匿海外财富的合法钥匙 郭先生爆中共高层借08金融危机开启与沼泽地合作之旅 放下所有借口
+
+<img src="https://media.gettr.com/group31/origin/2022/06/25/00/a3e469b9-7f81-df7a-ef6d-5421afcfc351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 12:01 AM UTC ](/content/gettr/p1fmrq17f74.md)
 
 还记得奥地利当时出台一项规定，不接种疫苗的人最高面临3600欧元的罚款吗？这些规定因为不得民心从未真正实施过。 而现在，奥地利政府终于彻底取消了毒疫苗授权！！当然表面托词是因为造成了社会分裂，绝不会承认疫苗有毒。 对这个世界最有危害的职业绝对就是政客了……🙄🙄🙄 https://himoney.press/austria-drops-covid-19-vaccine-mandate-admits-social-division/ https://get...
 
 ---
 
-[@miles 6/25/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1fmste4c9b.md)
+[@miles 6/25/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1fncme05ed.md)
 
-2022.06.24 晚 新中国联邦 | 新闻 沼泽地大佬表示 全球灭共正在进行中 开启找回王岐山非法藏匿海外财富的合法钥匙 郭先生爆中共高层借08金融危机开启与沼泽地合作之旅 放下所有借口
+2022.06.24 晚 新中国联邦 | 新闻访谈 中共环球时报造谣比利时大游行是反对北约 中共出手！阿里等平台拟被禁止直接网上卖药！一句话带崩400亿 美最高院裁定人民有权在公共场所携枪 拜登批评
 
-<img src="https://media.gettr.com/group31/origin/2022/06/25/00/a3e469b9-7f81-df7a-ef6d-5421afcfc351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/06/25/01/a29ad0fe-768c-1e47-0466-22eb5e4fbdfa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@
 [Miles Grand Live] 06/22/2022: The ‘swamp’ bigwigs believe that the reason why HCN can still maintain a stable price amidst the current tide of wildly falling digital currencies is from faith and credit; only HDO is a truly central...
 
 <img src="https://media.gettr.com/group44/getter/2022/06/24/11/a4281c15-4dd4-2b9f-87a4-e2d06504294c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1fjyw72afe.md)
-
-2022.06.24 新中国联邦 | 军情室 回顾2022基辅战役
-
-<img src="https://media.gettr.com/group43/origin/2022/05/11/10/9292561f-e479-3970-ea1c-c15e99dea37a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
