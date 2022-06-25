@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/25/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p1fp4e080ca.md)
+
+6/24/2022 Miles Guo: Once again, I am the first one to say this in humanity - In the next two to three years, many currencies in the world that are currently pegged with the US dollar will completely decouple from the dollar and wi...
+
+<img src="https://media.gettr.com/group29/getter/2022/06/25/04/78e0e775-e472-96c3-33d0-e43a749111c7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 4:44 AM UTC  - :tv:直播](/content/gettr/p1fonkfc374.md)
+
+6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
+
+<img src="https://media.gettr.com/group18/getter/2022/06/25/04/5d618ea4-3674-1173-3863-294162c09e6c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 4:26 AM UTC  - :tv:直播](/content/gettr/p1foo9d2755.md)
 
 6月25号：新中国联邦的两年庆祝．招待的形式很失败呀😂😂😂😂😂😂😂😂😂😂
@@ -36,11 +52,11 @@ New heights of the Whistleblower Movement(WM) to take back the hidden wealth ove
 
 ---
 
-[@miles 6/25/2022 4:44 AM UTC  - :tv:直播](/content/gettr/p1fonkfc374.md)
+[@miles 6/25/2022 4:51 AM UTC  - :tv:直播](/content/gettr/p1fobly3ed9.md)
 
-6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
+6/24/2022 Miles Guo: Those in the Swamp told me about the financial note that was issued 9 years ago with the total being 135 billion dollars, which will be due in 2028. It was Beijing International Trust that offered the note guar...
 
-<img src="https://media.gettr.com/group18/getter/2022/06/25/04/5d618ea4-3674-1173-3863-294162c09e6c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/06/25/04/609ad45a-43a3-69ed-4ddf-eaca120ddb6d/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,22 +155,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 6/24/2022 Miles Guo:  In the CCP's detention center, there are various ways to torture someone to death, and the worst two are to starve you to death or make you die through mental inflictions. Several people related to Xiao Jianhu...
 
 <img src="https://media.gettr.com/group25/getter/2022/06/24/22/d2cbd884-d1b8-8b5b-580f-773c1b55e031/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1fn53j956f.md)
-
-（4K版）飞飞秀 《小皮匠谈警察局一日游》 2022-06-24
-
-<img src="https://media.gettr.com/group3/origin/2022/06/24/22/092d75a2-7255-45d0-66ee-167c4a3cee61/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1fmcm5d51a.md)
-
-【Miles Grand Live】06/22/2022: Intelligence from the swamp: the US and Europe have formed a strategy of never giving up, Asia will turn away from the CCP and join forces with the West to fight and eliminate the CCP； Xi's system will...
-
-<img src="https://media.gettr.com/group46/getter/2022/06/24/22/022b9b10-bc56-db90-2ba6-ea195da7021a/out.jpg" width="506" height="284">
 
 ---
 
