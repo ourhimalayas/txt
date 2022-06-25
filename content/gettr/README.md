@@ -2,6 +2,30 @@
 ---
 
 
+[@alittledimples 6/25/2022 7:34 PM UTC  - :tv:直播](/content/gettr/p1frgkk26fc.md)
+
+Angel小酒窝 直播 2022-06-25
+
+<img src="https://media.gettr.com/group6/liveorigin/2022/06/25/19/ffd23368-90ac-ad65-939c-c97c1b3ca75b/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
+[@zebresplendide 6/25/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p1fq52vbb4c.md)
+
+
+
+<img src="https://media.gettr.com/group29/gvision/2022/06/25/16/82fdd4db-9c3d-0d7a-31bc-d6f645f712ba/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1frowt5fa8.md)
+
+2022.06.25  新中国联邦 | 喜健康  《妙手仁心》：乌克兰前线的铿锵玫瑰-专访一口大锅闹革命战友
+
+<img src="https://media.gettr.com/group41/origin/2022/06/25/20/8f2d149e-4209-8af1-1ebe-c51c2ace2ace/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@jasonmillerindc 6/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1fpfgvaa25.md)
 
 Jason Goes To A BBQ…In Germany!!! 2022-06-25
@@ -34,11 +58,11 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 
 ---
 
-[@miles 6/25/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1frowt5fa8.md)
+[@jasonmillerindc 6/13/2022 1:42 AM UTC  - :tv:直播](/content/gettr/p1dveef75a0.md)
 
-2022.06.25  新中国联邦 | 喜健康  《妙手仁心》：乌克兰前线的铿锵玫瑰-专访一口大锅闹革命战友
+#CPACBrasil2022 keeps getting better and better! 🇧🇷
 
-<img src="https://media.gettr.com/group41/origin/2022/06/25/20/8f2d149e-4209-8af1-1ebe-c51c2ace2ace/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group49/gvision/2022/06/13/01/dde3c763-032c-0a9d-9fc4-8f84b3c950ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,30 +163,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 6/24/2022 Miles Guo: Those in the Swamp told me about the financial note that was issued 9 years ago with the total being 135 billion dollars, which will be due in 2028. It was Beijing International Trust that offered the note guar...
 
 <img src="https://media.gettr.com/group41/getter/2022/06/25/04/609ad45a-43a3-69ed-4ddf-eaca120ddb6d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 4:44 AM UTC  - :tv:直播](/content/gettr/p1fonkfc374.md)
-
-6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
-
-<img src="https://media.gettr.com/group18/getter/2022/06/25/04/5d618ea4-3674-1173-3863-294162c09e6c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 4:26 AM UTC  - :tv:直播](/content/gettr/p1foo9d2755.md)
-
-6月25号：新中国联邦的两年庆祝．招待的形式很失败呀😂😂😂😂😂😂😂😂😂😂
-
-<img src="https://media.gettr.com/group5/getter/2022/06/25/04/a878e1dc-c789-1a92-cf14-813f597641d4/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1fnticd3f1.md)
-
-2022-6-24《鸡血王喜币大作战》 第二百三十六集 嘉宾：无双柳薇薇、封神榜
-
-<img src="https://media.gettr.com/group49/origin/2022/06/25/03/858349e9-15cf-0554-80c0-22ad4226fc23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
