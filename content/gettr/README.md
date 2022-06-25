@@ -10,6 +10,20 @@
 
 ---
 
+[@fangceo 6/24/2022 6:54 PM UTC ](/content/gettr/c16xg6ke6d6.md)
+
+不知道为什么每次听七哥演唱的歌都会流泪😭七哥对战友的情对战友的爱体现在每个字每个音符🎵，只有爱着七哥的人才能感受得到❤️如果没有爆料革命，我们这些草根族是永远不知道七哥爆料的世界里的一切，我们每天像听天书一样了解未知的世界，让我们开智如何做一个好人，如何找到我们自己的根气，发现我们可以成为心中的菩萨，我们要发现自己的善根、慧根，才配拥有七哥对战友的情与爱，希望自己每天不断进步提升自己，让自己成为七哥想要的战友的称号🙏🙏
+
+---
+
+[@longwood 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmsk2d7c1.md)
+
+大根谭112-潜水艇一家
+
+<img src="https://media.gettr.com/group6/origin/2022/06/24/22/4705ad38-fc05-103d-3c66-ee521076b9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmndxcc1f.md)
 
 2022.06.24 PM NFSC news   Abandoned By The World Swamp, CCP's Political Situation Has Been Doomed
@@ -31,14 +45,6 @@
 6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers'  Movement, and t...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/24/22/3d300d22-acc0-7c58-822c-45770f70bb6e/out.jpg" width="506" height="284">
-
----
-
-[@longwood 6/24/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1fmsk2d7c1.md)
-
-大根谭112-潜水艇一家
-
-<img src="https://media.gettr.com/group6/origin/2022/06/24/22/4705ad38-fc05-103d-3c66-ee521076b9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +169,6 @@
 【文贵大直播】6/22/202...
 
 <img src="https://media.gettr.com/group9/getter/2022/06/24/04/cdf0de25-bc1e-8109-7a48-a7cb79d469d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 4:38 AM UTC  - :tv:直播](/content/gettr/p1fhe2m6d24.md)
-
-【Miles Grand Live】6/22/2022: The CCP's qualification as the agent on behalf of the Swamp has been revoked. The Swamp believes that both Xi Jinping and Wang Qishan are over, and they're talking to several major families of the CCP s...
-
-<img src="https://media.gettr.com/group7/getter/2022/06/24/03/0b49e514-5405-8038-2511-080022055f4d/out.jpg" width="506" height="284">
 
 ---
 
