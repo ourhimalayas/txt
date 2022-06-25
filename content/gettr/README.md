@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p1fpi84df04.md)
+
+2022.06.25 AM NFSC news Attendees in Deep Mountains are Willing to ShareWeal and Woe with the NFSC
+
+<img src="https://media.gettr.com/group21/origin/2022/05/02/11/ed843c2e-3299-adf7-1dad-3554ecf11897/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 11:49 AM UTC  - :tv:直播](/content/gettr/p1fpr0bc824.md)
 
 【Miles Grand Live】06/22/2022: Kleptocrat Wang Qishan grabbed the state property as his own -- Beijing International Trust Co., Ltd
@@ -46,11 +54,11 @@
 
 ---
 
-[@miles 6/25/2022 12:11 PM UTC  - :tv:直播](/content/gettr/p1fpi84df04.md)
+[@miles 6/25/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1fpip2ddb9.md)
 
-2022.06.25 AM NFSC news Attendees in Deep Mountains are Willing to ShareWeal and Woe with the NFSC
+2022.06.25  早 新中国联邦 | 新闻  郭先生谈爆料北国投将造成的三方面影响；西方纵容中共盗国家族利用“天安门屠杀”实现军政洗牌
 
-<img src="https://media.gettr.com/group21/origin/2022/05/02/11/ed843c2e-3299-adf7-1dad-3554ecf11897/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/06/25/12/e70ce170-96ff-169e-7a92-93ea110b9d1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,12 +155,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 2022.06.24 晚 新中国联邦 | 新闻 沼泽地大佬表示 全球灭共正在进行中 开启找回王岐山非法藏匿海外财富的合法钥匙 郭先生爆中共高层借08金融危机开启与沼泽地合作之旅 放下所有借口
 
 <img src="https://media.gettr.com/group31/origin/2022/06/25/00/a3e469b9-7f81-df7a-ef6d-5421afcfc351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 12:01 AM UTC ](/content/gettr/p1fmrq17f74.md)
-
-还记得奥地利当时出台一项规定，不接种疫苗的人最高面临3600欧元的罚款吗？这些规定因为不得民心从未真正实施过。 而现在，奥地利政府终于彻底取消了毒疫苗授权！！当然表面托词是因为造成了社会分裂，绝不会承认疫苗有毒。 对这个世界最有危害的职业绝对就是政客了……🙄🙄🙄 https://himoney.press/austria-drops-covid-19-vaccine-mandate-admits-social-division/ https://get...
 
 ---
 
