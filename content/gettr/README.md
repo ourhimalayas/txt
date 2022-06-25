@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1foz0q1fef.md)
+
+6/24/2022 Miles Guo: The power of the Swamp is intelligence! The US is going to let the world sign the new taxation standard for the digital currency network. As long as the Himalaya Exchange pays tax sincerely, it will be the No. ...
+
+<img src="https://media.gettr.com/group43/getter/2022/06/25/07/b4915460-d839-071c-4de3-82c67523d9c3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1foisb7e4e.md)
 
 6/24/2022 Miles Guo: Without paying a penny, Wang Qishan managed to transfer the shares and the control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group. So, the contract of this deal is invalid, and...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/25/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1foz0q1fef.md)
+[@miles 6/25/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fpj7l0fd2.md)
 
-6/24/2022 Miles Guo: The power of the Swamp is intelligence! The US is going to let the world sign the new taxation standard for the digital currency network. As long as the Himalaya Exchange pays tax sincerely, it will be the No. ...
+2022.06.25　NFSCニュース　　プーチンの核兵器を阻止した深層政府
 
-<img src="https://media.gettr.com/group43/getter/2022/06/25/07/b4915460-d839-071c-4de3-82c67523d9c3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/06/25/11/d17bf3f1-14ca-c74f-9179-88a77d9ad351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -139,14 +147,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 [@fangceo 6/24/2022 6:54 PM UTC ](/content/gettr/c16xg6ke6d6.md)
 
 不知道为什么每次听七哥演唱的歌都会流泪😭七哥对战友的情对战友的爱体现在每个字每个音符🎵，只有爱着七哥的人才能感受得到❤️如果没有爆料革命，我们这些草根族是永远不知道七哥爆料的世界里的一切，我们每天像听天书一样了解未知的世界，让我们开智如何做一个好人，如何找到我们自己的根气，发现我们可以成为心中的菩萨，我们要发现自己的善根、慧根，才配拥有七哥对战友的情与爱，希望自己每天不断进步提升自己，让自己成为七哥想要的战友的称号🙏🙏
-
----
-
-[@miles 6/24/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1fmnjx53d9.md)
-
-2022.06.24 NFSC fringe Episode 217
-
-<img src="https://media.gettr.com/group44/origin/2022/03/30/23/70323d02-9a5a-fa4f-b47c-760f492e878f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
