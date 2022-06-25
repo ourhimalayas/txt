@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 6/25/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1fna8u4313.md)
+
+2022.06.24 新中国联邦 | 喜财经 第89期  美联储将推出央行数字货币 比特币失守2万美元大关
+
+<img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 1:37 AM UTC ](/content/gettr/p1fnim4e5a5.md)
+
+Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专场 歌手：歌手：甜甜 @haotiantian 钢琴/歌手：QMay
+
+---
+
 [@miles 6/25/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1fncme05ed.md)
 
 2022.06.24 晚 新中国联邦 | 新闻访谈 中共环球时报造谣比利时大游行是反对北约 中共出手！阿里等平台拟被禁止直接网上卖药！一句话带崩400亿 美最高院裁定人民有权在公共场所携枪 拜登批评
@@ -24,9 +38,11 @@
 
 ---
 
-[@miles 6/25/2022 1:37 AM UTC ](/content/gettr/p1fnim4e5a5.md)
+[@miles 6/25/2022 2:12 AM UTC  - :tv:直播](/content/gettr/p1fnkh7a0d7.md)
 
-Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专场 歌手：歌手：甜甜 @haotiantian 钢琴/歌手：QMay
+【Miles Grand Live】06/22/2022: Mr. Miles Guo  refused to be the proxy of the 'swamp'. We, the NFSC people, must always remember the promise to stay out of any Chinese regime and we must never promise to bring democracy to China and ...
+
+<img src="https://media.gettr.com/group6/getter/2022/06/25/02/6a3037a3-3401-6612-79bf-ecba861ad58a/out.jpg" width="506" height="284">
 
 ---
 
@@ -128,18 +144,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 
 ---
 
-[@miles 6/24/2022 12:45 PM UTC  - :tv:直播](/content/gettr/p1fjybndd13.md)
-
-【Miles Grand Live】06/22/2022: Almost all the money in banks in China has been emptied by the ‘swamp’ and Wang Qishan through the game of financial instruments. The real disaster hasn't come yet.
-
-
-
-【文贵大直播】06/22/2022：中共国银行的钱几乎都被沼泽地和...
-
-<img src="https://media.gettr.com/group34/getter/2022/06/24/12/8b18a25a-2d72-c28f-3220-2d7360fd7902/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/24/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1fkqsj77be.md)
 
 2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （1080P版）
@@ -153,14 +157,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 2022年6月24日 文贵大直播：七哥出山爆大料；中共死期已然到；时代变革高科技；无苗有币最风骚；世界经济大海啸；中国面临脱钩潮；爆料革命新生代；扎扎实实向前跑 （4K版）
 
 <img src="https://media.gettr.com/group23/origin/2022/06/24/12/949d73fb-516f-2c75-aff0-6c5c1dde7f56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fkehu6ba1.md)
-
-20220624 NFSCNFSCニュース　　これから、世界の主宰者達は新中国連邦と生死を共にする
-
-<img src="https://media.gettr.com/group18/origin/2022/06/24/11/a1ce7cf0-1d49-9d24-b199-b8f404ebc9e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
