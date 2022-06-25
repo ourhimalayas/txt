@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1fnticd3f1.md)
+
+2022-6-24《鸡血王喜币大作战》 第二百三十六集 嘉宾：无双柳薇薇、封神榜
+
+<img src="https://media.gettr.com/group49/origin/2022/06/25/03/858349e9-15cf-0554-80c0-22ad4226fc23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 2:57 AM UTC ](/content/gettr/p1fnov9c66c.md)
 
 New heights of the Whistleblower Movement(WM) to take back the hidden wealth overseas of the Chinese Communist Party (CCP)
@@ -20,11 +28,11 @@ New heights of the Whistleblower Movement(WM) to take back the hidden wealth ove
 
 ---
 
-[@miles 6/25/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1fnticd3f1.md)
+[@miles 6/25/2022 4:26 AM UTC  - :tv:直播](/content/gettr/p1foo9d2755.md)
 
-2022-6-24《鸡血王喜币大作战》 第二百三十六集 嘉宾：无双柳薇薇、封神榜
+6月25号：新中国联邦的两年庆祝．招待的形式很失败呀😂😂😂😂😂😂😂😂😂😂
 
-<img src="https://media.gettr.com/group49/origin/2022/06/25/03/858349e9-15cf-0554-80c0-22ad4226fc23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/06/25/04/a878e1dc-c789-1a92-cf14-813f597641d4/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 【Miles Grand Live】06/22/2022: Intelligence from the swamp: the US and Europe have formed a strategy of never giving up, Asia will turn away from the CCP and join forces with the West to fight and eliminate the CCP； Xi's system will...
 
 <img src="https://media.gettr.com/group46/getter/2022/06/24/22/022b9b10-bc56-db90-2ba6-ea195da7021a/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 8:02 PM UTC  - :tv:直播](/content/gettr/p1flqmhc891.md)
-
-2022年6月24日  新中国联邦 | 喜健康  《寻医问药》美国执业家庭医生在线答疑、青蒿素服用注意事项；《心理访谈》清晨的日光 人性的光辉
-
-<img src="https://media.gettr.com/group8/origin/2022/06/24/19/a2829426-ac8b-55e1-e48d-b237d39e5693/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
