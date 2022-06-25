@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/25/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1frmjnf48b.md)
+
+（4K版）飞飞秀 《出山篇·博物馆 》 2022-06-25
+
+For English: gettr.com/streaming/p1frg2n7892
+
+<img src="https://media.gettr.com/group27/origin/2022/06/25/22/f779eb16-54d0-621d-c1e0-77f9fb910057/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@alittledimples 6/25/2022 7:34 PM UTC  - :tv:直播](/content/gettr/p1frgkk26fc.md)
 
 Angel小酒窝 直播 2022-06-25
@@ -10,11 +20,29 @@ Angel小酒窝 直播 2022-06-25
 
 ---
 
+[@miles 6/25/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1frbg407e2.md)
+
+(1080版) 飞飞秀 《出山篇·博物馆 》 2022-06-25
+
+For English: gettr.com/streaming/p1frg2n789
+
+<img src="https://media.gettr.com/group18/origin/2022/06/25/22/e6ab5e09-b665-b456-36e9-179f64768043/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@zebresplendide 6/25/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p1fq52vbb4c.md)
 
 
 
 <img src="https://media.gettr.com/group29/gvision/2022/06/25/16/82fdd4db-9c3d-0d7a-31bc-d6f645f712ba/out.jpg" width="506" height="284">
+
+---
+
+[@jasonmillerindc 6/13/2022 1:42 AM UTC  - :tv:直播](/content/gettr/p1dveef75a0.md)
+
+#CPACBrasil2022 keeps getting better and better! 🇧🇷
+
+<img src="https://media.gettr.com/group49/gvision/2022/06/13/01/dde3c763-032c-0a9d-9fc4-8f84b3c950ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -55,14 +83,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
  6月25号：尊敬的战友们好，你们健身了吗？一切都已经开始！
 
 <img src="https://media.gettr.com/group33/getter/2022/06/25/15/3ed530ee-adb9-65bf-c9dc-e8f1d4c6e3c7/out.jpg" width="506" height="284">
-
----
-
-[@jasonmillerindc 6/13/2022 1:42 AM UTC  - :tv:直播](/content/gettr/p1dveef75a0.md)
-
-#CPACBrasil2022 keeps getting better and better! 🇧🇷
-
-<img src="https://media.gettr.com/group49/gvision/2022/06/13/01/dde3c763-032c-0a9d-9fc4-8f84b3c950ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,22 +167,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 6/24/2022 Miles Guo: Without paying a penny, Wang Qishan managed to transfer the shares and the control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group. So, the contract of this deal is invalid, and...
 
 <img src="https://media.gettr.com/group26/getter/2022/06/25/05/093dfc86-8d9b-c20d-61a3-d167daf7bbdd/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p1fp4e080ca.md)
-
-6/24/2022 Miles Guo: Once again, I am the first one to say this in humanity - In the next two to three years, many currencies in the world that are currently pegged with the US dollar will completely decouple from the dollar and wi...
-
-<img src="https://media.gettr.com/group29/getter/2022/06/25/04/78e0e775-e472-96c3-33d0-e43a749111c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 4:51 AM UTC  - :tv:直播](/content/gettr/p1fobly3ed9.md)
-
-6/24/2022 Miles Guo: Those in the Swamp told me about the financial note that was issued 9 years ago with the total being 135 billion dollars, which will be due in 2028. It was Beijing International Trust that offered the note guar...
-
-<img src="https://media.gettr.com/group41/getter/2022/06/25/04/609ad45a-43a3-69ed-4ddf-eaca120ddb6d/out.jpg" width="506" height="284">
 
 ---
 
