@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1frp91ec4c.md)
+
+6/24/2022 Miles Guo: Through making numerous loans with the same deposit as a guarantee, the CCP kleptocrats such as Wang Qishan have stolen huge amounts of wealth from Chinese people without paying a single penny! However, the Swa...
+
+<img src="https://media.gettr.com/group37/getter/2022/06/25/22/10c7d84c-2c19-67da-eec9-32c1d89a21ae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1frmjnf48b.md)
 
 （4K版）飞飞秀 《出山篇·博物馆 》 2022-06-25
@@ -12,11 +20,11 @@ For English: gettr.com/streaming/p1frg2n7892
 
 ---
 
-[@alittledimples 6/25/2022 7:34 PM UTC  - :tv:直播](/content/gettr/p1frgkk26fc.md)
+[@miles 6/25/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1frcged475.md)
 
-Angel小酒窝 直播 2022-06-25
+6/24/2022 Miles Guo: The incident of the assault on female diners in Tangshan has been happening everywhere and every day in Communist China. Why does the CCP turn a blind eye to it? The CCP is the largest mafia in Communist China,...
 
-<img src="https://media.gettr.com/group6/liveorigin/2022/06/25/19/ffd23368-90ac-ad65-939c-c97c1b3ca75b/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/06/25/22/935e30d5-9e8b-a811-2761-c7300ac5cc6e/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +35,14 @@ Angel小酒窝 直播 2022-06-25
 For English: gettr.com/streaming/p1frg2n789
 
 <img src="https://media.gettr.com/group18/origin/2022/06/25/22/e6ab5e09-b665-b456-36e9-179f64768043/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@alittledimples 6/25/2022 7:34 PM UTC  - :tv:直播](/content/gettr/p1frgkk26fc.md)
+
+Angel小酒窝 直播 2022-06-25
+
+<img src="https://media.gettr.com/group6/liveorigin/2022/06/25/19/ffd23368-90ac-ad65-939c-c97c1b3ca75b/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -151,22 +167,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 2022.06.25　NFSCニュース　　プーチンの核兵器を阻止した深層政府
 
 <img src="https://media.gettr.com/group50/origin/2022/06/25/11/d17bf3f1-14ca-c74f-9179-88a77d9ad351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 7:25 AM UTC  - :tv:直播](/content/gettr/p1foz0q1fef.md)
-
-6/24/2022 Miles Guo: The power of the Swamp is intelligence! The US is going to let the world sign the new taxation standard for the digital currency network. As long as the Himalaya Exchange pays tax sincerely, it will be the No. ...
-
-<img src="https://media.gettr.com/group43/getter/2022/06/25/07/b4915460-d839-071c-4de3-82c67523d9c3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p1foisb7e4e.md)
-
-6/24/2022 Miles Guo: Without paying a penny, Wang Qishan managed to transfer the shares and the control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group. So, the contract of this deal is invalid, and...
-
-<img src="https://media.gettr.com/group26/getter/2022/06/25/05/093dfc86-8d9b-c20d-61a3-d167daf7bbdd/out.jpg" width="506" height="284">
 
 ---
 
