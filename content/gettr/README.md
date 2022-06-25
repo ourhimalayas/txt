@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/25/2022 2:57 AM UTC ](/content/gettr/p1fnov9c66c.md)
+
+New heights of the Whistleblower Movement(WM) to take back the hidden wealth overseas of the Chinese Communist Party (CCP)
+
+ On June 24, Mr. Miles Guo blew the whistle that China Energy Fund, Shenhua Investment, China Huaneng and C...
+
+<img src="https://media.gettr.com/group8/origin/2022/06/25/02/b75c5bfe-87f3-6d2c-03ba-b274c1f6566e/478f153d0031f97a7b85346e1ed6f462.png" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 2:15 AM UTC  - :tv:直播](/content/gettr/p1fnycf65ec.md)
 
 【Miles Grand Live】06/22/2022: The Lying Flat Coin will make up for the lack of quantity of HCN issuance and reach a truly global circulation. Digital currency is the unification of human power and finance, which will be the key to ...
@@ -10,13 +20,11 @@
 
 ---
 
-[@miles 6/25/2022 2:57 AM UTC ](/content/gettr/p1fnov9c66c.md)
+[@miles 6/25/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1fnticd3f1.md)
 
-New heights of the Whistleblower Movement(WM) to take back the hidden wealth overseas of the Chinese Communist Party (CCP)
+2022-6-24《鸡血王喜币大作战》 第二百三十六集 嘉宾：无双柳薇薇、封神榜
 
- On June 24, Mr. Miles Guo blew the whistle that China Energy Fund, Shenhua Investment, China Huaneng and C...
-
-<img src="https://media.gettr.com/group8/origin/2022/06/25/02/b75c5bfe-87f3-6d2c-03ba-b274c1f6566e/478f153d0031f97a7b85346e1ed6f462.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/06/25/03/858349e9-15cf-0554-80c0-22ad4226fc23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 2022年6月24日  新中国联邦 | 喜健康  《寻医问药》美国执业家庭医生在线答疑、青蒿素服用注意事项；《心理访谈》清晨的日光 人性的光辉
 
 <img src="https://media.gettr.com/group8/origin/2022/06/24/19/a2829426-ac8b-55e1-e48d-b237d39e5693/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/24/2022 5:04 PM UTC  - :tv:直播](/content/gettr/p1fl1mk882d.md)
-
-2022年6月24日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group42/origin/2022/06/24/16/cd817194-7fe2-f196-b715-19800f80a534/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
