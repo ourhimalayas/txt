@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1fpwcxe296.md)
+
+2022.06.25 早 新中国联邦 | 新闻访谈 多个国家和 #美元脱钩 ？#六四天安门事件 前的秘密；德英兩國排斥 #孔子学院
+
+<img src="https://media.gettr.com/group8/origin/2022/06/25/13/485cd5f0-2248-e641-fd3f-d9cf9968a5d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1fpip2ddb9.md)
 
 2022.06.25  早 新中国联邦 | 新闻  郭先生谈爆料北国投将造成的三方面影响；西方纵容中共盗国家族利用“天安门屠杀”实现军政洗牌
@@ -62,11 +70,11 @@
 
 ---
 
-[@miles 6/25/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1fpwcxe296.md)
+[@miles 6/25/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1fpm40b810.md)
 
-2022.06.25 早 新中国联邦 | 新闻访谈 多个国家和 #美元脱钩 ？#六四天安门事件 前的秘密；德英兩國排斥 #孔子学院
+6/24/2022 Miles Guo: The Hong Kong dollar is bound to collapse! The collapse of the HK dollar is the beginning of the collapse of the CNY. As many countries around the world decouple from the US dollar, Himalaya Exchange will be th...
 
-<img src="https://media.gettr.com/group8/origin/2022/06/25/13/485cd5f0-2248-e641-fd3f-d9cf9968a5d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/06/25/13/4498e770-04b9-7031-d257-c938b1720958/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Super-May线上直播音乐会 第十三期：她的歌——Tian-May情歌专�
 2022.06.24 晚 新中国联邦 | 新闻访谈 中共环球时报造谣比利时大游行是反对北约 中共出手！阿里等平台拟被禁止直接网上卖药！一句话带崩400亿 美最高院裁定人民有权在公共场所携枪 拜登批评
 
 <img src="https://media.gettr.com/group6/origin/2022/06/25/01/a29ad0fe-768c-1e47-0466-22eb5e4fbdfa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/25/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1fmste4c9b.md)
-
-2022.06.24 晚 新中国联邦 | 新闻 沼泽地大佬表示 全球灭共正在进行中 开启找回王岐山非法藏匿海外财富的合法钥匙 郭先生爆中共高层借08金融危机开启与沼泽地合作之旅 放下所有借口
-
-<img src="https://media.gettr.com/group31/origin/2022/06/25/00/a3e469b9-7f81-df7a-ef6d-5421afcfc351/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
