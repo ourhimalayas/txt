@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1frp9h0d22.md)
+
+2022.06.25 PM NFSC News   “Swamp” Tycoons Say Global Effort to Take Down the CCP is Underway.
+
+<img src="https://media.gettr.com/group25/origin/2022/06/25/22/11b7139a-8217-62b1-a874-f307489fa5d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1frp91ec4c.md)
 
 6/24/2022 Miles Guo: Through making numerous loans with the same deposit as a guarantee, the CCP kleptocrats such as Wang Qishan have stolen huge amounts of wealth from Chinese people without paying a single penny! However, the Swa...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/25/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1frp9h0d22.md)
+[@miles 6/25/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1frrjo12a6.md)
 
-2022.06.25 PM NFSC News   “Swamp” Tycoons Say Global Effort to Take Down the CCP is Underway.
+2022.06.25 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
-<img src="https://media.gettr.com/group25/origin/2022/06/25/22/11b7139a-8217-62b1-a874-f307489fa5d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/06/25/23/52ad6bf8-fc3f-0663-4896-3335ba88843d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,18 +163,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 2022.06.25 AM NFSC news Attendees in Deep Mountains are Willing to ShareWeal and Woe with the NFSC
 
 <img src="https://media.gettr.com/group21/origin/2022/05/02/11/ed843c2e-3299-adf7-1dad-3554ecf11897/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/25/2022 11:49 AM UTC  - :tv:直播](/content/gettr/p1fpr0bc824.md)
-
-【Miles Grand Live】06/22/2022: Kleptocrat Wang Qishan grabbed the state property as his own -- Beijing International Trust Co., Ltd
-
-
-
-【文贵大直播】06/22/2022：盗国贼王岐山将国有财产据为己有──北国投
-
-<img src="https://media.gettr.com/group30/getter/2022/06/25/11/fea39bb0-48e7-4e3f-5f23-232274603d67/out.jpg" width="506" height="284">
 
 ---
 
