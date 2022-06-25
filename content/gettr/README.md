@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/25/2022 6:30 PM UTC  - :tv:直播](/content/gettr/p1fqg51f193.md)
+
+2022-6-25 《避风港》（64）男性疫苗接种者面临灾难性的生育风险
+
+<img src="https://media.gettr.com/group45/origin/2022/03/17/19/deef0939-08b2-0a3a-e820-612048cb78d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 4:58 PM UTC  - :tv:直播](/content/gettr/p1fq7xc2282.md)
 
  6月25号：我的乖乖嘞……
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/25/2022 6:30 PM UTC  - :tv:直播](/content/gettr/p1fqg51f193.md)
+[@jasonmillerindc 6/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1fpfgvaa25.md)
 
-2022-6-25 《避风港》（64）男性疫苗接种者面临灾难性的生育风险
+Jason Goes To A BBQ…In Germany!!! 2022-06-25
 
-<img src="https://media.gettr.com/group45/origin/2022/03/17/19/deef0939-08b2-0a3a-e820-612048cb78d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/06/25/13/db1dcbfa-6a0a-6fe0-5391-f40ee1feb33e/dc131d3a1bc46440f2f4e77560a32662.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ New heights of the Whistleblower Movement(WM) to take back the hidden wealth ove
  On June 24, Mr. Miles Guo blew the whistle that China Energy Fund, Shenhua Investment, China Huaneng and C...
 
 <img src="https://media.gettr.com/group8/origin/2022/06/25/02/b75c5bfe-87f3-6d2c-03ba-b274c1f6566e/478f153d0031f97a7b85346e1ed6f462.png" width="506" height="284">
-
----
-
-[@miles 6/25/2022 2:17 AM UTC  - :tv:直播](/content/gettr/p1fo1kv9293.md)
-
-6/24/2022 Miles Guo: The stability of Himalaya Coin is essential for it to become a circulating currency in the future, and only then will the wealth of our fellow fighters be safeguarded. The Swamp followed my advice and did not t...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/25/02/5ac4eb92-f385-d5e6-2130-e04b781fc321/out.jpg" width="506" height="284">
 
 ---
 
