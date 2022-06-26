@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fu3eq7936.md)
+
+2022.06.26  NFSCニュース　　香港ドルの支えがない人民元はただの紙屑
+
+<img src="https://media.gettr.com/group9/origin/2022/06/26/11/b078a329-2162-6ed3-f7cc-720392f81bfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 9:58 AM UTC  - :tv:直播](/content/gettr/p1ft4exb3de.md)
 
 6月26日 喜财经周日沙龙第七期——数字银行与数字货币
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 6/26/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fu3eq7936.md)
+[@miles 6/26/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1fubld4bed.md)
 
-2022.06.26  NFSCニュース　　香港ドルの支えがない人民元はただの紙屑
+2022.06.26 AM NFSC news  U.S. Working on Establishing Cryptocurrency Tax Standards
 
-<img src="https://media.gettr.com/group9/origin/2022/06/26/11/b078a329-2162-6ed3-f7cc-720392f81bfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Angel小酒窝 直播 2022-06-25
 2022-6-25 《避风港》（64）男性疫苗接种者面临灾难性的生育风险
 
 <img src="https://media.gettr.com/group45/origin/2022/03/17/19/deef0939-08b2-0a3a-e820-612048cb78d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 4:58 PM UTC  - :tv:直播](/content/gettr/p1fq7xc2282.md)
-
- 6月25号：我的乖乖嘞……
-
-<img src="https://media.gettr.com/group44/getter/2022/06/25/16/1f7d8eef-1ecf-ef42-d655-ff797870e5af/out.jpg" width="506" height="284">
 
 ---
 
