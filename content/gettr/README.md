@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 6/25/2022 3:10 PM UTC  - :tv:直播](/content/gettr/p1fqbapa0e1.md)
+
+ 6月25号：尊敬的战友们好，你们健身了吗？一切都已经开始！
+
+<img src="https://media.gettr.com/group33/getter/2022/06/25/15/3ed530ee-adb9-65bf-c9dc-e8f1d4c6e3c7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/25/2022 3:11 PM UTC  - :tv:直播](/content/gettr/p1fq6ld7997.md)
+
+新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG （1080P版）
+
+For English: https://gettr.com/streaming/p1fq6o1d8f1
+
+<img src="https://media.gettr.com/group49/origin/2022/06/25/14/fe06938f-2739-35b4-25f4-28c51addb17f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1fslp1f186.md)
+
+2022-6-25《鸡血王喜币大作战》 第二百三十七集 嘉宾：卡丽熙、Happy
+
+<img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fsgbb9dd6.md)
 
 6/24/2022 Miles Guo: Just like myself, our fellow fighters risked their own and their family's lives to join the Whistleblowers' Movement. We are equal; fellow fighters, be yourself and don't get swayed by others' opinions!
@@ -27,14 +53,6 @@
 2022.06.25 晚   新中国联邦 | 新闻访谈  知网被安全审查 墙内网络审查攀上新高度  美国最高法院裁定：人民有权在公共场所持枪
 
 <img src="https://media.gettr.com/group26/origin/2022/06/26/01/974aaeaa-818e-8984-5960-60c1efafe040/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1fslp1f186.md)
-
-2022-6-25《鸡血王喜币大作战》 第二百三十七集 嘉宾：卡丽熙、Happy
-
-<img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -122,27 +140,11 @@ Angel小酒窝 直播 2022-06-25
 
 ---
 
-[@jasonmillerindc 6/13/2022 1:42 AM UTC  - :tv:直播](/content/gettr/p1dveef75a0.md)
-
-#CPACBrasil2022 keeps getting better and better! 🇧🇷
-
-<img src="https://media.gettr.com/group49/gvision/2022/06/13/01/dde3c763-032c-0a9d-9fc4-8f84b3c950ac/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/25/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p1frowt5fa8.md)
 
 2022.06.25  新中国联邦 | 喜健康  《妙手仁心》：乌克兰前线的铿锵玫瑰-专访一口大锅闹革命战友
 
 <img src="https://media.gettr.com/group41/origin/2022/06/25/20/8f2d149e-4209-8af1-1ebe-c51c2ace2ace/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@jasonmillerindc 6/25/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p1fpfgvaa25.md)
-
-Jason Goes To A BBQ…In Germany!!! 2022-06-25
-
-<img src="https://media.gettr.com/group30/getter/2022/06/25/13/db1dcbfa-6a0a-6fe0-5391-f40ee1feb33e/dc131d3a1bc46440f2f4e77560a32662.jpg" width="506" height="284">
 
 ---
 
