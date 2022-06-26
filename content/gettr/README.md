@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 9:58 AM UTC  - :tv:直播](/content/gettr/p1ft4exb3de.md)
+
+6月26日 喜财经周日沙龙第七期——数字银行与数字货币
+
+<img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 6:43 AM UTC  - :tv:直播](/content/gettr/p1fss4b0602.md)
 
 【Miles Grand Live】6/22/2022: The key takeaway of today’s live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/26/2022 9:58 AM UTC  - :tv:直播](/content/gettr/p1ft4exb3de.md)
+[@miles 6/26/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fu3eq7936.md)
 
-6月26日 喜财经周日沙龙第七期——数字银行与数字货币
+2022.06.26  NFSCニュース　　香港ドルの支えがない人民元はただの紙屑
 
-<img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/06/26/11/b078a329-2162-6ed3-f7cc-720392f81bfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Angel小酒窝 直播 2022-06-25
  6月25号：我的乖乖嘞……
 
 <img src="https://media.gettr.com/group44/getter/2022/06/25/16/1f7d8eef-1ecf-ef42-d655-ff797870e5af/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 3:14 PM UTC  - :tv:直播](/content/gettr/p1fq8de3bf0.md)
-
-新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG  （4K版）
-
-<img src="https://media.gettr.com/group28/origin/2022/06/25/14/eb40c2d2-50d9-f55b-3949-a3a3f72273dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
