@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/26/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1frshn0738.md)
+
+2022.06.25 晚   新中国联邦 | 新闻访谈  知网被安全审查 墙内网络审查攀上新高度  美国最高法院裁定：人民有权在公共场所持枪
+
+<img src="https://media.gettr.com/group26/origin/2022/06/26/01/974aaeaa-818e-8984-5960-60c1efafe040/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1fsaz77f92.md)
+
+2022.06.25 晚 新中国联邦 | 新闻   数字货币网络纳税标准将促使喜币腾飞，灭共加速
+
+<img src="https://media.gettr.com/group39/origin/2022/06/26/00/2ac73f3c-191f-3208-bcfa-7703f9aadc54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/25/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1frrjo12a6.md)
 
 2022.06.25 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -26,11 +42,11 @@
 
 ---
 
-[@miles 6/26/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1fsaz77f92.md)
+[@miles 6/26/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p1fs3a61d99.md)
 
-2022.06.25 晚 新中国联邦 | 新闻   数字货币网络纳税标准将促使喜币腾飞，灭共加速
+6/25/2022 Miles Guo’s GETTR: COVID vaccine passports and mandates will be stopped worldwide eventually, don’t get frustrated by what you are seeing right now; there is no such a solution that works for everybody; our fellow fighter...
 
-<img src="https://media.gettr.com/group39/origin/2022/06/26/00/2ac73f3c-191f-3208-bcfa-7703f9aadc54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/06/26/01/1531ca85-c5ab-3cd3-5570-b6da33ad3b13/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,22 +163,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 6/24/2022 Miles Guo: The Hong Kong dollar is bound to collapse! The collapse of the HK dollar is the beginning of the collapse of the CNY. As many countries around the world decouple from the US dollar, Himalaya Exchange will be th...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/25/13/4498e770-04b9-7031-d257-c938b1720958/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1fpwcxe296.md)
-
-2022.06.25 早 新中国联邦 | 新闻访谈 多个国家和 #美元脱钩 ？#六四天安门事件 前的秘密；德英兩國排斥 #孔子学院
-
-<img src="https://media.gettr.com/group8/origin/2022/06/25/13/485cd5f0-2248-e641-fd3f-d9cf9968a5d1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/25/2022 12:43 PM UTC  - :tv:直播](/content/gettr/p1fpip2ddb9.md)
-
-2022.06.25  早 新中国联邦 | 新闻  郭先生谈爆料北国投将造成的三方面影响；西方纵容中共盗国家族利用“天安门屠杀”实现军政洗牌
-
-<img src="https://media.gettr.com/group31/origin/2022/06/25/12/e70ce170-96ff-169e-7a92-93ea110b9d1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
