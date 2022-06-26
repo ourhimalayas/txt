@@ -2,6 +2,14 @@
 ---
 
 
+[@flowermonth 6/26/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1fu0nk8ab0.md)
+
+一朵自由行走的花 直播 2022-06-26深蹲提升肌力（五）
+
+<img src="https://media.gettr.com/group38/getter/2022/06/26/12/691e5709-8a2e-8cde-4ad2-5ec76e1f7235/235001fa1c4172517d5c6807898efe27.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 6:04 PM UTC  - :tv:直播](/content/gettr/p1fvc6n881d.md)
 
 2022-6-26「勇气」—— 为爱奔跑🏃🏻‍♂️，#小小尼莫音乐会 🎼第十七期，宫崎骏动画系列之《悬崖上的金鱼公主👸🏻》，这个夏天🏝一起鼓起勇气，为爱和梦想奔跑❤️
@@ -114,11 +122,11 @@
 
 ---
 
-[@flowermonth 6/26/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1fu0nk8ab0.md)
+[@miles 6/26/2022 8:30 PM UTC  - :tv:直播](/content/gettr/p1fvw2h6cb1.md)
 
-一朵自由行走的花 直播 2022-06-26深蹲提升肌力（五）
+2022.06.26 新中国联邦 | 喜健康  《医学视角》中共病毒疫苗和妇科健康
 
-<img src="https://media.gettr.com/group38/getter/2022/06/26/12/691e5709-8a2e-8cde-4ad2-5ec76e1f7235/235001fa1c4172517d5c6807898efe27.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@
 6/25/2022 Miles Guo’s GETTR: COVID vaccine passports and mandates will be stopped worldwide eventually, don’t get frustrated by what you are seeing right now; there is no such a solution that works for everybody; our fellow fighter...
 
 <img src="https://media.gettr.com/group40/getter/2022/06/26/01/1531ca85-c5ab-3cd3-5570-b6da33ad3b13/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1fsaz77f92.md)
-
-2022.06.25 晚 新中国联邦 | 新闻   数字货币网络纳税标准将促使喜币腾飞，灭共加速
-
-<img src="https://media.gettr.com/group39/origin/2022/06/26/00/2ac73f3c-191f-3208-bcfa-7703f9aadc54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
