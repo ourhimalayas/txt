@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 2:11 PM UTC  - :tv:直播](/content/gettr/p1ftst9e648.md)
+
+2022.06.26 文贵大直播精华版
+
+<img src="https://media.gettr.com/group6/origin/2022/06/26/14/3b6882c0-b815-26df-b4fc-24565b63f8aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 1:14 PM UTC  - :tv:直播](/content/gettr/p1ftz9qaa4f.md)
 
 2022.06.26 早 新中国联邦 | 新闻访谈  保护台湾必须消灭卖台贼；猴痘来袭台湾 比病毒更可怕的是疫苗，比疫苗更可怕的是人心
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 6/26/2022 2:11 PM UTC  - :tv:直播](/content/gettr/p1ftst9e648.md)
+[@miles 6/26/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1fu3lzb0ae.md)
 
-2022.06.26 文贵大直播精华版
+【Miles Grand Live】6/22/2022: The Chinese Communist Party’s regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP’s illicit funds are flowing. The New Federal State of China will take legal acti...
 
-<img src="https://media.gettr.com/group6/origin/2022/06/26/14/3b6882c0-b815-26df-b4fc-24565b63f8aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/06/26/14/c5282bb7-ce0a-234b-b968-acbd3cd1f44b/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English: gettr.com/streaming/p1frg2n7892
 For English: gettr.com/streaming/p1frg2n789
 
 <img src="https://media.gettr.com/group18/origin/2022/06/25/22/e6ab5e09-b665-b456-36e9-179f64768043/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@zebresplendide 6/25/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p1fq52vbb4c.md)
-
-
-
-<img src="https://media.gettr.com/group29/gvision/2022/06/25/16/82fdd4db-9c3d-0d7a-31bc-d6f645f712ba/out.jpg" width="506" height="284">
 
 ---
 
