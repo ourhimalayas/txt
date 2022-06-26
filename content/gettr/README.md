@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 8:30 PM UTC  - :tv:直播](/content/gettr/p1fvw2h6cb1.md)
+
+2022.06.26 新中国联邦 | 喜健康  《医学视角》中共病毒疫苗和妇科健康
+
+<img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@flowermonth 6/26/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1fu0nk8ab0.md)
 
 一朵自由行走的花 直播 2022-06-26深蹲提升肌力（五）
@@ -122,11 +130,11 @@
 
 ---
 
-[@miles 6/26/2022 8:30 PM UTC  - :tv:直播](/content/gettr/p1fvw2h6cb1.md)
+[@smile 6/26/2022 4:35 PM UTC ](/content/gettr/p1funq67baf.md)
 
-2022.06.26 新中国联邦 | 喜健康  《医学视角》中共病毒疫苗和妇科健康
+令人感动的一刻，杨洁篪夫妇及女儿的详细资料都被公开了，美国做到嘢👍👍👍这只是刚刚开始，中南坑的老杂毛们吓尿了吧🤣🤣🤣
 
-<img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/06/26/16/fda0ece9-4f5e-0134-a17c-5d67edb05597/6215b83c76e42cb7782bf7f1749a5654.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@
 2022.06.25 新中国联邦 | 喜财经 第90期  数字货币专栏 美国国会监管最新动态 喜币即将开启的新时代
 
 <img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/26/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1frshn0738.md)
-
-2022.06.25 晚   新中国联邦 | 新闻访谈  知网被安全审查 墙内网络审查攀上新高度  美国最高法院裁定：人民有权在公共场所持枪
-
-<img src="https://media.gettr.com/group26/origin/2022/06/26/01/974aaeaa-818e-8984-5960-60c1efafe040/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
