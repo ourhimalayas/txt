@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 6/26/2022 10:11 PM UTC ](/content/gettr/p1fw79nf6ec.md)
+
+战友们，七哥周二又有大直播啦！🎉🎉
+
+美东时间 6月28日 上午9点
+
+北京时间 6月28日 晚上9点
+
+
+
+七哥与战友们不见不散！NFSC Day Day Up! CCP Day Day Down!💪💪👊👊
+
+<img src="https://media.gettr.com/group23/origin/2022/06/26/22/693c6d11-eb01-2135-b116-0d57e94c44bd/14fa600b8d97a0716419be9560766864.jpg" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1fvnuj4f35.md)
+
+（4K版）飞飞秀 《出山篇·博物馆 》 2022-06-26
+
+For English: gettr.com/streaming/p1fw4w4669e
+
+
+
+<img src="https://media.gettr.com/group27/origin/2022/06/26/22/91f2743f-9ad4-2f7c-5ce0-865e3e06f8fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@smile 6/26/2022 4:35 PM UTC ](/content/gettr/p1funq67baf.md)
+
+令人感动的一刻，杨洁篪夫妇及女儿的详细资料都被公开了，美国做到嘢👍👍👍这只是刚刚开始，中南坑的老杂毛们吓尿了吧🤣🤣🤣
+
+<img src="https://media.gettr.com/group27/getter/2022/06/26/16/fda0ece9-4f5e-0134-a17c-5d67edb05597/6215b83c76e42cb7782bf7f1749a5654.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 8:30 PM UTC  - :tv:直播](/content/gettr/p1fvw2h6cb1.md)
 
 2022.06.26 新中国联邦 | 喜健康  《医学视角》中共病毒疫苗和妇科健康
@@ -130,11 +166,15 @@
 
 ---
 
-[@smile 6/26/2022 4:35 PM UTC ](/content/gettr/p1funq67baf.md)
+[@miles 6/26/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1fvn072295.md)
 
-令人感动的一刻，杨洁篪夫妇及女儿的详细资料都被公开了，美国做到嘢👍👍👍这只是刚刚开始，中南坑的老杂毛们吓尿了吧🤣🤣🤣
+（1080版）飞飞秀 《出山篇·博物馆 》 2022-06-26
 
-<img src="https://media.gettr.com/group27/getter/2022/06/26/16/fda0ece9-4f5e-0134-a17c-5d67edb05597/6215b83c76e42cb7782bf7f1749a5654.jpg" width="506" height="284">
+For English: gettr.com/streaming/p1fw4w4669e
+
+
+
+<img src="https://media.gettr.com/group7/origin/2022/06/26/22/8a504360-6e0c-a96a-a69c-d29a8c1f9053/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,34 +183,6 @@
 2022-6-25《鸡血王喜币大作战》 第二百三十七集 嘉宾：卡丽熙、Happy
 
 <img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/26/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fsgbb9dd6.md)
-
-6/24/2022 Miles Guo: Just like myself, our fellow fighters risked their own and their family's lives to join the Whistleblowers' Movement. We are equal; fellow fighters, be yourself and don't get swayed by others' opinions!
-
-
-
-6/24...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/26/02/0e1e94c2-312c-1dbe-7c6d-e9ffda1cffb2/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1frqi32942.md)
-
-2022.06.25 新中国联邦 | 喜财经 第90期  数字货币专栏 美国国会监管最新动态 喜币即将开启的新时代
-
-<img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/26/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p1fs3a61d99.md)
-
-6/25/2022 Miles Guo’s GETTR: COVID vaccine passports and mandates will be stopped worldwide eventually, don’t get frustrated by what you are seeing right now; there is no such a solution that works for everybody; our fellow fighter...
-
-<img src="https://media.gettr.com/group40/getter/2022/06/26/01/1531ca85-c5ab-3cd3-5570-b6da33ad3b13/out.jpg" width="506" height="284">
 
 ---
 
