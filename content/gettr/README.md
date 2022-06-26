@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 1:14 PM UTC  - :tv:直播](/content/gettr/p1ftz9qaa4f.md)
+
+2022.06.26 早 新中国联邦 | 新闻访谈  保护台湾必须消灭卖台贼；猴痘来袭台湾 比病毒更可怕的是疫苗，比疫苗更可怕的是人心
+
+<img src="https://media.gettr.com/group6/origin/2022/06/26/13/57f64812-ccee-119f-6d68-0bb0a4c673d7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p1fuej6e0fa.md)
 
 2022.06.26 早 新中国联邦 | 新闻  爆料革命背后有无数强大的力量; 世界将迎来巨大的变化和发展; 国际财阀家族会为我们提供中共黑钱流向何方的证据; 一周“中共病毒”疫情及疫苗灾难信息回顾
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 6/26/2022 1:14 PM UTC  - :tv:直播](/content/gettr/p1ftz9qaa4f.md)
+[@miles 6/26/2022 2:11 PM UTC  - :tv:直播](/content/gettr/p1ftst9e648.md)
 
-2022.06.26 早 新中国联邦 | 新闻访谈  保护台湾必须消灭卖台贼；猴痘来袭台湾 比病毒更可怕的是疫苗，比疫苗更可怕的是人心
+2022.06.26 文贵大直播精华版
 
-<img src="https://media.gettr.com/group6/origin/2022/06/26/13/57f64812-ccee-119f-6d68-0bb0a4c673d7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/06/26/14/3b6882c0-b815-26df-b4fc-24565b63f8aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English: gettr.com/streaming/p1frg2n7892
 For English: gettr.com/streaming/p1frg2n789
 
 <img src="https://media.gettr.com/group18/origin/2022/06/25/22/e6ab5e09-b665-b456-36e9-179f64768043/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@alittledimples 6/25/2022 7:34 PM UTC  - :tv:直播](/content/gettr/p1frgkk26fc.md)
-
-Angel小酒窝 直播 2022-06-25
-
-<img src="https://media.gettr.com/group6/liveorigin/2022/06/25/19/ffd23368-90ac-ad65-939c-c97c1b3ca75b/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
