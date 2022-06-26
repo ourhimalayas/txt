@@ -2,6 +2,22 @@
 ---
 
 
+[@newyorkrock 6/26/2022 5:45 AM UTC ](/content/gettr/p1ft7me2229.md)
+
+6月26日14：00，来GETTR看 MILES GUO直播
+
+#小小尼莫音乐会 🎼第十七期『勇气』
+
+
+
+人生并不容易，但是有了这些准备，你就可以勇敢地探索世界，追求梦想，遇到沟沟坎坎的困难也不怕。别让自己匆匆忙忙地奔向终点，别忘了欣赏沿途的风景，对拥有的一切，心怀感激；最重要的，enjoy yourself! 
+
+
+
+#littlenemoconcert
+
+---
+
 [@himalaya_pangu1 6/26/2022 3:56 PM UTC  - :tv:直播](/content/gettr/p1fv9aue3d2.md)
 
 2022-06-26：《感觉来了》第二期：与自己的农场主谈感觉（美国小李、迦勒、潜水艇、Poplar）
@@ -90,19 +106,11 @@
 
 ---
 
-[@newyorkrock 6/26/2022 5:45 AM UTC ](/content/gettr/p1ft7me2229.md)
+[@miles 6/26/2022 6:04 PM UTC  - :tv:直播](/content/gettr/p1fvc6n881d.md)
 
-6月26日14：00，来GETTR看 MILES GUO直播
+2022-6-26「勇气」—— 为爱奔跑🏃🏻‍♂️，#小小尼莫音乐会 🎼第十七期，宫崎骏动画系列之《悬崖上的金鱼公主👸🏻》，这个夏天🏝一起鼓起勇气，为爱和梦想奔跑❤️
 
-#小小尼莫音乐会 🎼第十七期『勇气』
-
-
-
-人生并不容易，但是有了这些准备，你就可以勇敢地探索世界，追求梦想，遇到沟沟坎坎的困难也不怕。别让自己匆匆忙忙地奔向终点，别忘了欣赏沿途的风景，对拥有的一切，心怀感激；最重要的，enjoy yourself! 
-
-
-
-#littlenemoconcert
+<img src="https://media.gettr.com/group10/origin/2022/06/26/18/d46dcfa6-52ee-be00-edcf-5d7d394c6734/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@
 2022.06.25 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group6/origin/2022/06/25/23/52ad6bf8-fc3f-0663-4896-3335ba88843d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1frp9h0d22.md)
-
-2022.06.25 PM NFSC News   “Swamp” Tycoons Say Global Effort to Take Down the CCP is Underway.
-
-<img src="https://media.gettr.com/group25/origin/2022/06/25/22/11b7139a-8217-62b1-a874-f307489fa5d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
