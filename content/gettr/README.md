@@ -10,13 +10,11 @@
 
 ---
 
-[@miles 6/25/2022 3:11 PM UTC  - :tv:直播](/content/gettr/p1fq6ld7997.md)
+[@miles 6/26/2022 9:58 AM UTC  - :tv:直播](/content/gettr/p1ft4exb3de.md)
 
-新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG （1080P版）
+6月26日 喜财经周日沙龙第七期——数字银行与数字货币
 
-For English: https://gettr.com/streaming/p1fq6o1d8f1
-
-<img src="https://media.gettr.com/group49/origin/2022/06/25/14/fe06938f-2739-35b4-25f4-28c51addb17f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
