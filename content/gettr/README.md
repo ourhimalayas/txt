@@ -2,6 +2,14 @@
 ---
 
 
+[@yezhaoying 6/23/2022 9:35 AM UTC  - 4圖](/content/gettr/p1fcmft182a.md)
+
+2002国际足联的杂志，介绍了每个球队最好的球员，很荣幸大掌柜在其中，国际足联对他的评价：即使在一支身体 能力很强的中国队中也能脱颖而出。技术娴熟，终结能力强，精准的射门使他成为亚洲最好的前锋之一。他经常被罚下场是一个令人担忧的问题，但他仍然是值得关注的得分手之一。😅😅😅
+
+<img src="https://media.gettr.com/group15/getter/2022/06/23/09/db970c93-bfe2-622d-d7eb-d9f9ebc2cb2f/1584403e9123660c6d918af37eac95e7.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1fumvd5291.md)
 
  6月26号：尊敬的战友们好，你们健身了吗？一切都已经开始！
@@ -74,11 +82,11 @@
 
 ---
 
-[@yezhaoying 6/23/2022 9:35 AM UTC  - 4圖](/content/gettr/p1fcmft182a.md)
+[@himalaya_pangu1 6/26/2022 3:56 PM UTC  - :tv:直播](/content/gettr/p1fv9aue3d2.md)
 
-2002国际足联的杂志，介绍了每个球队最好的球员，很荣幸大掌柜在其中，国际足联对他的评价：即使在一支身体 能力很强的中国队中也能脱颖而出。技术娴熟，终结能力强，精准的射门使他成为亚洲最好的前锋之一。他经常被罚下场是一个令人担忧的问题，但他仍然是值得关注的得分手之一。😅😅😅
+2022-06-26：《感觉来了》第二期：与自己的农场主谈感觉（美国小李、迦勒、潜水艇、Poplar）
 
-<img src="https://media.gettr.com/group15/getter/2022/06/23/09/db970c93-bfe2-622d-d7eb-d9f9ebc2cb2f/1584403e9123660c6d918af37eac95e7.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/06/26/15/4b56a757-158c-4c54-34d2-c1ec1e3fd96e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@
 2022.06.25 PM NFSC News   “Swamp” Tycoons Say Global Effort to Take Down the CCP is Underway.
 
 <img src="https://media.gettr.com/group25/origin/2022/06/25/22/11b7139a-8217-62b1-a874-f307489fa5d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/25/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1frp91ec4c.md)
-
-6/24/2022 Miles Guo: Through making numerous loans with the same deposit as a guarantee, the CCP kleptocrats such as Wang Qishan have stolen huge amounts of wealth from Chinese people without paying a single penny! However, the Swa...
-
-<img src="https://media.gettr.com/group37/getter/2022/06/25/22/10c7d84c-2c19-67da-eec9-32c1d89a21ae/out.jpg" width="506" height="284">
 
 ---
 
