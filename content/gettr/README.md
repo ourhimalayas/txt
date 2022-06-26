@@ -2,6 +2,14 @@
 ---
 
 
+[@himalaya_pangu1 6/26/2022 3:56 PM UTC  - :tv:直播](/content/gettr/p1fv9aue3d2.md)
+
+2022-06-26：《感觉来了》第二期：与自己的农场主谈感觉（美国小李、迦勒、潜水艇、Poplar）
+
+<img src="https://media.gettr.com/group16/origin/2022/06/26/15/4b56a757-158c-4c54-34d2-c1ec1e3fd96e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@yezhaoying 6/23/2022 9:35 AM UTC  - 4圖](/content/gettr/p1fcmft182a.md)
 
 2002国际足联的杂志，介绍了每个球队最好的球员，很荣幸大掌柜在其中，国际足联对他的评价：即使在一支身体 能力很强的中国队中也能脱颖而出。技术娴熟，终结能力强，精准的射门使他成为亚洲最好的前锋之一。他经常被罚下场是一个令人担忧的问题，但他仍然是值得关注的得分手之一。😅😅😅
@@ -82,11 +90,19 @@
 
 ---
 
-[@himalaya_pangu1 6/26/2022 3:56 PM UTC  - :tv:直播](/content/gettr/p1fv9aue3d2.md)
+[@newyorkrock 6/26/2022 5:45 AM UTC ](/content/gettr/p1ft7me2229.md)
 
-2022-06-26：《感觉来了》第二期：与自己的农场主谈感觉（美国小李、迦勒、潜水艇、Poplar）
+6月26日14：00，来GETTR看 MILES GUO直播
 
-<img src="https://media.gettr.com/group16/origin/2022/06/26/15/4b56a757-158c-4c54-34d2-c1ec1e3fd96e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+#小小尼莫音乐会 🎼第十七期『勇气』
+
+
+
+人生并不容易，但是有了这些准备，你就可以勇敢地探索世界，追求梦想，遇到沟沟坎坎的困难也不怕。别让自己匆匆忙忙地奔向终点，别忘了欣赏沿途的风景，对拥有的一切，心怀感激；最重要的，enjoy yourself! 
+
+
+
+#littlenemoconcert
 
 ---
 
@@ -155,14 +171,6 @@
 2022.06.25 PM NFSC News   “Swamp” Tycoons Say Global Effort to Take Down the CCP is Underway.
 
 <img src="https://media.gettr.com/group25/origin/2022/06/25/22/11b7139a-8217-62b1-a874-f307489fa5d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/25/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1frcged475.md)
-
-6/24/2022 Miles Guo: The incident of the assault on female diners in Tangshan has been happening everywhere and every day in Communist China. Why does the CCP turn a blind eye to it? The CCP is the largest mafia in Communist China,...
-
-<img src="https://media.gettr.com/group50/getter/2022/06/25/22/935e30d5-9e8b-a811-2761-c7300ac5cc6e/out.jpg" width="506" height="284">
 
 ---
 
