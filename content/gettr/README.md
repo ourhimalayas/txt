@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1fu3lzb0ae.md)
+
+【Miles Grand Live】6/22/2022: The Chinese Communist Party’s regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP’s illicit funds are flowing. The New Federal State of China will take legal acti...
+
+<img src="https://media.gettr.com/group41/getter/2022/06/26/14/c5282bb7-ce0a-234b-b968-acbd3cd1f44b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 2:11 PM UTC  - :tv:直播](/content/gettr/p1ftst9e648.md)
 
 2022.06.26 文贵大直播精华版
@@ -58,11 +66,11 @@
 
 ---
 
-[@miles 6/26/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1fu3lzb0ae.md)
+[@miles 6/26/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1fumvd5291.md)
 
-【Miles Grand Live】6/22/2022: The Chinese Communist Party’s regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP’s illicit funds are flowing. The New Federal State of China will take legal acti...
+ 6月26号：尊敬的战友们好，你们健身了吗？一切都已经开始！
 
-<img src="https://media.gettr.com/group41/getter/2022/06/26/14/c5282bb7-ce0a-234b-b968-acbd3cd1f44b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/06/26/16/d48cfc9f-9ca2-f48f-1529-8c7ffe297e8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,16 +155,6 @@
 6/24/2022 Miles Guo: The incident of the assault on female diners in Tangshan has been happening everywhere and every day in Communist China. Why does the CCP turn a blind eye to it? The CCP is the largest mafia in Communist China,...
 
 <img src="https://media.gettr.com/group50/getter/2022/06/25/22/935e30d5-9e8b-a811-2761-c7300ac5cc6e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1frmjnf48b.md)
-
-（4K版）飞飞秀 《出山篇·博物馆 》 2022-06-25
-
-For English: gettr.com/streaming/p1frg2n7892
-
-<img src="https://media.gettr.com/group27/origin/2022/06/25/22/f779eb16-54d0-621d-c1e0-77f9fb910057/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
