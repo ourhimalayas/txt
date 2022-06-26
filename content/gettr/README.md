@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1frqi32942.md)
+
+2022.06.25 新中国联邦 | 喜财经 第90期  数字货币专栏 美国国会监管最新动态 喜币即将开启的新时代
+
+<img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p1fs3a61d99.md)
+
+6/25/2022 Miles Guo’s GETTR: COVID vaccine passports and mandates will be stopped worldwide eventually, don’t get frustrated by what you are seeing right now; there is no such a solution that works for everybody; our fellow fighter...
+
+<img src="https://media.gettr.com/group40/getter/2022/06/26/01/1531ca85-c5ab-3cd3-5570-b6da33ad3b13/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1fsaz77f92.md)
 
 2022.06.25 晚 新中国联邦 | 新闻   数字货币网络纳税标准将促使喜币腾飞，灭共加速
@@ -39,14 +55,6 @@
 6/24/2022 Miles Guo: Through making numerous loans with the same deposit as a guarantee, the CCP kleptocrats such as Wang Qishan have stolen huge amounts of wealth from Chinese people without paying a single penny! However, the Swa...
 
 <img src="https://media.gettr.com/group37/getter/2022/06/25/22/10c7d84c-2c19-67da-eec9-32c1d89a21ae/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p1fs3a61d99.md)
-
-6/25/2022 Miles Guo’s GETTR: COVID vaccine passports and mandates will be stopped worldwide eventually, don’t get frustrated by what you are seeing right now; there is no such a solution that works for everybody; our fellow fighter...
-
-<img src="https://media.gettr.com/group40/getter/2022/06/26/01/1531ca85-c5ab-3cd3-5570-b6da33ad3b13/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
 新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG  （4K版）
 
 <img src="https://media.gettr.com/group28/origin/2022/06/25/14/eb40c2d2-50d9-f55b-3949-a3a3f72273dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1fpm40b810.md)
-
-6/24/2022 Miles Guo: The Hong Kong dollar is bound to collapse! The collapse of the HK dollar is the beginning of the collapse of the CNY. As many countries around the world decouple from the US dollar, Himalaya Exchange will be th...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/25/13/4498e770-04b9-7031-d257-c938b1720958/out.jpg" width="506" height="284">
 
 ---
 
