@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 6/25/2022 3:10 PM UTC  - :tv:直播](/content/gettr/p1fqbapa0e1.md)
+[@miles 6/26/2022 6:43 AM UTC  - :tv:直播](/content/gettr/p1fss4b0602.md)
 
- 6月25号：尊敬的战友们好，你们健身了吗？一切都已经开始！
+【Miles Grand Live】6/22/2022: The key takeaway of today’s live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
 
-<img src="https://media.gettr.com/group33/getter/2022/06/25/15/3ed530ee-adb9-65bf-c9dc-e8f1d4c6e3c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/06/26/06/c23cc73c-98a4-ee01-7e5c-bc5b47c78d56/out.jpg" width="506" height="284">
 
 ---
 
