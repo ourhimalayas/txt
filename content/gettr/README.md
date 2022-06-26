@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1frqi32942.md)
+
+2022.06.25 新中国联邦 | 喜财经 第90期  数字货币专栏 美国国会监管最新动态 喜币即将开启的新时代
+
+<img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1frshn0738.md)
 
 2022.06.25 晚   新中国联邦 | 新闻访谈  知网被安全审查 墙内网络审查攀上新高度  美国最高法院裁定：人民有权在公共场所持枪
@@ -10,11 +18,15 @@
 
 ---
 
-[@miles 6/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1frqi32942.md)
+[@miles 6/26/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fsgbb9dd6.md)
 
-2022.06.25 新中国联邦 | 喜财经 第90期  数字货币专栏 美国国会监管最新动态 喜币即将开启的新时代
+6/24/2022 Miles Guo: Just like myself, our fellow fighters risked their own and their family's lives to join the Whistleblowers' Movement. We are equal; fellow fighters, be yourself and don't get swayed by others' opinions!
 
-<img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+6/24...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/26/02/0e1e94c2-312c-1dbe-7c6d-e9ffda1cffb2/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,14 +151,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
  6月25号：我的乖乖嘞……
 
 <img src="https://media.gettr.com/group44/getter/2022/06/25/16/1f7d8eef-1ecf-ef42-d655-ff797870e5af/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 3:10 PM UTC  - :tv:直播](/content/gettr/p1fqbapa0e1.md)
-
- 6月25号：尊敬的战友们好，你们健身了吗？一切都已经开始！
-
-<img src="https://media.gettr.com/group33/getter/2022/06/25/15/3ed530ee-adb9-65bf-c9dc-e8f1d4c6e3c7/out.jpg" width="506" height="284">
 
 ---
 
