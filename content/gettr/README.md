@@ -2,11 +2,45 @@
 ---
 
 
+[@miles 6/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1fvhdr0f11.md)
+
+2022.06.26 PM NFSC News   US Working on Taxation Standards for Digital Currency
+
+
+
+<img src="https://media.gettr.com/group30/origin/2022/06/26/22/4c3253bc-64d4-2608-2d19-791d3d2aaca2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1fvnhg385c.md)
+
+6/26/2022 Miles Guo’s GETTR: Why were there so many commercial papers for sale in the international financial market yesterday? What are the consequences of the CCP’s filing false allegations against our fellow fighters in Europe? ...
+
+<img src="https://media.gettr.com/group20/getter/2022/06/26/23/49e67a8d-8eec-8540-33df-d34f1e520a44/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1fvt6j9cce.md)
 
 6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers’ Movement, and th...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/26/22/dc2c3bf9-29eb-4ab6-c8a9-086300106f62/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1fvh07fd5f.md)
+
+6/26/2022 Miles Guo’s GETTR: The CCP’s pawn attempted to frame our fellow fighter through a matched order of Himalaya Coin, but failed! The CCP just sent Jack Ma back to Spain to take care of the assets there. The overseas assets o...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/26/23/abec6ce3-6749-5e98-99c0-6f4d0280a597/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1fvp108179.md)
+
+【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/26/22/5e951d2c-17c1-eb81-09f7-b2e0bb027733/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +57,6 @@
 七哥与战友们不见不散！NFSC Day Day Up! CCP Day Day Down!💪💪👊👊
 
 <img src="https://media.gettr.com/group23/origin/2022/06/26/22/693c6d11-eb01-2135-b116-0d57e94c44bd/14fa600b8d97a0716419be9560766864.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1fvp108179.md)
-
-【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/26/22/5e951d2c-17c1-eb81-09f7-b2e0bb027733/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,30 +185,6 @@ For English: gettr.com/streaming/p1fw4w4669e
 2022.06.26 早 新中国联邦 | 新闻  爆料革命背后有无数强大的力量; 世界将迎来巨大的变化和发展; 国际财阀家族会为我们提供中共黑钱流向何方的证据; 一周“中共病毒”疫情及疫苗灾难信息回顾
 
 <img src="https://media.gettr.com/group14/origin/2022/06/26/12/781ecd16-1fd7-c57e-7ed1-457d969f3c4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1fubld4bed.md)
-
-2022.06.26 AM NFSC news  U.S. Working on Establishing Cryptocurrency Tax Standards
-
-<img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/26/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fu3eq7936.md)
-
-2022.06.26  NFSCニュース　　香港ドルの支えがない人民元はただの紙屑
-
-<img src="https://media.gettr.com/group9/origin/2022/06/26/11/b078a329-2162-6ed3-f7cc-720392f81bfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 9:58 AM UTC  - :tv:直播](/content/gettr/p1ft4exb3de.md)
-
-6月26日 喜财经周日沙龙第七期——数字银行与数字货币
-
-<img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
