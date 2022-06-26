@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/26/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fsgbb9dd6.md)
+
+6/24/2022 Miles Guo: Just like myself, our fellow fighters risked their own and their family's lives to join the Whistleblowers' Movement. We are equal; fellow fighters, be yourself and don't get swayed by others' opinions!
+
+
+
+6/24...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/26/02/0e1e94c2-312c-1dbe-7c6d-e9ffda1cffb2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1frqi32942.md)
 
 2022.06.25 新中国联邦 | 喜财经 第90期  数字货币专栏 美国国会监管最新动态 喜币即将开启的新时代
@@ -18,15 +30,11 @@
 
 ---
 
-[@miles 6/26/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1fsgbb9dd6.md)
+[@miles 6/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1fslp1f186.md)
 
-6/24/2022 Miles Guo: Just like myself, our fellow fighters risked their own and their family's lives to join the Whistleblowers' Movement. We are equal; fellow fighters, be yourself and don't get swayed by others' opinions!
+2022-6-25《鸡血王喜币大作战》 第二百三十七集 嘉宾：卡丽熙、Happy
 
-
-
-6/24...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/26/02/0e1e94c2-312c-1dbe-7c6d-e9ffda1cffb2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Jason Goes To A BBQ…In Germany!!! 2022-06-25
  6月25号：我的乖乖嘞……
 
 <img src="https://media.gettr.com/group44/getter/2022/06/25/16/1f7d8eef-1ecf-ef42-d655-ff797870e5af/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 3:11 PM UTC  - :tv:直播](/content/gettr/p1fq6ld7997.md)
-
-新中国联邦｜真人真事 第58期  纽约磐石农场 AllenMG （1080P版）
-
-<img src="https://media.gettr.com/group49/origin/2022/06/25/14/fe06938f-2739-35b4-25f4-28c51addb17f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
