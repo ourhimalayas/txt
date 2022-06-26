@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 6:04 PM UTC  - :tv:直播](/content/gettr/p1fvc6n881d.md)
+
+2022-6-26「勇气」—— 为爱奔跑🏃🏻‍♂️，#小小尼莫音乐会 🎼第十七期，宫崎骏动画系列之《悬崖上的金鱼公主👸🏻》，这个夏天🏝一起鼓起勇气，为爱和梦想奔跑❤️
+
+<img src="https://media.gettr.com/group10/origin/2022/06/26/18/d46dcfa6-52ee-be00-edcf-5d7d394c6734/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@newyorkrock 6/26/2022 5:45 AM UTC ](/content/gettr/p1ft7me2229.md)
 
 6月26日14：00，来GETTR看 MILES GUO直播
@@ -106,11 +114,11 @@
 
 ---
 
-[@miles 6/26/2022 6:04 PM UTC  - :tv:直播](/content/gettr/p1fvc6n881d.md)
+[@flowermonth 6/26/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1fu0nk8ab0.md)
 
-2022-6-26「勇气」—— 为爱奔跑🏃🏻‍♂️，#小小尼莫音乐会 🎼第十七期，宫崎骏动画系列之《悬崖上的金鱼公主👸🏻》，这个夏天🏝一起鼓起勇气，为爱和梦想奔跑❤️
+一朵自由行走的花 直播 2022-06-26深蹲提升肌力（五）
 
-<img src="https://media.gettr.com/group10/origin/2022/06/26/18/d46dcfa6-52ee-be00-edcf-5d7d394c6734/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/06/26/12/691e5709-8a2e-8cde-4ad2-5ec76e1f7235/235001fa1c4172517d5c6807898efe27.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@
 2022.06.25 晚 新中国联邦 | 新闻   数字货币网络纳税标准将促使喜币腾飞，灭共加速
 
 <img src="https://media.gettr.com/group39/origin/2022/06/26/00/2ac73f3c-191f-3208-bcfa-7703f9aadc54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1frrjo12a6.md)
-
-2022.06.25 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-
-<img src="https://media.gettr.com/group6/origin/2022/06/25/23/52ad6bf8-fc3f-0663-4896-3335ba88843d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
