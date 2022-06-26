@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1fvt6j9cce.md)
+
+6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers’ Movement, and th...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/26/22/dc2c3bf9-29eb-4ab6-c8a9-086300106f62/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 10:11 PM UTC ](/content/gettr/p1fw79nf6ec.md)
 
 战友们，七哥周二又有大直播啦！🎉🎉
@@ -18,6 +26,14 @@
 
 ---
 
+[@miles 6/26/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1fvp108179.md)
+
+【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
+
+<img src="https://media.gettr.com/group27/getter/2022/06/26/22/5e951d2c-17c1-eb81-09f7-b2e0bb027733/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1fvnuj4f35.md)
 
 （4K版）飞飞秀 《出山篇·博物馆 》 2022-06-26
@@ -27,6 +43,18 @@ For English: gettr.com/streaming/p1fw4w4669e
 
 
 <img src="https://media.gettr.com/group27/origin/2022/06/26/22/91f2743f-9ad4-2f7c-5ce0-865e3e06f8fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1fvn072295.md)
+
+（1080版）飞飞秀 《出山篇·博物馆 》 2022-06-26
+
+For English: gettr.com/streaming/p1fw4w4669e
+
+
+
+<img src="https://media.gettr.com/group7/origin/2022/06/26/22/8a504360-6e0c-a96a-a69c-d29a8c1f9053/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,34 +183,6 @@ For English: gettr.com/streaming/p1fw4w4669e
 6月26日 喜财经周日沙龙第七期——数字银行与数字货币
 
 <img src="https://media.gettr.com/group3/origin/2022/06/26/01/64eeec12-e23e-eac1-51c5-1387f52feaa8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/26/2022 6:43 AM UTC  - :tv:直播](/content/gettr/p1fss4b0602.md)
-
-【Miles Grand Live】6/22/2022: The key takeaway of today’s live broadcast is that digital currencies will eventually be pegged to gold. Those digital currencies pegged to gold will certainly become the leading digital currencies in t...
-
-<img src="https://media.gettr.com/group17/getter/2022/06/26/06/c23cc73c-98a4-ee01-7e5c-bc5b47c78d56/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1fvn072295.md)
-
-（1080版）飞飞秀 《出山篇·博物馆 》 2022-06-26
-
-For English: gettr.com/streaming/p1fw4w4669e
-
-
-
-<img src="https://media.gettr.com/group7/origin/2022/06/26/22/8a504360-6e0c-a96a-a69c-d29a8c1f9053/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1fslp1f186.md)
-
-2022-6-25《鸡血王喜币大作战》 第二百三十七集 嘉宾：卡丽熙、Happy
-
-<img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
