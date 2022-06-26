@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1fumvd5291.md)
+
+ 6月26号：尊敬的战友们好，你们健身了吗？一切都已经开始！
+
+<img src="https://media.gettr.com/group25/getter/2022/06/26/16/d48cfc9f-9ca2-f48f-1529-8c7ffe297e8e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1fu3lzb0ae.md)
 
 【Miles Grand Live】6/22/2022: The Chinese Communist Party’s regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP’s illicit funds are flowing. The New Federal State of China will take legal acti...
@@ -66,11 +74,11 @@
 
 ---
 
-[@miles 6/26/2022 4:29 PM UTC  - :tv:直播](/content/gettr/p1fumvd5291.md)
+[@yezhaoying 6/23/2022 9:35 AM UTC  - 4圖](/content/gettr/p1fcmft182a.md)
 
- 6月26号：尊敬的战友们好，你们健身了吗？一切都已经开始！
+2002国际足联的杂志，介绍了每个球队最好的球员，很荣幸大掌柜在其中，国际足联对他的评价：即使在一支身体 能力很强的中国队中也能脱颖而出。技术娴熟，终结能力强，精准的射门使他成为亚洲最好的前锋之一。他经常被罚下场是一个令人担忧的问题，但他仍然是值得关注的得分手之一。😅😅😅
 
-<img src="https://media.gettr.com/group25/getter/2022/06/26/16/d48cfc9f-9ca2-f48f-1529-8c7ffe297e8e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/06/23/09/db970c93-bfe2-622d-d7eb-d9f9ebc2cb2f/1584403e9123660c6d918af37eac95e7.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@
 6/24/2022 Miles Guo: The incident of the assault on female diners in Tangshan has been happening everywhere and every day in Communist China. Why does the CCP turn a blind eye to it? The CCP is the largest mafia in Communist China,...
 
 <img src="https://media.gettr.com/group50/getter/2022/06/25/22/935e30d5-9e8b-a811-2761-c7300ac5cc6e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1frbg407e2.md)
-
-(1080版) 飞飞秀 《出山篇·博物馆 》 2022-06-25
-
-For English: gettr.com/streaming/p1frg2n789
-
-<img src="https://media.gettr.com/group18/origin/2022/06/25/22/e6ab5e09-b665-b456-36e9-179f64768043/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
