@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/26/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1fubld4bed.md)
+
+2022.06.26 AM NFSC news  U.S. Working on Establishing Cryptocurrency Tax Standards
+
+<img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1fu3eq7936.md)
 
 2022.06.26  NFSCニュース　　香港ドルの支えがない人民元はただの紙屑
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 6/26/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1fubld4bed.md)
+[@miles 6/26/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p1fuej6e0fa.md)
 
-2022.06.26 AM NFSC news  U.S. Working on Establishing Cryptocurrency Tax Standards
+2022.06.26 早 新中国联邦 | 新闻  爆料革命背后有无数强大的力量; 世界将迎来巨大的变化和发展; 国际财阀家族会为我们提供中共黑钱流向何方的证据; 一周“中共病毒”疫情及疫苗灾难信息回顾
 
-<img src="https://media.gettr.com/group26/origin/2022/06/19/11/450c683c-e7ac-af5a-975f-0e41f1b7ad88/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/06/26/12/781ecd16-1fd7-c57e-7ed1-457d969f3c4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Angel小酒窝 直播 2022-06-25
 2022.06.25  新中国联邦 | 喜健康  《妙手仁心》：乌克兰前线的铿锵玫瑰-专访一口大锅闹革命战友
 
 <img src="https://media.gettr.com/group41/origin/2022/06/25/20/8f2d149e-4209-8af1-1ebe-c51c2ace2ace/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/25/2022 6:30 PM UTC  - :tv:直播](/content/gettr/p1fqg51f193.md)
-
-2022-6-25 《避风港》（64）男性疫苗接种者面临灾难性的生育风险
-
-<img src="https://media.gettr.com/group45/origin/2022/03/17/19/deef0939-08b2-0a3a-e820-612048cb78d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
