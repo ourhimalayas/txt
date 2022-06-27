@@ -2,16 +2,6 @@
 ---
 
 
-[@miles 6/27/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1fwngo3a8b.md)
-
-2022.06.26 晚 新中国联邦 | 新闻访谈 无苗有币恒久远，正道唯真永流传
-
-
-
-<img src="https://media.gettr.com/group41/origin/2022/06/27/01/047dbdcb-45d9-cdb7-774e-fe0d491a1f13/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
 [@ahnewsfeed 6/26/2022 7:43 AM UTC  - :tv:直播](/content/gettr/p1fsziz1a15.md)
 
 【2-1】Mr. Bannon’s Weekly Interview 0622-Q7 #bannonweeklyinterview
@@ -23,6 +13,26 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 🔹 all of these central authorities, whether it's the CCP ...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/26/07/8ecb68ab-3cf1-4464-9492-a775dd1aba97/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1fwngo3a8b.md)
+
+2022.06.26 晚 新中国联邦 | 新闻访谈 无苗有币恒久远，正道唯真永流传
+
+
+
+<img src="https://media.gettr.com/group41/origin/2022/06/27/01/047dbdcb-45d9-cdb7-774e-fe0d491a1f13/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 1:58 AM UTC  - :tv:直播](/content/gettr/p1fwd2q90f4.md)
+
+2022.06.26 农场联盟工作汇报
+
+
+
+<img src="https://media.gettr.com/group33/origin/2022/01/10/02/5f2a7187-954e-bab2-d832-57a114a75b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,22 +187,6 @@ For English: gettr.com/streaming/p1fw4w4669e
 2022-6-26「勇气」—— 为爱奔跑🏃🏻‍♂️，#小小尼莫音乐会 🎼第十七期，宫崎骏动画系列之《悬崖上的金鱼公主👸🏻》，这个夏天🏝一起鼓起勇气，为爱和梦想奔跑❤️
 
 <img src="https://media.gettr.com/group10/origin/2022/06/26/18/d46dcfa6-52ee-be00-edcf-5d7d394c6734/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@newyorkrock 6/26/2022 5:45 AM UTC ](/content/gettr/p1ft7me2229.md)
-
-6月26日14：00，来GETTR看 MILES GUO直播
-
-#小小尼莫音乐会 🎼第十七期『勇气』
-
-
-
-人生并不容易，但是有了这些准备，你就可以勇敢地探索世界，追求梦想，遇到沟沟坎坎的困难也不怕。别让自己匆匆忙忙地奔向终点，别忘了欣赏沿途的风景，对拥有的一切，心怀感激；最重要的，enjoy yourself! 
-
-
-
-#littlenemoconcert
 
 ---
 
