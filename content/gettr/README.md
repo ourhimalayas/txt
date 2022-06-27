@@ -2,6 +2,14 @@
 ---
 
 
+[@true007 6/27/2022 3:51 AM UTC ](/content/gettr/p1fwzdpab1c.md)
+
+突发！美国证监会与CFTC正式会谈 寻求加密监管统一法规 “已准备达成最终协议”  https://m.fx168news.com/active/article/6003365.html 
+
+终于来了，无任是SEC + or  CFTC 加密监管统一法规“已经准备达成最终协议” , 长臂管辖对 CCP相关的 赵长鹏 Binance，等 都是管用，都是水缸里的鱼🐟🐟🐟， 是七哥最早爆料说的。@Miles @flowermonth @Bindibindi2...
+
+---
+
 [@miles 6/27/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1fwufl0827.md)
 
 2022-6-26《鸡血王喜币大作战》 第二百三十八集 嘉宾：封神榜、七里香
@@ -46,11 +54,11 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 
 ---
 
-[@true007 6/27/2022 3:51 AM UTC ](/content/gettr/p1fwzdpab1c.md)
+[@miles 6/27/2022 9:19 AM UTC ](/content/gettr/p1fxt0993ad.md)
 
-突发！美国证监会与CFTC正式会谈 寻求加密监管统一法规 “已准备达成最终协议”  https://m.fx168news.com/active/article/6003365.html 
+The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door to the wealth recovery process...
 
-终于来了，无任是SEC + or  CFTC 加密监管统一法规“已经准备达成最终协议” , 长臂管辖对 CCP相关的 赵长鹏 Binance，等 都是管用，都是水缸里的鱼🐟🐟🐟， 是七哥最早爆料说的。@Miles @flowermonth @Bindibindi2...
+<img src="https://media.gettr.com/group13/origin/2022/06/27/09/65244025-0c65-3086-f632-75c63e947baf/13fe1ebc0f1310845f241f7b74d32c9a.png" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ For English: gettr.com/streaming/p1fw4w4669e
 令人感动的一刻，杨洁篪夫妇及女儿的详细资料都被公开了，美国做到嘢👍👍👍这只是刚刚开始，中南坑的老杂毛们吓尿了吧🤣🤣🤣
 
 <img src="https://media.gettr.com/group27/getter/2022/06/26/16/fda0ece9-4f5e-0134-a17c-5d67edb05597/6215b83c76e42cb7782bf7f1749a5654.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 8:30 PM UTC  - :tv:直播](/content/gettr/p1fvw2h6cb1.md)
-
-2022.06.26 新中国联邦 | 喜健康  《医学视角》中共病毒疫苗和妇科健康
-
-<img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
