@@ -12,6 +12,14 @@
 
 ---
 
+[@miles 6/27/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p1fw4jl9d3d.md)
+
+6/26/2022: Miles Guo’s GETTR: The CCP is stepping up its efforts in plundering wealth overseas for the purpose of further purchasing gold. Since the restrictions on the import and export of gold in many countries, the CCP won’t be ...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/27/00/35e5c712-c8f4-bd4b-a9c8-5b33011af4b8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/26/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1fvnhg385c.md)
 
 6/26/2022 Miles Guo’s GETTR: Why were there so many commercial papers for sale in the international financial market yesterday? What are the consequences of the CCP’s filing false allegations against our fellow fighters in Europe? ...
@@ -20,19 +28,19 @@
 
 ---
 
-[@miles 6/26/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1fvt6j9cce.md)
-
-6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers’ Movement, and th...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/26/22/dc2c3bf9-29eb-4ab6-c8a9-086300106f62/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/26/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1fvh07fd5f.md)
 
 6/26/2022 Miles Guo’s GETTR: The CCP’s pawn attempted to frame our fellow fighter through a matched order of Himalaya Coin, but failed! The CCP just sent Jack Ma back to Spain to take care of the assets there. The overseas assets o...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/26/23/abec6ce3-6749-5e98-99c0-6f4d0280a597/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/26/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1fvt6j9cce.md)
+
+6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers’ Movement, and th...
+
+<img src="https://media.gettr.com/group38/getter/2022/06/26/22/dc2c3bf9-29eb-4ab6-c8a9-086300106f62/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ For English: gettr.com/streaming/p1fw4w4669e
 2022.06.26 早 新中国联邦 | 新闻访谈  保护台湾必须消灭卖台贼；猴痘来袭台湾 比病毒更可怕的是疫苗，比疫苗更可怕的是人心
 
 <img src="https://media.gettr.com/group6/origin/2022/06/26/13/57f64812-ccee-119f-6d68-0bb0a4c673d7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/26/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p1fuej6e0fa.md)
-
-2022.06.26 早 新中国联邦 | 新闻  爆料革命背后有无数强大的力量; 世界将迎来巨大的变化和发展; 国际财阀家族会为我们提供中共黑钱流向何方的证据; 一周“中共病毒”疫情及疫苗灾难信息回顾
-
-<img src="https://media.gettr.com/group14/origin/2022/06/26/12/781ecd16-1fd7-c57e-7ed1-457d969f3c4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
