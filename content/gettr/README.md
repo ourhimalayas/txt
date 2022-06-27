@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/27/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1fwufl0827.md)
+
+2022-6-26《鸡血王喜币大作战》 第二百三十八集 嘉宾：封神榜、七里香
+
+
+
+<img src="https://media.gettr.com/group26/origin/2022/06/27/03/6c1d9efa-f66a-df58-6255-658a0a14de5f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 1:58 AM UTC  - :tv:直播](/content/gettr/p1fwd2q90f4.md)
 
 2022.06.26 农场联盟工作汇报
@@ -36,13 +46,11 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 
 ---
 
-[@miles 6/27/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1fwufl0827.md)
+[@true007 6/27/2022 3:51 AM UTC ](/content/gettr/p1fwzdpab1c.md)
 
-2022-6-26《鸡血王喜币大作战》 第二百三十八集 嘉宾：封神榜、七里香
+突发！美国证监会与CFTC正式会谈 寻求加密监管统一法规 “已准备达成最终协议”  https://m.fx168news.com/active/article/6003365.html 
 
-
-
-<img src="https://media.gettr.com/group26/origin/2022/06/27/03/6c1d9efa-f66a-df58-6255-658a0a14de5f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+终于来了，无任是SEC + or  CFTC 加密监管统一法规“已经准备达成最终协议” , 长臂管辖对 CCP相关的 赵长鹏 Binance，等 都是管用，都是水缸里的鱼🐟🐟🐟， 是七哥最早爆料说的。@Miles @flowermonth @Bindibindi2...
 
 ---
 
@@ -181,14 +189,6 @@ For English: gettr.com/streaming/p1fw4w4669e
 2022.06.26 新中国联邦 | 喜健康  《医学视角》中共病毒疫苗和妇科健康
 
 <img src="https://media.gettr.com/group16/origin/2022/06/09/20/acc957d6-88ed-bcff-085c-19fbd099c50a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@flowermonth 6/26/2022 12:35 PM UTC  - :tv:直播](/content/gettr/p1fu0nk8ab0.md)
-
-一朵自由行走的花 直播 2022-06-26深蹲提升肌力（五）
-
-<img src="https://media.gettr.com/group38/getter/2022/06/26/12/691e5709-8a2e-8cde-4ad2-5ec76e1f7235/235001fa1c4172517d5c6807898efe27.jpg" width="506" height="284">
 
 ---
 
