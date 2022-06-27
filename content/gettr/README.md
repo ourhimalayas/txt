@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 6/27/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1g1h2cd3ec.md)
+
+6/24/2022 Miles Guo: What does it mean for Wang Qishan to transfer the equities and control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group without paying a penny? Win Eagle Investment Limited and A...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/27/23/be28d304-c018-8d36-4cff-937903428553/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1g0o9s84df.md)
+
+6/24/2022 Miles Guo: The US is establishing the new standard for the future taxation of the digital currency network for the world to sign. The Himalaya Exchange will be the No. 1 new financial system in the world!
+
+
+
+6/24/2022 文贵直...
+
+<img src="https://media.gettr.com/group49/getter/2022/06/27/23/2ecc8c8e-bc19-4c33-0f0c-6fba6b1f0f1d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1g1cfz2143.md)
+
+6/27/2022 Miles Guo’s GETTR: Back in 2020, I said that the COVID vaccines would be the core weapon, which has been proven by what is happening in Communist China, where the governments manipulate the public by turning people’s heal...
+
+<img src="https://media.gettr.com/group14/getter/2022/06/27/23/497af680-c667-4ab4-149c-eb4b82fd2dc6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1g0pqp120c.md)
+
+2022.06.27 PM NFSC News  G7 Countries will ban Russia gold imports
+
+<img src="https://media.gettr.com/group41/origin/2022/06/27/22/30c4e9d6-52f5-83e1-0644-8e79ae9f0edd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 10:43 PM UTC ](/content/gettr/p1g0pw0bbce.md)
 
 Vital intelligence from the Deep State
@@ -24,11 +60,11 @@ Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the 
 
 ---
 
-[@miles 6/27/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1g0pqp120c.md)
+[@miles 6/27/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1g191ued5d.md)
 
-2022.06.27 PM NFSC News  G7 Countries will ban Russia gold imports
+6/27/2022 Miles Guo’s GETTR: America has a huge economic bubble, but the economic recession and freefall haven’t started yet. The investors who hold a large number of stocks are unable to sell them off because they have lots of fin...
 
-<img src="https://media.gettr.com/group41/origin/2022/06/27/22/30c4e9d6-52f5-83e1-0644-8e79ae9f0edd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/06/27/23/5456daa9-6258-2f85-c0d8-378ca5052e5d/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,38 +227,6 @@ https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
 
 
 <img src="https://media.gettr.com/group42/origin/2022/06/27/11/c7014fd1-ca33-ec0c-d443-3fc321b89f1c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1fyyc6fec0.md)
-
-20220627　NFSCニュース　金本位通貨は、最も安定した通貨になる
-
-<img src="https://media.gettr.com/group25/origin/2022/06/27/11/1e694658-5943-4e3b-182c-5ae9e5b0aeed/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 10:30 AM UTC  - :tv:直播](/content/gettr/p1fyc0w2991.md)
-
-2022.06.27 新中国联邦 | 军情室 谈F35东海遭遇歼20
-
-<img src="https://media.gettr.com/group30/origin/2022/06/27/10/482b029c-6b34-4586-6f50-fbb4de54a643/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 9:19 AM UTC ](/content/gettr/p1fxt0993ad.md)
-
-The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door to the wealth recovery process...
-
-<img src="https://media.gettr.com/group13/origin/2022/06/27/09/65244025-0c65-3086-f632-75c63e947baf/13fe1ebc0f1310845f241f7b74d32c9a.png" width="506" height="284">
-
----
-
-[@true007 6/27/2022 3:51 AM UTC ](/content/gettr/p1fwzdpab1c.md)
-
-突发！美国证监会与CFTC正式会谈 寻求加密监管统一法规 “已准备达成最终协议”  https://m.fx168news.com/active/article/6003365.html 
-
-终于来了，无任是SEC + or  CFTC 加密监管统一法规“已经准备达成最终协议” , 长臂管辖对 CCP相关的 赵长鹏 Binance，等 都是管用，都是水缸里的鱼🐟🐟🐟， 是七哥最早爆料说的。@Miles @flowermonth @Bindibindi2...
 
 ---
 
