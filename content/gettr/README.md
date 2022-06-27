@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/27/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1fy8u19a7f.md)
+
+2022.06.27 澳喜访谈 安華醫生第八期 國際政治舞台背後 续
+
+
+
+<img src="https://media.gettr.com/group24/origin/2022/06/27/14/f2b6b809-6bd2-62d6-8bc5-bbc0032f1774/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1fyipjbe03.md)
 
 2022.06.27 早 新中国联邦 | 新闻访谈  人民网：虚拟货币终究是黄粱一梦  乌克兰城市北顿涅茨克失守  日美澳太平洋联合军演 G7峰会开幕，剑指中共 中美就日韩出席北约峰会强力角力
@@ -12,13 +22,11 @@
 
 ---
 
-[@miles 6/27/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1fy8u19a7f.md)
+[@miles 6/27/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1fzgox58cf.md)
 
-2022.06.27 澳喜访谈 安華醫生第八期 國際政治舞台背後 续
+ 6月27号：尊敬的战友们好……我们一定要将灭共的事业……变成．行动行动行动，我们要真实彻底的理解灭共的意义．感恩上天给我们无苗有币新时代，我们对上天的回报就是……行动行动行动．消灭中共！
 
-
-
-<img src="https://media.gettr.com/group24/origin/2022/06/27/14/f2b6b809-6bd2-62d6-8bc5-bbc0032f1774/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/06/27/14/0314268b-cd03-cc55-7150-0caa0e8ad05f/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 6/26/2022: Miles Guo’s GETTR: The CCP is stepping up its efforts in plundering wealth overseas for the purpose of further purchasing gold. Since the restrictions on the import and export of gold in many countries, the CCP won’t be ...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/27/00/35e5c712-c8f4-bd4b-a9c8-5b33011af4b8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1fvnhg385c.md)
-
-6/26/2022 Miles Guo’s GETTR: Why were there so many commercial papers for sale in the international financial market yesterday? What are the consequences of the CCP’s filing false allegations against our fellow fighters in Europe? ...
-
-<img src="https://media.gettr.com/group20/getter/2022/06/26/23/49e67a8d-8eec-8540-33df-d34f1e520a44/out.jpg" width="506" height="284">
 
 ---
 
