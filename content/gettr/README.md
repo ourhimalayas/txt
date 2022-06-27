@@ -2,9 +2,11 @@
 ---
 
 
-[@miles 6/27/2022 12:28 AM UTC ](/content/gettr/p1fwd1o2002.md)
+[@miles 6/27/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p1fzwrfe24d.md)
 
-6月26号：尊敬的战友们好．今天大根节目真的好棒……光头的麦克兄弟．真的好棒……这首歌真的太好听啦
+2022年6月27日 《焦点》89期：中共经济崩塌，余额宝余额难取；英国堕胎数量历史新高，有他因
+
+<img src="https://media.gettr.com/group25/origin/2022/06/27/18/45c3bb5a-5957-f41b-67de-6229da74c4b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
