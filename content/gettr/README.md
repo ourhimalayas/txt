@@ -8,6 +8,24 @@
 
 ---
 
+[@miles 6/27/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1fwdwqdfc9.md)
+
+6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
+
+<img src="https://media.gettr.com/group44/getter/2022/06/27/00/948b0406-27fa-c6e5-37d6-385ab58f1830/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1fwgd4fe58.md)
+
+2022.06.26 晚  新中国联邦｜新闻  日美澳联合训练 出动大型舰艇；G7集团禁止进口俄罗斯黄金；刘强东减持京东套现66亿人民币
+
+
+
+<img src="https://media.gettr.com/group48/origin/2022/06/27/00/985e4745-37a0-c4c7-9e27-9f5d54bf4607/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p1fw4jl9d3d.md)
 
 6/26/2022: Miles Guo’s GETTR: The CCP is stepping up its efforts in plundering wealth overseas for the purpose of further purchasing gold. Since the restrictions on the import and export of gold in many countries, the CCP won’t be ...
@@ -23,16 +41,6 @@
 
 
 <img src="https://media.gettr.com/group30/origin/2022/06/26/22/4c3253bc-64d4-2608-2d19-791d3d2aaca2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/27/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1fwgd4fe58.md)
-
-2022.06.26 晚  新中国联邦｜新闻  日美澳联合训练 出动大型舰艇；G7集团禁止进口俄罗斯黄金；刘强东减持京东套现66亿人民币
-
-
-
-<img src="https://media.gettr.com/group48/origin/2022/06/27/00/985e4745-37a0-c4c7-9e27-9f5d54bf4607/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ For English: gettr.com/streaming/p1fw4w4669e
  6月26号：尊敬的战友们好，你们健身了吗？一切都已经开始！
 
 <img src="https://media.gettr.com/group25/getter/2022/06/26/16/d48cfc9f-9ca2-f48f-1529-8c7ffe297e8e/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1fu3lzb0ae.md)
-
-【Miles Grand Live】6/22/2022: The Chinese Communist Party’s regime is doomed for sure! The Swamp can help us by providing the evidence of where the CCP’s illicit funds are flowing. The New Federal State of China will take legal acti...
-
-<img src="https://media.gettr.com/group41/getter/2022/06/26/14/c5282bb7-ce0a-234b-b968-acbd3cd1f44b/out.jpg" width="506" height="284">
 
 ---
 
