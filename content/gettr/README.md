@@ -12,6 +12,28 @@
 
 ---
 
+[@ahnewsfeed 6/26/2022 7:43 AM UTC  - :tv:直播](/content/gettr/p1fsziz1a15.md)
+
+【2-1】Mr. Bannon’s Weekly Interview 0622-Q7 #bannonweeklyinterview
+
+
+
+do you think the introduction of the US CBDC will be able to save the US dollar’s international status
+
+🔹 all of these central authorities, whether it's the CCP ...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/26/07/8ecb68ab-3cf1-4464-9492-a775dd1aba97/out.jpg" width="506" height="284">
+
+---
+
+[@globalalliance 6/25/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1frvba366c.md)
+
+惠州见义勇为被群殴事件
+
+<img src="https://media.gettr.com/group8/origin/2022/06/25/23/d4035903-c1d4-a204-b6a9-d06b21c1fa22/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1fwdwqdfc9.md)
 
 6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
@@ -23,14 +45,6 @@
 [@miles 6/27/2022 12:28 AM UTC ](/content/gettr/p1fwd1o2002.md)
 
 6月26号：尊敬的战友们好．今天大根节目真的好棒……光头的麦克兄弟．真的好棒……这首歌真的太好听啦
-
----
-
-[@globalalliance 6/25/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1frvba366c.md)
-
-惠州见义勇为被群殴事件
-
-<img src="https://media.gettr.com/group8/origin/2022/06/25/23/d4035903-c1d4-a204-b6a9-d06b21c1fa22/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +193,6 @@ For English: gettr.com/streaming/p1fw4w4669e
 
 
 #littlenemoconcert
-
----
-
-[@himalaya_pangu1 6/26/2022 3:56 PM UTC  - :tv:直播](/content/gettr/p1fv9aue3d2.md)
-
-2022-06-26：《感觉来了》第二期：与自己的农场主谈感觉（美国小李、迦勒、潜水艇、Poplar）
-
-<img src="https://media.gettr.com/group16/origin/2022/06/26/15/4b56a757-158c-4c54-34d2-c1ec1e3fd96e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
