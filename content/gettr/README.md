@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 6/27/2022 12:28 AM UTC ](/content/gettr/p1fwd1o2002.md)
+
+6月26号：尊敬的战友们好．今天大根节目真的好棒……光头的麦克兄弟．真的好棒……这首歌真的太好听啦
+
+---
+
+[@miles 6/27/2022 5:33 PM UTC  - :tv:直播](/content/gettr/p1fzecx0caa.md)
+
+Miles's livestream 2022-06-27
+
+<img src="https://media.gettr.com/group50/origin/2022/01/03/02/fcf9c048-aa3b-eb44-bfee-a9e72dde4811/4c2033fdb74165395c21345a17e1bd53.jpg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 4:24 PM UTC ](/content/gettr/p1fzjcbae39.md)
 
 6月27号：2011年至2013年期间．财新的妖女，胡舒立曾尝试让许家印和他发展关系，并财务支持．将徐发展成第二个“海狗丸俱乐部”另一个李友。没想到许手里的明星太多了．忽视了．海狗妖女……海狗胡．发狠话，👉👉👉👉有一天我一定要给许家印送葬……她今天做到了……如果我们的敌人没有打疫苗，最好让他去认识一下海狗胡！
@@ -51,14 +65,6 @@ https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
 
 
 <img src="https://media.gettr.com/group13/origin/2022/06/27/13/15be91c9-f883-2fbc-fd1d-00667dec8bc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/27/2022 5:33 PM UTC  - :tv:直播](/content/gettr/p1fzecx0caa.md)
-
-Miles's livestream 2022-06-27
-
-<img src="https://media.gettr.com/group50/origin/2022/01/03/02/fcf9c048-aa3b-eb44-bfee-a9e72dde4811/4c2033fdb74165395c21345a17e1bd53.jpg" width="506" height="284">
 
 ---
 
@@ -179,20 +185,6 @@ The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far
 
 
 <img src="https://media.gettr.com/group33/origin/2022/01/10/02/5f2a7187-954e-bab2-d832-57a114a75b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@ahnewsfeed 6/26/2022 7:43 AM UTC  - :tv:直播](/content/gettr/p1fsziz1a15.md)
-
-【2-1】Mr. Bannon’s Weekly Interview 0622-Q7 #bannonweeklyinterview
-
-
-
-do you think the introduction of the US CBDC will be able to save the US dollar’s international status
-
-🔹 all of these central authorities, whether it's the CCP ...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/26/07/8ecb68ab-3cf1-4464-9492-a775dd1aba97/out.jpg" width="506" height="284">
 
 ---
 
