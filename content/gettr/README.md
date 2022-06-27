@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/27/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1g0ugo7fc2.md)
+
+（1080版）飞飞秀 《出山篇·印第安博物馆 》 2022-06-27
+
+<img src="https://media.gettr.com/group46/origin/2022/06/27/22/6ad0b534-ddf6-159e-4d40-9982453075f4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 9:08 PM UTC ](/content/gettr/p1g0exj5d4b.md)
+
+6月27日：全球的战友要小心这个七月了……【七哥！Xx的事一直沒给你汇报，主要是因为我用人失察，过度相信了七月兄弟，他吹牛（他只是代客理财黄金操盘）管理2亿美元基金，其实管理的每个帐户不超过十万美元，据X兄说他投资的钱里还有代持其他战友的钱，撤谎、吹牛要在新加坡成立基金的事只是他自己想法，根本就没有行动，一直瞒着我和🔥兄一直到了春节，X兄还差一点给他50万美元操作黄金期货，还好我们及时发现了破绽。关键是？$公司还没有成立就联合$兄想把我踢出局，此人太恶了。...
+
+<img src="https://media.gettr.com/group36/getter/2022/06/27/21/4d4328d3-1ab0-522e-f028-94618bbbfd85/088b48a0458762562afb58d891b0fe20.jpg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1fzzxz83c9.md)
 
 2022.06.27 新中国联邦 | 喜健康  《寻医问药》美国执业神经内科医生在线答疑；《正道医疗》百年老药新用：探讨苏拉明（Suramin）治疗冠状病毒感染，解毒疫苗的可能性
@@ -18,11 +34,13 @@
 
 ---
 
-[@miles 6/27/2022 9:08 PM UTC ](/content/gettr/p1g0exj5d4b.md)
+[@miles 6/27/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1g0jhs66fd.md)
 
-6月27日：全球的战友要小心这个七月了……【七哥！Xx的事一直沒给你汇报，主要是因为我用人失察，过度相信了七月兄弟，他吹牛（他只是代客理财黄金操盘）管理2亿美元基金，其实管理的每个帐户不超过十万美元，据X兄说他投资的钱里还有代持其他战友的钱，撤谎、吹牛要在新加坡成立基金的事只是他自己想法，根本就没有行动，一直瞒着我和🔥兄一直到了春节，X兄还差一点给他50万美元操作黄金期货，还好我们及时发现了破绽。关键是？$公司还没有成立就联合$兄想把我踢出局，此人太恶了。...
+（4k版）飞飞秀 《出山篇·印第安博物馆 》 2022-06-27
 
-<img src="https://media.gettr.com/group36/getter/2022/06/27/21/4d4328d3-1ab0-522e-f028-94618bbbfd85/088b48a0458762562afb58d891b0fe20.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group47/origin/2022/06/27/22/855c0a1b-dcd6-7255-294b-48e03eb2cefe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,24 +221,6 @@ The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far
 
 
 <img src="https://media.gettr.com/group33/origin/2022/01/10/02/5f2a7187-954e-bab2-d832-57a114a75b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 1:02 AM UTC  - :tv:直播](/content/gettr/p1fwngo3a8b.md)
-
-2022.06.26 晚 新中国联邦 | 新闻访谈 无苗有币恒久远，正道唯真永流传
-
-
-
-<img src="https://media.gettr.com/group41/origin/2022/06/27/01/047dbdcb-45d9-cdb7-774e-fe0d491a1f13/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@globalalliance 6/25/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1frvba366c.md)
-
-惠州见义勇为被群殴事件
-
-<img src="https://media.gettr.com/group8/origin/2022/06/25/23/d4035903-c1d4-a204-b6a9-d06b21c1fa22/out.jpg" width="506" height="284">
 
 ---
 
