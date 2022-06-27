@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/27/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1fzgox58cf.md)
+
+ 6月27号：尊敬的战友们好……我们一定要将灭共的事业……变成．行动行动行动，我们要真实彻底的理解灭共的意义．感恩上天给我们无苗有币新时代，我们对上天的回报就是……行动行动行动．消灭中共！
+
+<img src="https://media.gettr.com/group36/getter/2022/06/27/14/0314268b-cd03-cc55-7150-0caa0e8ad05f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1fy8u19a7f.md)
 
 2022.06.27 澳喜访谈 安華醫生第八期 國際政治舞台背後 续
@@ -22,11 +30,13 @@
 
 ---
 
-[@miles 6/27/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1fzgox58cf.md)
+[@miles 6/27/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1fzdhl09f8.md)
 
- 6月27号：尊敬的战友们好……我们一定要将灭共的事业……变成．行动行动行动，我们要真实彻底的理解灭共的意义．感恩上天给我们无苗有币新时代，我们对上天的回报就是……行动行动行动．消灭中共！
+2022年6月27日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group36/getter/2022/06/27/14/0314268b-cd03-cc55-7150-0caa0e8ad05f/out.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group7/origin/2022/06/27/15/28132ca4-3a36-69a0-dea4-96c6d05bbbc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -211,14 +221,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 6/26/2022: Miles Guo’s GETTR: The CCP is stepping up its efforts in plundering wealth overseas for the purpose of further purchasing gold. Since the restrictions on the import and export of gold in many countries, the CCP won’t be ...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/27/00/35e5c712-c8f4-bd4b-a9c8-5b33011af4b8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1fvh07fd5f.md)
-
-6/26/2022 Miles Guo’s GETTR: The CCP’s pawn attempted to frame our fellow fighter through a matched order of Himalaya Coin, but failed! The CCP just sent Jack Ma back to Spain to take care of the assets there. The overseas assets o...
-
-<img src="https://media.gettr.com/group48/getter/2022/06/26/23/abec6ce3-6749-5e98-99c0-6f4d0280a597/out.jpg" width="506" height="284">
 
 ---
 
