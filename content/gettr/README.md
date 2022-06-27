@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/27/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1fzdhl09f8.md)
+
+2022年6月27日 俄乌战争战况播报
+
+
+
+<img src="https://media.gettr.com/group7/origin/2022/06/27/15/28132ca4-3a36-69a0-dea4-96c6d05bbbc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1fzgox58cf.md)
 
  6月27号：尊敬的战友们好……我们一定要将灭共的事业……变成．行动行动行动，我们要真实彻底的理解灭共的意义．感恩上天给我们无苗有币新时代，我们对上天的回报就是……行动行动行动．消灭中共！
@@ -30,13 +40,17 @@
 
 ---
 
-[@miles 6/27/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1fzdhl09f8.md)
+[@miles 6/27/2022 4:24 PM UTC ](/content/gettr/p1fzjcbae39.md)
 
-2022年6月27日 俄乌战争战况播报
+6月27号：2011年至2013年期间．财新的妖女，胡舒立曾尝试让许家印和他发展关系，并财务支持．将徐发展成第二个“海狗丸俱乐部”另一个李友。没想到许手里的明星太多了．忽视了．海狗妖女……海狗胡．发狠话，👉👉👉👉有一天我一定要给许家印送葬……她今天做到了……如果我们的敌人没有打疫苗，最好让他去认识一下海狗胡！
 
 
 
-<img src="https://media.gettr.com/group7/origin/2022/06/27/15/28132ca4-3a36-69a0-dea4-96c6d05bbbc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/27/16/1089a468-36df-b2a4-752f-fe451a75ef0c/d6f740527c1acd28a8dfb91077b2ed44.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +227,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 
 
 <img src="https://media.gettr.com/group48/origin/2022/06/27/00/985e4745-37a0-c4c7-9e27-9f5d54bf4607/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p1fw4jl9d3d.md)
-
-6/26/2022: Miles Guo’s GETTR: The CCP is stepping up its efforts in plundering wealth overseas for the purpose of further purchasing gold. Since the restrictions on the import and export of gold in many countries, the CCP won’t be ...
-
-<img src="https://media.gettr.com/group36/getter/2022/06/27/00/35e5c712-c8f4-bd4b-a9c8-5b33011af4b8/out.jpg" width="506" height="284">
 
 ---
 
