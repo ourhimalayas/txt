@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/27/2022 9:19 AM UTC ](/content/gettr/p1fxt0993ad.md)
+
+The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door to the wealth recovery process...
+
+<img src="https://media.gettr.com/group13/origin/2022/06/27/09/65244025-0c65-3086-f632-75c63e947baf/13fe1ebc0f1310845f241f7b74d32c9a.png" width="506" height="284">
+
+---
+
 [@true007 6/27/2022 3:51 AM UTC ](/content/gettr/p1fwzdpab1c.md)
 
 突发！美国证监会与CFTC正式会谈 寻求加密监管统一法规 “已准备达成最终协议”  https://m.fx168news.com/active/article/6003365.html 
@@ -54,11 +62,11 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 
 ---
 
-[@miles 6/27/2022 9:19 AM UTC ](/content/gettr/p1fxt0993ad.md)
+[@miles 6/27/2022 10:30 AM UTC  - :tv:直播](/content/gettr/p1fyc0w2991.md)
 
-The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door to the wealth recovery process...
+2022.06.27 新中国联邦 | 军情室 谈F35东海遭遇歼20
 
-<img src="https://media.gettr.com/group13/origin/2022/06/27/09/65244025-0c65-3086-f632-75c63e947baf/13fe1ebc0f1310845f241f7b74d32c9a.png" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/06/27/10/482b029c-6b34-4586-6f50-fbb4de54a643/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ For English: gettr.com/streaming/p1fw4w4669e
 
 
 <img src="https://media.gettr.com/group7/origin/2022/06/26/22/8a504360-6e0c-a96a-a69c-d29a8c1f9053/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@smile 6/26/2022 4:35 PM UTC ](/content/gettr/p1funq67baf.md)
-
-令人感动的一刻，杨洁篪夫妇及女儿的详细资料都被公开了，美国做到嘢👍👍👍这只是刚刚开始，中南坑的老杂毛们吓尿了吧🤣🤣🤣
-
-<img src="https://media.gettr.com/group27/getter/2022/06/26/16/fda0ece9-4f5e-0134-a17c-5d67edb05597/6215b83c76e42cb7782bf7f1749a5654.jpg" width="506" height="284">
 
 ---
 
