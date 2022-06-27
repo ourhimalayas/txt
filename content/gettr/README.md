@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/27/2022 10:30 AM UTC  - :tv:直播](/content/gettr/p1fyc0w2991.md)
+
+2022.06.27 新中国联邦 | 军情室 谈F35东海遭遇歼20
+
+<img src="https://media.gettr.com/group30/origin/2022/06/27/10/482b029c-6b34-4586-6f50-fbb4de54a643/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 9:19 AM UTC ](/content/gettr/p1fxt0993ad.md)
 
 The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door to the wealth recovery process...
@@ -62,11 +70,11 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 
 ---
 
-[@miles 6/27/2022 10:30 AM UTC  - :tv:直播](/content/gettr/p1fyc0w2991.md)
+[@miles 6/27/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1fyyc6fec0.md)
 
-2022.06.27 新中国联邦 | 军情室 谈F35东海遭遇歼20
+20220627　NFSCニュース　金本位通貨は、最も安定した通貨になる
 
-<img src="https://media.gettr.com/group30/origin/2022/06/27/10/482b029c-6b34-4586-6f50-fbb4de54a643/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/06/27/11/1e694658-5943-4e3b-182c-5ae9e5b0aeed/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,22 +157,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
 
 <img src="https://media.gettr.com/group27/getter/2022/06/26/22/5e951d2c-17c1-eb81-09f7-b2e0bb027733/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 10:11 PM UTC ](/content/gettr/p1fw79nf6ec.md)
-
-战友们，七哥周二又有大直播啦！🎉🎉
-
-美东时间 6月28日 上午9点
-
-北京时间 6月28日 晚上9点
-
-
-
-七哥与战友们不见不散！NFSC Day Day Up! CCP Day Day Down!💪💪👊👊
-
-<img src="https://media.gettr.com/group23/origin/2022/06/26/22/693c6d11-eb01-2135-b116-0d57e94c44bd/14fa600b8d97a0716419be9560766864.jpg" width="506" height="284">
 
 ---
 
