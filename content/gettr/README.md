@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/27/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1fzzxz83c9.md)
+
+2022.06.27 新中国联邦 | 喜健康  《寻医问药》美国执业神经内科医生在线答疑；《正道医疗》百年老药新用：探讨苏拉明（Suramin）治疗冠状病毒感染，解毒疫苗的可能性
+
+<img src="https://media.gettr.com/group18/origin/2022/06/27/19/3995ff08-fac3-ab15-765e-ac84067a6505/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 5:33 PM UTC  - :tv:直播](/content/gettr/p1fzecx0caa.md)
 
 Miles's livestream 2022-06-27
@@ -213,16 +221,6 @@ The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far
 6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
 
 <img src="https://media.gettr.com/group44/getter/2022/06/27/00/948b0406-27fa-c6e5-37d6-385ab58f1830/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1fwgd4fe58.md)
-
-2022.06.26 晚  新中国联邦｜新闻  日美澳联合训练 出动大型舰艇；G7集团禁止进口俄罗斯黄金；刘强东减持京东套现66亿人民币
-
-
-
-<img src="https://media.gettr.com/group48/origin/2022/06/27/00/985e4745-37a0-c4c7-9e27-9f5d54bf4607/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
