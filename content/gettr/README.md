@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/27/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1fy4mrcb34.md)
+
+2022.06.27 AM NFSC News    Numerous Powerful Forces Back the Whistleblower Movement
+
+
+
+<img src="https://media.gettr.com/group42/origin/2022/06/27/11/c7014fd1-ca33-ec0c-d443-3fc321b89f1c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1fyyc6fec0.md)
 
 20220627　NFSCニュース　金本位通貨は、最も安定した通貨になる
@@ -78,13 +88,13 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 
 ---
 
-[@miles 6/27/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1fy4mrcb34.md)
+[@miles 6/27/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1fyryfc512.md)
 
-2022.06.27 AM NFSC News    Numerous Powerful Forces Back the Whistleblower Movement
+2022.06.27 早 新中国联邦 | 新闻  王岐山分文未出 操纵上万亿美元金融票据  中共操纵金融票据 为西方金融布下连环核弹  郭文贵先生拒绝成为成为 “沼泽地” 代言人
 
 
 
-<img src="https://media.gettr.com/group42/origin/2022/06/27/11/c7014fd1-ca33-ec0c-d443-3fc321b89f1c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/06/27/12/dac2ef85-54aa-df30-d145-ce8a9c3abc73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,18 +177,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
 
 <img src="https://media.gettr.com/group27/getter/2022/06/26/22/5e951d2c-17c1-eb81-09f7-b2e0bb027733/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1fvn072295.md)
-
-（1080版）飞飞秀 《出山篇·博物馆 》 2022-06-26
-
-For English: gettr.com/streaming/p1fw4w4669e
-
-
-
-<img src="https://media.gettr.com/group7/origin/2022/06/26/22/8a504360-6e0c-a96a-a69c-d29a8c1f9053/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
