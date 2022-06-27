@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 6/27/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1fyipjbe03.md)
+
+2022.06.27 早 新中国联邦 | 新闻访谈  人民网：虚拟货币终究是黄粱一梦  乌克兰城市北顿涅茨克失守  日美澳太平洋联合军演 G7峰会开幕，剑指中共 中美就日韩出席北约峰会强力角力
+
+
+
+<img src="https://media.gettr.com/group13/origin/2022/06/27/13/15be91c9-f883-2fbc-fd1d-00667dec8bc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1fyryfc512.md)
+
+2022.06.27 早 新中国联邦 | 新闻  王岐山分文未出 操纵上万亿美元金融票据  中共操纵金融票据 为西方金融布下连环核弹  郭文贵先生拒绝成为成为 “沼泽地” 代言人
+
+
+
+<img src="https://media.gettr.com/group31/origin/2022/06/27/12/dac2ef85-54aa-df30-d145-ce8a9c3abc73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1fy4mrcb34.md)
 
 2022.06.27 AM NFSC News    Numerous Powerful Forces Back the Whistleblower Movement
@@ -88,13 +108,51 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 
 ---
 
-[@miles 6/27/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1fyryfc512.md)
-
-2022.06.27 早 新中国联邦 | 新闻  王岐山分文未出 操纵上万亿美元金融票据  中共操纵金融票据 为西方金融布下连环核弹  郭文贵先生拒绝成为成为 “沼泽地” 代言人
+[@miles 6/27/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1fyjs5dc39.md)
 
 
 
-<img src="https://media.gettr.com/group31/origin/2022/06/27/12/dac2ef85-54aa-df30-d145-ce8a9c3abc73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+6月27日：尊敬的战友们好……感谢文艺妹妹的爱心早餐🥣……问题是五音太全了😀😀😀😀😀【《没有大直播，真的很孤单》
+
+原曲：《没有你陪伴，我真的好孤单》
+
+
+
+作詞：桑愛
+
+改词：旗风
+
+混音：文樂
+
+作曲：路勇
+
+演唱：MC文艺
+
+【视频制作】小七妹工作室 
+
+
+
+
+
+城市的夜晚霓虹燈璀璨
+
+點亮黑暗趕不走孤單
+
+午夜和白天 不停的交換
+
+隔离在家中 一個人孤單
+
+
+
+節日的狂歡情人的浪漫
+
+所有的快樂都和我無關
+
+封城的日子 讓人很心煩
+
+...
+
+<img src="https://media.gettr.com/group15/getter/2022/06/27/13/5dc14c29-df5c-3459-077b-e79e5a7a4208/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +219,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 6/26/2022 Miles Guo’s GETTR: The CCP’s pawn attempted to frame our fellow fighter through a matched order of Himalaya Coin, but failed! The CCP just sent Jack Ma back to Spain to take care of the assets there. The overseas assets o...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/26/23/abec6ce3-6749-5e98-99c0-6f4d0280a597/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1fvt6j9cce.md)
-
-6/24/2022 Miles Guo: In the face of COVID vaccine disasters, entities such as Tomorrow Group, Beijing International Trust or Wang Qishan are no longer important; there are numerous forces behind the Whistleblowers’ Movement, and th...
-
-<img src="https://media.gettr.com/group38/getter/2022/06/26/22/dc2c3bf9-29eb-4ab6-c8a9-086300106f62/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1fvp108179.md)
-
-【Miles Grand Live】6/22/2022: The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far more than I thought! The document provided by our fellow fighter will serve as a legitimate key for us to open the door t...
-
-<img src="https://media.gettr.com/group27/getter/2022/06/26/22/5e951d2c-17c1-eb81-09f7-b2e0bb027733/out.jpg" width="506" height="284">
 
 ---
 
