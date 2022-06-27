@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 6/27/2022 4:24 PM UTC ](/content/gettr/p1fzjcbae39.md)
+
+6月27号：2011年至2013年期间．财新的妖女，胡舒立曾尝试让许家印和他发展关系，并财务支持．将徐发展成第二个“海狗丸俱乐部”另一个李友。没想到许手里的明星太多了．忽视了．海狗妖女……海狗胡．发狠话，👉👉👉👉有一天我一定要给许家印送葬……她今天做到了……如果我们的敌人没有打疫苗，最好让他去认识一下海狗胡！
+
+
+
+
+
+https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/27/16/1089a468-36df-b2a4-752f-fe451a75ef0c/d6f740527c1acd28a8dfb91077b2ed44.jpg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1fzdhl09f8.md)
 
 2022年6月27日 俄乌战争战况播报
@@ -40,17 +54,11 @@
 
 ---
 
-[@miles 6/27/2022 4:24 PM UTC ](/content/gettr/p1fzjcbae39.md)
+[@miles 6/27/2022 5:33 PM UTC  - :tv:直播](/content/gettr/p1fzecx0caa.md)
 
-6月27号：2011年至2013年期间．财新的妖女，胡舒立曾尝试让许家印和他发展关系，并财务支持．将徐发展成第二个“海狗丸俱乐部”另一个李友。没想到许手里的明星太多了．忽视了．海狗妖女……海狗胡．发狠话，👉👉👉👉有一天我一定要给许家印送葬……她今天做到了……如果我们的敌人没有打疫苗，最好让他去认识一下海狗胡！
+Miles's livestream 2022-06-27
 
-
-
-
-
-https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
-
-<img src="https://media.gettr.com/group34/getter/2022/06/27/16/1089a468-36df-b2a4-752f-fe451a75ef0c/d6f740527c1acd28a8dfb91077b2ed44.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/01/03/02/fcf9c048-aa3b-eb44-bfee-a9e72dde4811/4c2033fdb74165395c21345a17e1bd53.jpg" width="506" height="284">
 
 ---
 
@@ -211,12 +219,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
 
 <img src="https://media.gettr.com/group44/getter/2022/06/27/00/948b0406-27fa-c6e5-37d6-385ab58f1830/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 12:28 AM UTC ](/content/gettr/p1fwd1o2002.md)
-
-6月26号：尊敬的战友们好．今天大根节目真的好棒……光头的麦克兄弟．真的好棒……这首歌真的太好听啦
 
 ---
 
