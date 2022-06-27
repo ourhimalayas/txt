@@ -10,6 +10,30 @@
 
 ---
 
+[@miles 6/27/2022 10:43 PM UTC ](/content/gettr/p1g0pw0bbce.md)
+
+Vital intelligence from the Deep State
+
+Xi's re-election has disappeared
+
+The search for a new agent in China is already underway.
+
+Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the beginning of the di...
+
+<img src="https://media.gettr.com/group15/origin/2022/06/27/22/d3973765-be6f-5e8b-a48b-a800290f4dd2/ca68e02638f7221c12bea9fd17228f4d.png" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1g0jhs66fd.md)
+
+（4k版）飞飞秀 《出山篇·印第安博物馆 》 2022-06-27
+
+
+
+<img src="https://media.gettr.com/group47/origin/2022/06/27/22/855c0a1b-dcd6-7255-294b-48e03eb2cefe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 9:08 PM UTC ](/content/gettr/p1g0exj5d4b.md)
 
 6月27日：全球的战友要小心这个七月了……【七哥！Xx的事一直沒给你汇报，主要是因为我用人失察，过度相信了七月兄弟，他吹牛（他只是代客理财黄金操盘）管理2亿美元基金，其实管理的每个帐户不超过十万美元，据X兄说他投资的钱里还有代持其他战友的钱，撤谎、吹牛要在新加坡成立基金的事只是他自己想法，根本就没有行动，一直瞒着我和🔥兄一直到了春节，X兄还差一点给他50万美元操作黄金期货，还好我们及时发现了破绽。关键是？$公司还没有成立就联合$兄想把我踢出局，此人太恶了。...
@@ -31,16 +55,6 @@
 2022年6月27日 《焦点》89期：中共经济崩塌，余额宝余额难取；英国堕胎数量历史新高，有他因
 
 <img src="https://media.gettr.com/group25/origin/2022/06/27/18/45c3bb5a-5957-f41b-67de-6229da74c4b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1g0jhs66fd.md)
-
-（4k版）飞飞秀 《出山篇·印第安博物馆 》 2022-06-27
-
-
-
-<img src="https://media.gettr.com/group47/origin/2022/06/27/22/855c0a1b-dcd6-7255-294b-48e03eb2cefe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -211,16 +225,6 @@ The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far
 
 
 <img src="https://media.gettr.com/group26/origin/2022/06/27/03/6c1d9efa-f66a-df58-6255-658a0a14de5f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/27/2022 1:58 AM UTC  - :tv:直播](/content/gettr/p1fwd2q90f4.md)
-
-2022.06.26 农场联盟工作汇报
-
-
-
-<img src="https://media.gettr.com/group33/origin/2022/01/10/02/5f2a7187-954e-bab2-d832-57a114a75b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
