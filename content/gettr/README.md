@@ -12,6 +12,64 @@
 
 ---
 
+[@miles 6/27/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1fy8u19a7f.md)
+
+2022.06.27 澳喜访谈 安華醫生第八期 國際政治舞台背後 续
+
+
+
+<img src="https://media.gettr.com/group24/origin/2022/06/27/14/f2b6b809-6bd2-62d6-8bc5-bbc0032f1774/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1fyjs5dc39.md)
+
+
+
+6月27日：尊敬的战友们好……感谢文艺妹妹的爱心早餐🥣……问题是五音太全了😀😀😀😀😀【《没有大直播，真的很孤单》
+
+原曲：《没有你陪伴，我真的好孤单》
+
+
+
+作詞：桑愛
+
+改词：旗风
+
+混音：文樂
+
+作曲：路勇
+
+演唱：MC文艺
+
+【视频制作】小七妹工作室 
+
+
+
+
+
+城市的夜晚霓虹燈璀璨
+
+點亮黑暗趕不走孤單
+
+午夜和白天 不停的交換
+
+隔离在家中 一個人孤單
+
+
+
+節日的狂歡情人的浪漫
+
+所有的快樂都和我無關
+
+封城的日子 讓人很心煩
+
+...
+
+<img src="https://media.gettr.com/group15/getter/2022/06/27/13/5dc14c29-df5c-3459-077b-e79e5a7a4208/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1fyryfc512.md)
 
 2022.06.27 早 新中国联邦 | 新闻  王岐山分文未出 操纵上万亿美元金融票据  中共操纵金融票据 为西方金融布下连环核弹  郭文贵先生拒绝成为成为 “沼泽地” 代言人
@@ -108,54 +166,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 
 ---
 
-[@miles 6/27/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1fyjs5dc39.md)
-
-
-
-6月27日：尊敬的战友们好……感谢文艺妹妹的爱心早餐🥣……问题是五音太全了😀😀😀😀😀【《没有大直播，真的很孤单》
-
-原曲：《没有你陪伴，我真的好孤单》
-
-
-
-作詞：桑愛
-
-改词：旗风
-
-混音：文樂
-
-作曲：路勇
-
-演唱：MC文艺
-
-【视频制作】小七妹工作室 
-
-
-
-
-
-城市的夜晚霓虹燈璀璨
-
-點亮黑暗趕不走孤單
-
-午夜和白天 不停的交換
-
-隔离在家中 一個人孤單
-
-
-
-節日的狂歡情人的浪漫
-
-所有的快樂都和我無關
-
-封城的日子 讓人很心煩
-
-...
-
-<img src="https://media.gettr.com/group15/getter/2022/06/27/13/5dc14c29-df5c-3459-077b-e79e5a7a4208/out.jpg" width="506" height="284">
-
----
-
 [@globalalliance 6/25/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1frvba366c.md)
 
 惠州见义勇为被群殴事件
@@ -193,16 +203,6 @@ do you think the introduction of the US CBDC will be able to save the US dollar�
 6/26/2022: Miles Guo’s GETTR: The CCP is stepping up its efforts in plundering wealth overseas for the purpose of further purchasing gold. Since the restrictions on the import and export of gold in many countries, the CCP won’t be ...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/27/00/35e5c712-c8f4-bd4b-a9c8-5b33011af4b8/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1fvhdr0f11.md)
-
-2022.06.26 PM NFSC News   US Working on Taxation Standards for Digital Currency
-
-
-
-<img src="https://media.gettr.com/group30/origin/2022/06/26/22/4c3253bc-64d4-2608-2d19-791d3d2aaca2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
