@@ -2,11 +2,27 @@
 ---
 
 
+[@miles 6/27/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1g1k2n5107.md)
+
+6/27/2022 Miles Guo’s GETTR: Tang Ping (Lying-flat) Coins can enable you to get the job done when you are lying flat, i.e., taking down the CCP while lying flat. You are encouraged to do more things that are beneficial for taking d...
+
+<img src="https://media.gettr.com/group16/getter/2022/06/27/23/fc628433-a8f3-b272-dd53-d1cba4888687/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1g1h2cd3ec.md)
 
 6/24/2022 Miles Guo: What does it mean for Wang Qishan to transfer the equities and control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group without paying a penny? Win Eagle Investment Limited and A...
 
 <img src="https://media.gettr.com/group12/getter/2022/06/27/23/be28d304-c018-8d36-4cff-937903428553/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1g0u9420f1.md)
+
+2022.06.27 PM NFSC Fringe  Digital currency, unification of human power and finance
+
+<img src="https://media.gettr.com/group25/origin/2022/06/27/23/c28c946e-a45b-03d7-1e1f-bd5f6e358445/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -27,6 +43,14 @@
 6/27/2022 Miles Guo’s GETTR: Back in 2020, I said that the COVID vaccines would be the core weapon, which has been proven by what is happening in Communist China, where the governments manipulate the public by turning people’s heal...
 
 <img src="https://media.gettr.com/group14/getter/2022/06/27/23/497af680-c667-4ab4-149c-eb4b82fd2dc6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1g191ued5d.md)
+
+6/27/2022 Miles Guo’s GETTR: America has a huge economic bubble, but the economic recession and freefall haven’t started yet. The investors who hold a large number of stocks are unable to sell them off because they have lots of fin...
+
+<img src="https://media.gettr.com/group33/getter/2022/06/27/23/5456daa9-6258-2f85-c0d8-378ca5052e5d/out.jpg" width="506" height="284">
 
 ---
 
@@ -57,14 +81,6 @@ Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the 
 （1080版）飞飞秀 《出山篇·印第安博物馆 》 2022-06-27
 
 <img src="https://media.gettr.com/group46/origin/2022/06/27/22/6ad0b534-ddf6-159e-4d40-9982453075f4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1g191ued5d.md)
-
-6/27/2022 Miles Guo’s GETTR: America has a huge economic bubble, but the economic recession and freefall haven’t started yet. The investors who hold a large number of stocks are unable to sell them off because they have lots of fin...
-
-<img src="https://media.gettr.com/group33/getter/2022/06/27/23/5456daa9-6258-2f85-c0d8-378ca5052e5d/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,26 +223,6 @@ https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
 ...
 
 <img src="https://media.gettr.com/group15/getter/2022/06/27/13/5dc14c29-df5c-3459-077b-e79e5a7a4208/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1fyryfc512.md)
-
-2022.06.27 早 新中国联邦 | 新闻  王岐山分文未出 操纵上万亿美元金融票据  中共操纵金融票据 为西方金融布下连环核弹  郭文贵先生拒绝成为成为 “沼泽地” 代言人
-
-
-
-<img src="https://media.gettr.com/group31/origin/2022/06/27/12/dac2ef85-54aa-df30-d145-ce8a9c3abc73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:58 AM UTC  - :tv:直播](/content/gettr/p1fy4mrcb34.md)
-
-2022.06.27 AM NFSC News    Numerous Powerful Forces Back the Whistleblower Movement
-
-
-
-<img src="https://media.gettr.com/group42/origin/2022/06/27/11/c7014fd1-ca33-ec0c-d443-3fc321b89f1c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
