@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/28/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1g1xwb34c3.md)
+
+2022-6-27《鸡血王喜币大作战》 第二百三十九集 嘉宾：Nick、文空
+
+<img src="https://media.gettr.com/group35/origin/2022/06/28/03/1174b365-f822-c6cd-e9c2-e5f999d952af/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p1g0zgw1546.md)
 
 6/27/2022 Miles Guo: After the 9/11, people's wealth was handed over to the banks and several major families to manage in the name of anti-terrorism, and they worked with dictatorships to engage in QE and caused several financial c...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/28/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1g1xwb34c3.md)
+[@miles 6/28/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1g4kkxc5da.md)
 
-2022-6-27《鸡血王喜币大作战》 第二百三十九集 嘉宾：Nick、文空
+20220628 NFSCニュース　中国からの亡命者 10年間で８倍に増加
 
-<img src="https://media.gettr.com/group35/origin/2022/06/28/03/1174b365-f822-c6cd-e9c2-e5f999d952af/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/06/28/11/12b55585-100b-f748-fc5b-78679cd50bef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,20 +171,6 @@ Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the 
 Miles's livestream 2022-06-27
 
 <img src="https://media.gettr.com/group50/origin/2022/01/03/02/fcf9c048-aa3b-eb44-bfee-a9e72dde4811/4c2033fdb74165395c21345a17e1bd53.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 4:24 PM UTC ](/content/gettr/p1fzjcbae39.md)
-
-6月27号：2011年至2013年期间．财新的妖女，胡舒立曾尝试让许家印和他发展关系，并财务支持．将徐发展成第二个“海狗丸俱乐部”另一个李友。没想到许手里的明星太多了．忽视了．海狗妖女……海狗胡．发狠话，👉👉👉👉有一天我一定要给许家印送葬……她今天做到了……如果我们的敌人没有打疫苗，最好让他去认识一下海狗胡！
-
-
-
-
-
-https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
-
-<img src="https://media.gettr.com/group34/getter/2022/06/27/16/1089a468-36df-b2a4-752f-fe451a75ef0c/d6f740527c1acd28a8dfb91077b2ed44.jpg" width="506" height="284">
 
 ---
 
