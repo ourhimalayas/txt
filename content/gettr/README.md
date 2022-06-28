@@ -12,6 +12,22 @@
 
 ---
 
+[@miles 6/28/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1g5bk9f3df.md)
+
+2022-6-28 《避风港》（65）mRNA疫苗过敏致死揭秘
+
+<img src="https://media.gettr.com/group32/origin/2022/06/28/18/77afbe1a-d84e-021b-e9ea-276c7b6d79d5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/28/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1g4mlz11b9.md)
+
+2022年6月28日 文贵大直播：国内水灾粮灾封控解封又封；海外追缴盗国贼藏钱地继续；再谈香港经济港币主动脱钩；疫苗灾难无法挽回令人心寒  （1080P版）
+
+<img src="https://media.gettr.com/group14/origin/2022/06/28/12/2ff8a494-74ff-10b2-8211-dfc6910f2c1d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1g4kkxc5da.md)
 
 20220628 NFSCニュース　中国からの亡命者 10年間で８倍に増加
@@ -33,14 +49,6 @@
 6/27/2022 Miles Guo: After the 9/11, people's wealth was handed over to the banks and several major families to manage in the name of anti-terrorism, and they worked with dictatorships to engage in QE and caused several financial c...
 
 <img src="https://media.gettr.com/group17/getter/2022/06/28/01/a2eccf5d-2316-187d-38f8-7586882543d4/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1g4mlz11b9.md)
-
-2022年6月28日 文贵大直播：国内水灾粮灾封控解封又封；海外追缴盗国贼藏钱地继续；再谈香港经济港币主动脱钩；疫苗灾难无法挽回令人心寒  （1080P版）
-
-<img src="https://media.gettr.com/group14/origin/2022/06/28/12/2ff8a494-74ff-10b2-8211-dfc6910f2c1d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the 
 6月27日：全球的战友要小心这个七月了……【七哥！Xx的事一直沒给你汇报，主要是因为我用人失察，过度相信了七月兄弟，他吹牛（他只是代客理财黄金操盘）管理2亿美元基金，其实管理的每个帐户不超过十万美元，据X兄说他投资的钱里还有代持其他战友的钱，撤谎、吹牛要在新加坡成立基金的事只是他自己想法，根本就没有行动，一直瞒着我和🔥兄一直到了春节，X兄还差一点给他50万美元操作黄金期货，还好我们及时发现了破绽。关键是？$公司还没有成立就联合$兄想把我踢出局，此人太恶了。...
 
 <img src="https://media.gettr.com/group36/getter/2022/06/27/21/4d4328d3-1ab0-522e-f028-94618bbbfd85/088b48a0458762562afb58d891b0fe20.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1fzzxz83c9.md)
-
-2022.06.27 新中国联邦 | 喜健康  《寻医问药》美国执业神经内科医生在线答疑；《正道医疗》百年老药新用：探讨苏拉明（Suramin）治疗冠状病毒感染，解毒疫苗的可能性
-
-<img src="https://media.gettr.com/group18/origin/2022/06/27/19/3995ff08-fac3-ab15-765e-ac84067a6505/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
