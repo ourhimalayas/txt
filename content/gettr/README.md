@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/28/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p1g0zgw1546.md)
+
+6/27/2022 Miles Guo: After the 9/11, people's wealth was handed over to the banks and several major families to manage in the name of anti-terrorism, and they worked with dictatorships to engage in QE and caused several financial c...
+
+<img src="https://media.gettr.com/group17/getter/2022/06/28/01/a2eccf5d-2316-187d-38f8-7586882543d4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1g19uxe063.md)
+
+2022.06.27  晚 新中国联邦⎪新闻访谈   美高院推翻”罗诉韦德案”引起各方热议；美SEC与CFTC将达成协议以统一数字货币规范；俄罗斯陷入历史性的债务违约，七国集团宣布禁止进口俄罗斯黄金
+
+<img src="https://media.gettr.com/group12/origin/2022/06/28/01/09e825f4-632c-fad7-09f3-85489237ab3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1g1cgtae93.md)
 
 2022.06.27 晚 新中国联邦 | 新闻 对敲喜币要谨慎法律红线不能踩 中共大厦将倾喜支付平台应运而生 班农：中国人民的自由是世界人民自由的前提
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 6/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1g19uxe063.md)
+[@miles 6/28/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1g1gcs7c57.md)
 
-2022.06.27  晚 新中国联邦⎪新闻访谈   美高院推翻”罗诉韦德案”引起各方热议；美SEC与CFTC将达成协议以统一数字货币规范；俄罗斯陷入历史性的债务违约，七国集团宣布禁止进口俄罗斯黄金
+2022.06.28 新中国联邦 | 喜财经 第92期 盗国贼偷天换日，操纵万亿金融票据；海外藏钱狡兔三窟；港币与人民币的未来以及世界货币格局的大重置
 
-<img src="https://media.gettr.com/group12/origin/2022/06/28/01/09e825f4-632c-fad7-09f3-85489237ab3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,24 +179,6 @@ https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
 
 
 <img src="https://media.gettr.com/group7/origin/2022/06/27/15/28132ca4-3a36-69a0-dea4-96c6d05bbbc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1fzgox58cf.md)
-
- 6月27号：尊敬的战友们好……我们一定要将灭共的事业……变成．行动行动行动，我们要真实彻底的理解灭共的意义．感恩上天给我们无苗有币新时代，我们对上天的回报就是……行动行动行动．消灭中共！
-
-<img src="https://media.gettr.com/group36/getter/2022/06/27/14/0314268b-cd03-cc55-7150-0caa0e8ad05f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1fy8u19a7f.md)
-
-2022.06.27 澳喜访谈 安華醫生第八期 國際政治舞台背後 续
-
-
-
-<img src="https://media.gettr.com/group24/origin/2022/06/27/14/f2b6b809-6bd2-62d6-8bc5-bbc0032f1774/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
