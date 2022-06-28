@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/28/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1g1xwb34c3.md)
+
+2022-6-27《鸡血王喜币大作战》 第二百三十九集 嘉宾：Nick、文空
+
+<img src="https://media.gettr.com/group35/origin/2022/06/28/03/1174b365-f822-c6cd-e9c2-e5f999d952af/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/28/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1g1gcs7c57.md)
+
+2022.06.28 新中国联邦 | 喜财经 第92期 盗国贼偷天换日，操纵万亿金融票据；海外藏钱狡兔三窟；港币与人民币的未来以及世界货币格局的大重置
+
+<img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1g19uxe063.md)
 
 2022.06.27  晚 新中国联邦⎪新闻访谈   美高院推翻”罗诉韦德案”引起各方热议；美SEC与CFTC将达成协议以统一数字货币规范；俄罗斯陷入历史性的债务违约，七国集团宣布禁止进口俄罗斯黄金
@@ -31,14 +47,6 @@
 6/27/2022 Miles Guo’s GETTR: Tang Ping (Lying-flat) Coins can enable you to get the job done when you are lying flat, i.e., taking down the CCP while lying flat. You are encouraged to do more things that are beneficial for taking d...
 
 <img src="https://media.gettr.com/group16/getter/2022/06/27/23/fc628433-a8f3-b272-dd53-d1cba4888687/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1g1gcs7c57.md)
-
-2022.06.28 新中国联邦 | 喜财经 第92期 盗国贼偷天换日，操纵万亿金融票据；海外藏钱狡兔三窟；港币与人民币的未来以及世界货币格局的大重置
-
-<img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ Miles's livestream 2022-06-27
 https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
 
 <img src="https://media.gettr.com/group34/getter/2022/06/27/16/1089a468-36df-b2a4-752f-fe451a75ef0c/d6f740527c1acd28a8dfb91077b2ed44.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1fzdhl09f8.md)
-
-2022年6月27日 俄乌战争战况播报
-
-
-
-<img src="https://media.gettr.com/group7/origin/2022/06/27/15/28132ca4-3a36-69a0-dea4-96c6d05bbbc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
