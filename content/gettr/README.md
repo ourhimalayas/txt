@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 6/27/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1g1h2cd3ec.md)
+[@miles 6/28/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1g1cgtae93.md)
 
-6/24/2022 Miles Guo: What does it mean for Wang Qishan to transfer the equities and control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group without paying a penny? Win Eagle Investment Limited and A...
+2022.06.27 晚 新中国联邦 | 新闻 对敲喜币要谨慎法律红线不能踩 中共大厦将倾喜支付平台应运而生 班农：中国人民的自由是世界人民自由的前提
 
-<img src="https://media.gettr.com/group12/getter/2022/06/27/23/be28d304-c018-8d36-4cff-937903428553/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/05/01/00/165ac427-081f-820d-a4bc-f44925fdc157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 2022.06.27 PM NFSC Fringe  Digital currency, unification of human power and finance
 
 <img src="https://media.gettr.com/group25/origin/2022/06/27/23/c28c946e-a45b-03d7-1e1f-bd5f6e358445/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/27/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1g1h2cd3ec.md)
+
+6/24/2022 Miles Guo: What does it mean for Wang Qishan to transfer the equities and control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group without paying a penny? Win Eagle Investment Limited and A...
+
+<img src="https://media.gettr.com/group12/getter/2022/06/27/23/be28d304-c018-8d36-4cff-937903428553/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
 
 
 <img src="https://media.gettr.com/group24/origin/2022/06/27/14/f2b6b809-6bd2-62d6-8bc5-bbc0032f1774/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1fyipjbe03.md)
-
-2022.06.27 早 新中国联邦 | 新闻访谈  人民网：虚拟货币终究是黄粱一梦  乌克兰城市北顿涅茨克失守  日美澳太平洋联合军演 G7峰会开幕，剑指中共 中美就日韩出席北约峰会强力角力
-
-
-
-<img src="https://media.gettr.com/group13/origin/2022/06/27/13/15be91c9-f883-2fbc-fd1d-00667dec8bc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
