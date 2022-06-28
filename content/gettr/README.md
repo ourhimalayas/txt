@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/28/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1g4sh1d6ab.md)
+
+2022年6月28日 文贵大直播：国内水灾粮灾封控解封又封；海外追缴盗国贼藏钱地继续；再谈香港经济港币主动脱钩；疫苗灾难无法挽回令人心寒。（4K版）
+
+
+
+<img src="https://media.gettr.com/group28/origin/2022/06/28/12/ba6d5fa1-6995-6dca-90e9-bfffff7d9bab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/28/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1g4kkxc5da.md)
+
+20220628 NFSCニュース　中国からの亡命者 10年間で８倍に増加
+
+<img src="https://media.gettr.com/group35/origin/2022/06/28/11/12b55585-100b-f748-fc5b-78679cd50bef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1g1xwb34c3.md)
 
 2022-6-27《鸡血王喜币大作战》 第二百三十九集 嘉宾：Nick、文空
@@ -18,11 +36,11 @@
 
 ---
 
-[@miles 6/28/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1g4kkxc5da.md)
+[@miles 6/28/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1g4mlz11b9.md)
 
-20220628 NFSCニュース　中国からの亡命者 10年間で８倍に増加
+2022年6月28日 文贵大直播：国内水灾粮灾封控解封又封；海外追缴盗国贼藏钱地继续；再谈香港经济港币主动脱钩；疫苗灾难无法挽回令人心寒  （1080P版）
 
-<img src="https://media.gettr.com/group35/origin/2022/06/28/11/12b55585-100b-f748-fc5b-78679cd50bef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/06/28/12/2ff8a494-74ff-10b2-8211-dfc6910f2c1d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,22 +173,6 @@ Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the 
 2022.06.27 新中国联邦 | 喜健康  《寻医问药》美国执业神经内科医生在线答疑；《正道医疗》百年老药新用：探讨苏拉明（Suramin）治疗冠状病毒感染，解毒疫苗的可能性
 
 <img src="https://media.gettr.com/group18/origin/2022/06/27/19/3995ff08-fac3-ab15-765e-ac84067a6505/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p1fzwrfe24d.md)
-
-2022年6月27日 《焦点》89期：中共经济崩塌，余额宝余额难取；英国堕胎数量历史新高，有他因
-
-<img src="https://media.gettr.com/group25/origin/2022/06/27/18/45c3bb5a-5957-f41b-67de-6229da74c4b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 5:33 PM UTC  - :tv:直播](/content/gettr/p1fzecx0caa.md)
-
-Miles's livestream 2022-06-27
-
-<img src="https://media.gettr.com/group50/origin/2022/01/03/02/fcf9c048-aa3b-eb44-bfee-a9e72dde4811/4c2033fdb74165395c21345a17e1bd53.jpg" width="506" height="284">
 
 ---
 
