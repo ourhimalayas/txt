@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/28/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1g1cgtae93.md)
+
+2022.06.27 晚 新中国联邦 | 新闻 对敲喜币要谨慎法律红线不能踩 中共大厦将倾喜支付平台应运而生 班农：中国人民的自由是世界人民自由的前提
+
+<img src="https://media.gettr.com/group28/origin/2022/05/01/00/165ac427-081f-820d-a4bc-f44925fdc157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1g1k2n5107.md)
 
 6/27/2022 Miles Guo’s GETTR: Tang Ping (Lying-flat) Coins can enable you to get the job done when you are lying flat, i.e., taking down the CCP while lying flat. You are encouraged to do more things that are beneficial for taking d...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/28/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1g1cgtae93.md)
+[@miles 6/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1g19uxe063.md)
 
-2022.06.27 晚 新中国联邦 | 新闻 对敲喜币要谨慎法律红线不能踩 中共大厦将倾喜支付平台应运而生 班农：中国人民的自由是世界人民自由的前提
+2022.06.27  晚 新中国联邦⎪新闻访谈   美高院推翻”罗诉韦德案”引起各方热议；美SEC与CFTC将达成协议以统一数字货币规范；俄罗斯陷入历史性的债务违约，七国集团宣布禁止进口俄罗斯黄金
 
-<img src="https://media.gettr.com/group28/origin/2022/05/01/00/165ac427-081f-820d-a4bc-f44925fdc157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/06/28/01/09e825f4-632c-fad7-09f3-85489237ab3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,54 +181,6 @@ https://www.voachinese.com/a/evergrande-faces-winding-up-lawsuit-i...
 
 
 <img src="https://media.gettr.com/group24/origin/2022/06/27/14/f2b6b809-6bd2-62d6-8bc5-bbc0032f1774/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1fyjs5dc39.md)
-
-
-
-6月27日：尊敬的战友们好……感谢文艺妹妹的爱心早餐🥣……问题是五音太全了😀😀😀😀😀【《没有大直播，真的很孤单》
-
-原曲：《没有你陪伴，我真的好孤单》
-
-
-
-作詞：桑愛
-
-改词：旗风
-
-混音：文樂
-
-作曲：路勇
-
-演唱：MC文艺
-
-【视频制作】小七妹工作室 
-
-
-
-
-
-城市的夜晚霓虹燈璀璨
-
-點亮黑暗趕不走孤單
-
-午夜和白天 不停的交換
-
-隔离在家中 一個人孤單
-
-
-
-節日的狂歡情人的浪漫
-
-所有的快樂都和我無關
-
-封城的日子 讓人很心煩
-
-...
-
-<img src="https://media.gettr.com/group15/getter/2022/06/27/13/5dc14c29-df5c-3459-077b-e79e5a7a4208/out.jpg" width="506" height="284">
 
 ---
 
