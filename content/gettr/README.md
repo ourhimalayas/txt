@@ -14,6 +14,24 @@ For English: gettr.com/post/p1g6ttg1641
 
 ---
 
+[@miles 6/28/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1g6xu2be47.md)
+
+2022.06.28 PM NFSC news   Endless Disasters Unless the CCP Is Taken Down
+
+<img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/28/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1g6h8b64eb.md)
+
+（1080版）飞飞秀 《出山篇·黑科技》 2022-06-28
+
+For English: gettr.com/post/p1g6ttg1641
+
+<img src="https://media.gettr.com/group25/origin/2022/06/28/22/ec939610-6a85-d27c-0ba0-04da06da537d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1g69y67fe5.md)
 
 2022.06.28 新中国联邦 | 喜健康  《CCP解剖学》CCP 病毒和疫苗对生殖系统的损害；导致性功能减退是否有良方妙药;虚假科研论文破解思路
@@ -37,16 +55,6 @@ For English: gettr.com/post/p1g6ttg1641
 
 
 <img src="https://media.gettr.com/group28/origin/2022/06/28/12/ba6d5fa1-6995-6dca-90e9-bfffff7d9bab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1g6h8b64eb.md)
-
-（1080版）飞飞秀 《出山篇·黑科技》 2022-06-28
-
-For English: gettr.com/post/p1g6ttg1641
-
-<img src="https://media.gettr.com/group25/origin/2022/06/28/22/ec939610-6a85-d27c-0ba0-04da06da537d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,20 +171,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.27 PM NFSC News  G7 Countries will ban Russia gold imports
 
 <img src="https://media.gettr.com/group41/origin/2022/06/27/22/30c4e9d6-52f5-83e1-0644-8e79ae9f0edd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/27/2022 10:43 PM UTC ](/content/gettr/p1g0pw0bbce.md)
-
-Vital intelligence from the Deep State
-
-Xi's re-election has disappeared
-
-The search for a new agent in China is already underway.
-
-Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the beginning of the di...
-
-<img src="https://media.gettr.com/group15/origin/2022/06/27/22/d3973765-be6f-5e8b-a48b-a800290f4dd2/ca68e02638f7221c12bea9fd17228f4d.png" width="506" height="284">
 
 ---
 
