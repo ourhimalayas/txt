@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 6/28/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1g6czj2af7.md)
+
+（4K版）飞飞秀 《出山篇·黑科技》 2022-06-28
+
+For English: gettr.com/post/p1g6ttg1641
+
+
+
+<img src="https://media.gettr.com/group42/origin/2022/06/28/21/51064c67-4739-79fe-9b3e-11d51f8b197f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/28/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1g69y67fe5.md)
+
+2022.06.28 新中国联邦 | 喜健康  《CCP解剖学》CCP 病毒和疫苗对生殖系统的损害；导致性功能减退是否有良方妙药;虚假科研论文破解思路
+
+<img src="https://media.gettr.com/group36/origin/2022/05/26/20/ee312c74-1d77-c5f8-2eca-c39b377dc0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1g5bk9f3df.md)
 
 2022-6-28 《避风港》（65）mRNA疫苗过敏致死揭秘
@@ -20,11 +40,13 @@
 
 ---
 
-[@miles 6/28/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1g69y67fe5.md)
+[@miles 6/28/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1g6h8b64eb.md)
 
-2022.06.28 新中国联邦 | 喜健康  《CCP解剖学》CCP 病毒和疫苗对生殖系统的损害；导致性功能减退是否有良方妙药;虚假科研论文破解思路
+（1080版）飞飞秀 《出山篇·黑科技》 2022-06-28
 
-<img src="https://media.gettr.com/group36/origin/2022/05/26/20/ee312c74-1d77-c5f8-2eca-c39b377dc0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English: gettr.com/post/p1g6ttg1641
+
+<img src="https://media.gettr.com/group25/origin/2022/06/28/22/ec939610-6a85-d27c-0ba0-04da06da537d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,24 +177,6 @@ The search for a new agent in China is already underway.
 Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the beginning of the di...
 
 <img src="https://media.gettr.com/group15/origin/2022/06/27/22/d3973765-be6f-5e8b-a48b-a800290f4dd2/ca68e02638f7221c12bea9fd17228f4d.png" width="506" height="284">
-
----
-
-[@miles 6/27/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1g0ugo7fc2.md)
-
-（1080版）飞飞秀 《出山篇·印第安博物馆 》 2022-06-27
-
-<img src="https://media.gettr.com/group46/origin/2022/06/27/22/6ad0b534-ddf6-159e-4d40-9982453075f4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1g0jhs66fd.md)
-
-（4k版）飞飞秀 《出山篇·印第安博物馆 》 2022-06-27
-
-
-
-<img src="https://media.gettr.com/group47/origin/2022/06/27/22/855c0a1b-dcd6-7255-294b-48e03eb2cefe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
