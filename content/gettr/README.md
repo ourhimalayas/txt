@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/28/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1g5bk9f3df.md)
+
+2022-6-28 《避风港》（65）mRNA疫苗过敏致死揭秘
+
+<img src="https://media.gettr.com/group32/origin/2022/06/28/18/77afbe1a-d84e-021b-e9ea-276c7b6d79d5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1g4sh1d6ab.md)
 
 2022年6月28日 文贵大直播：国内水灾粮灾封控解封又封；海外追缴盗国贼藏钱地继续；再谈香港经济港币主动脱钩；疫苗灾难无法挽回令人心寒。（4K版）
@@ -12,11 +20,11 @@
 
 ---
 
-[@miles 6/28/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1g5bk9f3df.md)
+[@miles 6/28/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1g69y67fe5.md)
 
-2022-6-28 《避风港》（65）mRNA疫苗过敏致死揭秘
+2022.06.28 新中国联邦 | 喜健康  《CCP解剖学》CCP 病毒和疫苗对生殖系统的损害；导致性功能减退是否有良方妙药;虚假科研论文破解思路
 
-<img src="https://media.gettr.com/group32/origin/2022/06/28/18/77afbe1a-d84e-021b-e9ea-276c7b6d79d5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/05/26/20/ee312c74-1d77-c5f8-2eca-c39b377dc0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Taiwan, South Korea, Singapore, Hong Kong and Japan leaving the CCP is just the 
 
 
 <img src="https://media.gettr.com/group47/origin/2022/06/27/22/855c0a1b-dcd6-7255-294b-48e03eb2cefe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 9:08 PM UTC ](/content/gettr/p1g0exj5d4b.md)
-
-6月27日：全球的战友要小心这个七月了……【七哥！Xx的事一直沒给你汇报，主要是因为我用人失察，过度相信了七月兄弟，他吹牛（他只是代客理财黄金操盘）管理2亿美元基金，其实管理的每个帐户不超过十万美元，据X兄说他投资的钱里还有代持其他战友的钱，撤谎、吹牛要在新加坡成立基金的事只是他自己想法，根本就没有行动，一直瞒着我和🔥兄一直到了春节，X兄还差一点给他50万美元操作黄金期货，还好我们及时发现了破绽。关键是？$公司还没有成立就联合$兄想把我踢出局，此人太恶了。...
-
-<img src="https://media.gettr.com/group36/getter/2022/06/27/21/4d4328d3-1ab0-522e-f028-94618bbbfd85/088b48a0458762562afb58d891b0fe20.jpg" width="506" height="284">
 
 ---
 
