@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1g9bae4307.md)
+
+2022.06.29 AM NFSC News   Miles Guo Shares: Learn to Nurture and Cherish Good People
+
+<img src="https://media.gettr.com/group33/origin/2022/06/29/11/4ef7ebf8-d6ab-a667-f553-8d4ff01c9f33/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1g9xh5347d.md)
 
 20220629 NFSCニュース　日本政府、不正暗号資産対策を強化
@@ -96,11 +104,11 @@
 
 ---
 
-[@miles 6/29/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1g9bae4307.md)
+[@miles 6/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1ga14d8f08.md)
 
-2022.06.29 AM NFSC News   Miles Guo Shares: Learn to Nurture and Cherish Good People
+2022.06.29 早 新中国联邦 ｜ 新闻  安石帮助盗国贼洗劫百姓财富；郭文贵先生谈追回盗国贼偷窃中国百姓的资产；中共危墙倒塌前 一系列灾难即将上演；中共用动态清零 为疫苗灾难准备邪恶计划
 
-<img src="https://media.gettr.com/group33/origin/2022/06/29/11/4ef7ebf8-d6ab-a667-f553-8d4ff01c9f33/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/06/29/12/8a0352f7-50cf-b722-ce52-3fca18758b56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022-6-28 《避风港》（65）mRNA疫苗过敏致死揭秘
 
 <img src="https://media.gettr.com/group32/origin/2022/06/28/18/77afbe1a-d84e-021b-e9ea-276c7b6d79d5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1g4mlz11b9.md)
-
-2022年6月28日 文贵大直播：国内水灾粮灾封控解封又封；海外追缴盗国贼藏钱地继续；再谈香港经济港币主动脱钩；疫苗灾难无法挽回令人心寒  （1080P版）
-
-<img src="https://media.gettr.com/group14/origin/2022/06/28/12/2ff8a494-74ff-10b2-8211-dfc6910f2c1d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
