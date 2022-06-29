@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 6/29/2022 6:21 PM UTC ](/content/gettr/p1gamo966ab.md)
+
+6月29号：这应该用科学解释还是用神学找答案？【福齐感染中共病毒后，情况持续恶化，开始服用辉瑞的新药Paxlovid，结果病毒检测转阴三天后再次阳性，第二次阳性症状比第一次更糟糕👀
+
+Dr. Fauci reveals 'COVID rebound' after Pfizer's Paxlovid treatment】 
+
+
+
+https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
+
+---
+
 [@miles 6/29/2022 5:44 PM UTC  - :tv:直播](/content/gettr/p1gay0360c4.md)
 
 2022年6月29日 文贵大直播精华版
@@ -44,15 +56,15 @@
 
 ---
 
-[@miles 6/29/2022 6:21 PM UTC ](/content/gettr/p1gamo966ab.md)
+[@miles 6/29/2022 6:33 PM UTC  - :tv:直播](/content/gettr/p1gb43qe369.md)
 
-6月29号：这应该用科学解释还是用神学找答案？【福齐感染中共病毒后，情况持续恶化，开始服用辉瑞的新药Paxlovid，结果病毒检测转阴三天后再次阳性，第二次阳性症状比第一次更糟糕👀
-
-Dr. Fauci reveals 'COVID rebound' after Pfizer's Paxlovid treatment】 
+6月29号：七哥是什么？一点都不重要，最主要的是让我们的战友．能活得健康．和安全幸福，其他都没有任何价值……【马斯克周二在卡塔尔经济论坛上发表讲话称，美国经济衰退将在某个时候出现是“不可避免的”，在近期的未来“更有可能”。 本月早些时候，马斯克曾警告特斯拉高管，在美联储以 1994 年以来的最高利率上调利率后，他对经济前景感到“极度糟糕”。
 
 
 
-https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
+七哥的前瞻性？无与伦比😂】
+
+<img src="https://media.gettr.com/group29/getter/2022/06/29/18/44b4e92d-56b0-740b-141f-f08c09e926de/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +169,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 2022.06.28 晚 新中国联邦 | 新闻访谈 上海一公交车滑入路边河道，驾驶员身体不适事发时车上无乘客；前自由党议员批加拿大是疫情期间唯一加税的政府；吃蟋蟀拯救地球解决粮食危机
 
 <img src="https://media.gettr.com/group48/origin/2022/06/29/00/46f07bea-e1eb-5a7d-fbe2-3259f4dff238/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/29/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1g78fj705f.md)
-
-2022.06.28  晚 新中国联邦⎪新闻  加拿大宣布对俄罗斯实施新一轮制裁；国际社会再次质疑中共涉嫌强摘器官；DWAC收到纽约南区法院传票；拜登签署国安备忘录，打击中共非法捕捞
-
-<img src="https://media.gettr.com/group14/origin/2022/06/29/00/472045b1-9d0e-d0bb-e6f1-ac9d30b6e3d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
