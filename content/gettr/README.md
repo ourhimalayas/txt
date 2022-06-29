@@ -2,6 +2,34 @@
 ---
 
 
+[@miles 6/29/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1gc7ii87f1.md)
+
+(4K版) 飞飞秀 G|Fashion特辑
+
+Fayfay Show with G|Fashion 2022-06-29
+
+<img src="https://media.gettr.com/group12/origin/2022/06/29/22/eeca8a89-af79-8d37-8748-814c9fbcddac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1gbreld466.md)
+
+(1080版) 飞飞秀 G|Fashion特辑
+
+Fayfay Show with G|Fashion 2022-06-29
+
+<img src="https://media.gettr.com/group39/origin/2022/06/29/22/88184142-b1d2-28ac-ed5a-3ded8ee5bbd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1gbl2d3b66.md)
+
+2022.06.29 新中国联邦 | 喜健康  《医学观察》量子科学对健康，心理的颠覆
+
+<img src="https://media.gettr.com/group31/origin/2022/06/29/19/62440cfb-991a-7d82-f851-def9aac502fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1gbqlk5ba1.md)
 
 2022.06.29 新中国联邦 | 喜健康  《寻医问药》美国执业心理医生在线答疑：脑卒、脑梗、高血压用药安全  《医学观察》
@@ -76,11 +104,11 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 
 ---
 
-[@miles 6/29/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1gbl2d3b66.md)
+[@miles 6/29/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1gbykj499e.md)
 
-2022.06.29 新中国联邦 | 喜健康  《医学观察》量子科学对健康，心理的颠覆
+6/28/2022 Miles Guo: I am very confident that I can return the money stolen by the CCP kleptocrats to the Chinese people, but this takes at least 3 or 5 years. Both the Jiang family and Zhu Rongji own trillions of dollars of wealth...
 
-<img src="https://media.gettr.com/group31/origin/2022/06/29/19/62440cfb-991a-7d82-f851-def9aac502fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/06/29/22/70fdf91a-5afb-f125-1973-0d3a8dc89071/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,30 +173,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 《焦点》90期：扁平化管理的践行者；联盟基金HDO项目简介；秘翻-爆料革命高产出的团队，灭爆小组重点的攻击目标
 
 <img src="https://media.gettr.com/group15/origin/2022/06/29/07/cade2e5e-7761-e55e-5677-c8b10a625a19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p1g97pd86ab.md)
-
-6/28/2022 Miles Guo: Many countries are afraid of the long arm of US dollars and will decouple their currencies from US dollars and adopt the currency basket plan; the Hong Kong dollar will be converted to offshore RMB after decoup...
-
-<img src="https://media.gettr.com/group35/getter/2022/06/29/06/19960498-08c6-6dfe-9066-1104d2518462/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1g8iruf448.md)
-
-6/28/2022 Miles Guo: Through a financial scheme the CCP will make HK dollar disappear so that it can furtively plunder the wealth of Hong Kong people and the CCP's hidden wealth and dirty past will never get exposed; meanwhile the ...
-
-<img src="https://media.gettr.com/group25/getter/2022/06/29/05/7209766e-6d69-820e-111b-a06119007a45/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1g7wuu2a66.md)
-
-2022-6-28《鸡血王喜币大作战》 第二百四十集 嘉宾：无双柳薇薇、封神榜
-
-<img src="https://media.gettr.com/group27/origin/2022/06/29/03/c4c58a76-452c-4f21-a2dc-1b3d66d21f2a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
