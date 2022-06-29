@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1gbqlk5ba1.md)
+
+2022.06.29 新中国联邦 | 喜健康  《寻医问药》美国执业心理医生在线答疑：脑卒、脑梗、高血压用药安全  《医学观察》
+
+<img src="https://media.gettr.com/group31/origin/2022/06/29/19/62440cfb-991a-7d82-f851-def9aac502fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 6:33 PM UTC  - :tv:直播](/content/gettr/p1gb43qe369.md)
 
 6月29号：七哥是什么？一点都不重要，最主要的是让我们的战友．能活得健康．和安全幸福，其他都没有任何价值……【马斯克周二在卡塔尔经济论坛上发表讲话称，美国经济衰退将在某个时候出现是“不可避免的”，在近期的未来“更有可能”。 本月早些时候，马斯克曾警告特斯拉高管，在美联储以 1994 年以来的最高利率上调利率后，他对经济前景感到“极度糟糕”。
@@ -68,9 +76,9 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 
 ---
 
-[@miles 6/29/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1gbqlk5ba1.md)
+[@miles 6/29/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1gbl2d3b66.md)
 
-2022.06.29 新中国联邦 | 喜健康  《寻医问药》美国执业心理医生在线答疑：脑卒、脑梗、高血压用药安全  《医学观察》
+2022.06.29 新中国联邦 | 喜健康  《医学观察》量子科学对健康，心理的颠覆
 
 <img src="https://media.gettr.com/group31/origin/2022/06/29/19/62440cfb-991a-7d82-f851-def9aac502fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -161,14 +169,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 2022-6-28《鸡血王喜币大作战》 第二百四十集 嘉宾：无双柳薇薇、封神榜
 
 <img src="https://media.gettr.com/group27/origin/2022/06/29/03/c4c58a76-452c-4f21-a2dc-1b3d66d21f2a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/29/2022 2:08 AM UTC  - :tv:直播](/content/gettr/p1g6vi6f67c.md)
-
-2022年6月28日 新中国联邦 | 喜财经 第93 期  卢布过山车表演继续；美联储加息的两难；经济规律不会因为短期扭曲和妄想而改变；躺平币的核心价值
-
-<img src="https://media.gettr.com/group40/origin/2022/06/29/02/6a222f0a-1bac-38ee-34a2-75dd843ac3ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
