@@ -16,6 +16,22 @@
 
 ---
 
+[@miles 6/29/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1g78fj705f.md)
+
+2022.06.28  晚 新中国联邦⎪新闻  加拿大宣布对俄罗斯实施新一轮制裁；国际社会再次质疑中共涉嫌强摘器官；DWAC收到纽约南区法院传票；拜登签署国安备忘录，打击中共非法捕捞
+
+<img src="https://media.gettr.com/group14/origin/2022/06/29/00/472045b1-9d0e-d0bb-e6f1-ac9d30b6e3d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1g76q0980c.md)
+
+6/28/2022 Miles Guo: Even if the HK dollar decoupled with the US dollar, it would be possible for Hong Kong to have a "rebound". Because Hong Kong facilitates the CCP's money laundry and wealth storage, bridging the communication b...
+
+<img src="https://media.gettr.com/group41/getter/2022/06/29/00/a9ab3b05-0198-0c3d-5475-11148d3142df/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1g6sp09185.md)
 
 6/28/2022 Miles Guo: The CCP understands that the COVID vaccine disaster will result in the deaths of hundreds of millions of people. Thus, the CCP has built numerous public graveyards and crematorium facilities, invented all sorts...
@@ -41,14 +57,6 @@ For English: gettr.com/post/p1g6ttg1641
 
 
 <img src="https://media.gettr.com/group42/origin/2022/06/28/21/51064c67-4739-79fe-9b3e-11d51f8b197f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1g76q0980c.md)
-
-6/28/2022 Miles Guo: Even if the HK dollar decoupled with the US dollar, it would be possible for Hong Kong to have a "rebound". Because Hong Kong facilitates the CCP's money laundry and wealth storage, bridging the communication b...
-
-<img src="https://media.gettr.com/group41/getter/2022/06/29/00/a9ab3b05-0198-0c3d-5475-11148d3142df/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.27 PM NFSC Fringe  Digital currency, unification of human power and finance
 
 <img src="https://media.gettr.com/group25/origin/2022/06/27/23/c28c946e-a45b-03d7-1e1f-bd5f6e358445/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1g1cfz2143.md)
-
-6/27/2022 Miles Guo’s GETTR: Back in 2020, I said that the COVID vaccines would be the core weapon, which has been proven by what is happening in Communist China, where the governments manipulate the public by turning people’s heal...
-
-<img src="https://media.gettr.com/group14/getter/2022/06/27/23/497af680-c667-4ab4-149c-eb4b82fd2dc6/out.jpg" width="506" height="284">
 
 ---
 
