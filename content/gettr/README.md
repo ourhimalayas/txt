@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1g9xh5347d.md)
+
+20220629 NFSCニュース　日本政府、不正暗号資産対策を強化
+
+<img src="https://media.gettr.com/group49/origin/2022/06/29/11/e453951a-608c-f722-3a69-9bfcac7a7265/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 10:30 AM UTC  - :tv:直播](/content/gettr/p1g9gsm51c3.md)
 
 6/28/2022 Miles Guo: Xi Jinping will invade Taiwan whatsoever. Russia's defeat in the war will only enhance Xi's determination to take Taiwan, as he doesn't want the U.S. and the West to see him going soft. In the meantime, he can'...
@@ -88,11 +96,11 @@
 
 ---
 
-[@miles 6/29/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1g9xh5347d.md)
+[@miles 6/29/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1g9bae4307.md)
 
-20220629 NFSCニュース　日本政府、不正暗号資産対策を強化
+2022.06.29 AM NFSC News   Miles Guo Shares: Learn to Nurture and Cherish Good People
 
-<img src="https://media.gettr.com/group49/origin/2022/06/29/11/e453951a-608c-f722-3a69-9bfcac7a7265/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/29/11/4ef7ebf8-d6ab-a667-f553-8d4ff01c9f33/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022-6-28 《避风港》（65）mRNA疫苗过敏致死揭秘
 
 <img src="https://media.gettr.com/group32/origin/2022/06/28/18/77afbe1a-d84e-021b-e9ea-276c7b6d79d5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1g4sh1d6ab.md)
-
-2022年6月28日 文贵大直播：国内水灾粮灾封控解封又封；海外追缴盗国贼藏钱地继续；再谈香港经济港币主动脱钩；疫苗灾难无法挽回令人心寒。（4K版）
-
-
-
-<img src="https://media.gettr.com/group28/origin/2022/06/28/12/ba6d5fa1-6995-6dca-90e9-bfffff7d9bab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
