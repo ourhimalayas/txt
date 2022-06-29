@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p1g97pd86ab.md)
+
+6/28/2022 Miles Guo: Many countries are afraid of the long arm of US dollars and will decouple their currencies from US dollars and adopt the currency basket plan; the Hong Kong dollar will be converted to offshore RMB after decoup...
+
+<img src="https://media.gettr.com/group35/getter/2022/06/29/06/19960498-08c6-6dfe-9066-1104d2518462/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1g8iruf448.md)
 
 6/28/2022 Miles Guo: Through a financial scheme the CCP will make HK dollar disappear so that it can furtively plunder the wealth of Hong Kong people and the CCP's hidden wealth and dirty past will never get exposed; meanwhile the ...
@@ -56,11 +64,11 @@
 
 ---
 
-[@miles 6/29/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p1g97pd86ab.md)
+[@miles 6/29/2022 8:02 AM UTC  - :tv:直播](/content/gettr/p1g96xu0c09.md)
 
-6/28/2022 Miles Guo: Many countries are afraid of the long arm of US dollars and will decouple their currencies from US dollars and adopt the currency basket plan; the Hong Kong dollar will be converted to offshore RMB after decoup...
+《焦点》90期：扁平化管理的践行者；联盟基金HDO项目简介；秘翻-爆料革命高产出的团队，灭爆小组重点的攻击目标
 
-<img src="https://media.gettr.com/group35/getter/2022/06/29/06/19960498-08c6-6dfe-9066-1104d2518462/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/06/29/07/cade2e5e-7761-e55e-5677-c8b10a625a19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022-6-27《鸡血王喜币大作战》 第二百三十九集 嘉宾：Nick、文空
 
 <img src="https://media.gettr.com/group35/origin/2022/06/28/03/1174b365-f822-c6cd-e9c2-e5f999d952af/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/28/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p1g0zgw1546.md)
-
-6/27/2022 Miles Guo: After the 9/11, people's wealth was handed over to the banks and several major families to manage in the name of anti-terrorism, and they worked with dictatorships to engage in QE and caused several financial c...
-
-<img src="https://media.gettr.com/group17/getter/2022/06/28/01/a2eccf5d-2316-187d-38f8-7586882543d4/out.jpg" width="506" height="284">
 
 ---
 
