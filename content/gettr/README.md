@@ -112,13 +112,11 @@
 
 ---
 
-[@xiguobaoman 6/29/2022 12:37 PM UTC  - 4圖](/content/gettr/p1g9k298481.md)
+[@miles 6/29/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1g9mrx8471.md)
 
-#秘密翻译组 #喜國暴漫 
+2022.06.29 早 新中国联邦 | 新闻访谈  G7领袖承诺无限期向乌克兰提供援助 国际社会质疑中共国快速器官移植的来源
 
-《墻國極限壓力測試》（一）
-
-<img src="https://media.gettr.com/group40/getter/2022/06/29/12/4293589f-028c-2a5e-b3ef-c52b95cc2053/d070c306932e0d5f04cfd6e1993053b1.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
