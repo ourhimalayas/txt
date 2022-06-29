@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 2:52 PM UTC ](/content/gettr/p1g9k6ma211.md)
+
+6月29日：尊敬的战友们好，今天没有时间录制视频了，星期天才能有大直播……【美国联邦通信委员会委员呼吁苹果和谷歌从他们的应用商店中删除 TikTok，称这是国家安全风险】
+
+<img src="https://media.gettr.com/group13/getter/2022/06/29/14/68d1ddd1-cb1b-2396-e069-7ea193d95d0c/63cb0216771e2f25dfa1060420b936f1.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1g9xqz0102.md)
 
 2022年6月29日 MOS 《回响》第三期 （4K版）
@@ -12,11 +20,11 @@
 
 ---
 
-[@miles 6/29/2022 2:52 PM UTC ](/content/gettr/p1g9k6ma211.md)
+[@miles 6/29/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1gb4gi444b.md)
 
-6月29日：尊敬的战友们好，今天没有时间录制视频了，星期天才能有大直播……【美国联邦通信委员会委员呼吁苹果和谷歌从他们的应用商店中删除 TikTok，称这是国家安全风险】
+2022年6月29日 俄乌战争警示台海
 
-<img src="https://media.gettr.com/group13/getter/2022/06/29/14/68d1ddd1-cb1b-2396-e069-7ea193d95d0c/63cb0216771e2f25dfa1060420b936f1.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/06/29/16/3e782926-1f5c-3e99-483f-3d470a2f4f20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@
 6/28/2022 Miles Guo: The CCP understands that the COVID vaccine disaster will result in the deaths of hundreds of millions of people. Thus, the CCP has built numerous public graveyards and crematorium facilities, invented all sorts...
 
 <img src="https://media.gettr.com/group44/getter/2022/06/28/23/38f5f46e-bd20-2a8d-8d0a-923ad1557031/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1g6xu2be47.md)
-
-2022.06.28 PM NFSC news   Endless Disasters Unless the CCP Is Taken Down
-
-<img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
