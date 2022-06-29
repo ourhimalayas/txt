@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1g8iruf448.md)
+
+6/28/2022 Miles Guo: Through a financial scheme the CCP will make HK dollar disappear so that it can furtively plunder the wealth of Hong Kong people and the CCP's hidden wealth and dirty past will never get exposed; meanwhile the ...
+
+<img src="https://media.gettr.com/group25/getter/2022/06/29/05/7209766e-6d69-820e-111b-a06119007a45/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1g7wuu2a66.md)
 
 2022-6-28《鸡血王喜币大作战》 第二百四十集 嘉宾：无双柳薇薇、封神榜
@@ -48,11 +56,11 @@
 
 ---
 
-[@miles 6/29/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1g8iruf448.md)
+[@miles 6/29/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p1g97pd86ab.md)
 
-6/28/2022 Miles Guo: Through a financial scheme the CCP will make HK dollar disappear so that it can furtively plunder the wealth of Hong Kong people and the CCP's hidden wealth and dirty past will never get exposed; meanwhile the ...
+6/28/2022 Miles Guo: Many countries are afraid of the long arm of US dollars and will decouple their currencies from US dollars and adopt the currency basket plan; the Hong Kong dollar will be converted to offshore RMB after decoup...
 
-<img src="https://media.gettr.com/group25/getter/2022/06/29/05/7209766e-6d69-820e-111b-a06119007a45/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/06/29/06/19960498-08c6-6dfe-9066-1104d2518462/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.28 新中国联邦 | 喜财经 第92期 盗国贼偷天换日，操纵万亿金融票据；海外藏钱狡兔三窟；港币与人民币的未来以及世界货币格局的大重置
 
 <img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1g19uxe063.md)
-
-2022.06.27  晚 新中国联邦⎪新闻访谈   美高院推翻”罗诉韦德案”引起各方热议；美SEC与CFTC将达成协议以统一数字货币规范；俄罗斯陷入历史性的债务违约，七国集团宣布禁止进口俄罗斯黄金
-
-<img src="https://media.gettr.com/group12/origin/2022/06/28/01/09e825f4-632c-fad7-09f3-85489237ab3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
