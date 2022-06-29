@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 10:30 AM UTC  - :tv:直播](/content/gettr/p1g9gsm51c3.md)
+
+6/28/2022 Miles Guo: Xi Jinping will invade Taiwan whatsoever. Russia's defeat in the war will only enhance Xi's determination to take Taiwan, as he doesn't want the U.S. and the West to see him going soft. In the meantime, he can'...
+
+<img src="https://media.gettr.com/group4/getter/2022/06/29/10/35064e8e-a87d-6e40-2d54-5bad02892479/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1g9uwyf2d6.md)
 
 2022.06.29 新中国联邦 | 军情室 杜布诺战役
@@ -80,11 +88,11 @@
 
 ---
 
-[@miles 6/29/2022 10:30 AM UTC  - :tv:直播](/content/gettr/p1g9gsm51c3.md)
+[@miles 6/29/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1g9xh5347d.md)
 
-6/28/2022 Miles Guo: Xi Jinping will invade Taiwan whatsoever. Russia's defeat in the war will only enhance Xi's determination to take Taiwan, as he doesn't want the U.S. and the West to see him going soft. In the meantime, he can'...
+20220629 NFSCニュース　日本政府、不正暗号資産対策を強化
 
-<img src="https://media.gettr.com/group4/getter/2022/06/29/10/35064e8e-a87d-6e40-2d54-5bad02892479/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/06/29/11/e453951a-608c-f722-3a69-9bfcac7a7265/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022年6月28日 文贵大直播：国内水灾粮灾封控解封又封；海外追缴盗国贼藏钱地继续；再谈香港经济港币主动脱钩；疫苗灾难无法挽回令人心寒  （1080P版）
 
 <img src="https://media.gettr.com/group14/origin/2022/06/28/12/2ff8a494-74ff-10b2-8211-dfc6910f2c1d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1g4kkxc5da.md)
-
-20220628 NFSCニュース　中国からの亡命者 10年間で８倍に増加
-
-<img src="https://media.gettr.com/group35/origin/2022/06/28/11/12b55585-100b-f748-fc5b-78679cd50bef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
