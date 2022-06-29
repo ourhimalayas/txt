@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/29/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1g9xqz0102.md)
+
+2022年6月29日 MOS 《回响》第三期 （4K版）
+
+
+
+<img src="https://media.gettr.com/group15/origin/2022/06/29/14/836490b8-2ddb-9dc4-4676-71dc3d6c104e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1g9mrx8471.md)
+
+2022.06.29 早 新中国联邦 | 新闻访谈  G7领袖承诺无限期向乌克兰提供援助 国际社会质疑中共国快速器官移植的来源
+
+<img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1ga14d8f08.md)
 
 2022.06.29 早 新中国联邦 ｜ 新闻  安石帮助盗国贼洗劫百姓财富；郭文贵先生谈追回盗国贼偷窃中国百姓的资产；中共危墙倒塌前 一系列灾难即将上演；中共用动态清零 为疫苗灾难准备邪恶计划
@@ -112,11 +130,11 @@
 
 ---
 
-[@miles 6/29/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1g9mrx8471.md)
+[@miles 6/29/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1ga65m84a8.md)
 
-2022.06.29 早 新中国联邦 | 新闻访谈  G7领袖承诺无限期向乌克兰提供援助 国际社会质疑中共国快速器官移植的来源
+2022年6月29日 MOS 《回响》第三期 （1080P版）
 
-<img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/06/29/14/ad126038-dc4f-0108-0664-5db33b320aaf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -144,18 +162,6 @@
 
 ---
 
-[@miles 6/28/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1g6czj2af7.md)
-
-（4K版）飞飞秀 《出山篇·黑科技》 2022-06-28
-
-For English: gettr.com/post/p1g6ttg1641
-
-
-
-<img src="https://media.gettr.com/group42/origin/2022/06/28/21/51064c67-4739-79fe-9b3e-11d51f8b197f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/28/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1g6h8b64eb.md)
 
 （1080版）飞飞秀 《出山篇·黑科技》 2022-06-28
@@ -163,14 +169,6 @@ For English: gettr.com/post/p1g6ttg1641
 For English: gettr.com/post/p1g6ttg1641
 
 <img src="https://media.gettr.com/group25/origin/2022/06/28/22/ec939610-6a85-d27c-0ba0-04da06da537d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1g69y67fe5.md)
-
-2022.06.28 新中国联邦 | 喜健康  《CCP解剖学》CCP 病毒和疫苗对生殖系统的损害；导致性功能减退是否有良方妙药;虚假科研论文破解思路
-
-<img src="https://media.gettr.com/group36/origin/2022/05/26/20/ee312c74-1d77-c5f8-2eca-c39b377dc0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
