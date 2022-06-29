@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1g7wuu2a66.md)
+
+2022-6-28《鸡血王喜币大作战》 第二百四十集 嘉宾：无双柳薇薇、封神榜
+
+<img src="https://media.gettr.com/group27/origin/2022/06/29/03/c4c58a76-452c-4f21-a2dc-1b3d66d21f2a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 2:08 AM UTC  - :tv:直播](/content/gettr/p1g6vi6f67c.md)
 
 2022年6月28日 新中国联邦 | 喜财经 第93 期  卢布过山车表演继续；美联储加息的两难；经济规律不会因为短期扭曲和妄想而改变；躺平币的核心价值
@@ -40,11 +48,11 @@
 
 ---
 
-[@miles 6/29/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1g7wuu2a66.md)
+[@miles 6/29/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1g8iruf448.md)
 
-2022-6-28《鸡血王喜币大作战》 第二百四十集 嘉宾：无双柳薇薇、封神榜
+6/28/2022 Miles Guo: Through a financial scheme the CCP will make HK dollar disappear so that it can furtively plunder the wealth of Hong Kong people and the CCP's hidden wealth and dirty past will never get exposed; meanwhile the ...
 
-<img src="https://media.gettr.com/group27/origin/2022/06/29/03/c4c58a76-452c-4f21-a2dc-1b3d66d21f2a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/06/29/05/7209766e-6d69-820e-111b-a06119007a45/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.27  晚 新中国联邦⎪新闻访谈   美高院推翻”罗诉韦德案”引起各方热议；美SEC与CFTC将达成协议以统一数字货币规范；俄罗斯陷入历史性的债务违约，七国集团宣布禁止进口俄罗斯黄金
 
 <img src="https://media.gettr.com/group12/origin/2022/06/28/01/09e825f4-632c-fad7-09f3-85489237ab3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1g1cgtae93.md)
-
-2022.06.27 晚 新中国联邦 | 新闻 对敲喜币要谨慎法律红线不能踩 中共大厦将倾喜支付平台应运而生 班农：中国人民的自由是世界人民自由的前提
-
-<img src="https://media.gettr.com/group28/origin/2022/05/01/00/165ac427-081f-820d-a4bc-f44925fdc157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
