@@ -12,6 +12,22 @@
 
 ---
 
+[@miles 6/29/2022 2:52 PM UTC ](/content/gettr/p1g9k6ma211.md)
+
+6月29日：尊敬的战友们好，今天没有时间录制视频了，星期天才能有大直播……【美国联邦通信委员会委员呼吁苹果和谷歌从他们的应用商店中删除 TikTok，称这是国家安全风险】
+
+<img src="https://media.gettr.com/group13/getter/2022/06/29/14/68d1ddd1-cb1b-2396-e069-7ea193d95d0c/63cb0216771e2f25dfa1060420b936f1.jpg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1ga65m84a8.md)
+
+2022年6月29日 MOS 《回响》第三期 （1080P版）
+
+<img src="https://media.gettr.com/group29/origin/2022/06/29/14/ad126038-dc4f-0108-0664-5db33b320aaf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1g9mrx8471.md)
 
 2022.06.29 早 新中国联邦 | 新闻访谈  G7领袖承诺无限期向乌克兰提供援助 国际社会质疑中共国快速器官移植的来源
@@ -130,14 +146,6 @@
 
 ---
 
-[@miles 6/29/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1ga65m84a8.md)
-
-2022年6月29日 MOS 《回响》第三期 （1080P版）
-
-<img src="https://media.gettr.com/group29/origin/2022/06/29/14/ad126038-dc4f-0108-0664-5db33b320aaf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/29/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1g76q0980c.md)
 
 6/28/2022 Miles Guo: Even if the HK dollar decoupled with the US dollar, it would be possible for Hong Kong to have a "rebound". Because Hong Kong facilitates the CCP's money laundry and wealth storage, bridging the communication b...
@@ -159,16 +167,6 @@
 2022.06.28 PM NFSC news   Endless Disasters Unless the CCP Is Taken Down
 
 <img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/28/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1g6h8b64eb.md)
-
-（1080版）飞飞秀 《出山篇·黑科技》 2022-06-28
-
-For English: gettr.com/post/p1g6ttg1641
-
-<img src="https://media.gettr.com/group25/origin/2022/06/28/22/ec939610-6a85-d27c-0ba0-04da06da537d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
