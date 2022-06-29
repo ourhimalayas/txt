@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1ga14d8f08.md)
+
+2022.06.29 早 新中国联邦 ｜ 新闻  安石帮助盗国贼洗劫百姓财富；郭文贵先生谈追回盗国贼偷窃中国百姓的资产；中共危墙倒塌前 一系列灾难即将上演；中共用动态清零 为疫苗灾难准备邪恶计划
+
+<img src="https://media.gettr.com/group6/origin/2022/06/29/12/8a0352f7-50cf-b722-ce52-3fca18758b56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1g9bae4307.md)
 
 2022.06.29 AM NFSC News   Miles Guo Shares: Learn to Nurture and Cherish Good People
@@ -104,11 +112,13 @@
 
 ---
 
-[@miles 6/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1ga14d8f08.md)
+[@xiguobaoman 6/29/2022 12:37 PM UTC  - 4圖](/content/gettr/p1g9k298481.md)
 
-2022.06.29 早 新中国联邦 ｜ 新闻  安石帮助盗国贼洗劫百姓财富；郭文贵先生谈追回盗国贼偷窃中国百姓的资产；中共危墙倒塌前 一系列灾难即将上演；中共用动态清零 为疫苗灾难准备邪恶计划
+#秘密翻译组 #喜國暴漫 
 
-<img src="https://media.gettr.com/group6/origin/2022/06/29/12/8a0352f7-50cf-b722-ce52-3fca18758b56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+《墻國極限壓力測試》（一）
+
+<img src="https://media.gettr.com/group40/getter/2022/06/29/12/4293589f-028c-2a5e-b3ef-c52b95cc2053/d070c306932e0d5f04cfd6e1993053b1.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.28 新中国联邦 | 喜健康  《CCP解剖学》CCP 病毒和疫苗对生殖系统的损害；导致性功能减退是否有良方妙药;虚假科研论文破解思路
 
 <img src="https://media.gettr.com/group36/origin/2022/05/26/20/ee312c74-1d77-c5f8-2eca-c39b377dc0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1g5bk9f3df.md)
-
-2022-6-28 《避风港》（65）mRNA疫苗过敏致死揭秘
-
-<img src="https://media.gettr.com/group32/origin/2022/06/28/18/77afbe1a-d84e-021b-e9ea-276c7b6d79d5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
