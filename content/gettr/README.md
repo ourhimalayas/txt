@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 6/29/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1gbul97eac.md)
+
+2022.06.29 PM NFSC News Canada announces additional sanctions against Russia
+
+<img src="https://media.gettr.com/group29/origin/2022/06/29/22/6cdbad93-c05a-60d0-82e7-559dea64b7a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1gceqh1b74.md)
+
+6/28/2022 Miles Guo: The wealth of the Chinese people which has been illegally appropriated by the CCP's kleptocrats will surely be recovered eventually. We should be conscious that it will take time and we need to learn from the e...
+
+<img src="https://media.gettr.com/group10/getter/2022/06/29/23/78ecebe5-fb45-3ed7-a3b8-b296e5a9061f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 11:07 PM UTC  - :tv:直播](/content/gettr/p1gc1lm287f.md)
+
+6/28/2022 Miles Guo: Citizens of the New Federal State of China are being watched by the Swamp everyday; our fellows in Hong Kong and Taiwan are role models for Chinese people, and have proved to the world that Chinese, as an ethni...
+
+<img src="https://media.gettr.com/group23/getter/2022/06/29/23/579ac1a6-e193-7d26-5fdb-ecd586ce15c1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1gc0zh14e2.md)
+
+6/28/2022 Miles Guo: The truthfulness of the Whistleblowers' Movement has shown the world a new image of Chinese people! Citizens of the New Federal State of China will grow in the cause of taking down the CCP. We are helping all C...
+
+<img src="https://media.gettr.com/group13/getter/2022/06/29/22/7adc14d7-57e9-f472-7207-b453c2f2a6c5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1gc5o667be.md)
 
 6/28/2022 Miles Guo: Our friends in the Swamp suggested that the NFSC need to establish some mechanism to deal with the smears against us in the Western media; they are helping us without letting us know. Our rescue operation in Uk...
@@ -20,11 +52,11 @@ Fayfay Show with G|Fashion 2022-06-29
 
 ---
 
-[@miles 6/29/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1gc0zh14e2.md)
+[@miles 6/29/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1gbjhed566.md)
 
-6/28/2022 Miles Guo: The truthfulness of the Whistleblowers' Movement has shown the world a new image of Chinese people! Citizens of the New Federal State of China will grow in the cause of taking down the CCP. We are helping all C...
+6/28/2022 Miles Guo: The people in the Swamp believe that whether or not Xi Jinping invades Taiwan does not matter at all, because Xi and Wang will be gone. The Swamp is far more powerful than the ordinary people in influencing oth...
 
-<img src="https://media.gettr.com/group13/getter/2022/06/29/22/7adc14d7-57e9-f472-7207-b453c2f2a6c5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/06/29/23/00a8cf80-fb6e-80d7-44ed-e71ff5d8dbee/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,38 +173,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 2022.06.29 早 新中国联邦 | 新闻访谈  G7领袖承诺无限期向乌克兰提供援助 国际社会质疑中共国快速器官移植的来源
 
 <img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1ga14d8f08.md)
-
-2022.06.29 早 新中国联邦 ｜ 新闻  安石帮助盗国贼洗劫百姓财富；郭文贵先生谈追回盗国贼偷窃中国百姓的资产；中共危墙倒塌前 一系列灾难即将上演；中共用动态清零 为疫苗灾难准备邪恶计划
-
-<img src="https://media.gettr.com/group6/origin/2022/06/29/12/8a0352f7-50cf-b722-ce52-3fca18758b56/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1g9bae4307.md)
-
-2022.06.29 AM NFSC News   Miles Guo Shares: Learn to Nurture and Cherish Good People
-
-<img src="https://media.gettr.com/group33/origin/2022/06/29/11/4ef7ebf8-d6ab-a667-f553-8d4ff01c9f33/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/29/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1g9xh5347d.md)
-
-20220629 NFSCニュース　日本政府、不正暗号資産対策を強化
-
-<img src="https://media.gettr.com/group49/origin/2022/06/29/11/e453951a-608c-f722-3a69-9bfcac7a7265/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 10:30 AM UTC  - :tv:直播](/content/gettr/p1g9gsm51c3.md)
-
-6/28/2022 Miles Guo: Xi Jinping will invade Taiwan whatsoever. Russia's defeat in the war will only enhance Xi's determination to take Taiwan, as he doesn't want the U.S. and the West to see him going soft. In the meantime, he can'...
-
-<img src="https://media.gettr.com/group4/getter/2022/06/29/10/35064e8e-a87d-6e40-2d54-5bad02892479/out.jpg" width="506" height="284">
 
 ---
 
