@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1g77yz27eb.md)
+
+2022.06.28 晚 新中国联邦 | 新闻访谈 上海一公交车滑入路边河道，驾驶员身体不适事发时车上无乘客；前自由党议员批加拿大是疫情期间唯一加税的政府；吃蟋蟀拯救地球解决粮食危机
+
+<img src="https://media.gettr.com/group48/origin/2022/06/29/00/46f07bea-e1eb-5a7d-fbe2-3259f4dff238/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1g78fj705f.md)
 
 2022.06.28  晚 新中国联邦⎪新闻  加拿大宣布对俄罗斯实施新一轮制裁；国际社会再次质疑中共涉嫌强摘器官；DWAC收到纽约南区法院传票；拜登签署国安备忘录，打击中共非法捕捞
@@ -24,11 +32,11 @@
 
 ---
 
-[@miles 6/29/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1g77yz27eb.md)
+[@miles 6/29/2022 2:08 AM UTC  - :tv:直播](/content/gettr/p1g6vi6f67c.md)
 
-2022.06.28 晚 新中国联邦 | 新闻访谈 上海一公交车滑入路边河道，驾驶员身体不适事发时车上无乘客；前自由党议员批加拿大是疫情期间唯一加税的政府；吃蟋蟀拯救地球解决粮食危机
+2022年6月28日 新中国联邦 | 喜财经 第93 期  卢布过山车表演继续；美联储加息的两难；经济规律不会因为短期扭曲和妄想而改变；躺平币的核心价值
 
-<img src="https://media.gettr.com/group48/origin/2022/06/29/00/46f07bea-e1eb-5a7d-fbe2-3259f4dff238/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/06/29/02/6a222f0a-1bac-38ee-34a2-75dd843ac3ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.27 晚 新中国联邦 | 新闻 对敲喜币要谨慎法律红线不能踩 中共大厦将倾喜支付平台应运而生 班农：中国人民的自由是世界人民自由的前提
 
 <img src="https://media.gettr.com/group28/origin/2022/05/01/00/165ac427-081f-820d-a4bc-f44925fdc157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1g1k2n5107.md)
-
-6/27/2022 Miles Guo’s GETTR: Tang Ping (Lying-flat) Coins can enable you to get the job done when you are lying flat, i.e., taking down the CCP while lying flat. You are encouraged to do more things that are beneficial for taking d...
-
-<img src="https://media.gettr.com/group16/getter/2022/06/27/23/fc628433-a8f3-b272-dd53-d1cba4888687/out.jpg" width="506" height="284">
 
 ---
 
