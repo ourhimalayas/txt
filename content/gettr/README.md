@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 6/29/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1gcgweda67.md)
+
+2022.06.29 PM NFSC Fringe  Miles’ new Insight of swamp; The future of NFSC/GClub; FCC/ DWAC issue...
+
+<img src="https://media.gettr.com/group18/origin/2022/06/29/23/2343b5b8-c8f8-fd6d-46e0-1803c586f25f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1gceqh1b74.md)
 
 6/28/2022 Miles Guo: The wealth of the Chinese people which has been illegally appropriated by the CCP's kleptocrats will surely be recovered eventually. We should be conscious that it will take time and we need to learn from the e...
@@ -23,6 +31,14 @@
 6/28/2022 Miles Guo: Citizens of the New Federal State of China are being watched by the Swamp everyday; our fellows in Hong Kong and Taiwan are role models for Chinese people, and have proved to the world that Chinese, as an ethni...
 
 <img src="https://media.gettr.com/group23/getter/2022/06/29/23/579ac1a6-e193-7d26-5fdb-ecd586ce15c1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1gbjhed566.md)
+
+6/28/2022 Miles Guo: The people in the Swamp believe that whether or not Xi Jinping invades Taiwan does not matter at all, because Xi and Wang will be gone. The Swamp is far more powerful than the ordinary people in influencing oth...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/29/23/00a8cf80-fb6e-80d7-44ed-e71ff5d8dbee/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,14 +65,6 @@
 Fayfay Show with G|Fashion 2022-06-29
 
 <img src="https://media.gettr.com/group12/origin/2022/06/29/22/eeca8a89-af79-8d37-8748-814c9fbcddac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1gbjhed566.md)
-
-6/28/2022 Miles Guo: The people in the Swamp believe that whether or not Xi Jinping invades Taiwan does not matter at all, because Xi and Wang will be gone. The Swamp is far more powerful than the ordinary people in influencing oth...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/29/23/00a8cf80-fb6e-80d7-44ed-e71ff5d8dbee/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 2022年6月29日 MOS 《回响》第三期 （1080P版）
 
 <img src="https://media.gettr.com/group29/origin/2022/06/29/14/ad126038-dc4f-0108-0664-5db33b320aaf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1g9mrx8471.md)
-
-2022.06.29 早 新中国联邦 | 新闻访谈  G7领袖承诺无限期向乌克兰提供援助 国际社会质疑中共国快速器官移植的来源
-
-<img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
