@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1gc5o667be.md)
+
+6/28/2022 Miles Guo: Our friends in the Swamp suggested that the NFSC need to establish some mechanism to deal with the smears against us in the Western media; they are helping us without letting us know. Our rescue operation in Uk...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/29/22/9df761df-be1e-07b8-127b-1625831a8e03/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1gc7ii87f1.md)
 
 (4K版) 飞飞秀 G|Fashion特辑
@@ -12,11 +20,11 @@ Fayfay Show with G|Fashion 2022-06-29
 
 ---
 
-[@miles 6/29/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1gc5o667be.md)
+[@miles 6/29/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1gc0zh14e2.md)
 
-6/28/2022 Miles Guo: Our friends in the Swamp suggested that the NFSC need to establish some mechanism to deal with the smears against us in the Western media; they are helping us without letting us know. Our rescue operation in Uk...
+6/28/2022 Miles Guo: The truthfulness of the Whistleblowers' Movement has shown the world a new image of Chinese people! Citizens of the New Federal State of China will grow in the cause of taking down the CCP. We are helping all C...
 
-<img src="https://media.gettr.com/group22/getter/2022/06/29/22/9df761df-be1e-07b8-127b-1625831a8e03/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/06/29/22/7adc14d7-57e9-f472-7207-b453c2f2a6c5/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 6/28/2022 Miles Guo: Xi Jinping will invade Taiwan whatsoever. Russia's defeat in the war will only enhance Xi's determination to take Taiwan, as he doesn't want the U.S. and the West to see him going soft. In the meantime, he can'...
 
 <img src="https://media.gettr.com/group4/getter/2022/06/29/10/35064e8e-a87d-6e40-2d54-5bad02892479/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1g9uwyf2d6.md)
-
-2022.06.29 新中国联邦 | 军情室 杜布诺战役
-
-<img src="https://media.gettr.com/group50/origin/2022/06/29/09/295afa2b-717a-32c1-33dc-904dca2ba8df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
