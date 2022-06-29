@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 2:08 AM UTC  - :tv:直播](/content/gettr/p1g6vi6f67c.md)
+
+2022年6月28日 新中国联邦 | 喜财经 第93 期  卢布过山车表演继续；美联储加息的两难；经济规律不会因为短期扭曲和妄想而改变；躺平币的核心价值
+
+<img src="https://media.gettr.com/group40/origin/2022/06/29/02/6a222f0a-1bac-38ee-34a2-75dd843ac3ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1g77yz27eb.md)
 
 2022.06.28 晚 新中国联邦 | 新闻访谈 上海一公交车滑入路边河道，驾驶员身体不适事发时车上无乘客；前自由党议员批加拿大是疫情期间唯一加税的政府；吃蟋蟀拯救地球解决粮食危机
@@ -32,11 +40,11 @@
 
 ---
 
-[@miles 6/29/2022 2:08 AM UTC  - :tv:直播](/content/gettr/p1g6vi6f67c.md)
+[@miles 6/29/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p1g7wuu2a66.md)
 
-2022年6月28日 新中国联邦 | 喜财经 第93 期  卢布过山车表演继续；美联储加息的两难；经济规律不会因为短期扭曲和妄想而改变；躺平币的核心价值
+2022-6-28《鸡血王喜币大作战》 第二百四十集 嘉宾：无双柳薇薇、封神榜
 
-<img src="https://media.gettr.com/group40/origin/2022/06/29/02/6a222f0a-1bac-38ee-34a2-75dd843ac3ea/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/29/03/c4c58a76-452c-4f21-a2dc-1b3d66d21f2a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.27 晚 新中国联邦 | 新闻 对敲喜币要谨慎法律红线不能踩 中共大厦将倾喜支付平台应运而生 班农：中国人民的自由是世界人民自由的前提
 
 <img src="https://media.gettr.com/group28/origin/2022/05/01/00/165ac427-081f-820d-a4bc-f44925fdc157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:33 PM UTC  - :tv:直播](/content/gettr/p1g0u9420f1.md)
-
-2022.06.27 PM NFSC Fringe  Digital currency, unification of human power and finance
-
-<img src="https://media.gettr.com/group25/origin/2022/06/27/23/c28c946e-a45b-03d7-1e1f-bd5f6e358445/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
