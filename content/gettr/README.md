@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/28/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1g6xu2be47.md)
+
+2022.06.28 PM NFSC news   Endless Disasters Unless the CCP Is Taken Down
+
+<img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1g6czj2af7.md)
 
 （4K版）飞飞秀 《出山篇·黑科技》 2022-06-28
@@ -14,11 +22,11 @@ For English: gettr.com/post/p1g6ttg1641
 
 ---
 
-[@miles 6/28/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1g6xu2be47.md)
+[@miles 6/28/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1g6sp09185.md)
 
-2022.06.28 PM NFSC news   Endless Disasters Unless the CCP Is Taken Down
+6/28/2022 Miles Guo: The CCP understands that the COVID vaccine disaster will result in the deaths of hundreds of millions of people. Thus, the CCP has built numerous public graveyards and crematorium facilities, invented all sorts...
 
-<img src="https://media.gettr.com/group20/origin/2022/06/17/23/0e1cbaf6-d110-fedb-5749-c7443b79723f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/06/28/23/38f5f46e-bd20-2a8d-8d0a-923ad1557031/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ For English: gettr.com/post/p1g6ttg1641
 6/27/2022 Miles Guo’s GETTR: America has a huge economic bubble, but the economic recession and freefall haven’t started yet. The investors who hold a large number of stocks are unable to sell them off because they have lots of fin...
 
 <img src="https://media.gettr.com/group33/getter/2022/06/27/23/5456daa9-6258-2f85-c0d8-378ca5052e5d/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1g0pqp120c.md)
-
-2022.06.27 PM NFSC News  G7 Countries will ban Russia gold imports
-
-<img src="https://media.gettr.com/group41/origin/2022/06/27/22/30c4e9d6-52f5-83e1-0644-8e79ae9f0edd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
