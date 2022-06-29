@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1gb4gi444b.md)
+
+2022年6月29日 俄乌战争警示台海
+
+<img src="https://media.gettr.com/group36/origin/2022/06/29/16/3e782926-1f5c-3e99-483f-3d470a2f4f20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 2:52 PM UTC ](/content/gettr/p1g9k6ma211.md)
 
 6月29日：尊敬的战友们好，今天没有时间录制视频了，星期天才能有大直播……【美国联邦通信委员会委员呼吁苹果和谷歌从他们的应用商店中删除 TikTok，称这是国家安全风险】
@@ -20,11 +28,11 @@
 
 ---
 
-[@miles 6/29/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1gb4gi444b.md)
+[@miles 6/29/2022 4:49 PM UTC  - :tv:直播](/content/gettr/p1gb4jab5ae.md)
 
-2022年6月29日 俄乌战争警示台海
+6月29日：尊敬的战友们好……共产党在西方的信息超限战到了终结的时刻，全世界的经济正在走向崩溃，千万不要因为贫．而毁掉自己……
 
-<img src="https://media.gettr.com/group36/origin/2022/06/29/16/3e782926-1f5c-3e99-483f-3d470a2f4f20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/06/29/16/1b95ca2d-c069-40a0-3eba-65d1e9780dc3/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@
 6/28/2022 Miles Guo: Even if the HK dollar decoupled with the US dollar, it would be possible for Hong Kong to have a "rebound". Because Hong Kong facilitates the CCP's money laundry and wealth storage, bridging the communication b...
 
 <img src="https://media.gettr.com/group41/getter/2022/06/29/00/a9ab3b05-0198-0c3d-5475-11148d3142df/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/28/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1g6sp09185.md)
-
-6/28/2022 Miles Guo: The CCP understands that the COVID vaccine disaster will result in the deaths of hundreds of millions of people. Thus, the CCP has built numerous public graveyards and crematorium facilities, invented all sorts...
-
-<img src="https://media.gettr.com/group44/getter/2022/06/28/23/38f5f46e-bd20-2a8d-8d0a-923ad1557031/out.jpg" width="506" height="284">
 
 ---
 
