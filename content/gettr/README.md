@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1g78fj705f.md)
+
+2022.06.28  晚 新中国联邦⎪新闻  加拿大宣布对俄罗斯实施新一轮制裁；国际社会再次质疑中共涉嫌强摘器官；DWAC收到纽约南区法院传票；拜登签署国安备忘录，打击中共非法捕捞
+
+<img src="https://media.gettr.com/group14/origin/2022/06/29/00/472045b1-9d0e-d0bb-e6f1-ac9d30b6e3d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@ninaballerina88 6/28/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1g6zosb050.md)
 
 #小微嘚不嘚  第十三期：敢死队来了！
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 6/29/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1g78fj705f.md)
+[@miles 6/29/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1g77yz27eb.md)
 
-2022.06.28  晚 新中国联邦⎪新闻  加拿大宣布对俄罗斯实施新一轮制裁；国际社会再次质疑中共涉嫌强摘器官；DWAC收到纽约南区法院传票；拜登签署国安备忘录，打击中共非法捕捞
+2022.06.28 晚 新中国联邦 | 新闻访谈 上海一公交车滑入路边河道，驾驶员身体不适事发时车上无乘客；前自由党议员批加拿大是疫情期间唯一加税的政府；吃蟋蟀拯救地球解决粮食危机
 
-<img src="https://media.gettr.com/group14/origin/2022/06/29/00/472045b1-9d0e-d0bb-e6f1-ac9d30b6e3d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/06/29/00/46f07bea-e1eb-5a7d-fbe2-3259f4dff238/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.27 PM NFSC Fringe  Digital currency, unification of human power and finance
 
 <img src="https://media.gettr.com/group25/origin/2022/06/27/23/c28c946e-a45b-03d7-1e1f-bd5f6e358445/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1g191ued5d.md)
-
-6/27/2022 Miles Guo’s GETTR: America has a huge economic bubble, but the economic recession and freefall haven’t started yet. The investors who hold a large number of stocks are unable to sell them off because they have lots of fin...
-
-<img src="https://media.gettr.com/group33/getter/2022/06/27/23/5456daa9-6258-2f85-c0d8-378ca5052e5d/out.jpg" width="506" height="284">
 
 ---
 
