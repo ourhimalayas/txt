@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 8:02 AM UTC  - :tv:直播](/content/gettr/p1g96xu0c09.md)
+
+《焦点》90期：扁平化管理的践行者；联盟基金HDO项目简介；秘翻-爆料革命高产出的团队，灭爆小组重点的攻击目标
+
+<img src="https://media.gettr.com/group15/origin/2022/06/29/07/cade2e5e-7761-e55e-5677-c8b10a625a19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 6:28 AM UTC  - :tv:直播](/content/gettr/p1g97pd86ab.md)
 
 6/28/2022 Miles Guo: Many countries are afraid of the long arm of US dollars and will decouple their currencies from US dollars and adopt the currency basket plan; the Hong Kong dollar will be converted to offshore RMB after decoup...
@@ -64,11 +72,11 @@
 
 ---
 
-[@miles 6/29/2022 8:02 AM UTC  - :tv:直播](/content/gettr/p1g96xu0c09.md)
+[@miles 6/29/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1g9uwyf2d6.md)
 
-《焦点》90期：扁平化管理的践行者；联盟基金HDO项目简介；秘翻-爆料革命高产出的团队，灭爆小组重点的攻击目标
+2022.06.29 新中国联邦 | 军情室 杜布诺战役
 
-<img src="https://media.gettr.com/group15/origin/2022/06/29/07/cade2e5e-7761-e55e-5677-c8b10a625a19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/06/29/09/295afa2b-717a-32c1-33dc-904dca2ba8df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022-6-27《鸡血王喜币大作战》 第二百三十九集 嘉宾：Nick、文空
 
 <img src="https://media.gettr.com/group35/origin/2022/06/28/03/1174b365-f822-c6cd-e9c2-e5f999d952af/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/28/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1g1gcs7c57.md)
-
-2022.06.28 新中国联邦 | 喜财经 第92期 盗国贼偷天换日，操纵万亿金融票据；海外藏钱狡兔三窟；港币与人民币的未来以及世界货币格局的大重置
-
-<img src="https://media.gettr.com/group7/origin/2022/05/25/01/dc27432c-3b0c-5cfc-061d-b98acf5f3ae8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
