@@ -2,6 +2,28 @@
 ---
 
 
+[@ninaballerina88 6/28/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1g6zosb050.md)
+
+#小微嘚不嘚  第十三期：敢死队来了！
+
+主持人：Nina微蓝   Enzo小强 @EnzoGuo
+
+美东时间：6月28日 07:30-08:30 pm
+
+嘉宾：（扬帆农场）卢比肯 @KennS
+
+<img src="https://media.gettr.com/group12/origin/2022/06/28/23/5d3a66e8-7598-92e1-6206-132e6b71dd54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/28/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1g6sp09185.md)
+
+6/28/2022 Miles Guo: The CCP understands that the COVID vaccine disaster will result in the deaths of hundreds of millions of people. Thus, the CCP has built numerous public graveyards and crematorium facilities, invented all sorts...
+
+<img src="https://media.gettr.com/group44/getter/2022/06/28/23/38f5f46e-bd20-2a8d-8d0a-923ad1557031/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/28/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1g6xu2be47.md)
 
 2022.06.28 PM NFSC news   Endless Disasters Unless the CCP Is Taken Down
@@ -22,11 +44,11 @@ For English: gettr.com/post/p1g6ttg1641
 
 ---
 
-[@miles 6/28/2022 11:56 PM UTC  - :tv:直播](/content/gettr/p1g6sp09185.md)
+[@miles 6/29/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1g76q0980c.md)
 
-6/28/2022 Miles Guo: The CCP understands that the COVID vaccine disaster will result in the deaths of hundreds of millions of people. Thus, the CCP has built numerous public graveyards and crematorium facilities, invented all sorts...
+6/28/2022 Miles Guo: Even if the HK dollar decoupled with the US dollar, it would be possible for Hong Kong to have a "rebound". Because Hong Kong facilitates the CCP's money laundry and wealth storage, bridging the communication b...
 
-<img src="https://media.gettr.com/group44/getter/2022/06/28/23/38f5f46e-bd20-2a8d-8d0a-923ad1557031/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/06/29/00/a9ab3b05-0198-0c3d-5475-11148d3142df/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,26 +157,6 @@ For English: gettr.com/post/p1g6ttg1641
 2022.06.27 PM NFSC Fringe  Digital currency, unification of human power and finance
 
 <img src="https://media.gettr.com/group25/origin/2022/06/27/23/c28c946e-a45b-03d7-1e1f-bd5f6e358445/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1g1h2cd3ec.md)
-
-6/24/2022 Miles Guo: What does it mean for Wang Qishan to transfer the equities and control of Beijing International Trust to Win Eagle Investment Limited and Ashmore Group without paying a penny? Win Eagle Investment Limited and A...
-
-<img src="https://media.gettr.com/group12/getter/2022/06/27/23/be28d304-c018-8d36-4cff-937903428553/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 11:17 PM UTC  - :tv:直播](/content/gettr/p1g0o9s84df.md)
-
-6/24/2022 Miles Guo: The US is establishing the new standard for the future taxation of the digital currency network for the world to sign. The Himalaya Exchange will be the No. 1 new financial system in the world!
-
-
-
-6/24/2022 文贵直...
-
-<img src="https://media.gettr.com/group49/getter/2022/06/27/23/2ecc8c8e-bc19-4c33-0f0c-6fba6b1f0f1d/out.jpg" width="506" height="284">
 
 ---
 
