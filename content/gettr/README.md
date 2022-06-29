@@ -12,6 +12,14 @@ Fayfay Show with G|Fashion 2022-06-29
 
 ---
 
+[@miles 6/29/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1gc5o667be.md)
+
+6/28/2022 Miles Guo: Our friends in the Swamp suggested that the NFSC need to establish some mechanism to deal with the smears against us in the Western media; they are helping us without letting us know. Our rescue operation in Uk...
+
+<img src="https://media.gettr.com/group22/getter/2022/06/29/22/9df761df-be1e-07b8-127b-1625831a8e03/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1gbreld466.md)
 
 (1080版) 飞飞秀 G|Fashion特辑
@@ -19,6 +27,14 @@ Fayfay Show with G|Fashion 2022-06-29
 Fayfay Show with G|Fashion 2022-06-29
 
 <img src="https://media.gettr.com/group39/origin/2022/06/29/22/88184142-b1d2-28ac-ed5a-3ded8ee5bbd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/29/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1gbykj499e.md)
+
+6/28/2022 Miles Guo: I am very confident that I can return the money stolen by the CCP kleptocrats to the Chinese people, but this takes at least 3 or 5 years. Both the Jiang family and Zhu Rongji own trillions of dollars of wealth...
+
+<img src="https://media.gettr.com/group28/getter/2022/06/29/22/70fdf91a-5afb-f125-1973-0d3a8dc89071/out.jpg" width="506" height="284">
 
 ---
 
@@ -104,14 +120,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 
 ---
 
-[@miles 6/29/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1gbykj499e.md)
-
-6/28/2022 Miles Guo: I am very confident that I can return the money stolen by the CCP kleptocrats to the Chinese people, but this takes at least 3 or 5 years. Both the Jiang family and Zhu Rongji own trillions of dollars of wealth...
-
-<img src="https://media.gettr.com/group28/getter/2022/06/29/22/70fdf91a-5afb-f125-1973-0d3a8dc89071/out.jpg" width="506" height="284">
-
----
-
 [@miles 6/29/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1ga65m84a8.md)
 
 2022年6月29日 MOS 《回响》第三期 （1080P版）
@@ -165,14 +173,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 2022.06.29 新中国联邦 | 军情室 杜布诺战役
 
 <img src="https://media.gettr.com/group50/origin/2022/06/29/09/295afa2b-717a-32c1-33dc-904dca2ba8df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 8:02 AM UTC  - :tv:直播](/content/gettr/p1g96xu0c09.md)
-
-《焦点》90期：扁平化管理的践行者；联盟基金HDO项目简介；秘翻-爆料革命高产出的团队，灭爆小组重点的攻击目标
-
-<img src="https://media.gettr.com/group15/origin/2022/06/29/07/cade2e5e-7761-e55e-5677-c8b10a625a19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
