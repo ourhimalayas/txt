@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 4:49 PM UTC  - :tv:直播](/content/gettr/p1gb4jab5ae.md)
+
+6月29日：尊敬的战友们好……共产党在西方的信息超限战到了终结的时刻，全世界的经济正在走向崩溃，千万不要因为贫．而毁掉自己……
+
+<img src="https://media.gettr.com/group10/getter/2022/06/29/16/1b95ca2d-c069-40a0-3eba-65d1e9780dc3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1gb4gi444b.md)
 
 2022年6月29日 俄乌战争警示台海
@@ -28,11 +36,11 @@
 
 ---
 
-[@miles 6/29/2022 4:49 PM UTC  - :tv:直播](/content/gettr/p1gb4jab5ae.md)
+[@miles 6/29/2022 5:44 PM UTC  - :tv:直播](/content/gettr/p1gay0360c4.md)
 
-6月29日：尊敬的战友们好……共产党在西方的信息超限战到了终结的时刻，全世界的经济正在走向崩溃，千万不要因为贫．而毁掉自己……
+2022年6月29日 文贵大直播精华版
 
-<img src="https://media.gettr.com/group10/getter/2022/06/29/16/1b95ca2d-c069-40a0-3eba-65d1e9780dc3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/06/29/17/ebc0d33c-d76d-696f-8cf1-197176046143/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,20 +153,6 @@
 2022.06.28  晚 新中国联邦⎪新闻  加拿大宣布对俄罗斯实施新一轮制裁；国际社会再次质疑中共涉嫌强摘器官；DWAC收到纽约南区法院传票；拜登签署国安备忘录，打击中共非法捕捞
 
 <img src="https://media.gettr.com/group14/origin/2022/06/29/00/472045b1-9d0e-d0bb-e6f1-ac9d30b6e3d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@ninaballerina88 6/28/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1g6zosb050.md)
-
-#小微嘚不嘚  第十三期：敢死队来了！
-
-主持人：Nina微蓝   Enzo小强 @EnzoGuo
-
-美东时间：6月28日 07:30-08:30 pm
-
-嘉宾：（扬帆农场）卢比肯 @KennS
-
-<img src="https://media.gettr.com/group12/origin/2022/06/28/23/5d3a66e8-7598-92e1-6206-132e6b71dd54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
