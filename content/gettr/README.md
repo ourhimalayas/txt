@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1gcjqe2a25.md)
+
+2022-6-29《鸡血王喜币大作战》 第二百四十一集 嘉宾：齐天二圣、Nick、七里香
+
+<img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 2:51 AM UTC  - :tv:直播](/content/gettr/p1gcrl3e45b.md)
 
 As for the Tang Ping ( Lying - flat ) Coins, after they got launched, everyone may get their Tang Ping ( Lying - flat ) Coins in different ways 
@@ -12,11 +20,11 @@ But they definitely will be launched on the same date and will start trading on 
 
 ---
 
-[@miles 6/30/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1gcjqe2a25.md)
+[@miles 6/30/2022 8:12 AM UTC  - :tv:直播](/content/gettr/p1gdoroafb4.md)
 
-2022-6-29《鸡血王喜币大作战》 第二百四十一集 嘉宾：齐天二圣、Nick、七里香
+6/29/2022 Miles Guo’s GETTR: The US will legislate to ban TikTok! All the CCP’s media’s Apps will be removed from app stores and even from the US root name servers! Overall, the world economy is doomed, and the mystery of Bitcoin w...
 
-<img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/06/30/08/843c641d-e7c0-29ff-81e4-bac23d0d2861/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ Fayfay Show with G|Fashion 2022-06-29
 2022.06.29 新中国联邦 | 喜健康  《寻医问药》美国执业心理医生在线答疑：脑卒、脑梗、高血压用药安全  《医学观察》
 
 <img src="https://media.gettr.com/group31/origin/2022/06/29/19/62440cfb-991a-7d82-f851-def9aac502fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 6:33 PM UTC  - :tv:直播](/content/gettr/p1gb43qe369.md)
-
-6月29号：七哥是什么？一点都不重要，最主要的是让我们的战友．能活得健康．和安全幸福，其他都没有任何价值……【马斯克周二在卡塔尔经济论坛上发表讲话称，美国经济衰退将在某个时候出现是“不可避免的”，在近期的未来“更有可能”。 本月早些时候，马斯克曾警告特斯拉高管，在美联储以 1994 年以来的最高利率上调利率后，他对经济前景感到“极度糟糕”。
-
-
-
-七哥的前瞻性？无与伦比😂】
-
-<img src="https://media.gettr.com/group29/getter/2022/06/29/18/44b4e92d-56b0-740b-141f-f08c09e926de/out.jpg" width="506" height="284">
 
 ---
 
