@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 6:32 PM UTC  - :tv:直播](/content/gettr/p1gh8kf3b68.md)
+
+2022-6-30 《避风港》（66）CDC用虚假数据通过婴幼儿疫苗紧急使用授权
+
+<img src="https://media.gettr.com/group6/origin/2022/06/30/18/d849fe59-be56-0f23-27d4-13faa7021bdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 3:13 PM UTC  - :tv:直播](/content/gettr/p1gg5ex60da.md)
 
 6月30号：尊敬的战友们好，你们健身了吗？全世界政治．经济．军事．每天都在巨大的变化中，我们如何能在躲过疫苗灾难．还能健康快乐．正常的活着？这是我们新中国联邦人……，每天都要思考．和面对的问题，我们要珍惜．新中国联邦．这个世界上最最干净．和最有未来的群体价值，一切都已经开始！
@@ -20,11 +28,11 @@
 
 ---
 
-[@miles 6/30/2022 6:32 PM UTC  - :tv:直播](/content/gettr/p1gh8kf3b68.md)
+[@oxfordfarm 6/30/2022 10:24 AM UTC  - :tv:直播](/content/gettr/p1geiw8abf0.md)
 
-2022-6-30 《避风港》（66）CDC用虚假数据通过婴幼儿疫苗紧急使用授权
+【Nana's Talk Show】How the CCP Kicked Jerry Out Of His Serbia Professional Football Team
 
-<img src="https://media.gettr.com/group6/origin/2022/06/30/18/d849fe59-be56-0f23-27d4-13faa7021bdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/06/30/10/34ca4d68-0f4a-b4b7-bd9d-2e4f8af042a4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 2022.06.29 PM NFSC Fringe  Miles’ new Insight of swamp; The future of NFSC/GClub; FCC/ DWAC issue...
 
 <img src="https://media.gettr.com/group18/origin/2022/06/29/23/2343b5b8-c8f8-fd6d-46e0-1803c586f25f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1gceqh1b74.md)
-
-6/28/2022 Miles Guo: The wealth of the Chinese people which has been illegally appropriated by the CCP's kleptocrats will surely be recovered eventually. We should be conscious that it will take time and we need to learn from the e...
-
-<img src="https://media.gettr.com/group10/getter/2022/06/29/23/78ecebe5-fb45-3ed7-a3b8-b296e5a9061f/out.jpg" width="506" height="284">
 
 ---
 
