@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1gcq6hf3fe.md)
+
+2022.06.29 晚 新中国联邦 | 新闻访谈 习近平七一或访港，港警如临大敌；青岛街办：“恶意不买房者”将被约谈；爆雷银行被质疑放行关系户；上海禁堂食，约饭似谍战；土耳其同意瑞典芬兰加入北约
+
+<img src="https://media.gettr.com/group32/origin/2022/06/30/01/c12c9781-ab31-36f0-1646-9b7a07bd4213/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1gc6s37ca2.md)
 
 2022.06.29  晚  新中国联邦 | 新闻  郭先生和爆料革命一定会彻底消灭中共  沼泽地表示 世界不会再有习和王
@@ -44,11 +52,11 @@ Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 
 ---
 
-[@miles 6/30/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1gcq6hf3fe.md)
+[@miles 6/30/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1gd320bf00.md)
 
-2022.06.29 晚 新中国联邦 | 新闻访谈 习近平七一或访港，港警如临大敌；青岛街办：“恶意不买房者”将被约谈；爆雷银行被质疑放行关系户；上海禁堂食，约饭似谍战；土耳其同意瑞典芬兰加入北约
+2022.06.29  新中国联邦 | 喜财经  第94期 中共用地产崩塌伤害世界，美元世界地位不保发数字美元
 
-<img src="https://media.gettr.com/group32/origin/2022/06/30/01/c12c9781-ab31-36f0-1646-9b7a07bd4213/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/06/30/02/bdc03e62-c2a4-9b04-567c-5738ef8a0a06/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 6月29日：尊敬的战友们好……共产党在西方的信息超限战到了终结的时刻，全世界的经济正在走向崩溃，千万不要因为贫．而毁掉自己……
 
 <img src="https://media.gettr.com/group10/getter/2022/06/29/16/1b95ca2d-c069-40a0-3eba-65d1e9780dc3/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1gb4gi444b.md)
-
-2022年6月29日 俄乌战争警示台海
-
-<img src="https://media.gettr.com/group36/origin/2022/06/29/16/3e782926-1f5c-3e99-483f-3d470a2f4f20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
