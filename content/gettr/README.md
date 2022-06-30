@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/29/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1gcgweda67.md)
+
+2022.06.29 PM NFSC Fringe  Miles’ new Insight of swamp; The future of NFSC/GClub; FCC/ DWAC issue...
+
+<img src="https://media.gettr.com/group18/origin/2022/06/29/23/2343b5b8-c8f8-fd6d-46e0-1803c586f25f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1gbul97eac.md)
 
 2022.06.29 PM NFSC News Canada announces additional sanctions against Russia
@@ -10,11 +18,21 @@
 
 ---
 
-[@miles 6/29/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1gcgweda67.md)
+[@thepotomacview 6/29/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1gc3txbe97.md)
 
-2022.06.29 PM NFSC Fringe  Miles’ new Insight of swamp; The future of NFSC/GClub; FCC/ DWAC issue...
+🇺🇸 How Does the US Succumb to Chinese Propaganda?
 
-<img src="https://media.gettr.com/group18/origin/2022/06/29/23/2343b5b8-c8f8-fd6d-46e0-1803c586f25f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+🇨🇳 How Do Chinese Propaganda Corrupt Western Values?
+
+
+
+🔥 New Episode 🔥
+
+YouTube: https://youtu.be/iIETxcAWUNU
+
+Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
+
+<img src="https://media.gettr.com/group39/origin/2022/06/29/23/e539d3a6-bda1-0158-7985-1ec611f1a8aa/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +173,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 6月29日：尊敬的战友们好，今天没有时间录制视频了，星期天才能有大直播……【美国联邦通信委员会委员呼吁苹果和谷歌从他们的应用商店中删除 TikTok，称这是国家安全风险】
 
 <img src="https://media.gettr.com/group13/getter/2022/06/29/14/68d1ddd1-cb1b-2396-e069-7ea193d95d0c/63cb0216771e2f25dfa1060420b936f1.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1g9xqz0102.md)
-
-2022年6月29日 MOS 《回响》第三期 （4K版）
-
-
-
-<img src="https://media.gettr.com/group15/origin/2022/06/29/14/836490b8-2ddb-9dc4-4676-71dc3d6c104e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
