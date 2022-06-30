@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 12:02 PM UTC  - :tv:直播](/content/gettr/p1gfd0b6b0e.md)
+
+2022.06.30 AM NFSC news  Ashmore Group Aids CCP’s Kleptocrats to Loot People's Wealth
+
+<img src="https://media.gettr.com/group19/origin/2022/06/03/11/a10c9ba3-19f0-16d0-a5eb-c47f20675d52/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1gfg016b41.md)
 
 2022.06.30 澳喜深挖爆料 ABC 的 Echo Hui是谁？揭开ABC幕后的黑手  — Echo Hui  系列节目，澳喜深挖echo hui，“人权”记者之路二   
@@ -36,11 +44,11 @@ But they definitely will be launched on the same date and will start trading on 
 
 ---
 
-[@miles 6/30/2022 12:02 PM UTC  - :tv:直播](/content/gettr/p1gfd0b6b0e.md)
+[@miles 6/30/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1gg00j6100.md)
 
-2022.06.30 AM NFSC news  Ashmore Group Aids CCP’s Kleptocrats to Loot People's Wealth
+2022.06.30 早 新中国联邦 ｜ 新闻     疫苗灾难近在眼前  中共媒体超限战穷途末路；百人“戒烟行动”事关健康，更是对毅力的考验；港高管大谈“斗争” 丝毫未见“回归”喜庆气氛
 
-<img src="https://media.gettr.com/group19/origin/2022/06/03/11/a10c9ba3-19f0-16d0-a5eb-c47f20675d52/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/06/30/12/6ddeffd5-f5ed-bdca-f053-44798b7fd7ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,16 +157,6 @@ Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 6/28/2022 Miles Guo: Our friends in the Swamp suggested that the NFSC need to establish some mechanism to deal with the smears against us in the Western media; they are helping us without letting us know. Our rescue operation in Uk...
 
 <img src="https://media.gettr.com/group22/getter/2022/06/29/22/9df761df-be1e-07b8-127b-1625831a8e03/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1gc7ii87f1.md)
-
-(4K版) 飞飞秀 G|Fashion特辑
-
-Fayfay Show with G|Fashion 2022-06-29
-
-<img src="https://media.gettr.com/group12/origin/2022/06/29/22/eeca8a89-af79-8d37-8748-814c9fbcddac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
