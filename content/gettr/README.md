@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/30/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1gfwyc930f.md)
+
+（1080版）叶钊颖-郝海东-飞飞 《大实话·第二十二场》： “名”  
+
+2022-06-30
+
+<img src="https://media.gettr.com/group17/origin/2022/06/30/14/f12c0ac4-0537-db2c-7d69-8cf0e6c16e6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/30/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1gf9n7d6ef.md)
+
+2022.06.30 早 新中国联邦 | 新闻访谈  最新国际民调：近70%民众负面看待中国；福奇染疫病情反复，最新调查75万美国人或因疫苗死亡；北约更新战略：俄中两国 一威胁一挑战
+
+<img src="https://media.gettr.com/group44/origin/2022/06/30/12/39eabe04-b0f1-6ac5-21d5-ba4e7d98751f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1gg00j6100.md)
 
 2022.06.30 早 新中国联邦 ｜ 新闻     疫苗灾难近在眼前  中共媒体超限战穷途末路；百人“戒烟行动”事关健康，更是对毅力的考验；港高管大谈“斗争” 丝毫未见“回归”喜庆气氛
@@ -52,11 +70,13 @@ But they definitely will be launched on the same date and will start trading on 
 
 ---
 
-[@miles 6/30/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1gf9n7d6ef.md)
+[@miles 6/30/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1gfnebaab3.md)
 
-2022.06.30 早 新中国联邦 | 新闻访谈  最新国际民调：近70%民众负面看待中国；福奇染疫病情反复，最新调查75万美国人或因疫苗死亡；北约更新战略：俄中两国 一威胁一挑战
+（4K版）叶钊颖-郝海东-飞飞 《大实话·第二十二场》： “名”  
 
-<img src="https://media.gettr.com/group44/origin/2022/06/30/12/39eabe04-b0f1-6ac5-21d5-ba4e7d98751f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+2022-06-30
+
+<img src="https://media.gettr.com/group39/origin/2022/06/30/14/613d683a-d7d5-fc39-6f69-4227e3a9e0f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,22 +177,6 @@ Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 6/28/2022 Miles Guo: The truthfulness of the Whistleblowers' Movement has shown the world a new image of Chinese people! Citizens of the New Federal State of China will grow in the cause of taking down the CCP. We are helping all C...
 
 <img src="https://media.gettr.com/group13/getter/2022/06/29/22/7adc14d7-57e9-f472-7207-b453c2f2a6c5/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 10:22 PM UTC  - :tv:直播](/content/gettr/p1gc5o667be.md)
-
-6/28/2022 Miles Guo: Our friends in the Swamp suggested that the NFSC need to establish some mechanism to deal with the smears against us in the Western media; they are helping us without letting us know. Our rescue operation in Uk...
-
-<img src="https://media.gettr.com/group22/getter/2022/06/29/22/9df761df-be1e-07b8-127b-1625831a8e03/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1gbykj499e.md)
-
-6/28/2022 Miles Guo: I am very confident that I can return the money stolen by the CCP kleptocrats to the Chinese people, but this takes at least 3 or 5 years. Both the Jiang family and Zhu Rongji own trillions of dollars of wealth...
-
-<img src="https://media.gettr.com/group28/getter/2022/06/29/22/70fdf91a-5afb-f125-1973-0d3a8dc89071/out.jpg" width="506" height="284">
 
 ---
 
