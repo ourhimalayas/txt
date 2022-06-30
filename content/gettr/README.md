@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 6/30/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ghw0r6f90.md)
+
+（4K版）飞飞秀 《出山篇·北国投》 2022-06-30
+
+For English:  gettr.com/post/p1gi0s8aa03
+
+<img src="https://media.gettr.com/group13/origin/2022/06/30/22/c1593aac-261a-4cc5-25ed-8eef7d337555/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/30/2022 8:15 PM UTC  - :tv:直播](/content/gettr/p1gi0luac55.md)
+
+2022.06.30 新中国联邦 | 喜健康  《健康生活》阳光地里拒绝甜蜜诱惑， 控糖可以预防癌症吗， 烟草的美妙前世与罪恶今生
+
+<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@oxfordfarm 6/30/2022 10:24 AM UTC  - :tv:直播](/content/gettr/p1geiw8abf0.md)
 
 【Nana's Talk Show】How the CCP Kicked Jerry Out Of His Serbia Professional Football Team
@@ -36,11 +54,13 @@
 
 ---
 
-[@miles 6/30/2022 8:15 PM UTC  - :tv:直播](/content/gettr/p1gi0luac55.md)
+[@miles 6/30/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1gijr1f5fc.md)
 
-2022.06.30 新中国联邦 | 喜健康  《健康生活》阳光地里拒绝甜蜜诱惑， 控糖可以预防癌症吗， 烟草的美妙前世与罪恶今生
+（1080版）飞飞秀 《出山篇·北国投》 2022-06-30
 
-<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English:  gettr.com/post/p1gi0s8aa03
+
+<img src="https://media.gettr.com/group29/origin/2022/06/30/21/0d53e16f-9259-4189-1dfe-e56f99ea77eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,22 +181,6 @@ YouTube: https://youtu.be/iIETxcAWUNU
 Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 
 <img src="https://media.gettr.com/group39/origin/2022/06/29/23/e539d3a6-bda1-0158-7985-1ec611f1a8aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1gcgweda67.md)
-
-2022.06.29 PM NFSC Fringe  Miles’ new Insight of swamp; The future of NFSC/GClub; FCC/ DWAC issue...
-
-<img src="https://media.gettr.com/group18/origin/2022/06/29/23/2343b5b8-c8f8-fd6d-46e0-1803c586f25f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1gbjhed566.md)
-
-6/28/2022 Miles Guo: The people in the Swamp believe that whether or not Xi Jinping invades Taiwan does not matter at all, because Xi and Wang will be gone. The Swamp is far more powerful than the ordinary people in influencing oth...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/29/23/00a8cf80-fb6e-80d7-44ed-e71ff5d8dbee/out.jpg" width="506" height="284">
 
 ---
 
