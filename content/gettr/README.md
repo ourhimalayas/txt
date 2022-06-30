@@ -12,6 +12,24 @@ For English:  gettr.com/post/p1gi0s8aa03
 
 ---
 
+[@miles 6/30/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p1giciv3559.md)
+
+6/28/2022 Miles Guo: Although Ma Mingzhe and Wang Qishan helped the Swamp make a lot of money, the Swamp consider them as garbage; the Swamp also make a key point that in the eyes of the CCP kleptocrats, Chinese people are nothing ...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/30/22/2188636e-c62c-cd8d-fa5f-ba77bb1d6a11/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/30/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1gijr1f5fc.md)
+
+（1080版）飞飞秀 《出山篇·北国投》 2022-06-30
+
+For English:  gettr.com/post/p1gi0s8aa03
+
+<img src="https://media.gettr.com/group29/origin/2022/06/30/21/0d53e16f-9259-4189-1dfe-e56f99ea77eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 8:15 PM UTC  - :tv:直播](/content/gettr/p1gi0luac55.md)
 
 2022.06.30 新中国联邦 | 喜健康  《健康生活》阳光地里拒绝甜蜜诱惑， 控糖可以预防癌症吗， 烟草的美妙前世与罪恶今生
@@ -51,16 +69,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 2022-06-30
 
 <img src="https://media.gettr.com/group17/origin/2022/06/30/14/f12c0ac4-0537-db2c-7d69-8cf0e6c16e6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1gijr1f5fc.md)
-
-（1080版）飞飞秀 《出山篇·北国投》 2022-06-30
-
-For English:  gettr.com/post/p1gi0s8aa03
-
-<img src="https://media.gettr.com/group29/origin/2022/06/30/21/0d53e16f-9259-4189-1dfe-e56f99ea77eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,24 +171,6 @@ On June 28, Mr. Miles Guo blew the whistle that the food crisis timing can  be d
 2022.06.29  晚  新中国联邦 | 新闻  郭先生和爆料革命一定会彻底消灭中共  沼泽地表示 世界不会再有习和王
 
 <img src="https://media.gettr.com/group35/origin/2022/06/30/00/6f6c2480-849a-8392-27c4-c897acbec20f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@thepotomacview 6/29/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1gc3txbe97.md)
-
-🇺🇸 How Does the US Succumb to Chinese Propaganda?
-
-🇨🇳 How Do Chinese Propaganda Corrupt Western Values?
-
-
-
-🔥 New Episode 🔥
-
-YouTube: https://youtu.be/iIETxcAWUNU
-
-Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
-
-<img src="https://media.gettr.com/group39/origin/2022/06/29/23/e539d3a6-bda1-0158-7985-1ec611f1a8aa/out.jpg" width="506" height="284">
 
 ---
 
