@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1gfg016b41.md)
+
+2022.06.30 澳喜深挖爆料 ABC 的 Echo Hui是谁？揭开ABC幕后的黑手  — Echo Hui  系列节目，澳喜深挖echo hui，“人权”记者之路二   
+
+<img src="https://media.gettr.com/group31/origin/2022/06/30/10/8bf51f96-8376-db00-7803-bc882acd6d7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 8:12 AM UTC  - :tv:直播](/content/gettr/p1gdoroafb4.md)
 
 6/29/2022 Miles Guo’s GETTR: The US will legislate to ban TikTok! All the CCP’s media’s Apps will be removed from app stores and even from the US root name servers! Overall, the world economy is doomed, and the mystery of Bitcoin w...
@@ -28,11 +36,11 @@ But they definitely will be launched on the same date and will start trading on 
 
 ---
 
-[@miles 6/30/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1gfg016b41.md)
+[@miles 6/30/2022 12:02 PM UTC  - :tv:直播](/content/gettr/p1gfd0b6b0e.md)
 
-2022.06.30 澳喜深挖爆料 ABC 的 Echo Hui是谁？揭开ABC幕后的黑手  — Echo Hui  系列节目，澳喜深挖echo hui，“人权”记者之路二   
+2022.06.30 AM NFSC news  Ashmore Group Aids CCP’s Kleptocrats to Loot People's Wealth
 
-<img src="https://media.gettr.com/group31/origin/2022/06/30/10/8bf51f96-8376-db00-7803-bc882acd6d7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/06/03/11/a10c9ba3-19f0-16d0-a5eb-c47f20675d52/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Fayfay Show with G|Fashion 2022-06-29
 6/28/2022 Miles Guo: I am very confident that I can return the money stolen by the CCP kleptocrats to the Chinese people, but this takes at least 3 or 5 years. Both the Jiang family and Zhu Rongji own trillions of dollars of wealth...
 
 <img src="https://media.gettr.com/group28/getter/2022/06/29/22/70fdf91a-5afb-f125-1973-0d3a8dc89071/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1gbl2d3b66.md)
-
-2022.06.29 新中国联邦 | 喜健康  《医学观察》量子科学对健康，心理的颠覆
-
-<img src="https://media.gettr.com/group31/origin/2022/06/29/19/62440cfb-991a-7d82-f851-def9aac502fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
