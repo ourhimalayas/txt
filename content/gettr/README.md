@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 6/30/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1gilgy4927.md)
+
+2022.06.30 PM NFSC news  Miles Guo and the Whistleblower Movement Will Take Down the CCP
+
+<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/30/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1gimv1db38.md)
+
+6/30/2022 Miles Guo’s GETTR: I was the first to expose Xi’s “Double Dragon Plan” to take both Hong Kong and Taiwan and that as a joint operation, Russia would invade Ukraine. However, I was scolded by so many people. One of my budd...
+
+<img src="https://media.gettr.com/group4/getter/2022/06/30/22/c7b17511-7ac4-dc45-e524-0b9b2bb83852/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p1giciv3559.md)
 
 6/28/2022 Miles Guo: Although Ma Mingzhe and Wang Qishan helped the Swamp make a lot of money, the Swamp consider them as garbage; the Swamp also make a key point that in the eyes of the CCP kleptocrats, Chinese people are nothing ...
@@ -25,14 +41,6 @@
 For English:  gettr.com/post/p1gi0s8aa03
 
 <img src="https://media.gettr.com/group13/origin/2022/06/30/22/c1593aac-261a-4cc5-25ed-8eef7d337555/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1gimv1db38.md)
-
-6/30/2022 Miles Guo’s GETTR: I was the first to expose Xi’s “Double Dragon Plan” to take both Hong Kong and Taiwan and that as a joint operation, Russia would invade Ukraine. However, I was scolded by so many people. One of my budd...
-
-<img src="https://media.gettr.com/group4/getter/2022/06/30/22/c7b17511-7ac4-dc45-e524-0b9b2bb83852/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ If there are more floods in China in 2022, there will be a food crisis in 2023.
 On June 28, Mr. Miles Guo blew the whistle that the food crisis timing can  be determined in the next three weeks. If more floods are coming, there wi...
 
 <img src="https://media.gettr.com/group16/origin/2022/06/30/02/c7cc6a12-3f81-f0ed-15b3-fec87cacf34d/e4b6ee2abcfbd1ef727bf8b90a66161d.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1gd320bf00.md)
-
-2022.06.29  新中国联邦 | 喜财经  第94期 中共用地产崩塌伤害世界，美元世界地位不保发数字美元
-
-<img src="https://media.gettr.com/group17/origin/2022/06/30/02/bdc03e62-c2a4-9b04-567c-5738ef8a0a06/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
