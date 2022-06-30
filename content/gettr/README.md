@@ -12,6 +12,24 @@ But they definitely will be launched on the same date and will start trading on 
 
 ---
 
+[@miles 6/30/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1gcjqe2a25.md)
+
+2022-6-29《鸡血王喜币大作战》 第二百四十一集 嘉宾：齐天二圣、Nick、七里香
+
+<img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/30/2022 2:53 AM UTC ](/content/gettr/p1gcuzk9600.md)
+
+If there are more floods in China in 2022, there will be a food crisis in 2023.
+
+On June 28, Mr. Miles Guo blew the whistle that the food crisis timing can  be determined in the next three weeks. If more floods are coming, there wi...
+
+<img src="https://media.gettr.com/group16/origin/2022/06/30/02/c7cc6a12-3f81-f0ed-15b3-fec87cacf34d/e4b6ee2abcfbd1ef727bf8b90a66161d.png" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1gd320bf00.md)
 
 2022.06.29  新中国联邦 | 喜财经  第94期 中共用地产崩塌伤害世界，美元世界地位不保发数字美元
@@ -67,16 +85,6 @@ Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 2022.06.29 PM NFSC News Canada announces additional sanctions against Russia
 
 <img src="https://media.gettr.com/group29/origin/2022/06/29/22/6cdbad93-c05a-60d0-82e7-559dea64b7a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 2:53 AM UTC ](/content/gettr/p1gcuzk9600.md)
-
-If there are more floods in China in 2022, there will be a food crisis in 2023.
-
-On June 28, Mr. Miles Guo blew the whistle that the food crisis timing can  be determined in the next three weeks. If more floods are coming, there wi...
-
-<img src="https://media.gettr.com/group16/origin/2022/06/30/02/c7cc6a12-3f81-f0ed-15b3-fec87cacf34d/e4b6ee2abcfbd1ef727bf8b90a66161d.png" width="506" height="284">
 
 ---
 
@@ -173,18 +181,6 @@ Fayfay Show with G|Fashion 2022-06-29
 七哥的前瞻性？无与伦比😂】
 
 <img src="https://media.gettr.com/group29/getter/2022/06/29/18/44b4e92d-56b0-740b-141f-f08c09e926de/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 6:21 PM UTC ](/content/gettr/p1gamo966ab.md)
-
-6月29号：这应该用科学解释还是用神学找答案？【福齐感染中共病毒后，情况持续恶化，开始服用辉瑞的新药Paxlovid，结果病毒检测转阴三天后再次阳性，第二次阳性症状比第一次更糟糕👀
-
-Dr. Fauci reveals 'COVID rebound' after Pfizer's Paxlovid treatment】 
-
-
-
-https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 
 ---
 
