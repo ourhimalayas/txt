@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 8:12 AM UTC  - :tv:直播](/content/gettr/p1gdoroafb4.md)
+
+6/29/2022 Miles Guo’s GETTR: The US will legislate to ban TikTok! All the CCP’s media’s Apps will be removed from app stores and even from the US root name servers! Overall, the world economy is doomed, and the mystery of Bitcoin w...
+
+<img src="https://media.gettr.com/group48/getter/2022/06/30/08/843c641d-e7c0-29ff-81e4-bac23d0d2861/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1gcjqe2a25.md)
 
 2022-6-29《鸡血王喜币大作战》 第二百四十一集 嘉宾：齐天二圣、Nick、七里香
@@ -20,11 +28,11 @@ But they definitely will be launched on the same date and will start trading on 
 
 ---
 
-[@miles 6/30/2022 8:12 AM UTC  - :tv:直播](/content/gettr/p1gdoroafb4.md)
+[@miles 6/30/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1gfg016b41.md)
 
-6/29/2022 Miles Guo’s GETTR: The US will legislate to ban TikTok! All the CCP’s media’s Apps will be removed from app stores and even from the US root name servers! Overall, the world economy is doomed, and the mystery of Bitcoin w...
+2022.06.30 澳喜深挖爆料 ABC 的 Echo Hui是谁？揭开ABC幕后的黑手  — Echo Hui  系列节目，澳喜深挖echo hui，“人权”记者之路二   
 
-<img src="https://media.gettr.com/group48/getter/2022/06/30/08/843c641d-e7c0-29ff-81e4-bac23d0d2861/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/06/30/10/8bf51f96-8376-db00-7803-bc882acd6d7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Fayfay Show with G|Fashion 2022-06-29
 [@miles 6/29/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1gbl2d3b66.md)
 
 2022.06.29 新中国联邦 | 喜健康  《医学观察》量子科学对健康，心理的颠覆
-
-<img src="https://media.gettr.com/group31/origin/2022/06/29/19/62440cfb-991a-7d82-f851-def9aac502fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1gbqlk5ba1.md)
-
-2022.06.29 新中国联邦 | 喜健康  《寻医问药》美国执业心理医生在线答疑：脑卒、脑梗、高血压用药安全  《医学观察》
 
 <img src="https://media.gettr.com/group31/origin/2022/06/29/19/62440cfb-991a-7d82-f851-def9aac502fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
