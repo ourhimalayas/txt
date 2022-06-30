@@ -12,6 +12,24 @@
 
 ---
 
+[@miles 6/30/2022 3:13 PM UTC  - :tv:直播](/content/gettr/p1gg5ex60da.md)
+
+6月30号：尊敬的战友们好，你们健身了吗？全世界政治．经济．军事．每天都在巨大的变化中，我们如何能在躲过疫苗灾难．还能健康快乐．正常的活着？这是我们新中国联邦人……，每天都要思考．和面对的问题，我们要珍惜．新中国联邦．这个世界上最最干净．和最有未来的群体价值，一切都已经开始！
+
+<img src="https://media.gettr.com/group46/getter/2022/06/30/15/bfb63d25-87d7-cf6c-a40f-869feae16f2c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/30/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1gfnebaab3.md)
+
+（4K版）叶钊颖-郝海东-飞飞 《大实话·第二十二场》： “名”  
+
+2022-06-30
+
+<img src="https://media.gettr.com/group39/origin/2022/06/30/14/613d683a-d7d5-fc39-6f69-4227e3a9e0f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1gf9n7d6ef.md)
 
 2022.06.30 早 新中国联邦 | 新闻访谈  最新国际民调：近70%民众负面看待中国；福奇染疫病情反复，最新调查75万美国人或因疫苗死亡；北约更新战略：俄中两国 一威胁一挑战
@@ -67,16 +85,6 @@ As for the Tang Ping ( Lying - flat ) Coins, after they got launched, everyone m
 But they definitely will be launched on the same date and will start trading on the s...
 
 <img src="https://media.gettr.com/group31/getter/2022/06/29/11/19c1268d-1ff5-2712-b855-8ca33dee1997/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1gfnebaab3.md)
-
-（4K版）叶钊颖-郝海东-飞飞 《大实话·第二十二场》： “名”  
-
-2022-06-30
-
-<img src="https://media.gettr.com/group39/origin/2022/06/30/14/613d683a-d7d5-fc39-6f69-4227e3a9e0f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 6/28/2022 Miles Guo: The people in the Swamp believe that whether or not Xi Jinping invades Taiwan does not matter at all, because Xi and Wang will be gone. The Swamp is far more powerful than the ordinary people in influencing oth...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/29/23/00a8cf80-fb6e-80d7-44ed-e71ff5d8dbee/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1gc0zh14e2.md)
-
-6/28/2022 Miles Guo: The truthfulness of the Whistleblowers' Movement has shown the world a new image of Chinese people! Citizens of the New Federal State of China will grow in the cause of taking down the CCP. We are helping all C...
-
-<img src="https://media.gettr.com/group13/getter/2022/06/29/22/7adc14d7-57e9-f472-7207-b453c2f2a6c5/out.jpg" width="506" height="284">
 
 ---
 
