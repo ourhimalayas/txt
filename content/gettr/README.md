@@ -2,6 +2,24 @@
 ---
 
 
+[@thepotomacview 6/29/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1gc3txbe97.md)
+
+🇺🇸 How Does the US Succumb to Chinese Propaganda?
+
+🇨🇳 How Do Chinese Propaganda Corrupt Western Values?
+
+
+
+🔥 New Episode 🔥
+
+YouTube: https://youtu.be/iIETxcAWUNU
+
+Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
+
+<img src="https://media.gettr.com/group39/origin/2022/06/29/23/e539d3a6-bda1-0158-7985-1ec611f1a8aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/29/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1gcgweda67.md)
 
 2022.06.29 PM NFSC Fringe  Miles’ new Insight of swamp; The future of NFSC/GClub; FCC/ DWAC issue...
@@ -18,21 +36,11 @@
 
 ---
 
-[@thepotomacview 6/29/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1gc3txbe97.md)
+[@miles 6/30/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1gc6s37ca2.md)
 
-🇺🇸 How Does the US Succumb to Chinese Propaganda?
+2022.06.29  晚  新中国联邦 | 新闻  郭先生和爆料革命一定会彻底消灭中共  沼泽地表示 世界不会再有习和王
 
-🇨🇳 How Do Chinese Propaganda Corrupt Western Values?
-
-
-
-🔥 New Episode 🔥
-
-YouTube: https://youtu.be/iIETxcAWUNU
-
-Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
-
-<img src="https://media.gettr.com/group39/origin/2022/06/29/23/e539d3a6-bda1-0158-7985-1ec611f1a8aa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/06/30/00/6f6c2480-849a-8392-27c4-c897acbec20f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 6月29日：尊敬的战友们好，今天没有时间录制视频了，星期天才能有大直播……【美国联邦通信委员会委员呼吁苹果和谷歌从他们的应用商店中删除 TikTok，称这是国家安全风险】
 
 <img src="https://media.gettr.com/group13/getter/2022/06/29/14/68d1ddd1-cb1b-2396-e069-7ea193d95d0c/63cb0216771e2f25dfa1060420b936f1.jpg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 2:09 PM UTC  - :tv:直播](/content/gettr/p1ga65m84a8.md)
-
-2022年6月29日 MOS 《回响》第三期 （1080P版）
-
-<img src="https://media.gettr.com/group29/origin/2022/06/29/14/ad126038-dc4f-0108-0664-5db33b320aaf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
