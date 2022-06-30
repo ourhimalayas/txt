@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 3:13 PM UTC  - :tv:直播](/content/gettr/p1gg5ex60da.md)
+
+6月30号：尊敬的战友们好，你们健身了吗？全世界政治．经济．军事．每天都在巨大的变化中，我们如何能在躲过疫苗灾难．还能健康快乐．正常的活着？这是我们新中国联邦人……，每天都要思考．和面对的问题，我们要珍惜．新中国联邦．这个世界上最最干净．和最有未来的群体价值，一切都已经开始！
+
+<img src="https://media.gettr.com/group46/getter/2022/06/30/15/bfb63d25-87d7-cf6c-a40f-869feae16f2c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1gfwyc930f.md)
 
 （1080版）叶钊颖-郝海东-飞飞 《大实话·第二十二场》： “名”  
@@ -12,11 +20,11 @@
 
 ---
 
-[@miles 6/30/2022 3:13 PM UTC  - :tv:直播](/content/gettr/p1gg5ex60da.md)
+[@miles 6/30/2022 6:32 PM UTC  - :tv:直播](/content/gettr/p1gh8kf3b68.md)
 
-6月30号：尊敬的战友们好，你们健身了吗？全世界政治．经济．军事．每天都在巨大的变化中，我们如何能在躲过疫苗灾难．还能健康快乐．正常的活着？这是我们新中国联邦人……，每天都要思考．和面对的问题，我们要珍惜．新中国联邦．这个世界上最最干净．和最有未来的群体价值，一切都已经开始！
+2022-6-30 《避风港》（66）CDC用虚假数据通过婴幼儿疫苗紧急使用授权
 
-<img src="https://media.gettr.com/group46/getter/2022/06/30/15/bfb63d25-87d7-cf6c-a40f-869feae16f2c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/06/30/18/d849fe59-be56-0f23-27d4-13faa7021bdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 2022.06.29 PM NFSC Fringe  Miles’ new Insight of swamp; The future of NFSC/GClub; FCC/ DWAC issue...
 
 <img src="https://media.gettr.com/group18/origin/2022/06/29/23/2343b5b8-c8f8-fd6d-46e0-1803c586f25f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1gbul97eac.md)
-
-2022.06.29 PM NFSC News Canada announces additional sanctions against Russia
-
-<img src="https://media.gettr.com/group29/origin/2022/06/29/22/6cdbad93-c05a-60d0-82e7-559dea64b7a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
