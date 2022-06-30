@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 6/30/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1gi9wj84e7.md)
+
+6/28/2022 Miles Guo: If the Whistleblowers' Movement did not bring up Ashmore Group, very few Chinese people would know about this phenomenal company in the global financial market. Upon rising to power, Wang Qishan snatched China ...
+
+<img src="https://media.gettr.com/group34/getter/2022/06/30/22/34e0aadc-5461-aeee-ecde-800c82752395/out.jpg" width="506" height="284">
+
+---
+
+[@miles 6/30/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p1giciv3559.md)
+
+6/28/2022 Miles Guo: Although Ma Mingzhe and Wang Qishan helped the Swamp make a lot of money, the Swamp consider them as garbage; the Swamp also make a key point that in the eyes of the CCP kleptocrats, Chinese people are nothing ...
+
+<img src="https://media.gettr.com/group47/getter/2022/06/30/22/2188636e-c62c-cd8d-fa5f-ba77bb1d6a11/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ghw0r6f90.md)
 
 （4K版）飞飞秀 《出山篇·北国投》 2022-06-30
@@ -12,11 +28,11 @@ For English:  gettr.com/post/p1gi0s8aa03
 
 ---
 
-[@miles 6/30/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p1giciv3559.md)
+[@miles 6/30/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1gimv1db38.md)
 
-6/28/2022 Miles Guo: Although Ma Mingzhe and Wang Qishan helped the Swamp make a lot of money, the Swamp consider them as garbage; the Swamp also make a key point that in the eyes of the CCP kleptocrats, Chinese people are nothing ...
+6/30/2022 Miles Guo’s GETTR: I was the first to expose Xi’s “Double Dragon Plan” to take both Hong Kong and Taiwan and that as a joint operation, Russia would invade Ukraine. However, I was scolded by so many people. One of my budd...
 
-<img src="https://media.gettr.com/group47/getter/2022/06/30/22/2188636e-c62c-cd8d-fa5f-ba77bb1d6a11/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/06/30/22/c7b17511-7ac4-dc45-e524-0b9b2bb83852/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ On June 28, Mr. Miles Guo blew the whistle that the food crisis timing can  be d
 2022.06.29  新中国联邦 | 喜财经  第94期 中共用地产崩塌伤害世界，美元世界地位不保发数字美元
 
 <img src="https://media.gettr.com/group17/origin/2022/06/30/02/bdc03e62-c2a4-9b04-567c-5738ef8a0a06/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1gcq6hf3fe.md)
-
-2022.06.29 晚 新中国联邦 | 新闻访谈 习近平七一或访港，港警如临大敌；青岛街办：“恶意不买房者”将被约谈；爆雷银行被质疑放行关系户；上海禁堂食，约饭似谍战；土耳其同意瑞典芬兰加入北约
-
-<img src="https://media.gettr.com/group32/origin/2022/06/30/01/c12c9781-ab31-36f0-1646-9b7a07bd4213/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1gc6s37ca2.md)
-
-2022.06.29  晚  新中国联邦 | 新闻  郭先生和爆料革命一定会彻底消灭中共  沼泽地表示 世界不会再有习和王
-
-<img src="https://media.gettr.com/group35/origin/2022/06/30/00/6f6c2480-849a-8392-27c4-c897acbec20f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
