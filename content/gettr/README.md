@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1gilgy4927.md)
+
+2022.06.30 PM NFSC news  Miles Guo and the Whistleblower Movement Will Take Down the CCP
+
+<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1gi9wj84e7.md)
 
 6/28/2022 Miles Guo: If the Whistleblowers' Movement did not bring up Ashmore Group, very few Chinese people would know about this phenomenal company in the global financial market. Upon rising to power, Wang Qishan snatched China ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 6/30/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1gilgy4927.md)
+[@miles 6/30/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1gilby129b.md)
 
-2022.06.30 PM NFSC news  Miles Guo and the Whistleblower Movement Will Take Down the CCP
+2022.06.30 NFSC Fringe
 
-<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/30/23/e59b7dc9-0a88-6c0d-b2b4-e77b26a19f57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,16 +159,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 2022-6-29《鸡血王喜币大作战》 第二百四十一集 嘉宾：齐天二圣、Nick、七里香
 
 <img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 2:51 AM UTC  - :tv:直播](/content/gettr/p1gcrl3e45b.md)
-
-As for the Tang Ping ( Lying - flat ) Coins, after they got launched, everyone may get their Tang Ping ( Lying - flat ) Coins in different ways 
-
-But they definitely will be launched on the same date and will start trading on the s...
-
-<img src="https://media.gettr.com/group31/getter/2022/06/29/11/19c1268d-1ff5-2712-b855-8ca33dee1997/out.jpg" width="506" height="284">
 
 ---
 
