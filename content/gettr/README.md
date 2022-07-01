@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/1/2022 12:46 AM UTC  - :tv:直播](/content/gettr/p1gim9of16b.md)
+
+2022.06.30 晚 新中国联邦 ｜ 新闻  郭先生爆中共制定疫苗灾难“五年计划”；无差别窃取美国民众信息 中共超限战软件将被全面禁止；中共设计港币与美元脱钩 掠夺香港财富
+
+<img src="https://media.gettr.com/group4/origin/2022/07/01/00/864410a7-1a98-47dd-499f-d2daedc6e320/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1gj99y62cd.md)
+
+6/30/2022  Miles Guo’s GETTR: The New Federal State of China (NFSC) is hoping to find more managerial talents and skilled people to facilitate our future development. Even though you have Himalaya Coins and are not vaccinated again...
+
+<img src="https://media.gettr.com/group50/getter/2022/07/01/00/7eac2e58-fc7b-e85f-7b25-2536339eddbd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1gj3c434ba.md)
 
 Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
@@ -40,11 +56,11 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 
 ---
 
-[@miles 7/1/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1gj1eoadf3.md)
+[@miles 7/1/2022 12:54 AM UTC  - :tv:直播](/content/gettr/p1gj9we5d51.md)
 
-2022.06.30 晚 新中国联邦 ｜ 新闻  郭先生爆中共制定疫苗灾难“五年计划”；无差别窃取美国民众信息 中共超限战软件将被全面禁止；中共设计港币与美元脱钩 掠夺香港财富
+6/30/2022 Miles Guo’s GETTR: Never speculate! Although I have been saying this for almost a year, there are still fellow fighters who suffered heavy losses due to speculation. The EU is convinced of what we have said about the COVI...
 
-<img src="https://media.gettr.com/group4/origin/2022/07/01/00/864410a7-1a98-47dd-499f-d2daedc6e320/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/07/01/00/7ee49d11-0c04-d602-0e20-3546cdb475d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +173,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 2022.06.30 AM NFSC news  Ashmore Group Aids CCP’s Kleptocrats to Loot People's Wealth
 
 <img src="https://media.gettr.com/group19/origin/2022/06/03/11/a10c9ba3-19f0-16d0-a5eb-c47f20675d52/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 10:59 AM UTC  - :tv:直播](/content/gettr/p1gfg016b41.md)
-
-2022.06.30 澳喜深挖爆料 ABC 的 Echo Hui是谁？揭开ABC幕后的黑手  — Echo Hui  系列节目，澳喜深挖echo hui，“人权”记者之路二   
-
-<img src="https://media.gettr.com/group31/origin/2022/06/30/10/8bf51f96-8376-db00-7803-bc882acd6d7a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 8:12 AM UTC  - :tv:直播](/content/gettr/p1gdoroafb4.md)
-
-6/29/2022 Miles Guo’s GETTR: The US will legislate to ban TikTok! All the CCP’s media’s Apps will be removed from app stores and even from the US root name servers! Overall, the world economy is doomed, and the mystery of Bitcoin w...
-
-<img src="https://media.gettr.com/group48/getter/2022/06/30/08/843c641d-e7c0-29ff-81e4-bac23d0d2861/out.jpg" width="506" height="284">
 
 ---
 
