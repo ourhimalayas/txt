@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p1gloit5f34.md)
+
+2022年7月1日 俄乌战争警示台海
+
+<img src="https://media.gettr.com/group7/origin/2022/07/01/16/0f3ce449-4e43-1e86-94f3-9678013e7fff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@laobangzhang 7/1/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p1glofa4321.md)
 
 本人响应文贵先生戒烟的号召，自7月3日起解除此恶性，立此视频为证！ 
@@ -30,11 +38,11 @@
 
 ---
 
-[@miles 7/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p1gloit5f34.md)
+[@miles 7/1/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p1gmb90a434.md)
 
-2022年7月1日 俄乌战争警示台海
+2022.07.01 新中国联邦 | 喜健康  《心理访谈》与郝董叶侠谈直播 人生的一场修行；《寻医问药》美国执业家庭医生谈乳腺癌的治疗
 
-<img src="https://media.gettr.com/group7/origin/2022/07/01/16/0f3ce449-4e43-1e86-94f3-9678013e7fff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/07/01/19/90109edb-09d8-6914-7df6-ddebb1e74b90/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 2022.06.30 NFSC Fringe
 
 <img src="https://media.gettr.com/group33/origin/2022/06/30/23/e59b7dc9-0a88-6c0d-b2b4-e77b26a19f57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1gilgy4927.md)
-
-2022.06.30 PM NFSC news  Miles Guo and the Whistleblower Movement Will Take Down the CCP
-
-<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
