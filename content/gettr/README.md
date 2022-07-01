@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1gj1ab9fdc.md)
+
+2022-6-30《鸡血王喜币大作战》 第二百四十二集 嘉宾：无双柳薇薇、文空
+
+<img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1gj24d5f89.md)
 
 2022.06.30 新中国联邦 | 喜财经 第95期  中共国信托产品的爆雷和骗局
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 7/1/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1gj1ab9fdc.md)
+[@miles 7/1/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1gkt35ea62.md)
 
-2022-6-30《鸡血王喜币大作战》 第二百四十二集 嘉宾：无双柳薇薇、文空
+2022.07.01 新中国联邦 | 军情室 加拿大军旅生涯
 
-<img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 2022-6-30 《避风港》（66）CDC用虚假数据通过婴幼儿疫苗紧急使用授权
 
 <img src="https://media.gettr.com/group6/origin/2022/06/30/18/d849fe59-be56-0f23-27d4-13faa7021bdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 3:13 PM UTC  - :tv:直播](/content/gettr/p1gg5ex60da.md)
-
-6月30号：尊敬的战友们好，你们健身了吗？全世界政治．经济．军事．每天都在巨大的变化中，我们如何能在躲过疫苗灾难．还能健康快乐．正常的活着？这是我们新中国联邦人……，每天都要思考．和面对的问题，我们要珍惜．新中国联邦．这个世界上最最干净．和最有未来的群体价值，一切都已经开始！
-
-<img src="https://media.gettr.com/group46/getter/2022/06/30/15/bfb63d25-87d7-cf6c-a40f-869feae16f2c/out.jpg" width="506" height="284">
 
 ---
 
