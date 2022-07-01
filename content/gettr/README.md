@@ -10,6 +10,14 @@
 
 ---
 
+[@flowermonth 7/1/2022 2:02 PM UTC  - :tv:直播](/content/gettr/p1glu0l3cc2.md)
+
+一朵自由行走的花 直播 2022-07-01深蹲第二周第3次肌力提升中（十）
+
+<img src="https://media.gettr.com/group8/getter/2022/07/01/11/68ca5656-b2e7-3769-d848-eb0df4083060/8a77610dc29bd4503e2e68ce9f9ee5b9.jpg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 12:57 PM UTC  - :tv:直播](/content/gettr/p1gl58da147.md)
 
 
@@ -165,14 +173,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 6/30/2022 Miles Guo’s GETTR: I was the first to expose Xi’s “Double Dragon Plan” to take both Hong Kong and Taiwan and that as a joint operation, Russia would invade Ukraine. However, I was scolded by so many people. One of my budd...
 
 <img src="https://media.gettr.com/group4/getter/2022/06/30/22/c7b17511-7ac4-dc45-e524-0b9b2bb83852/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 10:37 PM UTC  - :tv:直播](/content/gettr/p1giciv3559.md)
-
-6/28/2022 Miles Guo: Although Ma Mingzhe and Wang Qishan helped the Swamp make a lot of money, the Swamp consider them as garbage; the Swamp also make a key point that in the eyes of the CCP kleptocrats, Chinese people are nothing ...
-
-<img src="https://media.gettr.com/group47/getter/2022/06/30/22/2188636e-c62c-cd8d-fa5f-ba77bb1d6a11/out.jpg" width="506" height="284">
 
 ---
 
