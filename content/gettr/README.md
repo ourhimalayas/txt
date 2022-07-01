@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 6/30/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1gilby129b.md)
+
+2022.06.30 NFSC Fringe
+
+<img src="https://media.gettr.com/group33/origin/2022/06/30/23/e59b7dc9-0a88-6c0d-b2b4-e77b26a19f57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1gilgy4927.md)
 
 2022.06.30 PM NFSC news  Miles Guo and the Whistleblower Movement Will Take Down the CCP
@@ -18,11 +26,17 @@
 
 ---
 
-[@miles 6/30/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1gilby129b.md)
+[@miles 7/1/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1gj3c434ba.md)
 
-2022.06.30 NFSC Fringe
+Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
 
-<img src="https://media.gettr.com/group33/origin/2022/06/30/23/e59b7dc9-0a88-6c0d-b2b4-e77b26a19f57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+Hong Kong entertainment industry: because of shamelessness, they degenerate into puppets manipulated by CCP.  
+
+送给习包子的礼物 ㊗️贺香港沦陷25周年 
+
+香港演艺界： 因为无耻，沦为...
+
+<img src="https://media.gettr.com/group24/origin/2022/07/01/00/f21ec02b-2305-32ca-e273-d855b69b1321/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +173,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 2022-6-29《鸡血王喜币大作战》 第二百四十一集 嘉宾：齐天二圣、Nick、七里香
 
 <img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 2:53 AM UTC ](/content/gettr/p1gcuzk9600.md)
-
-If there are more floods in China in 2022, there will be a food crisis in 2023.
-
-On June 28, Mr. Miles Guo blew the whistle that the food crisis timing can  be determined in the next three weeks. If more floods are coming, there wi...
-
-<img src="https://media.gettr.com/group16/origin/2022/06/30/02/c7cc6a12-3f81-f0ed-15b3-fec87cacf34d/e4b6ee2abcfbd1ef727bf8b90a66161d.png" width="506" height="284">
 
 ---
 
