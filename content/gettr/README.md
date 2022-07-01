@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 10:46 PM UTC  - :tv:直播](/content/gettr/p1gnpwva3b8.md)
+
+7/1/2022 Miles Guo’s GETTR: The entire world took the CCP’s show in Hong Kong as a joke, and it is pathetic that Chinese Lao Baixing feel elated about the show and still live in a delusion. Chinese people are so forgetful of disast...
+
+<img src="https://media.gettr.com/group8/getter/2022/07/01/22/7f08d05d-42c2-d8eb-73ae-bf97b76b29aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gne442b79.md)
 
 （4K版）飞飞秀 《宁南篇》 2022-07-01
@@ -9,6 +17,32 @@
 For English: gettr.com/streaming/p1gmv6b2d7a
 
 <img src="https://media.gettr.com/group34/origin/2022/07/01/22/19765f92-aebf-2d93-8c82-c52bfb75d838/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1gnf9w7c97.md)
+
+Tribute to A True Warrior: 
+
+Dr. Vladimir Zelenko
+
+
+
+致敬真正的勇士：泽连科医生
+
+🙏🙏🙏🙏🙏🙏🙏
+
+<img src="https://media.gettr.com/group4/getter/2022/07/01/22/796551d7-085a-231c-58ff-18d883e10c33/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gndhs5ab8.md)
+
+(1080版) 飞飞秀 《宁南篇》 2022-07-01
+
+For English: gettr.com/streaming/p1gmv6b2d7a
+
+<img src="https://media.gettr.com/group17/origin/2022/07/01/22/2343c64c-ad67-adaa-c1ae-aa60734bd74f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -53,16 +87,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022年07月01日 《回响》“七一”特别节目  香港魂断25周年之际，一起敲响灭共丧钟
 
 <img src="https://media.gettr.com/group39/origin/2022/07/01/12/6b5d0502-7e89-7544-0f2d-22487f1a2ccb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gndhs5ab8.md)
-
-(1080版) 飞飞秀 《宁南篇》 2022-07-01
-
-For English: gettr.com/streaming/p1gmv6b2d7a
-
-<img src="https://media.gettr.com/group17/origin/2022/07/01/22/2343c64c-ad67-adaa-c1ae-aa60734bd74f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,22 +189,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 香港演艺界： 因为无耻...
 
 <img src="https://media.gettr.com/group28/origin/2022/07/01/01/4365e989-2c3a-3980-e201-659029a822d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1gj99y62cd.md)
-
-6/30/2022  Miles Guo’s GETTR: The New Federal State of China (NFSC) is hoping to find more managerial talents and skilled people to facilitate our future development. Even though you have Himalaya Coins and are not vaccinated again...
-
-<img src="https://media.gettr.com/group50/getter/2022/07/01/00/7eac2e58-fc7b-e85f-7b25-2536339eddbd/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 12:54 AM UTC  - :tv:直播](/content/gettr/p1gj9we5d51.md)
-
-6/30/2022 Miles Guo’s GETTR: Never speculate! Although I have been saying this for almost a year, there are still fellow fighters who suffered heavy losses due to speculation. The EU is convinced of what we have said about the COVI...
-
-<img src="https://media.gettr.com/group49/getter/2022/07/01/00/7ee49d11-0c04-d602-0e20-3546cdb475d7/out.jpg" width="506" height="284">
 
 ---
 
