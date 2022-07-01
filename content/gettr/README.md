@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1gkkoo55d2.md)
+
+20220701 NFSC日本語ニュース     人民元　2024年末までに消える可能性が高い
+
+<img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1gkt35ea62.md)
 
 2022.07.01 新中国联邦 | 军情室 加拿大军旅生涯
@@ -38,11 +46,11 @@
 
 ---
 
-[@miles 7/1/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1gkkoo55d2.md)
+[@miles 7/1/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1gl2fo5a77.md)
 
-20220701 NFSC日本語ニュース     人民元　2024年末までに消える可能性が高い
+2022.07.01 AM NFSC news   Vaccine Disaster is Imminent; CCP Unrestricted Media Warfare Nears End
 
-<img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 2022.06.30 新中国联邦 | 喜健康  《健康生活》阳光地里拒绝甜蜜诱惑， 控糖可以预防癌症吗， 烟草的美妙前世与罪恶今生
 
 <img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@oxfordfarm 6/30/2022 10:24 AM UTC  - :tv:直播](/content/gettr/p1geiw8abf0.md)
-
-【Nana's Talk Show】How the CCP Kicked Jerry Out Of His Serbia Professional Football Team
-
-<img src="https://media.gettr.com/group36/origin/2022/06/30/10/34ca4d68-0f4a-b4b7-bd9d-2e4f8af042a4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
