@@ -14,6 +14,24 @@
 
 ---
 
+[@miles 7/1/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1gj24d5f89.md)
+
+2022.06.30 新中国联邦 | 喜财经 第95期  中共国信托产品的爆雷和骗局
+
+<img src="https://media.gettr.com/group36/origin/2022/07/01/02/63f0cffd-b6ac-b65c-bd49-b41cafd3a3a0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 1:59 AM UTC ](/content/gettr/p1gjix8ec36.md)
+
+Super-May线上直播音乐会 第十四期：Just the Way You Are——70年代经典英文歌曲特辑
+
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMay
+
+---
+
 [@miles 7/1/2022 1:19 AM UTC  - :tv:直播](/content/gettr/p1gj0nse8df.md)
 
 2022.06.30 晚 新中国联邦 ｜ 新闻访谈  吴征 BrunoWu 的履历；文贵先生破产案最新进展及回顾；谈爆料革命 的艰巨性、复杂性和长期性
@@ -41,16 +59,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 2022.06.30 晚 新中国联邦 ｜ 新闻  郭先生爆中共制定疫苗灾难“五年计划”；无差别窃取美国民众信息 中共超限战软件将被全面禁止；中共设计港币与美元脱钩 掠夺香港财富
 
 <img src="https://media.gettr.com/group4/origin/2022/07/01/00/864410a7-1a98-47dd-499f-d2daedc6e320/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 1:59 AM UTC ](/content/gettr/p1gjix8ec36.md)
-
-Super-May线上直播音乐会 第十四期：Just the Way You Are——70年代经典英文歌曲特辑
-
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMay
 
 ---
 
@@ -159,16 +167,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 6月30号：尊敬的战友们好，你们健身了吗？全世界政治．经济．军事．每天都在巨大的变化中，我们如何能在躲过疫苗灾难．还能健康快乐．正常的活着？这是我们新中国联邦人……，每天都要思考．和面对的问题，我们要珍惜．新中国联邦．这个世界上最最干净．和最有未来的群体价值，一切都已经开始！
 
 <img src="https://media.gettr.com/group46/getter/2022/06/30/15/bfb63d25-87d7-cf6c-a40f-869feae16f2c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1gfwyc930f.md)
-
-（1080版）叶钊颖-郝海东-飞飞 《大实话·第二十二场》： “名”  
-
-2022-06-30
-
-<img src="https://media.gettr.com/group17/origin/2022/06/30/14/f12c0ac4-0537-db2c-7d69-8cf0e6c16e6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
