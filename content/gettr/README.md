@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1gl2fo5a77.md)
+
+2022.07.01 AM NFSC news   Vaccine Disaster is Imminent; CCP Unrestricted Media Warfare Nears End
+
+<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1gkkoo55d2.md)
 
 20220701 NFSC日本語ニュース     人民元　2024年末までに消える可能性が高い
@@ -46,11 +54,11 @@
 
 ---
 
-[@miles 7/1/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1gl2fo5a77.md)
+[@miles 7/1/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1gkibe99f7.md)
 
-2022.07.01 AM NFSC news   Vaccine Disaster is Imminent; CCP Unrestricted Media Warfare Nears End
+2022.07.01 早 新中国联邦 | 新闻  “无苗有币”族延续优势 避免一念之差全盘皆毁；国人头脑充满麻木与幻想 命运既定；泽连科博士因病去世；俄军在乌军反击下撤离蛇岛
 
-<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/07/01/12/4dc76e08-f4f3-b36b-c39c-794347ee8dc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 For English:  gettr.com/post/p1gi0s8aa03
 
 <img src="https://media.gettr.com/group29/origin/2022/06/30/21/0d53e16f-9259-4189-1dfe-e56f99ea77eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 8:15 PM UTC  - :tv:直播](/content/gettr/p1gi0luac55.md)
-
-2022.06.30 新中国联邦 | 喜健康  《健康生活》阳光地里拒绝甜蜜诱惑， 控糖可以预防癌症吗， 烟草的美妙前世与罪恶今生
-
-<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
