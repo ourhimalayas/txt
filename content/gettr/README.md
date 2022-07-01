@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gne442b79.md)
+
+（4K版）飞飞秀 《宁南篇》 2022-07-01
+
+For English: gettr.com/streaming/p1gmv6b2d7a
+
+<img src="https://media.gettr.com/group34/origin/2022/07/01/22/19765f92-aebf-2d93-8c82-c52bfb75d838/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p1gmb90a434.md)
+
+2022.07.01 新中国联邦 | 喜健康  《心理访谈》与郝董叶侠谈直播 人生的一场修行；《寻医问药》美国执业家庭医生谈乳腺癌的治疗
+
+<img src="https://media.gettr.com/group7/origin/2022/07/01/19/90109edb-09d8-6914-7df6-ddebb1e74b90/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p1gloit5f34.md)
 
 2022年7月1日 俄乌战争警示台海
@@ -38,11 +56,13 @@
 
 ---
 
-[@miles 7/1/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p1gmb90a434.md)
+[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gndhs5ab8.md)
 
-2022.07.01 新中国联邦 | 喜健康  《心理访谈》与郝董叶侠谈直播 人生的一场修行；《寻医问药》美国执业家庭医生谈乳腺癌的治疗
+(1080版) 飞飞秀 《宁南篇》 2022-07-01
 
-<img src="https://media.gettr.com/group7/origin/2022/07/01/19/90109edb-09d8-6914-7df6-ddebb1e74b90/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English: gettr.com/streaming/p1gmv6b2d7a
+
+<img src="https://media.gettr.com/group17/origin/2022/07/01/22/2343c64c-ad67-adaa-c1ae-aa60734bd74f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -148,14 +168,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 
 ---
 
-[@miles 7/1/2022 12:46 AM UTC  - :tv:直播](/content/gettr/p1gim9of16b.md)
-
-2022.06.30 晚 新中国联邦 ｜ 新闻  郭先生爆中共制定疫苗灾难“五年计划”；无差别窃取美国民众信息 中共超限战软件将被全面禁止；中共设计港币与美元脱钩 掠夺香港财富
-
-<img src="https://media.gettr.com/group4/origin/2022/07/01/00/864410a7-1a98-47dd-499f-d2daedc6e320/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/1/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1gj99y62cd.md)
 
 6/30/2022  Miles Guo’s GETTR: The New Federal State of China (NFSC) is hoping to find more managerial talents and skilled people to facilitate our future development. Even though you have Himalaya Coins and are not vaccinated again...
@@ -169,14 +181,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 6/30/2022 Miles Guo’s GETTR: Never speculate! Although I have been saying this for almost a year, there are still fellow fighters who suffered heavy losses due to speculation. The EU is convinced of what we have said about the COVI...
 
 <img src="https://media.gettr.com/group49/getter/2022/07/01/00/7ee49d11-0c04-d602-0e20-3546cdb475d7/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1gilby129b.md)
-
-2022.06.30 NFSC Fringe
-
-<img src="https://media.gettr.com/group33/origin/2022/06/30/23/e59b7dc9-0a88-6c0d-b2b4-e77b26a19f57/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
