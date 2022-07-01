@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1gkt35ea62.md)
+
+2022.07.01 新中国联邦 | 军情室 加拿大军旅生涯
+
+<img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1gj1ab9fdc.md)
 
 2022-6-30《鸡血王喜币大作战》 第二百四十二集 嘉宾：无双柳薇薇、文空
@@ -30,11 +38,11 @@
 
 ---
 
-[@miles 7/1/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1gkt35ea62.md)
+[@miles 7/1/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1gkkoo55d2.md)
 
-2022.07.01 新中国联邦 | 军情室 加拿大军旅生涯
+20220701 NFSC日本語ニュース     人民元　2024年末までに消える可能性が高い
 
-<img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 【Nana's Talk Show】How the CCP Kicked Jerry Out Of His Serbia Professional Football Team
 
 <img src="https://media.gettr.com/group36/origin/2022/06/30/10/34ca4d68-0f4a-b4b7-bd9d-2e4f8af042a4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 6:32 PM UTC  - :tv:直播](/content/gettr/p1gh8kf3b68.md)
-
-2022-6-30 《避风港》（66）CDC用虚假数据通过婴幼儿疫苗紧急使用授权
-
-<img src="https://media.gettr.com/group6/origin/2022/06/30/18/d849fe59-be56-0f23-27d4-13faa7021bdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
