@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/1/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1gj3c434ba.md)
+
+Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
+
+Hong Kong entertainment industry: because of shamelessness, they degenerate into puppets manipulated by CCP.  
+
+送给习包子的礼物 ㊗️贺香港沦陷25周年 
+
+香港演艺界： 因为无耻，沦为...
+
+<img src="https://media.gettr.com/group24/origin/2022/07/01/00/f21ec02b-2305-32ca-e273-d855b69b1321/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/30/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1gilby129b.md)
 
 2022.06.30 NFSC Fringe
@@ -26,17 +40,11 @@
 
 ---
 
-[@miles 7/1/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1gj3c434ba.md)
+[@miles 7/1/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1gj1eoadf3.md)
 
-Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
+2022.06.30 晚 新中国联邦 ｜ 新闻  郭先生爆中共制定疫苗灾难“五年计划”；无差别窃取美国民众信息 中共超限战软件将被全面禁止；中共设计港币与美元脱钩 掠夺香港财富
 
-Hong Kong entertainment industry: because of shamelessness, they degenerate into puppets manipulated by CCP.  
-
-送给习包子的礼物 ㊗️贺香港沦陷25周年 
-
-香港演艺界： 因为无耻，沦为...
-
-<img src="https://media.gettr.com/group24/origin/2022/07/01/00/f21ec02b-2305-32ca-e273-d855b69b1321/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/07/01/00/864410a7-1a98-47dd-499f-d2daedc6e320/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 6/29/2022 Miles Guo’s GETTR: The US will legislate to ban TikTok! All the CCP’s media’s Apps will be removed from app stores and even from the US root name servers! Overall, the world economy is doomed, and the mystery of Bitcoin w...
 
 <img src="https://media.gettr.com/group48/getter/2022/06/30/08/843c641d-e7c0-29ff-81e4-bac23d0d2861/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1gcjqe2a25.md)
-
-2022-6-29《鸡血王喜币大作战》 第二百四十一集 嘉宾：齐天二圣、Nick、七里香
-
-<img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
