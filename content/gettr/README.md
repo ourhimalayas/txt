@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1gkibe99f7.md)
+
+2022.07.01 早 新中国联邦 | 新闻  “无苗有币”族延续优势 避免一念之差全盘皆毁；国人头脑充满麻木与幻想 命运既定；泽连科博士因病去世；俄军在乌军反击下撤离蛇岛
+
+<img src="https://media.gettr.com/group32/origin/2022/07/01/12/4dc76e08-f4f3-b36b-c39c-794347ee8dc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1gl2fo5a77.md)
 
 2022.07.01 AM NFSC news   Vaccine Disaster is Imminent; CCP Unrestricted Media Warfare Nears End
@@ -54,11 +62,13 @@
 
 ---
 
-[@miles 7/1/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1gkibe99f7.md)
+[@miles 7/1/2022 12:57 PM UTC  - :tv:直播](/content/gettr/p1gl58da147.md)
 
-2022.07.01 早 新中国联邦 | 新闻  “无苗有币”族延续优势 避免一念之差全盘皆毁；国人头脑充满麻木与幻想 命运既定；泽连科博士因病去世；俄军在乌军反击下撤离蛇岛
 
-<img src="https://media.gettr.com/group32/origin/2022/07/01/12/4dc76e08-f4f3-b36b-c39c-794347ee8dc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+7月1号：尊敬的战友们好……香港的7月1号的所谓25周年回归庆祝．政治活动，向世界展示了共产党的假空骗的本质．成为了人类历史上最大的一个有关中国人的，新版的皇帝新衣的政治大笑话，一切都已经开始！
+
+<img src="https://media.gettr.com/group37/getter/2022/07/01/12/23131de2-94b9-5d01-1944-7e61c07ecffb/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +165,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 6/28/2022 Miles Guo: Although Ma Mingzhe and Wang Qishan helped the Swamp make a lot of money, the Swamp consider them as garbage; the Swamp also make a key point that in the eyes of the CCP kleptocrats, Chinese people are nothing ...
 
 <img src="https://media.gettr.com/group47/getter/2022/06/30/22/2188636e-c62c-cd8d-fa5f-ba77bb1d6a11/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1ghw0r6f90.md)
-
-（4K版）飞飞秀 《出山篇·北国投》 2022-06-30
-
-For English:  gettr.com/post/p1gi0s8aa03
-
-<img src="https://media.gettr.com/group13/origin/2022/06/30/22/c1593aac-261a-4cc5-25ed-8eef7d337555/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
