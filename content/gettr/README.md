@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 6/30/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1gijr1f5fc.md)
+
+（1080版）飞飞秀 《出山篇·北国投》 2022-06-30
+
+For English:  gettr.com/post/p1gi0s8aa03
+
+<img src="https://media.gettr.com/group29/origin/2022/06/30/21/0d53e16f-9259-4189-1dfe-e56f99ea77eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 12:57 PM UTC  - :tv:直播](/content/gettr/p1gl58da147.md)
 
 
@@ -69,14 +79,6 @@
 6...
 
 <img src="https://media.gettr.com/group16/getter/2022/07/01/01/a4754e65-a589-f020-f9ad-9cc124c0741a/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1gkskyff12.md)
-
-2022年07月01日 《回响》“七一”特别节目  香港魂断25周年之际，一起敲响灭共丧钟
-
-<img src="https://media.gettr.com/group39/origin/2022/07/01/12/6b5d0502-7e89-7544-0f2d-22487f1a2ccb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
