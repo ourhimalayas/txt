@@ -2,6 +2,14 @@
 ---
 
 
+[@flowermonth 7/1/2022 2:02 PM UTC  - :tv:直播](/content/gettr/p1glu0l3cc2.md)
+
+一朵自由行走的花 直播 2022-07-01深蹲第二周第3次肌力提升中（十）
+
+<img src="https://media.gettr.com/group8/getter/2022/07/01/11/68ca5656-b2e7-3769-d848-eb0df4083060/8a77610dc29bd4503e2e68ce9f9ee5b9.jpg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1glj2j0d44.md)
 
 2022年07月01日 《回响》“七一”特别节目  香港魂断25周年之际，一起敲响灭共丧钟
@@ -10,11 +18,15 @@
 
 ---
 
-[@flowermonth 7/1/2022 2:02 PM UTC  - :tv:直播](/content/gettr/p1glu0l3cc2.md)
+[@laobangzhang 7/1/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p1glofa4321.md)
 
-一朵自由行走的花 直播 2022-07-01深蹲第二周第3次肌力提升中（十）
+本人响应文贵先生戒烟的号召，自7月3日起解除此恶性，立此视频为证！ 
 
-<img src="https://media.gettr.com/group8/getter/2022/07/01/11/68ca5656-b2e7-3769-d848-eb0df4083060/8a77610dc29bd4503e2e68ce9f9ee5b9.jpg" width="506" height="284">
+
+
+
+
+<img src="https://media.gettr.com/group12/getter/2022/07/01/16/9fe100df-9431-a326-d1a5-105a36964d64/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +169,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 2022.06.30 PM NFSC news  Miles Guo and the Whistleblower Movement Will Take Down the CCP
 
 <img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1gi9wj84e7.md)
-
-6/28/2022 Miles Guo: If the Whistleblowers' Movement did not bring up Ashmore Group, very few Chinese people would know about this phenomenal company in the global financial market. Upon rising to power, Wang Qishan snatched China ...
-
-<img src="https://media.gettr.com/group34/getter/2022/06/30/22/34e0aadc-5461-aeee-ecde-800c82752395/out.jpg" width="506" height="284">
 
 ---
 
