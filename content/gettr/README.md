@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1gj24d5f89.md)
+
+2022.06.30 新中国联邦 | 喜财经 第95期  中共国信托产品的爆雷和骗局
+
+<img src="https://media.gettr.com/group36/origin/2022/07/01/02/63f0cffd-b6ac-b65c-bd49-b41cafd3a3a0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 1:45 AM UTC  - :tv:直播](/content/gettr/p1giwyg89ff.md)
 
 6/28/2022 Miles Guo: Through a financial scheme the CCP will make HK dollar disappear so that it can furtively plunder the wealth of Hong Kong people; the CCP was lobbying the Swamp to decouple from US dollar and was rejected!
@@ -14,11 +22,11 @@
 
 ---
 
-[@miles 7/1/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1gj24d5f89.md)
+[@miles 7/1/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1gj1ab9fdc.md)
 
-2022.06.30 新中国联邦 | 喜财经 第95期  中共国信托产品的爆雷和骗局
+2022-6-30《鸡血王喜币大作战》 第二百四十二集 嘉宾：无双柳薇薇、文空
 
-<img src="https://media.gettr.com/group36/origin/2022/07/01/02/63f0cffd-b6ac-b65c-bd49-b41cafd3a3a0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 6月30号：尊敬的战友们好，你们健身了吗？全世界政治．经济．军事．每天都在巨大的变化中，我们如何能在躲过疫苗灾难．还能健康快乐．正常的活着？这是我们新中国联邦人……，每天都要思考．和面对的问题，我们要珍惜．新中国联邦．这个世界上最最干净．和最有未来的群体价值，一切都已经开始！
 
 <img src="https://media.gettr.com/group46/getter/2022/06/30/15/bfb63d25-87d7-cf6c-a40f-869feae16f2c/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 2:06 PM UTC  - :tv:直播](/content/gettr/p1gfnebaab3.md)
-
-（4K版）叶钊颖-郝海东-飞飞 《大实话·第二十二场》： “名”  
-
-2022-06-30
-
-<img src="https://media.gettr.com/group39/origin/2022/06/30/14/613d683a-d7d5-fc39-6f69-4227e3a9e0f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
