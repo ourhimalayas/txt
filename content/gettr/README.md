@@ -2,13 +2,11 @@
 ---
 
 
-[@miles 6/30/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1gijr1f5fc.md)
+[@miles 7/1/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1glj2j0d44.md)
 
-（1080版）飞飞秀 《出山篇·北国投》 2022-06-30
+2022年07月01日 《回响》“七一”特别节目  香港魂断25周年之际，一起敲响灭共丧钟
 
-For English:  gettr.com/post/p1gi0s8aa03
-
-<img src="https://media.gettr.com/group29/origin/2022/06/30/21/0d53e16f-9259-4189-1dfe-e56f99ea77eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/07/01/12/6b5d0502-7e89-7544-0f2d-22487f1a2ccb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
