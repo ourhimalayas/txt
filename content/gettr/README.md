@@ -10,6 +10,20 @@
 
 ---
 
+[@miles 7/1/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1gj2hw7913.md)
+
+Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
+
+Hong Kong entertainment industry: because of shamelessness, they degenerate into puppets manipulated by CCP.  
+
+送给习包子的礼物 ㊗️贺香港沦陷25周年 
+
+香港演艺界： 因为无耻...
+
+<img src="https://media.gettr.com/group28/origin/2022/07/01/01/4365e989-2c3a-3980-e201-659029a822d9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1gj99y62cd.md)
 
 6/30/2022  Miles Guo’s GETTR: The New Federal State of China (NFSC) is hoping to find more managerial talents and skilled people to facilitate our future development. Even though you have Himalaya Coins and are not vaccinated again...
@@ -18,17 +32,11 @@
 
 ---
 
-[@miles 7/1/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1gj3c434ba.md)
+[@miles 7/1/2022 12:54 AM UTC  - :tv:直播](/content/gettr/p1gj9we5d51.md)
 
-Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
+6/30/2022 Miles Guo’s GETTR: Never speculate! Although I have been saying this for almost a year, there are still fellow fighters who suffered heavy losses due to speculation. The EU is convinced of what we have said about the COVI...
 
-Hong Kong entertainment industry: because of shamelessness, they degenerate into puppets manipulated by CCP.  
-
-送给习包子的礼物 ㊗️贺香港沦陷25周年 
-
-香港演艺界： 因为无耻，沦为...
-
-<img src="https://media.gettr.com/group24/origin/2022/07/01/00/f21ec02b-2305-32ca-e273-d855b69b1321/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/07/01/00/7ee49d11-0c04-d602-0e20-3546cdb475d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -53,14 +61,6 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 6/28/2022 Miles Guo: If the Whistleblowers' Movement did not bring up Ashmore Group, very few Chinese people would know about this phenomenal company in the global financial market. Upon rising to power, Wang Qishan snatched China ...
 
 <img src="https://media.gettr.com/group34/getter/2022/06/30/22/34e0aadc-5461-aeee-ecde-800c82752395/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 12:54 AM UTC  - :tv:直播](/content/gettr/p1gj9we5d51.md)
-
-6/30/2022 Miles Guo’s GETTR: Never speculate! Although I have been saying this for almost a year, there are still fellow fighters who suffered heavy losses due to speculation. The EU is convinced of what we have said about the COVI...
-
-<img src="https://media.gettr.com/group49/getter/2022/07/01/00/7ee49d11-0c04-d602-0e20-3546cdb475d7/out.jpg" width="506" height="284">
 
 ---
 
