@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 7/1/2022 1:45 AM UTC  - :tv:直播](/content/gettr/p1giwyg89ff.md)
+
+6/28/2022 Miles Guo: Through a financial scheme the CCP will make HK dollar disappear so that it can furtively plunder the wealth of Hong Kong people; the CCP was lobbying the Swamp to decouple from US dollar and was rejected!
+
+
+
+6...
+
+<img src="https://media.gettr.com/group16/getter/2022/07/01/01/a4754e65-a589-f020-f9ad-9cc124c0741a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 1:19 AM UTC  - :tv:直播](/content/gettr/p1gj0nse8df.md)
+
+2022.06.30 晚 新中国联邦 ｜ 新闻访谈  吴征 BrunoWu 的履历；文贵先生破产案最新进展及回顾；谈爆料革命 的艰巨性、复杂性和长期性
+
+<img src="https://media.gettr.com/group43/origin/2022/07/01/01/94c29057-b43b-0712-1481-0c8409aeb6bb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1gj2hw7913.md)
 
 Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
@@ -24,11 +44,13 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 
 ---
 
-[@miles 7/1/2022 1:19 AM UTC  - :tv:直播](/content/gettr/p1gj0nse8df.md)
+[@miles 7/1/2022 1:59 AM UTC ](/content/gettr/p1gjix8ec36.md)
 
-2022.06.30 晚 新中国联邦 ｜ 新闻访谈  吴征 BrunoWu 的履历；文贵先生破产案最新进展及回顾；谈爆料革命 的艰巨性、复杂性和长期性
+Super-May线上直播音乐会 第十四期：Just the Way You Are——70年代经典英文歌曲特辑
 
-<img src="https://media.gettr.com/group43/origin/2022/07/01/01/94c29057-b43b-0712-1481-0c8409aeb6bb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMay
 
 ---
 
@@ -157,22 +179,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 2022-06-30
 
 <img src="https://media.gettr.com/group39/origin/2022/06/30/14/613d683a-d7d5-fc39-6f69-4227e3a9e0f7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1gf9n7d6ef.md)
-
-2022.06.30 早 新中国联邦 | 新闻访谈  最新国际民调：近70%民众负面看待中国；福奇染疫病情反复，最新调查75万美国人或因疫苗死亡；北约更新战略：俄中两国 一威胁一挑战
-
-<img src="https://media.gettr.com/group44/origin/2022/06/30/12/39eabe04-b0f1-6ac5-21d5-ba4e7d98751f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 6/30/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1gg00j6100.md)
-
-2022.06.30 早 新中国联邦 ｜ 新闻     疫苗灾难近在眼前  中共媒体超限战穷途末路；百人“戒烟行动”事关健康，更是对毅力的考验；港高管大谈“斗争” 丝毫未见“回归”喜庆气氛
-
-<img src="https://media.gettr.com/group12/origin/2022/06/30/12/6ddeffd5-f5ed-bdca-f053-44798b7fd7ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
