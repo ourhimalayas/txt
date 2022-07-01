@@ -10,13 +10,11 @@
 
 ---
 
-[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gne442b79.md)
+[@miles 7/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1gn5w5176a.md)
 
-（4K版）飞飞秀 《宁南篇》 2022-07-01
+2022.07.01 PM NFSC News  Miles Guo Exposed the CCP’s “Five-Year Plan” for the COVID vaccine disaster
 
-For English: gettr.com/streaming/p1gmv6b2d7a
-
-<img src="https://media.gettr.com/group34/origin/2022/07/01/22/19765f92-aebf-2d93-8c82-c52bfb75d838/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/07/01/23/dd56aff5-25a6-2a7c-7760-09c768593bab/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -33,6 +31,16 @@ Dr. Vladimir Zelenko
 🙏🙏🙏🙏🙏🙏🙏
 
 <img src="https://media.gettr.com/group4/getter/2022/07/01/22/796551d7-085a-231c-58ff-18d883e10c33/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gne442b79.md)
+
+（4K版）飞飞秀 《宁南篇》 2022-07-01
+
+For English: gettr.com/streaming/p1gmv6b2d7a
+
+<img src="https://media.gettr.com/group34/origin/2022/07/01/22/19765f92-aebf-2d93-8c82-c52bfb75d838/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,20 +183,6 @@ Super-May线上直播音乐会 第十四期：Just the Way You Are——70年代
 2022.06.30 晚 新中国联邦 ｜ 新闻访谈  吴征 BrunoWu 的履历；文贵先生破产案最新进展及回顾；谈爆料革命 的艰巨性、复杂性和长期性
 
 <img src="https://media.gettr.com/group43/origin/2022/07/01/01/94c29057-b43b-0712-1481-0c8409aeb6bb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/1/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1gj2hw7913.md)
-
-Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
-
-Hong Kong entertainment industry: because of shamelessness, they degenerate into puppets manipulated by CCP.  
-
-送给习包子的礼物 ㊗️贺香港沦陷25周年 
-
-香港演艺界： 因为无耻...
-
-<img src="https://media.gettr.com/group28/origin/2022/07/01/01/4365e989-2c3a-3980-e201-659029a822d9/out.jpg" width="506" height="284">
 
 ---
 
