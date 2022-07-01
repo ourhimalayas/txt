@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 7/1/2022 12:46 AM UTC  - :tv:直播](/content/gettr/p1gim9of16b.md)
-
-2022.06.30 晚 新中国联邦 ｜ 新闻  郭先生爆中共制定疫苗灾难“五年计划”；无差别窃取美国民众信息 中共超限战软件将被全面禁止；中共设计港币与美元脱钩 掠夺香港财富
-
-<img src="https://media.gettr.com/group4/origin/2022/07/01/00/864410a7-1a98-47dd-499f-d2daedc6e320/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/1/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1gj2hw7913.md)
 
 Congratulations on the 25th anniversary of the fall of Hong Kong. A gift to Xi. 
@@ -21,6 +13,22 @@ Hong Kong entertainment industry: because of shamelessness, they degenerate into
 香港演艺界： 因为无耻...
 
 <img src="https://media.gettr.com/group28/origin/2022/07/01/01/4365e989-2c3a-3980-e201-659029a822d9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 12:46 AM UTC  - :tv:直播](/content/gettr/p1gim9of16b.md)
+
+2022.06.30 晚 新中国联邦 ｜ 新闻  郭先生爆中共制定疫苗灾难“五年计划”；无差别窃取美国民众信息 中共超限战软件将被全面禁止；中共设计港币与美元脱钩 掠夺香港财富
+
+<img src="https://media.gettr.com/group4/origin/2022/07/01/00/864410a7-1a98-47dd-499f-d2daedc6e320/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/1/2022 1:19 AM UTC  - :tv:直播](/content/gettr/p1gj0nse8df.md)
+
+2022.06.30 晚 新中国联邦 ｜ 新闻访谈  吴征 BrunoWu 的履历；文贵先生破产案最新进展及回顾；谈爆料革命 的艰巨性、复杂性和长期性
+
+<img src="https://media.gettr.com/group43/origin/2022/07/01/01/94c29057-b43b-0712-1481-0c8409aeb6bb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English:  gettr.com/post/p1gi0s8aa03
 2022.06.30 早 新中国联邦 ｜ 新闻     疫苗灾难近在眼前  中共媒体超限战穷途末路；百人“戒烟行动”事关健康，更是对毅力的考验；港高管大谈“斗争” 丝毫未见“回归”喜庆气氛
 
 <img src="https://media.gettr.com/group12/origin/2022/06/30/12/6ddeffd5-f5ed-bdca-f053-44798b7fd7ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/30/2022 12:02 PM UTC  - :tv:直播](/content/gettr/p1gfd0b6b0e.md)
-
-2022.06.30 AM NFSC news  Ashmore Group Aids CCP’s Kleptocrats to Loot People's Wealth
-
-<img src="https://media.gettr.com/group19/origin/2022/06/03/11/a10c9ba3-19f0-16d0-a5eb-c47f20675d52/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
