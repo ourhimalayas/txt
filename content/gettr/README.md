@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/2/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1gty73da16.md)
+
+6/28/2022 Miles Guo:  Being the core place where the CCP launders and hide money, and the bridge for the CCP to communicate with the rest of the world, the CCP might create an economic rebound in HK even after the HK dollar is de-p...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/02/23/c14f8bc9-c0ff-a406-5cf2-b35d26d31f29/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1gu3j27831.md)
+
+7/2/2022 Miles Guo’s GETTR: The Westerners are aware that the CCP was bluffing given the sharp contrast between those who accompanied the Queen to visit Hong Kong and the people sent by the CCP to attend the 25th anniversary of the...
+
+<img src="https://media.gettr.com/group5/getter/2022/07/02/23/b5126413-89a2-5a4e-d124-349c12f39005/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1gum9g106f.md)
 
 （4K版）(第二部份)飞飞秀 《G|Fashion x G|CLUBS 会员大福利》
@@ -27,14 +43,6 @@
 2022-07-02
 
 <img src="https://media.gettr.com/group41/origin/2022/07/02/22/ad0e8f83-c8de-4e28-2ba3-678da3fc9ae4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1gu3j27831.md)
-
-7/2/2022 Miles Guo’s GETTR: The Westerners are aware that the CCP was bluffing given the sharp contrast between those who accompanied the Queen to visit Hong Kong and the people sent by the CCP to attend the 25th anniversary of the...
-
-<img src="https://media.gettr.com/group5/getter/2022/07/02/23/b5126413-89a2-5a4e-d124-349c12f39005/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ https://www.asiansmokersquitline.org/?lang=zh-hans
 2022-7-1《鸡血王喜币大作战》 第二百四十三集 嘉宾：青藤、风雨之中
 
 <img src="https://media.gettr.com/group7/origin/2022/07/02/03/6ca95bcd-b1ed-2d23-11b4-b01b7ceef115/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 2:31 AM UTC ](/content/gettr/p1gnxwl0ab0.md)
-
-Early warning of the Double-headed Eagle Plan and Double Dragon Plan from Miles Guo in 2018 and 2019, respectively
-
-On June 30, Miles Guo blew the whistle that, President Xi had arrived in HK to attend the Hong Kong(HK) ceremony on...
-
-<img src="https://media.gettr.com/group24/origin/2022/07/02/02/4206462d-4b12-957b-c5a4-4e1ab21e2c8a/202c9c27c105b3c0bc89c06dba088d56.png" width="506" height="284">
 
 ---
 
