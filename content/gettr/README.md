@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 7/2/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gskmf60f0.md)
+
+2022.07.02 NFSC 日本語 ニュース  ロスチャイルド一家族と新中国連邦関係
+
+<img src="https://media.gettr.com/group33/origin/2022/07/02/11/cc061e92-516f-7c50-17d1-32bdd47667c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 5:50 AM UTC  - :tv:直播](/content/gettr/p1gpwujae38.md)
 
 7/1/2022 Miles Guo’s GETTR: Xi Jinping left Shenzhen and emerged at HK West Kowloon Station B3 level. I blew the whistle in 2017 on what the B3 level was used for. It is actually the tunnel that the CCP uses to deploy soldiers and ...
@@ -183,16 +191,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022年07月01日 《回响》“七一”特别节目  香港魂断25周年之际，一起敲响灭共丧钟
 
 <img src="https://media.gettr.com/group39/origin/2022/07/01/12/6b5d0502-7e89-7544-0f2d-22487f1a2ccb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 12:57 PM UTC  - :tv:直播](/content/gettr/p1gl58da147.md)
-
-
-
-7月1号：尊敬的战友们好……香港的7月1号的所谓25周年回归庆祝．政治活动，向世界展示了共产党的假空骗的本质．成为了人类历史上最大的一个有关中国人的，新版的皇帝新衣的政治大笑话，一切都已经开始！
-
-<img src="https://media.gettr.com/group37/getter/2022/07/01/12/23131de2-94b9-5d01-1944-7e61c07ecffb/out.jpg" width="506" height="284">
 
 ---
 
