@@ -2,13 +2,35 @@
 ---
 
 
-[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gndhs5ab8.md)
+[@miles 7/2/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1guloqa204.md)
 
-(1080版) 飞飞秀 《宁南篇》 2022-07-01
+2022.07.02  新中国联邦 | 喜健康  《妙手仁心》回应七哥大直播 -新中国联邦医者的直播修行；有一首歌让我想起他；我们在直播中的尴尬
 
-For English: gettr.com/streaming/p1gmv6b2d7a
+<img src="https://media.gettr.com/group43/origin/2022/07/02/20/19bffb0d-f8bf-9fa5-a635-af59aa025243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
-<img src="https://media.gettr.com/group17/origin/2022/07/01/22/2343c64c-ad67-adaa-c1ae-aa60734bd74f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+---
+
+[@mauerfall 7/2/2022 7:34 PM UTC ](/content/gettr/p1gu4xtcb89.md)
+
+要戒烟的战友看！过！来！
+
+
+
+以下是帮助戒烟的一些实用资源，可以大大提高成功率！
+
+
+
+ASQ华语戒烟专线☎️： 
+
+
+
+1-800-838-8917 （普通话，粤语）
+
+
+
+https://www.asiansmokersquitline.org/?lang=zh-hans
+
+<img src="https://media.gettr.com/group42/origin/2022/07/02/19/c5d2aa80-5392-2a4b-a5e5-3e6ccdd18142/e0ec416086c6cbb767f564f79998e7e6.png" width="506" height="284">
 
 ---
 
@@ -153,14 +175,6 @@ On June 30, Miles Guo blew the whistle that, President Xi had arrived in HK to a
 2022.07.01 PM NFSC News  Miles Guo Exposed the CCP’s “Five-Year Plan” for the COVID vaccine disaster
 
 <img src="https://media.gettr.com/group13/origin/2022/07/01/23/dd56aff5-25a6-2a7c-7760-09c768593bab/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/1/2022 10:46 PM UTC  - :tv:直播](/content/gettr/p1gnpwva3b8.md)
-
-7/1/2022 Miles Guo’s GETTR: The entire world took the CCP’s show in Hong Kong as a joke, and it is pathetic that Chinese Lao Baixing feel elated about the show and still live in a delusion. Chinese people are so forgetful of disast...
-
-<img src="https://media.gettr.com/group8/getter/2022/07/01/22/7f08d05d-42c2-d8eb-73ae-bf97b76b29aa/out.jpg" width="506" height="284">
 
 ---
 
