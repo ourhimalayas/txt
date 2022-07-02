@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gndhs5ab8.md)
+
+(1080版) 飞飞秀 《宁南篇》 2022-07-01
+
+For English: gettr.com/streaming/p1gmv6b2d7a
+
+<img src="https://media.gettr.com/group17/origin/2022/07/01/22/2343c64c-ad67-adaa-c1ae-aa60734bd74f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1gtr4n7ce6.md)
+
+2022-7-2 《避风港》（67）苗妈致新生婴儿免疫力低下
+
+<img src="https://media.gettr.com/group34/origin/2022/07/02/18/d9dd4f0c-48fd-a6fe-0762-0e6c7bf4d729/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 3:49 PM UTC ](/content/gettr/p1gsqt34cc0.md)
 
 
@@ -60,14 +78,6 @@
 
 ---
 
-[@miles 7/2/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1gtr4n7ce6.md)
-
-2022-7-2 《避风港》（67）苗妈致新生婴儿免疫力低下
-
-<img src="https://media.gettr.com/group34/origin/2022/07/02/18/d9dd4f0c-48fd-a6fe-0762-0e6c7bf4d729/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/2/2022 5:50 AM UTC  - :tv:直播](/content/gettr/p1gpwujae38.md)
 
 7/1/2022 Miles Guo’s GETTR: Xi Jinping left Shenzhen and emerged at HK West Kowloon Station B3 level. I blew the whistle in 2017 on what the B3 level was used for. It is actually the tunnel that the CCP uses to deploy soldiers and ...
@@ -111,28 +121,6 @@ On June 30, Miles Guo blew the whistle that, President Xi had arrived in HK to a
 6...
 
 <img src="https://media.gettr.com/group26/getter/2022/07/02/01/07017303-1131-ac3c-cc8f-702570421314/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 1:25 AM UTC ](/content/gettr/p1gnwnxc7a4.md)
-
-G |Fashion 要回馈我们的战友们啦 ～
-
-
-
-我们第一周年特卖活动将于7月4日星期一开始啦🥳🥳🥳❤️❤️❤️🔥🔥🔥
-
-
-
-所有的购买产品不能退换
-
-由于Hpay正在维修，只接受信用卡付款
-
-
-
-@gfashion @DDNYC @cornfieldsis
-
-<img src="https://media.gettr.com/group21/getter/2022/07/02/01/74b7bc32-5cc0-4d0f-3c69-c7e71e4ad90b/4da76d18f01149011c69d1b6bac01474.jpg" width="506" height="284">
 
 ---
 
