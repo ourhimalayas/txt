@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/2/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1gn681fb68.md)
+
+2022.07.01  新中国联邦 | 喜财经  第96期 美股大屠殺 標普500創逾半世紀糟上半年表現記;「大賣空」貝瑞：美股下跌只 走一半接著面臨獲利壓縮; 三星、LG陷入長達10年法院紛爭
+
+<img src="https://media.gettr.com/group34/origin/2022/07/02/02/92c01827-1a78-dcd8-9740-8020a604c640/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1gnd2wb26e.md)
 
 6/28/2022 Miles Guo: The CCP understands that hundreds of millions of people will die from COVID vaccines, and has made a 5-year plan for processing the corpses; The CCP’s lockdowns serve as a test before the massive massacre!
@@ -44,11 +52,13 @@ G |Fashion 要回馈我们的战友们啦 ～
 
 ---
 
-[@miles 7/2/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1gn681fb68.md)
+[@miles 7/2/2022 2:31 AM UTC ](/content/gettr/p1gnxwl0ab0.md)
 
-2022.07.01  新中国联邦 | 喜财经  第96期 美股大屠殺 標普500創逾半世紀糟上半年表現記;「大賣空」貝瑞：美股下跌只 走一半接著面臨獲利壓縮; 三星、LG陷入長達10年法院紛爭
+Early warning of the Double-headed Eagle Plan and Double Dragon Plan from Miles Guo in 2018 and 2019, respectively
 
-<img src="https://media.gettr.com/group34/origin/2022/07/02/02/92c01827-1a78-dcd8-9740-8020a604c640/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+On June 30, Miles Guo blew the whistle that, President Xi had arrived in HK to attend the Hong Kong(HK) ceremony on...
+
+<img src="https://media.gettr.com/group24/origin/2022/07/02/02/4206462d-4b12-957b-c5a4-4e1ab21e2c8a/202c9c27c105b3c0bc89c06dba088d56.png" width="506" height="284">
 
 ---
 
@@ -187,14 +197,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022.07.01 AM NFSC news   Vaccine Disaster is Imminent; CCP Unrestricted Media Warfare Nears End
 
 <img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/1/2022 11:32 AM UTC  - :tv:直播](/content/gettr/p1gkkoo55d2.md)
-
-20220701 NFSC日本語ニュース     人民元　2024年末までに消える可能性が高い
-
-<img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
