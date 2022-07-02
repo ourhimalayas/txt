@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/2/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gskmf60f0.md)
+
+2022.07.02 NFSC 日本語 ニュース  ロスチャイルド一家族と新中国連邦関係
+
+<img src="https://media.gettr.com/group33/origin/2022/07/02/11/cc061e92-516f-7c50-17d1-32bdd47667c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 5:45 AM UTC  - :tv:直播](/content/gettr/p1gq99p9c10.md)
 
 6/28/2022 Miles Guo: I am very confident that I can return the money stolen by the CCP kleptocrats to the Chinese people! The money will enable the Chinese people to enjoy free health care, education and not have to live out their ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/2/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gskmf60f0.md)
+[@miles 7/2/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1gsi5p0145.md)
 
-2022.07.02 NFSC 日本語 ニュース  ロスチャイルド一家族と新中国連邦関係
+2022.07.02 AM NFSC news   Steven Bannon Interviews Archbishop Viganò on War Room
 
-<img src="https://media.gettr.com/group33/origin/2022/07/02/11/cc061e92-516f-7c50-17d1-32bdd47667c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/07/02/11/e817aad9-e695-4633-3bf9-a806fd538fbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 一朵自由行走的花 直播 2022-07-01深蹲第二周第3次肌力提升中（十）
 
 <img src="https://media.gettr.com/group8/getter/2022/07/01/11/68ca5656-b2e7-3769-d848-eb0df4083060/8a77610dc29bd4503e2e68ce9f9ee5b9.jpg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1glj2j0d44.md)
-
-2022年07月01日 《回响》“七一”特别节目  香港魂断25周年之际，一起敲响灭共丧钟
-
-<img src="https://media.gettr.com/group39/origin/2022/07/01/12/6b5d0502-7e89-7544-0f2d-22487f1a2ccb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
