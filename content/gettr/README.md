@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/2/2022 2:31 AM UTC ](/content/gettr/p1gnxwl0ab0.md)
+
+Early warning of the Double-headed Eagle Plan and Double Dragon Plan from Miles Guo in 2018 and 2019, respectively
+
+On June 30, Miles Guo blew the whistle that, President Xi had arrived in HK to attend the Hong Kong(HK) ceremony on...
+
+<img src="https://media.gettr.com/group24/origin/2022/07/02/02/4206462d-4b12-957b-c5a4-4e1ab21e2c8a/202c9c27c105b3c0bc89c06dba088d56.png" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1gn681fb68.md)
 
 2022.07.01  新中国联邦 | 喜财经  第96期 美股大屠殺 標普500創逾半世紀糟上半年表現記;「大賣空」貝瑞：美股下跌只 走一半接著面臨獲利壓縮; 三星、LG陷入長達10年法院紛爭
@@ -52,13 +62,11 @@ G |Fashion 要回馈我们的战友们啦 ～
 
 ---
 
-[@miles 7/2/2022 2:31 AM UTC ](/content/gettr/p1gnxwl0ab0.md)
+[@miles 7/2/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1gogop9f64.md)
 
-Early warning of the Double-headed Eagle Plan and Double Dragon Plan from Miles Guo in 2018 and 2019, respectively
+2022-7-1《鸡血王喜币大作战》 第二百四十三集 嘉宾：青藤、风雨之中
 
-On June 30, Miles Guo blew the whistle that, President Xi had arrived in HK to attend the Hong Kong(HK) ceremony on...
-
-<img src="https://media.gettr.com/group24/origin/2022/07/02/02/4206462d-4b12-957b-c5a4-4e1ab21e2c8a/202c9c27c105b3c0bc89c06dba088d56.png" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/07/02/03/6ca95bcd-b1ed-2d23-11b4-b01b7ceef115/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022.07.01 早 新中国联邦 | 新闻  “无苗有币”族延续优势 避免一念之差全盘皆毁；国人头脑充满麻木与幻想 命运既定；泽连科博士因病去世；俄军在乌军反击下撤离蛇岛
 
 <img src="https://media.gettr.com/group32/origin/2022/07/01/12/4dc76e08-f4f3-b36b-c39c-794347ee8dc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1gl2fo5a77.md)
-
-2022.07.01 AM NFSC news   Vaccine Disaster is Imminent; CCP Unrestricted Media Warfare Nears End
-
-<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
