@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/2/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1gs6uoe90f.md)
+
+ 7月2号：尊敬的战友们好．香港的25周年纪念活动的成为世界最大的政治笑话、美国和欧洲正在全速创造的数字货币化的时代！以及完善相关的法律和规则．迅猛发展。这是新中国联邦人……抓住最伟大的历史，时刻．建设新中国联邦人的未来的的最佳时机，一切都已经开始！
+
+<img src="https://media.gettr.com/group4/getter/2022/07/02/13/99eb8ef0-a4e5-4ad7-9661-8d2f4e22a1d0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1gsb0277c7.md)
 
 2022.07.02 早 新中国联邦 | 新闻访谈 #习近平 视察 #香港，香港二十五年殇；#俄罗斯 成过街老鼠；大法官 #托马斯 涉支持“ #疫苗使用堕胎细胞 ”引争议
@@ -42,11 +50,13 @@
 
 ---
 
-[@miles 7/2/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1gs6uoe90f.md)
+[@miles 7/2/2022 3:49 PM UTC ](/content/gettr/p1gsqt34cc0.md)
 
- 7月2号：尊敬的战友们好．香港的25周年纪念活动的成为世界最大的政治笑话、美国和欧洲正在全速创造的数字货币化的时代！以及完善相关的法律和规则．迅猛发展。这是新中国联邦人……抓住最伟大的历史，时刻．建设新中国联邦人的未来的的最佳时机，一切都已经开始！
 
-<img src="https://media.gettr.com/group4/getter/2022/07/02/13/99eb8ef0-a4e5-4ad7-9661-8d2f4e22a1d0/out.jpg" width="506" height="284">
+
+🥂🔥Gfashion将在 美国国庆期间，从七月四号开始，举办历时 三周 的庆祝美国国庆活动。此活动仅供尊贵的Gclub会员专享，且在线上线下同时进行 @gfashion @DDNYC @cornfieldsis 
+
+<img src="https://media.gettr.com/group20/getter/2022/07/02/15/82ac4408-e9f0-11d5-4db7-a39002e391d1/e33da5e7aad59e43540f23e177eb4439.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +181,6 @@ Dr. Vladimir Zelenko
 🙏🙏🙏🙏🙏🙏🙏
 
 <img src="https://media.gettr.com/group4/getter/2022/07/01/22/796551d7-085a-231c-58ff-18d883e10c33/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1gne442b79.md)
-
-（4K版）飞飞秀 《宁南篇》 2022-07-01
-
-For English: gettr.com/streaming/p1gmv6b2d7a
-
-<img src="https://media.gettr.com/group34/origin/2022/07/01/22/19765f92-aebf-2d93-8c82-c52bfb75d838/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
