@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/2/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1gsb0277c7.md)
+
+2022.07.02 早 新中国联邦 | 新闻访谈 #习近平 视察 #香港，香港二十五年殇；#俄罗斯 成过街老鼠；大法官 #托马斯 涉支持“ #疫苗使用堕胎细胞 ”引争议
+
+<img src="https://media.gettr.com/group41/origin/2022/07/02/12/01e3f8dc-8fea-321b-814f-528cb121785c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1gshry83b8.md)
 
 2022.07.02 早 新中国联邦 ｜ 新闻  香港回归25周年之际，全面加速中共化进程；美国国防部宣布再援助乌克兰8.2亿美元武器弹药，挪威政府也宣布，再提供10美元支持乌克兰人道救援和国家建设
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 7/2/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1gsb0277c7.md)
+[@miles 7/2/2022 1:41 PM UTC  - :tv:直播](/content/gettr/p1gs6uoe90f.md)
 
-2022.07.02 早 新中国联邦 | 新闻访谈 #习近平 视察 #香港，香港二十五年殇；#俄罗斯 成过街老鼠；大法官 #托马斯 涉支持“ #疫苗使用堕胎细胞 ”引争议
+ 7月2号：尊敬的战友们好．香港的25周年纪念活动的成为世界最大的政治笑话、美国和欧洲正在全速创造的数字货币化的时代！以及完善相关的法律和规则．迅猛发展。这是新中国联邦人……抓住最伟大的历史，时刻．建设新中国联邦人的未来的的最佳时机，一切都已经开始！
 
-<img src="https://media.gettr.com/group41/origin/2022/07/02/12/01e3f8dc-8fea-321b-814f-528cb121785c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/07/02/13/99eb8ef0-a4e5-4ad7-9661-8d2f4e22a1d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 For English: gettr.com/streaming/p1gmv6b2d7a
 
 <img src="https://media.gettr.com/group17/origin/2022/07/01/22/2343c64c-ad67-adaa-c1ae-aa60734bd74f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p1gmb90a434.md)
-
-2022.07.01 新中国联邦 | 喜健康  《心理访谈》与郝董叶侠谈直播 人生的一场修行；《寻医问药》美国执业家庭医生谈乳腺癌的治疗
-
-<img src="https://media.gettr.com/group7/origin/2022/07/01/19/90109edb-09d8-6914-7df6-ddebb1e74b90/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
