@@ -2,11 +2,15 @@
 ---
 
 
-[@miles 7/2/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1gu3o74acf.md)
+[@miles 7/2/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1gu42tb4a4.md)
 
-2022.07.02 PM NFSC News   CCP is a threat to humanity and the world
+6/28/2022 文贵直播：中共正在世界各地找人支招以重振香港和内地的经济；没打疫苗就是人生赢家；爆料革命和文贵一定会让中共消失
 
-<img src="https://media.gettr.com/group48/origin/2022/07/02/23/59f58b4a-c5a3-e5a5-3853-f352967a41de/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+6/28/2022 Miles Guo: The CCP is seeking advice from people around the world to revive the economies of Hong Kong and the mainland; being unvaccinated against COVI...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/02/23/e30de212-a3ce-6c26-3f9b-a8e2c2249a65/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +19,22 @@
 6/28/2022 Miles Guo:  Being the core place where the CCP launders and hide money, and the bridge for the CCP to communicate with the rest of the world, the CCP might create an economic rebound in HK even after the HK dollar is de-p...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/02/23/c14f8bc9-c0ff-a406-5cf2-b35d26d31f29/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1gu3o74acf.md)
+
+2022.07.02 PM NFSC News   CCP is a threat to humanity and the world
+
+<img src="https://media.gettr.com/group48/origin/2022/07/02/23/59f58b4a-c5a3-e5a5-3853-f352967a41de/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1gua3a914a.md)
+
+2022.07.02 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group39/origin/2022/07/02/23/9c7b8c60-c5c1-7709-2acf-d383a6cb539f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -162,27 +182,11 @@ https://www.asiansmokersquitline.org/?lang=zh-hans
 
 ---
 
-[@miles 7/2/2022 5:45 AM UTC  - :tv:直播](/content/gettr/p1gq99p9c10.md)
-
-6/28/2022 Miles Guo: I am very confident that I can return the money stolen by the CCP kleptocrats to the Chinese people! The money will enable the Chinese people to enjoy free health care, education and not have to live out their ...
-
-<img src="https://media.gettr.com/group15/getter/2022/07/02/05/7677965c-47dd-8648-8f17-ecccdd55e06d/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/2/2022 5:50 AM UTC  - :tv:直播](/content/gettr/p1gpwujae38.md)
 
 7/1/2022 Miles Guo’s GETTR: Xi Jinping left Shenzhen and emerged at HK West Kowloon Station B3 level. I blew the whistle in 2017 on what the B3 level was used for. It is actually the tunnel that the CCP uses to deploy soldiers and ...
 
 <img src="https://media.gettr.com/group45/getter/2022/07/02/05/3680e12b-526b-df2f-d4eb-47848b5ec53c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1gogop9f64.md)
-
-2022-7-1《鸡血王喜币大作战》 第二百四十三集 嘉宾：青藤、风雨之中
-
-<img src="https://media.gettr.com/group7/origin/2022/07/02/03/6ca95bcd-b1ed-2d23-11b4-b01b7ceef115/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
