@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 7/2/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1gnvt6846c.md)
-
-7/1/2022 Miles Guo’s GETTR: Many people in Communist China enjoy watching the weak being bullied, they are truly mentally sick! All kinds of disasters are happening in Communist China. While Chinese Lao Baixing are being starved to...
-
-<img src="https://media.gettr.com/group24/getter/2022/07/02/00/080631f5-3c49-044a-6286-90f4ad261262/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/2/2022 1:25 AM UTC ](/content/gettr/p1gnwnxc7a4.md)
 
 G |Fashion 要回馈我们的战友们啦 ～
@@ -29,6 +21,26 @@ G |Fashion 要回馈我们的战友们啦 ～
 @gfashion @DDNYC @cornfieldsis
 
 <img src="https://media.gettr.com/group21/getter/2022/07/02/01/74b7bc32-5cc0-4d0f-3c69-c7e71e4ad90b/4da76d18f01149011c69d1b6bac01474.jpg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1gnvt6846c.md)
+
+7/1/2022 Miles Guo’s GETTR: Many people in Communist China enjoy watching the weak being bullied, they are truly mentally sick! All kinds of disasters are happening in Communist China. While Chinese Lao Baixing are being starved to...
+
+<img src="https://media.gettr.com/group24/getter/2022/07/02/00/080631f5-3c49-044a-6286-90f4ad261262/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1gnd2wb26e.md)
+
+6/28/2022 Miles Guo: The CCP understands that hundreds of millions of people will die from COVID vaccines, and has made a 5-year plan for processing the corpses; The CCP’s lockdowns serve as a test before the massive massacre!
+
+
+
+6...
+
+<img src="https://media.gettr.com/group26/getter/2022/07/02/01/07017303-1131-ac3c-cc8f-702570421314/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +195,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022.07.01 新中国联邦 | 军情室 加拿大军旅生涯
 
 <img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p1gj1ab9fdc.md)
-
-2022-6-30《鸡血王喜币大作战》 第二百四十二集 嘉宾：无双柳薇薇、文空
-
-<img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
