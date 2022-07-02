@@ -2,13 +2,11 @@
 ---
 
 
-[@miles 7/2/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1guhpcb8b4.md)
+[@miles 7/2/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1gu3o74acf.md)
 
-（4K版）飞飞秀 《G|Fashion x G|CLUBS 会员大福利》
+2022.07.02 PM NFSC News   CCP is a threat to humanity and the world
 
-2022-07-02
-
-<img src="https://media.gettr.com/group41/origin/2022/07/02/22/ad0e8f83-c8de-4e28-2ba3-678da3fc9ae4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/07/02/23/59f58b4a-c5a3-e5a5-3853-f352967a41de/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -19,6 +17,24 @@
 2022-07-02
 
 <img src="https://media.gettr.com/group41/origin/2022/07/02/22/ad0e8f83-c8de-4e28-2ba3-678da3fc9ae4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1guhpcb8b4.md)
+
+（4K版）飞飞秀 《G|Fashion x G|CLUBS 会员大福利》
+
+2022-07-02
+
+<img src="https://media.gettr.com/group41/origin/2022/07/02/22/ad0e8f83-c8de-4e28-2ba3-678da3fc9ae4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1gu3j27831.md)
+
+7/2/2022 Miles Guo’s GETTR: The Westerners are aware that the CCP was bluffing given the sharp contrast between those who accompanied the Queen to visit Hong Kong and the people sent by the CCP to attend the 25th anniversary of the...
+
+<img src="https://media.gettr.com/group5/getter/2022/07/02/23/b5126413-89a2-5a4e-d124-349c12f39005/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,26 +185,6 @@ Early warning of the Double-headed Eagle Plan and Double Dragon Plan from Miles 
 On June 30, Miles Guo blew the whistle that, President Xi had arrived in HK to attend the Hong Kong(HK) ceremony on...
 
 <img src="https://media.gettr.com/group24/origin/2022/07/02/02/4206462d-4b12-957b-c5a4-4e1ab21e2c8a/202c9c27c105b3c0bc89c06dba088d56.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1gn681fb68.md)
-
-2022.07.01  新中国联邦 | 喜财经  第96期 美股大屠殺 標普500創逾半世紀糟上半年表現記;「大賣空」貝瑞：美股下跌只 走一半接著面臨獲利壓縮; 三星、LG陷入長達10年法院紛爭
-
-<img src="https://media.gettr.com/group34/origin/2022/07/02/02/92c01827-1a78-dcd8-9740-8020a604c640/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1gnd2wb26e.md)
-
-6/28/2022 Miles Guo: The CCP understands that hundreds of millions of people will die from COVID vaccines, and has made a 5-year plan for processing the corpses; The CCP’s lockdowns serve as a test before the massive massacre!
-
-
-
-6...
-
-<img src="https://media.gettr.com/group26/getter/2022/07/02/01/07017303-1131-ac3c-cc8f-702570421314/out.jpg" width="506" height="284">
 
 ---
 
