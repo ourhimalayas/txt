@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1gn5w5176a.md)
+
+2022.07.01 PM NFSC News  Miles Guo Exposed the CCP’s “Five-Year Plan” for the COVID vaccine disaster
+
+<img src="https://media.gettr.com/group13/origin/2022/07/01/23/dd56aff5-25a6-2a7c-7760-09c768593bab/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 10:46 PM UTC  - :tv:直播](/content/gettr/p1gnpwva3b8.md)
 
 7/1/2022 Miles Guo’s GETTR: The entire world took the CCP’s show in Hong Kong as a joke, and it is pathetic that Chinese Lao Baixing feel elated about the show and still live in a delusion. Chinese people are so forgetful of disast...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1gn5w5176a.md)
+[@miles 7/2/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gnr92734d.md)
 
-2022.07.01 PM NFSC News  Miles Guo Exposed the CCP’s “Five-Year Plan” for the COVID vaccine disaster
+2022.07.01 晚 新中国联邦 ｜ 新闻  中共对世界形成威胁 任何投机和侥幸都是灾难；要接地气 积极行动 适应疫苗灾难后人类社会的大变革；英首相敦促中共信守对港承诺
 
-<img src="https://media.gettr.com/group13/origin/2022/07/01/23/dd56aff5-25a6-2a7c-7760-09c768593bab/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/07/01/23/97c78537-6806-2505-28e8-75a1d845d4ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Super-May线上直播音乐会 第十四期：Just the Way You Are——70年代
 歌手：Superman @supermanwang
 
 钢琴/歌手：QMay
-
----
-
-[@miles 7/1/2022 1:19 AM UTC  - :tv:直播](/content/gettr/p1gj0nse8df.md)
-
-2022.06.30 晚 新中国联邦 ｜ 新闻访谈  吴征 BrunoWu 的履历；文贵先生破产案最新进展及回顾；谈爆料革命 的艰巨性、复杂性和长期性
-
-<img src="https://media.gettr.com/group43/origin/2022/07/01/01/94c29057-b43b-0712-1481-0c8409aeb6bb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
