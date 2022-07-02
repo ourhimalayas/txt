@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 7/1/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1gl2fo5a77.md)
+[@miles 7/2/2022 5:45 AM UTC  - :tv:直播](/content/gettr/p1gq99p9c10.md)
 
-2022.07.01 AM NFSC news   Vaccine Disaster is Imminent; CCP Unrestricted Media Warfare Nears End
+6/28/2022 Miles Guo: I am very confident that I can return the money stolen by the CCP kleptocrats to the Chinese people! The money will enable the Chinese people to enjoy free health care, education and not have to live out their ...
 
-<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/07/02/05/7677965c-47dd-8648-8f17-ecccdd55e06d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 5:50 AM UTC  - :tv:直播](/content/gettr/p1gpwujae38.md)
+
+7/1/2022 Miles Guo’s GETTR: Xi Jinping left Shenzhen and emerged at HK West Kowloon Station B3 level. I blew the whistle in 2017 on what the B3 level was used for. It is actually the tunnel that the CCP uses to deploy soldiers and ...
+
+<img src="https://media.gettr.com/group45/getter/2022/07/02/05/3680e12b-526b-df2f-d4eb-47848b5ec53c/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 7月1号：尊敬的战友们好……香港的7月1号的所谓25周年回归庆祝．政治活动，向世界展示了共产党的假空骗的本质．成为了人类历史上最大的一个有关中国人的，新版的皇帝新衣的政治大笑话，一切都已经开始！
 
 <img src="https://media.gettr.com/group37/getter/2022/07/01/12/23131de2-94b9-5d01-1944-7e61c07ecffb/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1gkibe99f7.md)
-
-2022.07.01 早 新中国联邦 | 新闻  “无苗有币”族延续优势 避免一念之差全盘皆毁；国人头脑充满麻木与幻想 命运既定；泽连科博士因病去世；俄军在乌军反击下撤离蛇岛
-
-<img src="https://media.gettr.com/group32/origin/2022/07/01/12/4dc76e08-f4f3-b36b-c39c-794347ee8dc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
