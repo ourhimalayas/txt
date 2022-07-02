@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/2/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1gshry83b8.md)
+
+2022.07.02 早 新中国联邦 ｜ 新闻  香港回归25周年之际，全面加速中共化进程；美国国防部宣布再援助乌克兰8.2亿美元武器弹药，挪威政府也宣布，再提供10美元支持乌克兰人道救援和国家建设
+
+<img src="https://media.gettr.com/group34/origin/2022/06/08/12/16fb05eb-3386-a05f-ff84-795a419aacd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1gsi5p0145.md)
 
 2022.07.02 AM NFSC news   Steven Bannon Interviews Archbishop Viganò on War Room
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 7/2/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1gshry83b8.md)
+[@miles 7/2/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1gsb0277c7.md)
 
-2022.07.02 早 新中国联邦 ｜ 新闻  香港回归25周年之际，全面加速中共化进程；美国国防部宣布再援助乌克兰8.2亿美元武器弹药，挪威政府也宣布，再提供10美元支持乌克兰人道救援和国家建设
+2022.07.02 早 新中国联邦 | 新闻访谈 #习近平 视察 #香港，香港二十五年殇；#俄罗斯 成过街老鼠；大法官 #托马斯 涉支持“ #疫苗使用堕胎细胞 ”引争议
 
-<img src="https://media.gettr.com/group34/origin/2022/06/08/12/16fb05eb-3386-a05f-ff84-795a419aacd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/07/02/12/01e3f8dc-8fea-321b-814f-528cb121785c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022.07.01 新中国联邦 | 喜健康  《心理访谈》与郝董叶侠谈直播 人生的一场修行；《寻医问药》美国执业家庭医生谈乳腺癌的治疗
 
 <img src="https://media.gettr.com/group7/origin/2022/07/01/19/90109edb-09d8-6914-7df6-ddebb1e74b90/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p1gloit5f34.md)
-
-2022年7月1日 俄乌战争警示台海
-
-<img src="https://media.gettr.com/group7/origin/2022/07/01/16/0f3ce449-4e43-1e86-94f3-9678013e7fff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
