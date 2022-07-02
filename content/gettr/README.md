@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/1/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1gl2fo5a77.md)
+
+2022.07.01 AM NFSC news   Vaccine Disaster is Imminent; CCP Unrestricted Media Warfare Nears End
+
+<img src="https://media.gettr.com/group35/origin/2022/06/11/11/439820fd-a3d3-b5d2-a09d-cf9104b35140/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1gogop9f64.md)
+
+2022-7-1《鸡血王喜币大作战》 第二百四十三集 嘉宾：青藤、风雨之中
+
+<img src="https://media.gettr.com/group7/origin/2022/07/02/03/6ca95bcd-b1ed-2d23-11b4-b01b7ceef115/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 2:31 AM UTC ](/content/gettr/p1gnxwl0ab0.md)
 
 Early warning of the Double-headed Eagle Plan and Double Dragon Plan from Miles Guo in 2018 and 2019, respectively
@@ -59,14 +75,6 @@ G |Fashion 要回馈我们的战友们啦 ～
 7/1/2022 Miles Guo’s GETTR: Many people in Communist China enjoy watching the weak being bullied, they are truly mentally sick! All kinds of disasters are happening in Communist China. While Chinese Lao Baixing are being starved to...
 
 <img src="https://media.gettr.com/group24/getter/2022/07/02/00/080631f5-3c49-044a-6286-90f4ad261262/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1gogop9f64.md)
-
-2022-7-1《鸡血王喜币大作战》 第二百四十三集 嘉宾：青藤、风雨之中
-
-<img src="https://media.gettr.com/group7/origin/2022/07/02/03/6ca95bcd-b1ed-2d23-11b4-b01b7ceef115/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -151,18 +159,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022年7月1日 俄乌战争警示台海
 
 <img src="https://media.gettr.com/group7/origin/2022/07/01/16/0f3ce449-4e43-1e86-94f3-9678013e7fff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@laobangzhang 7/1/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p1glofa4321.md)
-
-本人响应文贵先生戒烟的号召，自7月3日起解除此恶性，立此视频为证！ 
-
-
-
-
-
-<img src="https://media.gettr.com/group12/getter/2022/07/01/16/9fe100df-9431-a326-d1a5-105a36964d64/out.jpg" width="506" height="284">
 
 ---
 
