@@ -10,6 +10,36 @@
 
 ---
 
+[@miles 7/2/2022 1:25 AM UTC ](/content/gettr/p1gnwnxc7a4.md)
+
+G |Fashion 要回馈我们的战友们啦 ～
+
+
+
+我们第一周年特卖活动将于7月4日星期一开始啦🥳🥳🥳❤️❤️❤️🔥🔥🔥
+
+
+
+所有的购买产品不能退换
+
+由于Hpay正在维修，只接受信用卡付款
+
+
+
+@gfashion @DDNYC @cornfieldsis
+
+<img src="https://media.gettr.com/group21/getter/2022/07/02/01/74b7bc32-5cc0-4d0f-3c69-c7e71e4ad90b/4da76d18f01149011c69d1b6bac01474.jpg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1gncpgb1c6.md)
+
+2022.07.01 晚 新中国联邦 | 新闻访谈  美国再次提出在谷歌和油管上使用抖音禁止令，新西兰政府跟进; 类似郑州高学历人才房烂尾楼事件等现象将会层出不穷
+
+<img src="https://media.gettr.com/group11/origin/2022/06/06/01/6e47d339-9db0-b7f6-84ba-1974b1f26bca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gnr92734d.md)
 
 2022.07.01 晚 新中国联邦 ｜ 新闻  中共对世界形成威胁 任何投机和侥幸都是灾难；要接地气 积极行动 适应疫苗灾难后人类社会的大变革；英首相敦促中共信守对港承诺
@@ -31,14 +61,6 @@
 7/1/2022 Miles Guo’s GETTR: The entire world took the CCP’s show in Hong Kong as a joke, and it is pathetic that Chinese Lao Baixing feel elated about the show and still live in a delusion. Chinese people are so forgetful of disast...
 
 <img src="https://media.gettr.com/group8/getter/2022/07/01/22/7f08d05d-42c2-d8eb-73ae-bf97b76b29aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1gncpgb1c6.md)
-
-2022.07.01 晚 新中国联邦 | 新闻访谈  美国再次提出在谷歌和油管上使用抖音禁止令，新西兰政府跟进; 类似郑州高学历人才房烂尾楼事件等现象将会层出不穷
-
-<img src="https://media.gettr.com/group11/origin/2022/06/06/01/6e47d339-9db0-b7f6-84ba-1974b1f26bca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +191,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022-6-30《鸡血王喜币大作战》 第二百四十二集 嘉宾：无双柳薇薇、文空
 
 <img src="https://media.gettr.com/group50/origin/2022/06/30/03/cceac844-59c9-e720-e8fc-5028e10f051a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/1/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p1gj24d5f89.md)
-
-2022.06.30 新中国联邦 | 喜财经 第95期  中共国信托产品的爆雷和骗局
-
-<img src="https://media.gettr.com/group36/origin/2022/07/01/02/63f0cffd-b6ac-b65c-bd49-b41cafd3a3a0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
