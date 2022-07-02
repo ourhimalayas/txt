@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/2/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1gsi5p0145.md)
+
+2022.07.02 AM NFSC news   Steven Bannon Interviews Archbishop Viganò on War Room
+
+<img src="https://media.gettr.com/group46/origin/2022/07/02/11/e817aad9-e695-4633-3bf9-a806fd538fbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gskmf60f0.md)
 
 2022.07.02 NFSC 日本語 ニュース  ロスチャイルド一家族と新中国連邦関係
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 7/2/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1gsi5p0145.md)
+[@miles 7/2/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1gshry83b8.md)
 
-2022.07.02 AM NFSC news   Steven Bannon Interviews Archbishop Viganò on War Room
+2022.07.02 早 新中国联邦 ｜ 新闻  香港回归25周年之际，全面加速中共化进程；美国国防部宣布再援助乌克兰8.2亿美元武器弹药，挪威政府也宣布，再提供10美元支持乌克兰人道救援和国家建设
 
-<img src="https://media.gettr.com/group46/origin/2022/07/02/11/e817aad9-e695-4633-3bf9-a806fd538fbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/06/08/12/16fb05eb-3386-a05f-ff84-795a419aacd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022年7月1日 俄乌战争警示台海
 
 <img src="https://media.gettr.com/group7/origin/2022/07/01/16/0f3ce449-4e43-1e86-94f3-9678013e7fff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@flowermonth 7/1/2022 2:02 PM UTC  - :tv:直播](/content/gettr/p1glu0l3cc2.md)
-
-一朵自由行走的花 直播 2022-07-01深蹲第二周第3次肌力提升中（十）
-
-<img src="https://media.gettr.com/group8/getter/2022/07/01/11/68ca5656-b2e7-3769-d848-eb0df4083060/8a77610dc29bd4503e2e68ce9f9ee5b9.jpg" width="506" height="284">
 
 ---
 
