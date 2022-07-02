@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/2/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1gnd2wb26e.md)
+
+6/28/2022 Miles Guo: The CCP understands that hundreds of millions of people will die from COVID vaccines, and has made a 5-year plan for processing the corpses; The CCP’s lockdowns serve as a test before the massive massacre!
+
+
+
+6...
+
+<img src="https://media.gettr.com/group26/getter/2022/07/02/01/07017303-1131-ac3c-cc8f-702570421314/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 1:25 AM UTC ](/content/gettr/p1gnwnxc7a4.md)
 
 G |Fashion 要回馈我们的战友们啦 ～
@@ -32,15 +44,11 @@ G |Fashion 要回馈我们的战友们啦 ～
 
 ---
 
-[@miles 7/2/2022 1:41 AM UTC  - :tv:直播](/content/gettr/p1gnd2wb26e.md)
+[@miles 7/2/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1gn681fb68.md)
 
-6/28/2022 Miles Guo: The CCP understands that hundreds of millions of people will die from COVID vaccines, and has made a 5-year plan for processing the corpses; The CCP’s lockdowns serve as a test before the massive massacre!
+2022.07.01  新中国联邦 | 喜财经  第96期 美股大屠殺 標普500創逾半世紀糟上半年表現記;「大賣空」貝瑞：美股下跌只 走一半接著面臨獲利壓縮; 三星、LG陷入長達10年法院紛爭
 
-
-
-6...
-
-<img src="https://media.gettr.com/group26/getter/2022/07/02/01/07017303-1131-ac3c-cc8f-702570421314/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/07/02/02/92c01827-1a78-dcd8-9740-8020a604c640/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 20220701 NFSC日本語ニュース     人民元　2024年末までに消える可能性が高い
 
 <img src="https://media.gettr.com/group31/origin/2022/06/13/11/357ded12-d81e-ae6e-7072-4934b6be4880/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1gkt35ea62.md)
-
-2022.07.01 新中国联邦 | 军情室 加拿大军旅生涯
-
-<img src="https://media.gettr.com/group33/origin/2022/06/17/10/65e675a3-4498-b9f0-495b-6fd056f86559/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
