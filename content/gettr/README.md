@@ -12,6 +12,16 @@
 
 ---
 
+[@miles 7/2/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1gum9g106f.md)
+
+（4K版）(第二部份)飞飞秀 《G|Fashion x G|CLUBS 会员大福利》
+
+2022-07-02
+
+<img src="https://media.gettr.com/group41/origin/2022/07/02/22/ad0e8f83-c8de-4e28-2ba3-678da3fc9ae4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1gucry19bf.md)
 
 （1080版）飞飞秀 《G|Fashion x G|CLUBS 会员大福利》
@@ -30,19 +40,19 @@
 
 ---
 
-[@miles 7/2/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1guloqa204.md)
-
-2022.07.02  新中国联邦 | 喜健康  《妙手仁心》回应七哥大直播 -新中国联邦医者的直播修行；有一首歌让我想起他；我们在直播中的尴尬
-
-<img src="https://media.gettr.com/group43/origin/2022/07/02/20/19bffb0d-f8bf-9fa5-a635-af59aa025243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/2/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1gu1qdb67b.md)
 
 7/2/2022 Miles Guo’s GETTR: The CCP‘s show in Hong Kong has become a global joke, and the celebrities and tycoons in Hong Kong also revealed their shamelessness to the world; no one can stop the arrival of digital currencies; we sh...
 
 <img src="https://media.gettr.com/group25/getter/2022/07/02/22/0f232799-9ac9-b754-c673-7d25cf311b32/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1guloqa204.md)
+
+2022.07.02  新中国联邦 | 喜健康  《妙手仁心》回应七哥大直播 -新中国联邦医者的直播修行；有一首歌让我想起他；我们在直播中的尴尬
+
+<img src="https://media.gettr.com/group43/origin/2022/07/02/20/19bffb0d-f8bf-9fa5-a635-af59aa025243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +189,6 @@ On June 30, Miles Guo blew the whistle that, President Xi had arrived in HK to a
 6...
 
 <img src="https://media.gettr.com/group26/getter/2022/07/02/01/07017303-1131-ac3c-cc8f-702570421314/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1gncpgb1c6.md)
-
-2022.07.01 晚 新中国联邦 | 新闻访谈  美国再次提出在谷歌和油管上使用抖音禁止令，新西兰政府跟进; 类似郑州高学历人才房烂尾楼事件等现象将会层出不穷
-
-<img src="https://media.gettr.com/group11/origin/2022/06/06/01/6e47d339-9db0-b7f6-84ba-1974b1f26bca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
