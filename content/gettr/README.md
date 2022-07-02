@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/2/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1gnvt6846c.md)
+
+7/1/2022 Miles Guo’s GETTR: Many people in Communist China enjoy watching the weak being bullied, they are truly mentally sick! All kinds of disasters are happening in Communist China. While Chinese Lao Baixing are being starved to...
+
+<img src="https://media.gettr.com/group24/getter/2022/07/02/00/080631f5-3c49-044a-6286-90f4ad261262/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gnr92734d.md)
+
+2022.07.01 晚 新中国联邦 ｜ 新闻  中共对世界形成威胁 任何投机和侥幸都是灾难；要接地气 积极行动 适应疫苗灾难后人类社会的大变革；英首相敦促中共信守对港承诺
+
+<img src="https://media.gettr.com/group9/origin/2022/07/01/23/97c78537-6806-2505-28e8-75a1d845d4ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1gn5w5176a.md)
 
 2022.07.01 PM NFSC News  Miles Guo Exposed the CCP’s “Five-Year Plan” for the COVID vaccine disaster
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 7/2/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gnr92734d.md)
+[@miles 7/2/2022 12:59 AM UTC  - :tv:直播](/content/gettr/p1gncpgb1c6.md)
 
-2022.07.01 晚 新中国联邦 ｜ 新闻  中共对世界形成威胁 任何投机和侥幸都是灾难；要接地气 积极行动 适应疫苗灾难后人类社会的大变革；英首相敦促中共信守对港承诺
+2022.07.01 晚 新中国联邦 | 新闻访谈  美国再次提出在谷歌和油管上使用抖音禁止令，新西兰政府跟进; 类似郑州高学历人才房烂尾楼事件等现象将会层出不穷
 
-<img src="https://media.gettr.com/group9/origin/2022/07/01/23/97c78537-6806-2505-28e8-75a1d845d4ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/06/06/01/6e47d339-9db0-b7f6-84ba-1974b1f26bca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,28 +177,6 @@ For English: gettr.com/streaming/p1gmv6b2d7a
 2022.06.30 新中国联邦 | 喜财经 第95期  中共国信托产品的爆雷和骗局
 
 <img src="https://media.gettr.com/group36/origin/2022/07/01/02/63f0cffd-b6ac-b65c-bd49-b41cafd3a3a0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/1/2022 1:45 AM UTC  - :tv:直播](/content/gettr/p1giwyg89ff.md)
-
-6/28/2022 Miles Guo: Through a financial scheme the CCP will make HK dollar disappear so that it can furtively plunder the wealth of Hong Kong people; the CCP was lobbying the Swamp to decouple from US dollar and was rejected!
-
-
-
-6...
-
-<img src="https://media.gettr.com/group16/getter/2022/07/01/01/a4754e65-a589-f020-f9ad-9cc124c0741a/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/1/2022 1:59 AM UTC ](/content/gettr/p1gjix8ec36.md)
-
-Super-May线上直播音乐会 第十四期：Just the Way You Are——70年代经典英文歌曲特辑
-
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMay
 
 ---
 
