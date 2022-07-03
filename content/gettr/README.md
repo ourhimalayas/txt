@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/3/2022 6:03 PM UTC  - :tv:直播](/content/gettr/p1gydsrc54a.md)
+
+2022-7-03「坚持」—— 为爱不离不弃🪁，#小小尼莫音乐会 🎼第十八期，唯有坚持，才能绽放爱的花朵🌸，才能攀上喜马拉雅🏔，生命美好，值得坚持💪
+
+<img src="https://media.gettr.com/group39/origin/2022/07/03/18/d91b9979-a670-4822-43f6-4031af6686d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/3/2022 12:03 PM UTC  - :tv:直播](/content/gettr/p1gwxy1439f.md)
 
 2022年7月3日 文贵先生携百位战友戒烟宣誓大直播：立誓戒烟；一呼百应；健康灭共；言出必行  （4K版）
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/3/2022 6:03 PM UTC  - :tv:直播](/content/gettr/p1gydsrc54a.md)
+[@miles 7/3/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1gy9m39618.md)
 
-2022-7-03「坚持」—— 为爱不离不弃🪁，#小小尼莫音乐会 🎼第十八期，唯有坚持，才能绽放爱的花朵🌸，才能攀上喜马拉雅🏔，生命美好，值得坚持💪
+2022.07.03 新中国联邦 | 喜健康  《医学视角》S蛋白与儿童多系统炎症综合征
 
-<img src="https://media.gettr.com/group39/origin/2022/07/03/18/d91b9979-a670-4822-43f6-4031af6686d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/07/03/20/3299ecce-e5b4-d658-a95d-cbf2f60553e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -131,16 +139,6 @@
 [@miles 7/2/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1gum9g106f.md)
 
 （4K版）(第二部份)飞飞秀 《G|Fashion x G|CLUBS 会员大福利》
-
-2022-07-02
-
-<img src="https://media.gettr.com/group41/origin/2022/07/02/22/ad0e8f83-c8de-4e28-2ba3-678da3fc9ae4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p1guhpcb8b4.md)
-
-（4K版）飞飞秀 《G|Fashion x G|CLUBS 会员大福利》
 
 2022-07-02
 
