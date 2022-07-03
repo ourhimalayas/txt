@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/3/2022 12:03 PM UTC  - :tv:直播](/content/gettr/p1gwxy1439f.md)
+
+2022年7月3日 文贵先生携百位战友戒烟宣誓大直播：立誓戒烟；一呼百应；健康灭共；言出必行  （4K版）
+
+<img src="https://media.gettr.com/group42/origin/2022/07/03/12/f06771d2-84b1-4ab3-6add-3e9d9b9077b2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/3/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gx16c04f6.md)
+
+2022.07.03 NFSC 日本語 ニュース　　中国の210社、PCR検査機関不合格
+
+<img src="https://media.gettr.com/group41/origin/2022/07/03/11/5f2567d5-189e-21fb-4913-9b47f4bd0b2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/3/2022 10:01 AM UTC  - :tv:直播](/content/gettr/p1gvtuc1ce3.md)
 
 2022-7-3喜财经第98期 周日沙龙第八期——时间一去不返…人心如何重塑?！
@@ -64,11 +80,11 @@
 
 ---
 
-[@miles 7/3/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gx16c04f6.md)
+[@miles 7/3/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p1gwypn7440.md)
 
-2022.07.03 NFSC 日本語 ニュース　　中国の210社、PCR検査機関不合格
+2022年7月3日 文贵先生携百位战友戒烟宣誓大直播：立誓戒烟；一呼百应；健康灭共；言出必行  （1080P版）
 
-<img src="https://media.gettr.com/group41/origin/2022/07/03/11/5f2567d5-189e-21fb-4913-9b47f4bd0b2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/07/03/12/2cb35bd3-7344-e802-d40b-de1c362d9569/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -150,14 +166,6 @@
 
 ---
 
-[@miles 7/2/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1guloqa204.md)
-
-2022.07.02  新中国联邦 | 喜健康  《妙手仁心》回应七哥大直播 -新中国联邦医者的直播修行；有一首歌让我想起他；我们在直播中的尴尬
-
-<img src="https://media.gettr.com/group43/origin/2022/07/02/20/19bffb0d-f8bf-9fa5-a635-af59aa025243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@mauerfall 7/2/2022 7:34 PM UTC ](/content/gettr/p1gu4xtcb89.md)
 
 要戒烟的战友看！过！来！
@@ -179,14 +187,6 @@ ASQ华语戒烟专线☎️：
 https://www.asiansmokersquitline.org/?lang=zh-hans
 
 <img src="https://media.gettr.com/group42/origin/2022/07/02/19/c5d2aa80-5392-2a4b-a5e5-3e6ccdd18142/e0ec416086c6cbb767f564f79998e7e6.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1gtr4n7ce6.md)
-
-2022-7-2 《避风港》（67）苗妈致新生婴儿免疫力低下
-
-<img src="https://media.gettr.com/group34/origin/2022/07/02/18/d9dd4f0c-48fd-a6fe-0762-0e6c7bf4d729/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
