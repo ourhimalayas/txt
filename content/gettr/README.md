@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/3/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1gz7na26ca.md)
+
+2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （1080P版）
+
+<img src="https://media.gettr.com/group22/origin/2022/07/03/21/e108bd68-ab84-7b97-c535-949a8403e406/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/3/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1gyhvycbfd.md)
+
+（4K版）飞飞秀 《小皮匠谈王健之死·四周年》
+
+2022-07-03
+
+<img src="https://media.gettr.com/group13/origin/2022/07/03/21/1ffe3829-b064-fef0-3c53-fdd7cfb7291a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/3/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1gy9m39618.md)
 
 2022.07.03 新中国联邦 | 喜健康  《医学视角》S蛋白与儿童多系统炎症综合征
@@ -26,13 +44,11 @@
 
 ---
 
-[@miles 7/3/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1gyhvycbfd.md)
+[@miles 7/3/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1gyjqye5ca.md)
 
-（4K版）飞飞秀 《小皮匠谈王健之死·四周年》
+2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （4K版）
 
-2022-07-03
-
-<img src="https://media.gettr.com/group13/origin/2022/07/03/21/1ffe3829-b064-fef0-3c53-fdd7cfb7291a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/07/03/22/17d1bfb2-15dc-da72-b69c-6b15b8bcd6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,22 +169,6 @@
 2022-07-02
 
 <img src="https://media.gettr.com/group41/origin/2022/07/02/22/ad0e8f83-c8de-4e28-2ba3-678da3fc9ae4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1gtuy8e53e.md)
-
-6/28/2022 Miles Guo: Many countries want to decouple from the US dollar and peg their currencies to a currency basket; but the US will restore the dollar hegemony; the CCP will be the loser of the currency war and RMB will disappea...
-
-<img src="https://media.gettr.com/group48/getter/2022/07/02/22/5d94d706-6f8c-3df6-4038-64af98dd3932/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1gu1qdb67b.md)
-
-7/2/2022 Miles Guo’s GETTR: The CCP‘s show in Hong Kong has become a global joke, and the celebrities and tycoons in Hong Kong also revealed their shamelessness to the world; no one can stop the arrival of digital currencies; we sh...
-
-<img src="https://media.gettr.com/group25/getter/2022/07/02/22/0f232799-9ac9-b754-c673-7d25cf311b32/out.jpg" width="506" height="284">
 
 ---
 
