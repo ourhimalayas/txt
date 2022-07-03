@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/3/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gup5wba07.md)
+
+2022.07.02 晚 新中国联邦 ｜ 新闻  郭先生揭示中共给香港政治、经济、民生施加的枷锁；合法追回中共盗国贼资产 道路漫长但意义重大；美国支援乌克兰两套地对空导弹系统
+
+<img src="https://media.gettr.com/group17/origin/2022/07/03/00/15721770-a2b5-4524-2442-39122fd81284/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1gu42tb4a4.md)
 
 6/28/2022 文贵直播：中共正在世界各地找人支招以重振香港和内地的经济；没打疫苗就是人生赢家；爆料革命和文贵一定会让中共消失
@@ -14,11 +22,11 @@
 
 ---
 
-[@miles 7/3/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gup5wba07.md)
+[@miles 7/3/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1guo8u5e15.md)
 
-2022.07.02 晚 新中国联邦 ｜ 新闻  郭先生揭示中共给香港政治、经济、民生施加的枷锁；合法追回中共盗国贼资产 道路漫长但意义重大；美国支援乌克兰两套地对空导弹系统
+2022.07.02 晚 新中国联邦 ｜ 新闻访谈  村镇银行之后，南京银行再传爆雷疑云；俄白推动一体化进程，拉夫罗夫警告铁幕再次降临；美最高法再次出手，限制联邦政府碳排放权力
 
-<img src="https://media.gettr.com/group17/origin/2022/07/03/00/15721770-a2b5-4524-2442-39122fd81284/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/07/03/00/667767c9-8976-5f5f-6bc4-c054b4d4656f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ https://www.asiansmokersquitline.org/?lang=zh-hans
 2022.07.02 AM NFSC news   Steven Bannon Interviews Archbishop Viganò on War Room
 
 <img src="https://media.gettr.com/group46/origin/2022/07/02/11/e817aad9-e695-4633-3bf9-a806fd538fbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gskmf60f0.md)
-
-2022.07.02 NFSC 日本語 ニュース  ロスチャイルド一家族と新中国連邦関係
-
-<img src="https://media.gettr.com/group33/origin/2022/07/02/11/cc061e92-516f-7c50-17d1-32bdd47667c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
