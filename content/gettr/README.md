@@ -10,6 +10,24 @@
 
 ---
 
+[@miles 7/3/2022 11:29 PM UTC ](/content/gettr/p1gz94i9090.md)
+
+China's Foreign Ministry Says "There is no promise to keep" 
+
+At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Lijian said there is no “promise” to keep in response to British Prime Minister Johnson's cri...
+
+<img src="https://media.gettr.com/group23/origin/2022/07/03/23/d02ac21b-9793-acc8-4089-76e5ed5b4182/20bba633f61d6b7130aabbb392f4f2da.jpg" width="506" height="284">
+
+---
+
+[@miles 7/3/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1gyjqye5ca.md)
+
+2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （4K版）
+
+<img src="https://media.gettr.com/group38/origin/2022/07/03/22/17d1bfb2-15dc-da72-b69c-6b15b8bcd6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/3/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1gyhvycbfd.md)
 
 （4K版）飞飞秀 《小皮匠谈王健之死·四周年》
@@ -41,14 +59,6 @@
 2022年7月3日 文贵先生携百位战友戒烟宣誓大直播：立誓戒烟；一呼百应；健康灭共；言出必行  （4K版）
 
 <img src="https://media.gettr.com/group42/origin/2022/07/03/12/f06771d2-84b1-4ab3-6add-3e9d9b9077b2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1gyjqye5ca.md)
-
-2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （4K版）
-
-<img src="https://media.gettr.com/group38/origin/2022/07/03/22/17d1bfb2-15dc-da72-b69c-6b15b8bcd6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,16 +169,6 @@
 7/2/2022 Miles Guo’s GETTR: The Westerners are aware that the CCP was bluffing given the sharp contrast between those who accompanied the Queen to visit Hong Kong and the people sent by the CCP to attend the 25th anniversary of the...
 
 <img src="https://media.gettr.com/group5/getter/2022/07/02/23/b5126413-89a2-5a4e-d124-349c12f39005/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p1gum9g106f.md)
-
-（4K版）(第二部份)飞飞秀 《G|Fashion x G|CLUBS 会员大福利》
-
-2022-07-02
-
-<img src="https://media.gettr.com/group41/origin/2022/07/02/22/ad0e8f83-c8de-4e28-2ba3-678da3fc9ae4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
