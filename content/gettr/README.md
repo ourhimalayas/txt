@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/3/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1gvf6k179e.md)
+
+2022-7-2《鸡血王喜币大作战》 第二百四十四集 嘉宾：卡丽熙、Happy
+
+<img src="https://media.gettr.com/group38/origin/2022/07/03/03/444e4348-7ac3-84cf-b5af-f2786bc068a4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/3/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1gvjpm84a7.md)
 
 2022.07.02 晚 新中国联邦 ｜ 喜财经 第97期 数字货币专栏：SEC与币圈的拉锯战 币安之后第二大交易所FTX背后CCP的影子 欧盟就全面监管数字货币的法案MiCA达成一致
@@ -38,11 +46,11 @@
 
 ---
 
-[@miles 7/3/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1gvf6k179e.md)
+[@miles 7/3/2022 9:48 AM UTC  - :tv:直播](/content/gettr/p1gvxjb28b3.md)
 
-2022-7-2《鸡血王喜币大作战》 第二百四十四集 嘉宾：卡丽熙、Happy
+7月3号：尊敬的战友们好，很多人发了信息给我……问关于今天的直播内容．和戒烟的事情．我刚刚结束了两个视频会议．每个人都在问．今天你要直播关于戒烟吗？答案．是的……在三个小时后．将开始今天的大直播．与全球共同戒烟的战友们宣誓戒烟仪式．和战友谈谈戒烟的原因．一切都已经开始
 
-<img src="https://media.gettr.com/group38/origin/2022/07/03/03/444e4348-7ac3-84cf-b5af-f2786bc068a4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/07/03/09/9dc536b7-b1b9-1aaf-4863-a702b70adb78/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ https://www.asiansmokersquitline.org/?lang=zh-hans
  7月2号：尊敬的战友们好．香港的25周年纪念活动的成为世界最大的政治笑话、美国和欧洲正在全速创造的数字货币化的时代！以及完善相关的法律和规则．迅猛发展。这是新中国联邦人……抓住最伟大的历史，时刻．建设新中国联邦人的未来的的最佳时机，一切都已经开始！
 
 <img src="https://media.gettr.com/group4/getter/2022/07/02/13/99eb8ef0-a4e5-4ad7-9661-8d2f4e22a1d0/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 12:59 PM UTC  - :tv:直播](/content/gettr/p1gsb0277c7.md)
-
-2022.07.02 早 新中国联邦 | 新闻访谈 #习近平 视察 #香港，香港二十五年殇；#俄罗斯 成过街老鼠；大法官 #托马斯 涉支持“ #疫苗使用堕胎细胞 ”引争议
-
-<img src="https://media.gettr.com/group41/origin/2022/07/02/12/01e3f8dc-8fea-321b-814f-528cb121785c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
