@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/3/2022 6:03 PM UTC  - :tv:直播](/content/gettr/p1gydsrc54a.md)
+
+2022-7-03「坚持」—— 为爱不离不弃🪁，#小小尼莫音乐会 🎼第十八期，唯有坚持，才能绽放爱的花朵🌸，才能攀上喜马拉雅🏔，生命美好，值得坚持💪
+
+<img src="https://media.gettr.com/group39/origin/2022/07/03/18/d91b9979-a670-4822-43f6-4031af6686d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/3/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p1gwypn7440.md)
+
+2022年7月3日 文贵先生携百位战友戒烟宣誓大直播：立誓戒烟；一呼百应；健康灭共；言出必行  （1080P版）
+
+<img src="https://media.gettr.com/group9/origin/2022/07/03/12/2cb35bd3-7344-e802-d40b-de1c362d9569/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/3/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gx16c04f6.md)
 
 2022.07.03 NFSC 日本語 ニュース　　中国の210社、PCR検査機関不合格
@@ -77,14 +93,6 @@
 6/28/2022 Miles Guo: The CCP is seeking advice from people around the world to revive the economies of Hong Kong and the mainland; being unvaccinated against COVI...
 
 <img src="https://media.gettr.com/group3/getter/2022/07/02/23/e30de212-a3ce-6c26-3f9b-a8e2c2249a65/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 12:04 PM UTC  - :tv:直播](/content/gettr/p1gwypn7440.md)
-
-2022年7月3日 文贵先生携百位战友戒烟宣誓大直播：立誓戒烟；一呼百应；健康灭共；言出必行  （1080P版）
-
-<img src="https://media.gettr.com/group9/origin/2022/07/03/12/2cb35bd3-7344-e802-d40b-de1c362d9569/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,30 +171,6 @@
 7/2/2022 Miles Guo’s GETTR: The CCP‘s show in Hong Kong has become a global joke, and the celebrities and tycoons in Hong Kong also revealed their shamelessness to the world; no one can stop the arrival of digital currencies; we sh...
 
 <img src="https://media.gettr.com/group25/getter/2022/07/02/22/0f232799-9ac9-b754-c673-7d25cf311b32/out.jpg" width="506" height="284">
-
----
-
-[@mauerfall 7/2/2022 7:34 PM UTC ](/content/gettr/p1gu4xtcb89.md)
-
-要戒烟的战友看！过！来！
-
-
-
-以下是帮助戒烟的一些实用资源，可以大大提高成功率！
-
-
-
-ASQ华语戒烟专线☎️： 
-
-
-
-1-800-838-8917 （普通话，粤语）
-
-
-
-https://www.asiansmokersquitline.org/?lang=zh-hans
-
-<img src="https://media.gettr.com/group42/origin/2022/07/02/19/c5d2aa80-5392-2a4b-a5e5-3e6ccdd18142/e0ec416086c6cbb767f564f79998e7e6.png" width="506" height="284">
 
 ---
 
