@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/3/2022 10:01 AM UTC  - :tv:直播](/content/gettr/p1gvtuc1ce3.md)
+
+2022-7-3喜财经第98期 周日沙龙第八期——时间一去不返…人心如何重塑?！
+
+请郝海东、叶钊颖二侠，“解封”被金元足球禁锢的那些残梦
+
+<img src="https://media.gettr.com/group24/origin/2022/07/03/02/f1b7f0e2-f7f9-3fd4-3937-45f08209ce48/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/3/2022 9:48 AM UTC  - :tv:直播](/content/gettr/p1gvxjb28b3.md)
 
 7月3号：尊敬的战友们好，很多人发了信息给我……问关于今天的直播内容．和戒烟的事情．我刚刚结束了两个视频会议．每个人都在问．今天你要直播关于戒烟吗？答案．是的……在三个小时后．将开始今天的大直播．与全球共同戒烟的战友们宣誓戒烟仪式．和战友谈谈戒烟的原因．一切都已经开始
@@ -54,13 +64,11 @@
 
 ---
 
-[@miles 7/3/2022 10:01 AM UTC  - :tv:直播](/content/gettr/p1gvtuc1ce3.md)
+[@miles 7/3/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gx16c04f6.md)
 
-2022-7-3喜财经第98期 周日沙龙第八期——时间一去不返…人心如何重塑?！
+2022.07.03 NFSC 日本語 ニュース　　中国の210社、PCR検査機関不合格
 
-请郝海东、叶钊颖二侠，“解封”被金元足球禁锢的那些残梦
-
-<img src="https://media.gettr.com/group24/origin/2022/07/03/02/f1b7f0e2-f7f9-3fd4-3937-45f08209ce48/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/07/03/11/5f2567d5-189e-21fb-4913-9b47f4bd0b2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ https://www.asiansmokersquitline.org/?lang=zh-hans
 2022-7-2 《避风港》（67）苗妈致新生婴儿免疫力低下
 
 <img src="https://media.gettr.com/group34/origin/2022/07/02/18/d9dd4f0c-48fd-a6fe-0762-0e6c7bf4d729/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 3:49 PM UTC ](/content/gettr/p1gsqt34cc0.md)
-
-
-
-🥂🔥Gfashion将在 美国国庆期间，从七月四号开始，举办历时 三周 的庆祝美国国庆活动。此活动仅供尊贵的Gclub会员专享，且在线上线下同时进行 @gfashion @DDNYC @cornfieldsis 
-
-<img src="https://media.gettr.com/group20/getter/2022/07/02/15/82ac4408-e9f0-11d5-4db7-a39002e391d1/e33da5e7aad59e43540f23e177eb4439.jpg" width="506" height="284">
 
 ---
 
