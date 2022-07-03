@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/3/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1guo8u5e15.md)
+
+2022.07.02 晚 新中国联邦 ｜ 新闻访谈  村镇银行之后，南京银行再传爆雷疑云；俄白推动一体化进程，拉夫罗夫警告铁幕再次降临；美最高法再次出手，限制联邦政府碳排放权力
+
+<img src="https://media.gettr.com/group44/origin/2022/07/03/00/667767c9-8976-5f5f-6bc4-c054b4d4656f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/3/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gup5wba07.md)
 
 2022.07.02 晚 新中国联邦 ｜ 新闻  郭先生揭示中共给香港政治、经济、民生施加的枷锁；合法追回中共盗国贼资产 道路漫长但意义重大；美国支援乌克兰两套地对空导弹系统
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 7/3/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1guo8u5e15.md)
+[@miles 7/3/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1gvjpm84a7.md)
 
-2022.07.02 晚 新中国联邦 ｜ 新闻访谈  村镇银行之后，南京银行再传爆雷疑云；俄白推动一体化进程，拉夫罗夫警告铁幕再次降临；美最高法再次出手，限制联邦政府碳排放权力
+2022.07.02 晚 新中国联邦 ｜ 喜财经 第97期 数字货币专栏：SEC与币圈的拉锯战 币安之后第二大交易所FTX背后CCP的影子 欧盟就全面监管数字货币的法案MiCA达成一致
 
-<img src="https://media.gettr.com/group44/origin/2022/07/03/00/667767c9-8976-5f5f-6bc4-c054b4d4656f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/07/03/02/f1b7f0e2-f7f9-3fd4-3937-45f08209ce48/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ https://www.asiansmokersquitline.org/?lang=zh-hans
 2022.07.02 早 新中国联邦 ｜ 新闻  香港回归25周年之际，全面加速中共化进程；美国国防部宣布再援助乌克兰8.2亿美元武器弹药，挪威政府也宣布，再提供10美元支持乌克兰人道救援和国家建设
 
 <img src="https://media.gettr.com/group34/origin/2022/06/08/12/16fb05eb-3386-a05f-ff84-795a419aacd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1gsi5p0145.md)
-
-2022.07.02 AM NFSC news   Steven Bannon Interviews Archbishop Viganò on War Room
-
-<img src="https://media.gettr.com/group46/origin/2022/07/02/11/e817aad9-e695-4633-3bf9-a806fd538fbb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
