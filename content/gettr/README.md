@@ -14,6 +14,22 @@
 
 ---
 
+[@miles 7/3/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gup5wba07.md)
+
+2022.07.02 晚 新中国联邦 ｜ 新闻  郭先生揭示中共给香港政治、经济、民生施加的枷锁；合法追回中共盗国贼资产 道路漫长但意义重大；美国支援乌克兰两套地对空导弹系统
+
+<img src="https://media.gettr.com/group17/origin/2022/07/03/00/15721770-a2b5-4524-2442-39122fd81284/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/2/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1gua3a914a.md)
+
+2022.07.02 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group39/origin/2022/07/02/23/9c7b8c60-c5c1-7709-2acf-d383a6cb539f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/2/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1gty73da16.md)
 
 6/28/2022 Miles Guo:  Being the core place where the CCP launders and hide money, and the bridge for the CCP to communicate with the rest of the world, the CCP might create an economic rebound in HK even after the HK dollar is de-p...
@@ -27,14 +43,6 @@
 2022.07.02 PM NFSC News   CCP is a threat to humanity and the world
 
 <img src="https://media.gettr.com/group48/origin/2022/07/02/23/59f58b4a-c5a3-e5a5-3853-f352967a41de/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1gua3a914a.md)
-
-2022.07.02 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-
-<img src="https://media.gettr.com/group39/origin/2022/07/02/23/9c7b8c60-c5c1-7709-2acf-d383a6cb539f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ https://www.asiansmokersquitline.org/?lang=zh-hans
 2022.07.02 NFSC 日本語 ニュース  ロスチャイルド一家族と新中国連邦関係
 
 <img src="https://media.gettr.com/group33/origin/2022/07/02/11/cc061e92-516f-7c50-17d1-32bdd47667c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 5:50 AM UTC  - :tv:直播](/content/gettr/p1gpwujae38.md)
-
-7/1/2022 Miles Guo’s GETTR: Xi Jinping left Shenzhen and emerged at HK West Kowloon Station B3 level. I blew the whistle in 2017 on what the B3 level was used for. It is actually the tunnel that the CCP uses to deploy soldiers and ...
-
-<img src="https://media.gettr.com/group45/getter/2022/07/02/05/3680e12b-526b-df2f-d4eb-47848b5ec53c/out.jpg" width="506" height="284">
 
 ---
 
