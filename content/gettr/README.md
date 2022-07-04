@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/4/2022 9:48 PM UTC  - :tv:直播](/content/gettr/p1h3d9zfd31.md)
+
+7/3/2022 Miles Guo: It was the corruption of Kuomintang that made the CCP what it is today. However Kuomintang will be the cause of the CCP's demise! Those who betrayed and slaughtered Taiwanese will be retributed; Taiwan will defi...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/04/21/a63f0d97-3b5b-e318-71b6-81f1c10a66a7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1h3i4of074.md)
+
+7/3/2022 Miles Guo: Through "Kill the landowners and distribute their land", the CCP held the peasants hostage and took over power;  Xi Jinping has been taking the same approach to extend his power since the 18th National Congress ...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/04/21/88888678-d6b6-20af-3256-61cf72b046ff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1h37eee8d4.md)
 
 7月4号:尊敬的战友们好，今天是美国独立日，文贵在这里为世界、美国、新中国联邦祈愿……一切都己经开始……
@@ -71,14 +87,6 @@
  7月4号：尊敬的战友们好，．今天是美国独立纪念日，也是盖特平台诞生，一周年纪念日。这是个伟大的日子．是人类历史最伟大的日子之一……天佑美国．……永远的祝福美国人民．美利坚共和国……繁荣强盛．太平！
 
 <img src="https://media.gettr.com/group5/getter/2022/07/04/14/bb6bf047-8e78-6e35-4549-757dd1a8ddc5/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1h3i4of074.md)
-
-7/3/2022 Miles Guo: Through "Kill the landowners and distribute their land", the CCP held the peasants hostage and took over power;  Xi Jinping has been taking the same approach to extend his power since the 18th National Congress ...
-
-<img src="https://media.gettr.com/group41/getter/2022/07/04/21/88888678-d6b6-20af-3256-61cf72b046ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@
 7/3/2022 Miles Guo: Whether it is the 1st or the 20th Party Congress, the aim of the CCP in holding these meetings is to abuse the 1.4 billion slaves and make sure its absolute centralization of power. The Tiananmen Square protests...
 
 <img src="https://media.gettr.com/group29/getter/2022/07/04/06/c47bcf8a-9288-7e08-2981-df360cca9c69/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1gzb8ud3fb.md)
-
-7/3/2022 Miles Guo: A fellow sister from Taiwan who dealt with Bruno Wu before describes him as a matchless liar; communism was raised by the Swamp and meant to enslave mankind; Communist Party is part of the Swamp. However, idiot ...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/04/03/37379194-cfec-b106-b1e2-f3cf428e29b4/out.jpg" width="506" height="284">
 
 ---
 
