@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 7/4/2022 1:33 AM UTC  - :tv:直播](/content/gettr/p1gyvwb2334.md)
+
+7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP's assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether or ...
+
+<img src="https://media.gettr.com/group39/getter/2022/07/04/01/2a13bc2f-b1dc-7653-2397-a5555f1fb8c5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1gyzfz5a51.md)
 
 7/3/2022 Miles Guo: Two incidents triggered my decision to quit smoking together with our fellow fighters: (1) my conversation with a tobacco business tycoon at Phoenix; (2) the advice from our master in Wudang Mountains; for the s...
 
 <img src="https://media.gettr.com/group28/getter/2022/07/04/00/79b7514b-53ae-dbb5-178a-b46843d80f99/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1gz04td2b9.md)
+
+7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP's assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether or ...
+
+<img src="https://media.gettr.com/group44/getter/2022/07/04/01/d1b9dee6-e1f6-c4d1-279e-bbd5d82158de/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1gzcqnde82.md)
+
+2022.07.03 晚 新中国联邦 ｜ 新闻访谈  Tiktok的丧钟正式敲响  Gettr上线一年收获大礼
+
+<img src="https://media.gettr.com/group43/origin/2022/07/04/01/6cd4b40e-8c6c-f918-f100-c0e17eebbad0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -25,14 +49,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （1080P版）
 
 <img src="https://media.gettr.com/group22/origin/2022/07/03/21/e108bd68-ab84-7b97-c535-949a8403e406/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1gzcqnde82.md)
-
-2022.07.03 晚 新中国联邦 ｜ 新闻访谈  Tiktok的丧钟正式敲响  Gettr上线一年收获大礼
-
-<img src="https://media.gettr.com/group43/origin/2022/07/04/01/6cd4b40e-8c6c-f918-f100-c0e17eebbad0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -144,31 +160,11 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 
 ---
 
-[@miles 7/2/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1gu42tb4a4.md)
-
-6/28/2022 文贵直播：中共正在世界各地找人支招以重振香港和内地的经济；没打疫苗就是人生赢家；爆料革命和文贵一定会让中共消失
-
-
-
-6/28/2022 Miles Guo: The CCP is seeking advice from people around the world to revive the economies of Hong Kong and the mainland; being unvaccinated against COVI...
-
-<img src="https://media.gettr.com/group3/getter/2022/07/02/23/e30de212-a3ce-6c26-3f9b-a8e2c2249a65/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/2/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1gua3a914a.md)
 
 2022.07.02 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group39/origin/2022/07/02/23/9c7b8c60-c5c1-7709-2acf-d383a6cb539f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1gty73da16.md)
-
-6/28/2022 Miles Guo:  Being the core place where the CCP launders and hide money, and the bridge for the CCP to communicate with the rest of the world, the CCP might create an economic rebound in HK even after the HK dollar is de-p...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/02/23/c14f8bc9-c0ff-a406-5cf2-b35d26d31f29/out.jpg" width="506" height="284">
 
 ---
 
