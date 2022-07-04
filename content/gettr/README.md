@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/4/2022 2:53 PM UTC  - :tv:直播](/content/gettr/p1h16oe3c88.md)
+
+ 7月4号：尊敬的战友们好，．今天是美国独立纪念日，也是盖特平台诞生，一周年纪念日。这是个伟大的日子．是人类历史最伟大的日子之一……天佑美国．……永远的祝福美国人民．美利坚共和国……繁荣强盛．太平！
+
+<img src="https://media.gettr.com/group5/getter/2022/07/04/14/bb6bf047-8e78-6e35-4549-757dd1a8ddc5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 2:31 PM UTC ](/content/gettr/p1h16fi27ab.md)
+
+磐石精心打造的全新《时间点Timeline》！不容错过！👍
+
+---
+
 [@miles 7/4/2022 2:04 PM UTC  - :tv:直播](/content/gettr/p1h1ly0d18d.md)
 
 07.04.2022   BEYOND TIME AND SPACE  （中文配音） 《穿越时空- 逃离乌克兰》
@@ -88,9 +102,11 @@
 
 ---
 
-[@miles 7/4/2022 2:31 PM UTC ](/content/gettr/p1h16fi27ab.md)
+[@miles 7/4/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1h1gpkdd4d.md)
 
-磐石精心打造的全新《时间点Timeline》！不容错过！👍
+7/3/2022 Miles Guo: I never predict! My views are all based on learning, my personal network built over many years, and my goal of destroying the CCP; international organizations such as WTO, IMF, UN, etc. are all accomplices of th...
+
+<img src="https://media.gettr.com/group39/getter/2022/07/04/14/4198bf6f-857d-9a76-b27c-4e13aed21206/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,24 +173,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （4K版）
 
 <img src="https://media.gettr.com/group38/origin/2022/07/03/22/17d1bfb2-15dc-da72-b69c-6b15b8bcd6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1gyhvycbfd.md)
-
-（4K版）飞飞秀 《小皮匠谈王健之死·四周年》
-
-2022-07-03
-
-<img src="https://media.gettr.com/group13/origin/2022/07/03/21/1ffe3829-b064-fef0-3c53-fdd7cfb7291a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 8:48 PM UTC  - :tv:直播](/content/gettr/p1gy9m39618.md)
-
-2022.07.03 新中国联邦 | 喜健康  《医学视角》S蛋白与儿童多系统炎症综合征
-
-<img src="https://media.gettr.com/group22/origin/2022/07/03/20/3299ecce-e5b4-d658-a95d-cbf2f60553e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
