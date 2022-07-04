@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 7/4/2022 2:53 PM UTC  - :tv:直播](/content/gettr/p1h16oe3c88.md)
-
- 7月4号：尊敬的战友们好，．今天是美国独立纪念日，也是盖特平台诞生，一周年纪念日。这是个伟大的日子．是人类历史最伟大的日子之一……天佑美国．……永远的祝福美国人民．美利坚共和国……繁荣强盛．太平！
-
-<img src="https://media.gettr.com/group5/getter/2022/07/04/14/bb6bf047-8e78-6e35-4549-757dd1a8ddc5/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/4/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1h20xb214d.md)
 
 07.04.2022  《翻转面 — 采访澳洲航空公司32年工作的飞行员 Graham Hood先生》 谈一谈他是如何反对澳洲航空公司对新冠疫苗注射的政策 中文配音版 
@@ -21,6 +13,28 @@
 
 
 <img src="https://media.gettr.com/group19/origin/2022/07/04/14/7888064c-b5f7-9dc4-fe8a-13ee0872c4ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 2:53 PM UTC  - :tv:直播](/content/gettr/p1h16oe3c88.md)
+
+ 7月4号：尊敬的战友们好，．今天是美国独立纪念日，也是盖特平台诞生，一周年纪念日。这是个伟大的日子．是人类历史最伟大的日子之一……天佑美国．……永远的祝福美国人民．美利坚共和国……繁荣强盛．太平！
+
+<img src="https://media.gettr.com/group5/getter/2022/07/04/14/bb6bf047-8e78-6e35-4549-757dd1a8ddc5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 4:13 PM UTC  - :tv:直播](/content/gettr/p1h16jz7b40.md)
+
+2022年7月4日 俄乌战争警示台海
+
+
+
+
+
+
+
+<img src="https://media.gettr.com/group6/origin/2022/07/04/16/22b5c8c8-ecfe-14be-dfc8-aa58dc70a6b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +185,6 @@ China's Foreign Ministry Says "There is no promise to keep"
 At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Lijian said there is no “promise” to keep in response to British Prime Minister Johnson's cri...
 
 <img src="https://media.gettr.com/group23/origin/2022/07/03/23/d02ac21b-9793-acc8-4089-76e5ed5b4182/20bba633f61d6b7130aabbb392f4f2da.jpg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1gyjqye5ca.md)
-
-2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （4K版）
-
-<img src="https://media.gettr.com/group38/origin/2022/07/03/22/17d1bfb2-15dc-da72-b69c-6b15b8bcd6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
