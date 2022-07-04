@@ -2,11 +2,27 @@
 ---
 
 
+[@miles 7/4/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1gzb8ud3fb.md)
+
+7/3/2022 Miles Guo: A fellow sister from Taiwan who dealt with Bruno Wu before describes him as a matchless liar; communism was raised by the Swamp and meant to enslave mankind; Communist Party is part of the Swamp. However, idiot ...
+
+<img src="https://media.gettr.com/group22/getter/2022/07/04/03/37379194-cfec-b106-b1e2-f3cf428e29b4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1gyxtic866.md)
 
 2022.07.03 农场联盟工作汇报
 
 <img src="https://media.gettr.com/group31/origin/2022/07/04/02/1677616b-df6b-b8f2-9462-cf6e7e79f5d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1gzbgt26ba.md)
+
+2022-7-3《鸡血王喜币大作战》 第二百四十五集 嘉宾：封神榜、七里香
+
+<img src="https://media.gettr.com/group29/origin/2022/07/04/03/029e3503-4b1c-85ea-6616-4ab3e2b61f08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,22 +165,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022.07.02 晚 新中国联邦 ｜ 新闻访谈  村镇银行之后，南京银行再传爆雷疑云；俄白推动一体化进程，拉夫罗夫警告铁幕再次降临；美最高法再次出手，限制联邦政府碳排放权力
 
 <img src="https://media.gettr.com/group44/origin/2022/07/03/00/667767c9-8976-5f5f-6bc4-c054b4d4656f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/3/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1gup5wba07.md)
-
-2022.07.02 晚 新中国联邦 ｜ 新闻  郭先生揭示中共给香港政治、经济、民生施加的枷锁；合法追回中共盗国贼资产 道路漫长但意义重大；美国支援乌克兰两套地对空导弹系统
-
-<img src="https://media.gettr.com/group17/origin/2022/07/03/00/15721770-a2b5-4524-2442-39122fd81284/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 11:34 PM UTC  - :tv:直播](/content/gettr/p1gua3a914a.md)
-
-2022.07.02 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-
-<img src="https://media.gettr.com/group39/origin/2022/07/02/23/9c7b8c60-c5c1-7709-2acf-d383a6cb539f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
