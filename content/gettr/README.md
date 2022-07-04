@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/4/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1h04i5e8c1.md)
+
+2022.07.04 AM NFSC News  UK and NZ Leaders Issue a Joint Statement Condemning the CCP
+
+<img src="https://media.gettr.com/group46/origin/2022/07/04/11/81298051-8fa2-64da-1d8b-6cfa7c4446b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h054e7916.md)
 
 20220704 NFSC日本語ニュース　　習近平氏の香港生まれ変わる言論に各界から反撥
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 7/4/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1h04i5e8c1.md)
+[@miles 7/4/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1h1t8rbe3a.md)
 
-2022.07.04 AM NFSC News  UK and NZ Leaders Issue a Joint Statement Condemning the CCP
+2022.07.04 早 新中国联邦 | 新闻 郭先生谈为何呼吁战友们戒烟 新中国联邦人需找到抑制邪恶的方法 香港沦陷25周年 报应将降临跟随中共作恶的人 中共独裁反助数字货币发展
 
-<img src="https://media.gettr.com/group46/origin/2022/07/04/11/81298051-8fa2-64da-1d8b-6cfa7c4446b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/07/04/12/b0017b7f-5349-5009-d8c5-2bdac5fc0fa3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022年7月3日 文贵先生携百位战友戒烟宣誓大直播：立誓戒烟；一呼百应；健康灭共；言出必行  （1080P版）
 
 <img src="https://media.gettr.com/group9/origin/2022/07/03/12/2cb35bd3-7344-e802-d40b-de1c362d9569/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1gx16c04f6.md)
-
-2022.07.03 NFSC 日本語 ニュース　　中国の210社、PCR検査機関不合格
-
-<img src="https://media.gettr.com/group41/origin/2022/07/03/11/5f2567d5-189e-21fb-4913-9b47f4bd0b2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
