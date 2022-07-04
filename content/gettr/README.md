@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p1h0631d7af.md)
+
+7/3/2022  Miles Guo:  There are three groups of people pushing the COVID vaccine mandates and promoting COVID vaccines: 1) the greedy pharmaceutical groups in the Swamp and medical administration agencies; 2)  ignorant people who b...
+
+<img src="https://media.gettr.com/group40/getter/2022/07/04/06/f6439abb-5921-54b7-2709-c69537c7bd3b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1gzi9la848.md)
 
 7/3/2022 Miles Guo: Whether it is the 1st or the 20th Party Congress, the aim of the CCP in holding these meetings is to abuse the 1.4 billion slaves and make sure its absolute centralization of power. The Tiananmen Square protests...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 7/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p1h0631d7af.md)
+[@miles 7/4/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h0c3c559d.md)
 
-7/3/2022  Miles Guo:  There are three groups of people pushing the COVID vaccine mandates and promoting COVID vaccines: 1) the greedy pharmaceutical groups in the Swamp and medical administration agencies; 2)  ignorant people who b...
+2022.07.04 新中国联邦 | 军情室 杜布诺战役II
 
-<img src="https://media.gettr.com/group40/getter/2022/07/04/06/f6439abb-5921-54b7-2709-c69537c7bd3b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/07/04/10/131e1a8b-741a-0305-8d06-d0075e7cbe7e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 7月3号：尊敬的战友们好，很多人发了信息给我……问关于今天的直播内容．和戒烟的事情．我刚刚结束了两个视频会议．每个人都在问．今天你要直播关于戒烟吗？答案．是的……在三个小时后．将开始今天的大直播．与全球共同戒烟的战友们宣誓戒烟仪式．和战友谈谈戒烟的原因．一切都已经开始
 
 <img src="https://media.gettr.com/group47/getter/2022/07/03/09/9dc536b7-b1b9-1aaf-4863-a702b70adb78/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p1gvf6k179e.md)
-
-2022-7-2《鸡血王喜币大作战》 第二百四十四集 嘉宾：卡丽熙、Happy
-
-<img src="https://media.gettr.com/group38/origin/2022/07/03/03/444e4348-7ac3-84cf-b5af-f2786bc068a4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
