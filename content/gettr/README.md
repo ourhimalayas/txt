@@ -2,19 +2,15 @@
 ---
 
 
-[@miles 7/4/2022 1:33 AM UTC  - :tv:直播](/content/gettr/p1gyvwb2334.md)
+[@miles 7/2/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1gu42tb4a4.md)
 
-7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP's assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether or ...
+6/28/2022 文贵直播：中共正在世界各地找人支招以重振香港和内地的经济；没打疫苗就是人生赢家；爆料革命和文贵一定会让中共消失
 
-<img src="https://media.gettr.com/group39/getter/2022/07/04/01/2a13bc2f-b1dc-7653-2397-a5555f1fb8c5/out.jpg" width="506" height="284">
 
----
 
-[@miles 7/4/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1gyzfz5a51.md)
+6/28/2022 Miles Guo: The CCP is seeking advice from people around the world to revive the economies of Hong Kong and the mainland; being unvaccinated against COVI...
 
-7/3/2022 Miles Guo: Two incidents triggered my decision to quit smoking together with our fellow fighters: (1) my conversation with a tobacco business tycoon at Phoenix; (2) the advice from our master in Wudang Mountains; for the s...
-
-<img src="https://media.gettr.com/group28/getter/2022/07/04/00/79b7514b-53ae-dbb5-178a-b46843d80f99/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/07/02/23/e30de212-a3ce-6c26-3f9b-a8e2c2249a65/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +19,14 @@
 7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP's assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether or ...
 
 <img src="https://media.gettr.com/group44/getter/2022/07/04/01/d1b9dee6-e1f6-c4d1-279e-bbd5d82158de/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1gyzfz5a51.md)
+
+7/3/2022 Miles Guo: Two incidents triggered my decision to quit smoking together with our fellow fighters: (1) my conversation with a tobacco business tycoon at Phoenix; (2) the advice from our master in Wudang Mountains; for the s...
+
+<img src="https://media.gettr.com/group28/getter/2022/07/04/00/79b7514b-53ae-dbb5-178a-b46843d80f99/out.jpg" width="506" height="284">
 
 ---
 
