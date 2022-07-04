@@ -10,6 +10,28 @@
 
 ---
 
+[@miles 7/4/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1h20xb214d.md)
+
+07.04.2022  《翻转面 — 采访澳洲航空公司32年工作的飞行员 Graham Hood先生》 谈一谈他是如何反对澳洲航空公司对新冠疫苗注射的政策 中文配音版 
+
+
+
+
+
+
+
+<img src="https://media.gettr.com/group19/origin/2022/07/04/14/7888064c-b5f7-9dc4-fe8a-13ee0872c4ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1h1gpkdd4d.md)
+
+7/3/2022 Miles Guo: I never predict! My views are all based on learning, my personal network built over many years, and my goal of destroying the CCP; international organizations such as WTO, IMF, UN, etc. are all accomplices of th...
+
+<img src="https://media.gettr.com/group39/getter/2022/07/04/14/4198bf6f-857d-9a76-b27c-4e13aed21206/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 2:31 PM UTC ](/content/gettr/p1h16fi27ab.md)
 
 磐石精心打造的全新《时间点Timeline》！不容错过！👍
@@ -102,14 +124,6 @@
 
 ---
 
-[@miles 7/4/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1h1gpkdd4d.md)
-
-7/3/2022 Miles Guo: I never predict! My views are all based on learning, my personal network built over many years, and my goal of destroying the CCP; international organizations such as WTO, IMF, UN, etc. are all accomplices of th...
-
-<img src="https://media.gettr.com/group39/getter/2022/07/04/14/4198bf6f-857d-9a76-b27c-4e13aed21206/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/4/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1gzbgt26ba.md)
 
 2022-7-3《鸡血王喜币大作战》 第二百四十五集 嘉宾：封神榜、七里香
@@ -157,14 +171,6 @@ China's Foreign Ministry Says "There is no promise to keep"
 At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Lijian said there is no “promise” to keep in response to British Prime Minister Johnson's cri...
 
 <img src="https://media.gettr.com/group23/origin/2022/07/03/23/d02ac21b-9793-acc8-4089-76e5ed5b4182/20bba633f61d6b7130aabbb392f4f2da.jpg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1gz7na26ca.md)
-
-2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （1080P版）
-
-<img src="https://media.gettr.com/group22/origin/2022/07/03/21/e108bd68-ab84-7b97-c535-949a8403e406/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
