@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/4/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h0c3c559d.md)
+
+2022.07.04 新中国联邦 | 军情室 杜布诺战役II
+
+<img src="https://media.gettr.com/group41/origin/2022/07/04/10/131e1a8b-741a-0305-8d06-d0075e7cbe7e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p1h0631d7af.md)
 
 7/3/2022  Miles Guo:  There are three groups of people pushing the COVID vaccine mandates and promoting COVID vaccines: 1) the greedy pharmaceutical groups in the Swamp and medical administration agencies; 2)  ignorant people who b...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 7/4/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h0c3c559d.md)
+[@miles 7/4/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h054e7916.md)
 
-2022.07.04 新中国联邦 | 军情室 杜布诺战役II
+20220704 NFSC日本語ニュース　　習近平氏の香港生まれ変わる言論に各界から反撥
 
-<img src="https://media.gettr.com/group41/origin/2022/07/04/10/131e1a8b-741a-0305-8d06-d0075e7cbe7e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/07/04/11/d67af4e1-ef48-c4e6-2bd8-71ccca47c027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 请郝海东、叶钊颖二侠，“解封”被金元足球禁锢的那些残梦
 
 <img src="https://media.gettr.com/group24/origin/2022/07/03/02/f1b7f0e2-f7f9-3fd4-3937-45f08209ce48/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/3/2022 9:48 AM UTC  - :tv:直播](/content/gettr/p1gvxjb28b3.md)
-
-7月3号：尊敬的战友们好，很多人发了信息给我……问关于今天的直播内容．和戒烟的事情．我刚刚结束了两个视频会议．每个人都在问．今天你要直播关于戒烟吗？答案．是的……在三个小时后．将开始今天的大直播．与全球共同戒烟的战友们宣誓戒烟仪式．和战友谈谈戒烟的原因．一切都已经开始
-
-<img src="https://media.gettr.com/group47/getter/2022/07/03/09/9dc536b7-b1b9-1aaf-4863-a702b70adb78/out.jpg" width="506" height="284">
 
 ---
 
