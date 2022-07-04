@@ -2,15 +2,11 @@
 ---
 
 
-[@miles 7/2/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1gu42tb4a4.md)
+[@miles 7/4/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1gyxtic866.md)
 
-6/28/2022 文贵直播：中共正在世界各地找人支招以重振香港和内地的经济；没打疫苗就是人生赢家；爆料革命和文贵一定会让中共消失
+2022.07.03 农场联盟工作汇报
 
-
-
-6/28/2022 Miles Guo: The CCP is seeking advice from people around the world to revive the economies of Hong Kong and the mainland; being unvaccinated against COVI...
-
-<img src="https://media.gettr.com/group3/getter/2022/07/02/23/e30de212-a3ce-6c26-3f9b-a8e2c2249a65/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/07/04/02/1677616b-df6b-b8f2-9462-cf6e7e79f5d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
