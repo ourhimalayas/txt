@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/4/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1h2oxz9b6c.md)
+
+2022.07.04 新中国联邦 | 喜健康  《寻医问药》美国神经专科执业医生长阔高深在线答疑；《正道医学》人造子宫会被邪恶势力利用吗？
+
+
+
+<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 6:00 PM UTC  - :tv:直播](/content/gettr/p1h2bv5b624.md)
 
 《焦点》91期：盖特一周年 爆料革命圣哥达隧道；中共对郝润泽实施连坐；郭先生发起的戒烟运动，是新中国联邦人利他与文明的开始。
@@ -48,13 +58,11 @@
 
 ---
 
-[@miles 7/4/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1h2oxz9b6c.md)
+[@miles 7/4/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1h37eee8d4.md)
 
-2022.07.04 新中国联邦 | 喜健康  《寻医问药》美国神经专科执业医生长阔高深在线答疑；《正道医学》人造子宫会被邪恶势力利用吗？
+7月4号:尊敬的战友们好，今天是美国独立日，文贵在这里为世界、美国、新中国联邦祈愿……一切都己经开始……
 
-
-
-<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/07/04/20/3d8c0efb-1e20-55bc-2075-f741ff4fa44f/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@
 7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP's assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether or ...
 
 <img src="https://media.gettr.com/group44/getter/2022/07/04/01/d1b9dee6-e1f6-c4d1-279e-bbd5d82158de/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1gzcqnde82.md)
-
-2022.07.03 晚 新中国联邦 ｜ 新闻访谈  Tiktok的丧钟正式敲响  Gettr上线一年收获大礼
-
-<img src="https://media.gettr.com/group43/origin/2022/07/04/01/6cd4b40e-8c6c-f918-f100-c0e17eebbad0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
