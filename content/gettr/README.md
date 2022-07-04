@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 7/4/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1gyxtic866.md)
+[@miles 7/4/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1gzi9la848.md)
 
-2022.07.03 农场联盟工作汇报
+7/3/2022 Miles Guo: Whether it is the 1st or the 20th Party Congress, the aim of the CCP in holding these meetings is to abuse the 1.4 billion slaves and make sure its absolute centralization of power. The Tiananmen Square protests...
 
-<img src="https://media.gettr.com/group31/origin/2022/07/04/02/1677616b-df6b-b8f2-9462-cf6e7e79f5d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/07/04/06/c47bcf8a-9288-7e08-2981-df360cca9c69/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 2022-7-3《鸡血王喜币大作战》 第二百四十五集 嘉宾：封神榜、七里香
 
 <img src="https://media.gettr.com/group29/origin/2022/07/04/03/029e3503-4b1c-85ea-6616-4ab3e2b61f08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1gyxtic866.md)
+
+2022.07.03 农场联盟工作汇报
+
+<img src="https://media.gettr.com/group31/origin/2022/07/04/02/1677616b-df6b-b8f2-9462-cf6e7e79f5d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022.07.02 晚 新中国联邦 ｜ 喜财经 第97期 数字货币专栏：SEC与币圈的拉锯战 币安之后第二大交易所FTX背后CCP的影子 欧盟就全面监管数字货币的法案MiCA达成一致
 
 <img src="https://media.gettr.com/group24/origin/2022/07/03/02/f1b7f0e2-f7f9-3fd4-3937-45f08209ce48/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/3/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1guo8u5e15.md)
-
-2022.07.02 晚 新中国联邦 ｜ 新闻访谈  村镇银行之后，南京银行再传爆雷疑云；俄白推动一体化进程，拉夫罗夫警告铁幕再次降临；美最高法再次出手，限制联邦政府碳排放权力
-
-<img src="https://media.gettr.com/group44/origin/2022/07/03/00/667767c9-8976-5f5f-6bc4-c054b4d4656f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
