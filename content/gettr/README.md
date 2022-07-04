@@ -2,11 +2,13 @@
 ---
 
 
-[@miles 7/4/2022 9:30 PM UTC  - :tv:直播](/content/gettr/p1h2ww498fb.md)
+[@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h316w47a0.md)
 
-7/3/2022 Miles Guo: The essence of the 20th Party Congress is that Xi is going to stay in power, and this is why it should be called "the 20th demise of the CCP". The CCP's 20th Party Congress was already doomed during the 19th Par...
+（1080版）飞飞秀 《郭先生破产案》 2022-07-04
 
-<img src="https://media.gettr.com/group15/getter/2022/07/04/21/c87b03f1-4f30-f458-d149-ba7e3103b588/out.jpg" width="506" height="284">
+For English： gettr.com/post/p1h3w8pee4f
+
+<img src="https://media.gettr.com/group13/origin/2022/07/04/22/48d42910-d55d-3892-de38-977f6f957738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,24 @@
 7/3/2022 Miles Guo: It was the corruption of Kuomintang that made the CCP what it is today. However Kuomintang will be the cause of the CCP's demise! Those who betrayed and slaughtered Taiwanese will be retributed; Taiwan will defi...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/04/21/a63f0d97-3b5b-e318-71b6-81f1c10a66a7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 9:30 PM UTC  - :tv:直播](/content/gettr/p1h2ww498fb.md)
+
+7/3/2022 Miles Guo: The essence of the 20th Party Congress is that Xi is going to stay in power, and this is why it should be called "the 20th demise of the CCP". The CCP's 20th Party Congress was already doomed during the 19th Par...
+
+<img src="https://media.gettr.com/group15/getter/2022/07/04/21/c87b03f1-4f30-f458-d149-ba7e3103b588/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h3u0ce484.md)
+
+（4K版）飞飞秀 《郭先生破产案》 2022-07-04
+
+For English： gettr.com/post/p1h3w8pee4f
+
+<img src="https://media.gettr.com/group8/origin/2022/07/04/22/a6366223-8fc3-42af-03a2-c79b9d58b42a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,22 +191,6 @@
 7/3/2022  Miles Guo:  There are three groups of people pushing the COVID vaccine mandates and promoting COVID vaccines: 1) the greedy pharmaceutical groups in the Swamp and medical administration agencies; 2)  ignorant people who b...
 
 <img src="https://media.gettr.com/group40/getter/2022/07/04/06/f6439abb-5921-54b7-2709-c69537c7bd3b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1gzi9la848.md)
-
-7/3/2022 Miles Guo: Whether it is the 1st or the 20th Party Congress, the aim of the CCP in holding these meetings is to abuse the 1.4 billion slaves and make sure its absolute centralization of power. The Tiananmen Square protests...
-
-<img src="https://media.gettr.com/group29/getter/2022/07/04/06/c47bcf8a-9288-7e08-2981-df360cca9c69/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 3:09 AM UTC  - :tv:直播](/content/gettr/p1gzbgt26ba.md)
-
-2022-7-3《鸡血王喜币大作战》 第二百四十五集 嘉宾：封神榜、七里香
-
-<img src="https://media.gettr.com/group29/origin/2022/07/04/03/029e3503-4b1c-85ea-6616-4ab3e2b61f08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
