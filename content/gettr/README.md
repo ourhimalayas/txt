@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 7/3/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1gz7na26ca.md)
+[@miles 7/4/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1gyzfz5a51.md)
 
-2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （1080P版）
+7/3/2022 Miles Guo: Two incidents triggered my decision to quit smoking together with our fellow fighters: (1) my conversation with a tobacco business tycoon at Phoenix; (2) the advice from our master in Wudang Mountains; for the s...
 
-<img src="https://media.gettr.com/group22/origin/2022/07/03/21/e108bd68-ab84-7b97-c535-949a8403e406/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/07/04/00/79b7514b-53ae-dbb5-178a-b46843d80f99/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +17,22 @@ China's Foreign Ministry Says "There is no promise to keep"
 At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Lijian said there is no “promise” to keep in response to British Prime Minister Johnson's cri...
 
 <img src="https://media.gettr.com/group23/origin/2022/07/03/23/d02ac21b-9793-acc8-4089-76e5ed5b4182/20bba633f61d6b7130aabbb392f4f2da.jpg" width="506" height="284">
+
+---
+
+[@miles 7/3/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1gz7na26ca.md)
+
+2022年7月3日 戒烟大直播：女子戒烟监督团连线补播 （1080P版）
+
+<img src="https://media.gettr.com/group22/origin/2022/07/03/21/e108bd68-ab84-7b97-c535-949a8403e406/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1gzcqnde82.md)
+
+2022.07.03 晚 新中国联邦 ｜ 新闻访谈  Tiktok的丧钟正式敲响  Gettr上线一年收获大礼
+
+<img src="https://media.gettr.com/group43/origin/2022/07/04/01/6cd4b40e-8c6c-f918-f100-c0e17eebbad0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,22 +169,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 6/28/2022 Miles Guo:  Being the core place where the CCP launders and hide money, and the bridge for the CCP to communicate with the rest of the world, the CCP might create an economic rebound in HK even after the HK dollar is de-p...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/02/23/c14f8bc9-c0ff-a406-5cf2-b35d26d31f29/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/2/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1gu3o74acf.md)
-
-2022.07.02 PM NFSC News   CCP is a threat to humanity and the world
-
-<img src="https://media.gettr.com/group48/origin/2022/07/02/23/59f58b4a-c5a3-e5a5-3853-f352967a41de/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/2/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1gu3j27831.md)
-
-7/2/2022 Miles Guo’s GETTR: The Westerners are aware that the CCP was bluffing given the sharp contrast between those who accompanied the Queen to visit Hong Kong and the people sent by the CCP to attend the 25th anniversary of the...
-
-<img src="https://media.gettr.com/group5/getter/2022/07/02/23/b5126413-89a2-5a4e-d124-349c12f39005/out.jpg" width="506" height="284">
 
 ---
 
