@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/4/2022 9:30 PM UTC  - :tv:直播](/content/gettr/p1h2ww498fb.md)
+
+7/3/2022 Miles Guo: The essence of the 20th Party Congress is that Xi is going to stay in power, and this is why it should be called "the 20th demise of the CCP". The CCP's 20th Party Congress was already doomed during the 19th Par...
+
+<img src="https://media.gettr.com/group15/getter/2022/07/04/21/c87b03f1-4f30-f458-d149-ba7e3103b588/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1h37eee8d4.md)
+
+7月4号:尊敬的战友们好，今天是美国独立日，文贵在这里为世界、美国、新中国联邦祈愿……一切都己经开始……
+
+<img src="https://media.gettr.com/group12/getter/2022/07/04/20/3d8c0efb-1e20-55bc-2075-f741ff4fa44f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1h2oxz9b6c.md)
 
 2022.07.04 新中国联邦 | 喜健康  《寻医问药》美国神经专科执业医生长阔高深在线答疑；《正道医学》人造子宫会被邪恶势力利用吗？
@@ -58,11 +74,11 @@
 
 ---
 
-[@miles 7/4/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1h37eee8d4.md)
+[@miles 7/4/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1h3i4of074.md)
 
-7月4号:尊敬的战友们好，今天是美国独立日，文贵在这里为世界、美国、新中国联邦祈愿……一切都己经开始……
+7/3/2022 Miles Guo: Through "Kill the landowners and distribute their land", the CCP held the peasants hostage and took over power;  Xi Jinping has been taking the same approach to extend his power since the 18th National Congress ...
 
-<img src="https://media.gettr.com/group12/getter/2022/07/04/20/3d8c0efb-1e20-55bc-2075-f741ff4fa44f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/07/04/21/88888678-d6b6-20af-3256-61cf72b046ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,22 +187,6 @@
 2022-7-3《鸡血王喜币大作战》 第二百四十五集 嘉宾：封神榜、七里香
 
 <img src="https://media.gettr.com/group29/origin/2022/07/04/03/029e3503-4b1c-85ea-6616-4ab3e2b61f08/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/4/2022 2:00 AM UTC  - :tv:直播](/content/gettr/p1gyxtic866.md)
-
-2022.07.03 农场联盟工作汇报
-
-<img src="https://media.gettr.com/group31/origin/2022/07/04/02/1677616b-df6b-b8f2-9462-cf6e7e79f5d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/4/2022 1:36 AM UTC  - :tv:直播](/content/gettr/p1gz04td2b9.md)
-
-7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP's assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether or ...
-
-<img src="https://media.gettr.com/group44/getter/2022/07/04/01/d1b9dee6-e1f6-c4d1-279e-bbd5d82158de/out.jpg" width="506" height="284">
 
 ---
 
