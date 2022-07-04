@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/4/2022 6:00 PM UTC  - :tv:直播](/content/gettr/p1h2bv5b624.md)
+
+《焦点》91期：盖特一周年 爆料革命圣哥达隧道；中共对郝润泽实施连坐；郭先生发起的戒烟运动，是新中国联邦人利他与文明的开始。
+
+
+
+<img src="https://media.gettr.com/group43/origin/2022/07/04/17/e646e2f5-00c5-5319-dd43-9771e418fa76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 4:13 PM UTC  - :tv:直播](/content/gettr/p1h16jz7b40.md)
 
 2022年7月4日 俄乌战争警示台海
@@ -38,13 +48,13 @@
 
 ---
 
-[@miles 7/4/2022 6:00 PM UTC  - :tv:直播](/content/gettr/p1h2bv5b624.md)
+[@miles 7/4/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1h2oxz9b6c.md)
 
-《焦点》91期：盖特一周年 爆料革命圣哥达隧道；中共对郝润泽实施连坐；郭先生发起的戒烟运动，是新中国联邦人利他与文明的开始。
+2022.07.04 新中国联邦 | 喜健康  《寻医问药》美国神经专科执业医生长阔高深在线答疑；《正道医学》人造子宫会被邪恶势力利用吗？
 
 
 
-<img src="https://media.gettr.com/group43/origin/2022/07/04/17/e646e2f5-00c5-5319-dd43-9771e418fa76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@
 7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP's assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether or ...
 
 <img src="https://media.gettr.com/group44/getter/2022/07/04/01/d1b9dee6-e1f6-c4d1-279e-bbd5d82158de/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1gyzfz5a51.md)
-
-7/3/2022 Miles Guo: Two incidents triggered my decision to quit smoking together with our fellow fighters: (1) my conversation with a tobacco business tycoon at Phoenix; (2) the advice from our master in Wudang Mountains; for the s...
-
-<img src="https://media.gettr.com/group28/getter/2022/07/04/00/79b7514b-53ae-dbb5-178a-b46843d80f99/out.jpg" width="506" height="284">
 
 ---
 
