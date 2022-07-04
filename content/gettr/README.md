@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/4/2022 4:13 PM UTC  - :tv:直播](/content/gettr/p1h16jz7b40.md)
+
+2022年7月4日 俄乌战争警示台海
+
+
+
+
+
+
+
+<img src="https://media.gettr.com/group6/origin/2022/07/04/16/22b5c8c8-ecfe-14be-dfc8-aa58dc70a6b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1h20xb214d.md)
 
 07.04.2022  《翻转面 — 采访澳洲航空公司32年工作的飞行员 Graham Hood先生》 谈一谈他是如何反对澳洲航空公司对新冠疫苗注射的政策 中文配音版 
@@ -24,17 +38,13 @@
 
 ---
 
-[@miles 7/4/2022 4:13 PM UTC  - :tv:直播](/content/gettr/p1h16jz7b40.md)
+[@miles 7/4/2022 6:00 PM UTC  - :tv:直播](/content/gettr/p1h2bv5b624.md)
 
-2022年7月4日 俄乌战争警示台海
-
-
+《焦点》91期：盖特一周年 爆料革命圣哥达隧道；中共对郝润泽实施连坐；郭先生发起的戒烟运动，是新中国联邦人利他与文明的开始。
 
 
 
-
-
-<img src="https://media.gettr.com/group6/origin/2022/07/04/16/22b5c8c8-ecfe-14be-dfc8-aa58dc70a6b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/07/04/17/e646e2f5-00c5-5319-dd43-9771e418fa76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,16 +185,6 @@
 2022.07.03 晚 新中国联邦 ｜ 新闻访谈  Tiktok的丧钟正式敲响  Gettr上线一年收获大礼
 
 <img src="https://media.gettr.com/group43/origin/2022/07/04/01/6cd4b40e-8c6c-f918-f100-c0e17eebbad0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/3/2022 11:29 PM UTC ](/content/gettr/p1gz94i9090.md)
-
-China's Foreign Ministry Says "There is no promise to keep" 
-
-At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Lijian said there is no “promise” to keep in response to British Prime Minister Johnson's cri...
-
-<img src="https://media.gettr.com/group23/origin/2022/07/03/23/d02ac21b-9793-acc8-4089-76e5ed5b4182/20bba633f61d6b7130aabbb392f4f2da.jpg" width="506" height="284">
 
 ---
 
