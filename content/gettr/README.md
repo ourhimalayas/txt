@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/4/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h054e7916.md)
+
+20220704 NFSC日本語ニュース　　習近平氏の香港生まれ変わる言論に各界から反撥
+
+<img src="https://media.gettr.com/group22/origin/2022/07/04/11/d67af4e1-ef48-c4e6-2bd8-71ccca47c027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h0c3c559d.md)
 
 2022.07.04 新中国联邦 | 军情室 杜布诺战役II
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 7/4/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h054e7916.md)
+[@miles 7/4/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1h04i5e8c1.md)
 
-20220704 NFSC日本語ニュース　　習近平氏の香港生まれ変わる言論に各界から反撥
+2022.07.04 AM NFSC News  UK and NZ Leaders Issue a Joint Statement Condemning the CCP
 
-<img src="https://media.gettr.com/group22/origin/2022/07/04/11/d67af4e1-ef48-c4e6-2bd8-71ccca47c027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/07/04/11/81298051-8fa2-64da-1d8b-6cfa7c4446b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022.07.03 NFSC 日本語 ニュース　　中国の210社、PCR検査機関不合格
 
 <img src="https://media.gettr.com/group41/origin/2022/07/03/11/5f2567d5-189e-21fb-4913-9b47f4bd0b2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 10:01 AM UTC  - :tv:直播](/content/gettr/p1gvtuc1ce3.md)
-
-2022-7-3喜财经第98期 周日沙龙第八期——时间一去不返…人心如何重塑?！
-
-请郝海东、叶钊颖二侠，“解封”被金元足球禁锢的那些残梦
-
-<img src="https://media.gettr.com/group24/origin/2022/07/03/02/f1b7f0e2-f7f9-3fd4-3937-45f08209ce48/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
