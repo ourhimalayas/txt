@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/4/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1h1t8rbe3a.md)
+
+2022.07.04 早 新中国联邦 | 新闻 郭先生谈为何呼吁战友们戒烟 新中国联邦人需找到抑制邪恶的方法 香港沦陷25周年 报应将降临跟随中共作恶的人 中共独裁反助数字货币发展
+
+<img src="https://media.gettr.com/group30/origin/2022/07/04/12/b0017b7f-5349-5009-d8c5-2bdac5fc0fa3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1h04i5e8c1.md)
 
 2022.07.04 AM NFSC News  UK and NZ Leaders Issue a Joint Statement Condemning the CCP
@@ -50,11 +58,15 @@
 
 ---
 
-[@miles 7/4/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1h1t8rbe3a.md)
+[@miles 7/4/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1h14hi5510.md)
 
-2022.07.04 早 新中国联邦 | 新闻 郭先生谈为何呼吁战友们戒烟 新中国联邦人需找到抑制邪恶的方法 香港沦陷25周年 报应将降临跟随中共作恶的人 中共独裁反助数字货币发展
+2022.07.04 早   新中国联邦 | 新闻访谈   加密货币残酷的一周以交易停止和救市告终; 美澳对乌克兰提供军事援助; 全球经济持续恶化
 
-<img src="https://media.gettr.com/group30/origin/2022/07/04/12/b0017b7f-5349-5009-d8c5-2bdac5fc0fa3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+
+
+<img src="https://media.gettr.com/group39/origin/2022/07/04/13/93cf6a5c-b448-a117-c282-068b2d467765/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -147,14 +159,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022-7-03「坚持」—— 为爱不离不弃🪁，#小小尼莫音乐会 🎼第十八期，唯有坚持，才能绽放爱的花朵🌸，才能攀上喜马拉雅🏔，生命美好，值得坚持💪
 
 <img src="https://media.gettr.com/group39/origin/2022/07/03/18/d91b9979-a670-4822-43f6-4031af6686d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/3/2022 12:03 PM UTC  - :tv:直播](/content/gettr/p1gwxy1439f.md)
-
-2022年7月3日 文贵先生携百位战友戒烟宣誓大直播：立誓戒烟；一呼百应；健康灭共；言出必行  （4K版）
-
-<img src="https://media.gettr.com/group42/origin/2022/07/03/12/f06771d2-84b1-4ab3-6add-3e9d9b9077b2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
