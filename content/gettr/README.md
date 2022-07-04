@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/4/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1gzi9la848.md)
+
+7/3/2022 Miles Guo: Whether it is the 1st or the 20th Party Congress, the aim of the CCP in holding these meetings is to abuse the 1.4 billion slaves and make sure its absolute centralization of power. The Tiananmen Square protests...
+
+<img src="https://media.gettr.com/group29/getter/2022/07/04/06/c47bcf8a-9288-7e08-2981-df360cca9c69/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1gzb8ud3fb.md)
 
 7/3/2022 Miles Guo: A fellow sister from Taiwan who dealt with Bruno Wu before describes him as a matchless liar; communism was raised by the Swamp and meant to enslave mankind; Communist Party is part of the Swamp. However, idiot ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/4/2022 6:29 AM UTC  - :tv:直播](/content/gettr/p1gzi9la848.md)
+[@miles 7/4/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p1h0631d7af.md)
 
-7/3/2022 Miles Guo: Whether it is the 1st or the 20th Party Congress, the aim of the CCP in holding these meetings is to abuse the 1.4 billion slaves and make sure its absolute centralization of power. The Tiananmen Square protests...
+7/3/2022  Miles Guo:  There are three groups of people pushing the COVID vaccine mandates and promoting COVID vaccines: 1) the greedy pharmaceutical groups in the Swamp and medical administration agencies; 2)  ignorant people who b...
 
-<img src="https://media.gettr.com/group29/getter/2022/07/04/06/c47bcf8a-9288-7e08-2981-df360cca9c69/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/07/04/06/f6439abb-5921-54b7-2709-c69537c7bd3b/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022-7-2《鸡血王喜币大作战》 第二百四十四集 嘉宾：卡丽熙、Happy
 
 <img src="https://media.gettr.com/group38/origin/2022/07/03/03/444e4348-7ac3-84cf-b5af-f2786bc068a4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/3/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1gvjpm84a7.md)
-
-2022.07.02 晚 新中国联邦 ｜ 喜财经 第97期 数字货币专栏：SEC与币圈的拉锯战 币安之后第二大交易所FTX背后CCP的影子 欧盟就全面监管数字货币的法案MiCA达成一致
-
-<img src="https://media.gettr.com/group24/origin/2022/07/03/02/f1b7f0e2-f7f9-3fd4-3937-45f08209ce48/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
