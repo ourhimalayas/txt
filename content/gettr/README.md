@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/4/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1h3p0x9c88.md)
+
+2022.07.04 PM NFSC Fringe The 25th anniversary of the "July 1st handover” in Hong Kong; Quit Smoking
+
+<img src="https://media.gettr.com/group26/origin/2022/07/04/23/769fada4-b52e-e912-5f2b-9d378ce89e68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h316w47a0.md)
 
 （1080版）飞飞秀 《郭先生破产案》 2022-07-04
@@ -12,11 +20,11 @@ For English： gettr.com/post/p1h3w8pee4f
 
 ---
 
-[@miles 7/4/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1h3p0x9c88.md)
+[@miles 7/5/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1h3l426444.md)
 
-2022.07.04 PM NFSC Fringe The 25th anniversary of the "July 1st handover” in Hong Kong; Quit Smoking
+2022.07.04 晚 新中国联邦 | 新闻 Gnews将对中共进行精确打击 新中国联邦的直播是正义对邪恶的战争 未来将会公布中共三方面的重大信息 寄希望新中国联邦人能有驾驭财富的能力
 
-<img src="https://media.gettr.com/group26/origin/2022/07/04/23/769fada4-b52e-e912-5f2b-9d378ce89e68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/07/05/00/cf4fa72e-e5e1-896e-a041-0fe70e32f6c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ For English： gettr.com/post/p1h3w8pee4f
 20220704 NFSC日本語ニュース　　習近平氏の香港生まれ変わる言論に各界から反撥
 
 <img src="https://media.gettr.com/group22/origin/2022/07/04/11/d67af4e1-ef48-c4e6-2bd8-71ccca47c027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h0c3c559d.md)
-
-2022.07.04 新中国联邦 | 军情室 杜布诺战役II
-
-<img src="https://media.gettr.com/group41/origin/2022/07/04/10/131e1a8b-741a-0305-8d06-d0075e7cbe7e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
