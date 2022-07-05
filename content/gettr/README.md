@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/5/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p1h78fsb366.md)
+
+6/28/2022 Miles Guo: Xi Jinping will certainly invade Taiwan, and the U.S. and the West won’t stand aside. Eventually Taiwan will be recognized as a sovereign state.
+
+
+
+6/28/2022 文贵直播：习近平无论如何都会打台湾，美国等西方国家绝不会袖手旁观，台湾的国际地位最终会得到承认。
+
+
+
+<img src="https://media.gettr.com/group12/getter/2022/07/05/22/dbbeb2d1-1a57-2d8d-3ee7-4607489a32fd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h7qfzd0c1.md)
 
 （4K版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
@@ -9,6 +23,24 @@
 For English：gettr.com/post/p1h7jftfaad
 
 <img src="https://media.gettr.com/group3/origin/2022/07/05/22/2ef18c37-5d9e-e01f-b79e-7bd201a64153/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 10:42 PM UTC  - :tv:直播](/content/gettr/p1h7s7r08b4.md)
+
+7/5/2022 Miles Guo's GETTR: The CCP’s propaganda media “Global Times“ lied that the Americans celebrated July 4th in frustration; but as a matter of fact, nearly tens of millions of Americans were traveling during the holiday and t...
+
+<img src="https://media.gettr.com/group14/getter/2022/07/05/22/5c57061d-592e-a624-0820-e7dea00e3201/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h6xh28a21.md)
+
+（1080版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
+
+For English：gettr.com/post/p1h7jftfaad
+
+<img src="https://media.gettr.com/group31/origin/2022/07/05/22/4e5aa393-8123-194f-8cc4-fbc54f760ee3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -33,16 +65,6 @@ For English：gettr.com/post/p1h7jftfaad
 2022.07.05 文贵大直播精华版
 
 <img src="https://media.gettr.com/group45/origin/2022/07/05/16/56e12a93-3ddf-bf60-be26-e145d30ee569/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h6xh28a21.md)
-
-（1080版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
-
-For English：gettr.com/post/p1h7jftfaad
-
-<img src="https://media.gettr.com/group31/origin/2022/07/05/22/4e5aa393-8123-194f-8cc4-fbc54f760ee3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,22 +167,6 @@ For English：gettr.com/post/p1h7jftfaad
 2022.07.04 新中国联邦 | 喜财经 第99期 经济危机的严重性和对世界的改变；郭先生爆料中共在海外资产家人信息军事机密将会被公布；我们应该如何对待财富
 
 <img src="https://media.gettr.com/group38/origin/2022/07/05/01/4fcf067c-f771-513f-3e88-e2060ed8d067/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/5/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1h3kyb65d8.md)
-
-7/4/2022 Miles Guo‘s GETTR: Today is Independence Day. We will definitely bring a Statue of Liberty to China, and it will happen soon! Here, I am praying for everyone in the United States of America, the 1.4 billion Chinese people,...
-
-<img src="https://media.gettr.com/group34/getter/2022/07/05/01/7fedb9ac-2d71-3b69-8316-8869fb38b737/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1h3tw549f6.md)
-
-2022.07.04  晚 新中国联邦⎪新闻访谈   7月4日谈美国独立日；独立宣言与新中国联邦64宣言；美国多地因供应链危机取消独立日烟花表演；中共病毒最新变种的特点
-
-<img src="https://media.gettr.com/group42/origin/2022/07/05/01/e33ef3b5-a51e-5634-5a5a-c0199e1ad4b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
