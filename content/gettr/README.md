@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 7/5/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1h3yb4eaf5.md)
+
+7/4/2022 Miles Guo’s GETTR: The United States of America is the greatest country in the world, and her establishment has brought unprecedented peace and development to the world, transforming the world from a slave society to a dem...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/05/02/0bd8b833-f3d5-f5a9-e007-10bd72b0edd5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1h3kyb65d8.md)
 
 7/4/2022 Miles Guo‘s GETTR: Today is Independence Day. We will definitely bring a Statue of Liberty to China, and it will happen soon! Here, I am praying for everyone in the United States of America, the 1.4 billion Chinese people,...
@@ -163,14 +171,6 @@ For English： gettr.com/post/p1h3w8pee4f
 
 
 <img src="https://media.gettr.com/group19/origin/2022/07/04/14/7888064c-b5f7-9dc4-fe8a-13ee0872c4ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 2:53 PM UTC  - :tv:直播](/content/gettr/p1h16oe3c88.md)
-
- 7月4号：尊敬的战友们好，．今天是美国独立纪念日，也是盖特平台诞生，一周年纪念日。这是个伟大的日子．是人类历史最伟大的日子之一……天佑美国．……永远的祝福美国人民．美利坚共和国……繁荣强盛．太平！
-
-<img src="https://media.gettr.com/group5/getter/2022/07/04/14/bb6bf047-8e78-6e35-4549-757dd1a8ddc5/out.jpg" width="506" height="284">
 
 ---
 
