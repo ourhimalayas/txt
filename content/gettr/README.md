@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 10:45 PM UTC  - :tv:直播](/content/gettr/p1h7jue7623.md)
+
+7/5/2022 Miles Guo's GETTR: Yesterday, one country made a revolutionary decision about digital currencies, and it will have a significant impact on our fellow fighters’ Himalaya Coins; around the world, Communist China is the only ...
+
+<img src="https://media.gettr.com/group31/getter/2022/07/05/22/aa9cf0b1-21cc-79e7-5efc-630a06280d17/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p1h78fsb366.md)
 
 6/28/2022 Miles Guo: Xi Jinping will certainly invade Taiwan, and the U.S. and the West won’t stand aside. Eventually Taiwan will be recognized as a sovereign state.
@@ -16,13 +24,11 @@
 
 ---
 
-[@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h7qfzd0c1.md)
+[@miles 7/5/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1h7o0dd503.md)
 
-（4K版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
+7/5/2022 Miles Guo's GETTR: Fellow fighters should keep a close eye on the leakage of the data of 1 billion Chinese people, and this can become something like nuclear weapons for smart fellow fighters to take down the CCP. Zeng Qin...
 
-For English：gettr.com/post/p1h7jftfaad
-
-<img src="https://media.gettr.com/group3/origin/2022/07/05/22/2ef18c37-5d9e-e01f-b79e-7bd201a64153/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/07/05/22/c42ff398-759e-b562-75b9-0ade767cc771/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,6 +37,16 @@ For English：gettr.com/post/p1h7jftfaad
 7/5/2022 Miles Guo's GETTR: The CCP’s propaganda media “Global Times“ lied that the Americans celebrated July 4th in frustration; but as a matter of fact, nearly tens of millions of Americans were traveling during the holiday and t...
 
 <img src="https://media.gettr.com/group14/getter/2022/07/05/22/5c57061d-592e-a624-0820-e7dea00e3201/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h7qfzd0c1.md)
+
+（4K版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
+
+For English：gettr.com/post/p1h7jftfaad
+
+<img src="https://media.gettr.com/group3/origin/2022/07/05/22/2ef18c37-5d9e-e01f-b79e-7bd201a64153/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,22 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 7/4/2022 Miles Guo’s GETTR: The United States of America is the greatest country in the world, and her establishment has brought unprecedented peace and development to the world, transforming the world from a slave society to a dem...
 
 <img src="https://media.gettr.com/group11/getter/2022/07/05/02/0bd8b833-f3d5-f5a9-e007-10bd72b0edd5/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1h3gnbebed.md)
-
-2022.07.04 新中国联邦 | 喜财经 第99期 经济危机的严重性和对世界的改变；郭先生爆料中共在海外资产家人信息军事机密将会被公布；我们应该如何对待财富
-
-<img src="https://media.gettr.com/group38/origin/2022/07/05/01/4fcf067c-f771-513f-3e88-e2060ed8d067/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/5/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1h3m3t87da.md)
-
-7/4/2022 Miles Guo’s GETTR: The world is gradually waking up even though the darkness has shrouded the world. A European tycoon told me that all the disasters in the world have to do with the CCP and said that only Communist China ...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/05/01/d621da03-5843-dc60-8ecf-e04ced253a6d/out.jpg" width="506" height="284">
 
 ---
 
