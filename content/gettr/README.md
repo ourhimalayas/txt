@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1h5oza9372.md)
+
+20220705 NFSC日本語ニュース   台湾の過疎化  出生率が1年で23％低下
+
+<img src="https://media.gettr.com/group9/origin/2022/07/05/11/28723c85-2a57-673a-c4d9-e06f522581ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 6:36 AM UTC  - :tv:直播](/content/gettr/p1h4ru9e147.md)
 
 7/3/2022 Miles Guo: We got more information about Wang Jian's death than the Ministry of Justice of France and the CCP. Wang Jian's niece and his nephew-in-law are our fellow fighters, so is Chen Xiaofeng's ex-girlfriend, who video...
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 7/5/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1h5oza9372.md)
+[@miles 7/5/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1h55y62afc.md)
 
-20220705 NFSC日本語ニュース   台湾の過疎化  出生率が1年で23％低下
+2022.07.05 AM NFSC News  Miles Guo Calls on His Fellow Fighters to Quit Smoking
 
-<img src="https://media.gettr.com/group9/origin/2022/07/05/11/28723c85-2a57-673a-c4d9-e06f522581ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/07/05/12/be77f934-40d5-0798-cd64-77fcc2096c8c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ For English： gettr.com/post/p1h3w8pee4f
 
 
 <img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 6:00 PM UTC  - :tv:直播](/content/gettr/p1h2bv5b624.md)
-
-《焦点》91期：盖特一周年 爆料革命圣哥达隧道；中共对郝润泽实施连坐；郭先生发起的戒烟运动，是新中国联邦人利他与文明的开始。
-
-
-
-<img src="https://media.gettr.com/group43/origin/2022/07/04/17/e646e2f5-00c5-5319-dd43-9771e418fa76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
