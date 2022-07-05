@@ -2,11 +2,51 @@
 ---
 
 
+[@miles 7/5/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1h3kyb65d8.md)
+
+7/4/2022 Miles Guo‘s GETTR: Today is Independence Day. We will definitely bring a Statue of Liberty to China, and it will happen soon! Here, I am praying for everyone in the United States of America, the 1.4 billion Chinese people,...
+
+<img src="https://media.gettr.com/group34/getter/2022/07/05/01/7fedb9ac-2d71-3b69-8316-8869fb38b737/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p1h3tw549f6.md)
+
+2022.07.04  晚 新中国联邦⎪新闻访谈   7月4日谈美国独立日；独立宣言与新中国联邦64宣言；美国多地因供应链危机取消独立日烟花表演；中共病毒最新变种的特点
+
+<img src="https://media.gettr.com/group42/origin/2022/07/05/01/e33ef3b5-a51e-5634-5a5a-c0199e1ad4b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1h3m3t87da.md)
+
+7/4/2022 Miles Guo’s GETTR: The world is gradually waking up even though the darkness has shrouded the world. A European tycoon told me that all the disasters in the world have to do with the CCP and said that only Communist China ...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/05/01/d621da03-5843-dc60-8ecf-e04ced253a6d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 12:55 AM UTC  - :tv:直播](/content/gettr/p1h39pe067f.md)
 
 7/3/2022 Miles Guo: The CCP has tampered with GETTR's data to an insane level. The New Federal State of China (NFSC) will certainly have our own blockchain technology, which will be applied to media, digital currencies, and various...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/05/00/a057ef38-8337-b368-4798-b8d34a6bc8bd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1h3s438bdf.md)
+
+7/4/2022 Miles Guo’s GETTR: Steve Cortes estimated that each share of GETTR would be $292, while Twitter would be only $38 per share. The United States of America is the greatest country in the world, and her establishment has brou...
+
+<img src="https://media.gettr.com/group44/getter/2022/07/05/01/cb599307-c7ef-5354-a823-4e1c1b36e3ce/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 12:58 AM UTC  - :tv:直播](/content/gettr/p1h37gnb55c.md)
+
+7/3/2022 Miles Guo: Gettr and GNews play different roles in ending the CCP.  As a social media platform, 99.975% of Gettr users are not Chinese, the power of our voice of ending the CCP is weak regarding influencing others. However...
+
+<img src="https://media.gettr.com/group34/getter/2022/07/05/00/77edf429-2b4c-f291-e3b5-ab473f5ea1ee/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,14 +73,6 @@
 For English： gettr.com/post/p1h3w8pee4f
 
 <img src="https://media.gettr.com/group13/origin/2022/07/04/22/48d42910-d55d-3892-de38-977f6f957738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 12:58 AM UTC  - :tv:直播](/content/gettr/p1h37gnb55c.md)
-
-7/3/2022 Miles Guo: Gettr and GNews play different roles in ending the CCP.  As a social media platform, 99.975% of Gettr users are not Chinese, the power of our voice of ending the CCP is weak regarding influencing others. However...
-
-<img src="https://media.gettr.com/group34/getter/2022/07/05/00/77edf429-2b4c-f291-e3b5-ab473f5ea1ee/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,50 +179,6 @@ For English： gettr.com/post/p1h3w8pee4f
 7/3/2022 Miles Guo: I never predict! My views are all based on learning, my personal network built over many years, and my goal of destroying the CCP; international organizations such as WTO, IMF, UN, etc. are all accomplices of th...
 
 <img src="https://media.gettr.com/group39/getter/2022/07/04/14/4198bf6f-857d-9a76-b27c-4e13aed21206/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 2:31 PM UTC ](/content/gettr/p1h16fi27ab.md)
-
-磐石精心打造的全新《时间点Timeline》！不容错过！👍
-
----
-
-[@miles 7/4/2022 2:04 PM UTC  - :tv:直播](/content/gettr/p1h1ly0d18d.md)
-
-07.04.2022   BEYOND TIME AND SPACE  （中文配音） 《穿越时空- 逃离乌克兰》
-
-主持人：  BINDI BINDI  | JESSE
-
-
-
-
-
-
-
-
-
-<img src="https://media.gettr.com/group21/origin/2022/07/04/14/a0d508d2-2e53-db04-5e42-32d932dc0621/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1h14hi5510.md)
-
-2022.07.04 早   新中国联邦 | 新闻访谈   加密货币残酷的一周以交易停止和救市告终; 美澳对乌克兰提供军事援助; 全球经济持续恶化
-
-
-
-
-
-<img src="https://media.gettr.com/group39/origin/2022/07/04/13/93cf6a5c-b448-a117-c282-068b2d467765/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/4/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1h1t8rbe3a.md)
-
-2022.07.04 早 新中国联邦 | 新闻 郭先生谈为何呼吁战友们戒烟 新中国联邦人需找到抑制邪恶的方法 香港沦陷25周年 报应将降临跟随中共作恶的人 中共独裁反助数字货币发展
-
-<img src="https://media.gettr.com/group30/origin/2022/07/04/12/b0017b7f-5349-5009-d8c5-2bdac5fc0fa3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
