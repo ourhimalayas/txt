@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1h589y1d8c.md)
+
+2022.07.05 早   新中国联邦 | 新闻访谈   新中国联邦戒烟大直播感想；美加强与G7的合作，应对中共挑战；文贵先生戒烟日重磅爆料；香港沦陷25周年，新任伪政权上位
+
+<img src="https://media.gettr.com/group17/origin/2022/07/05/13/d678fbe9-b382-b1ba-99a9-9276874b9a46/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1h5rx20007.md)
 
 2022.07.05 早 新中国联邦 ｜ 新闻  盖特庆祝成立一周年 大科技公司媒体垄断时日无多；世界正在醒來 全球灭共已成必然；中共利用疫情进一步在百姓中制造阶级矛盾；
@@ -58,11 +66,11 @@
 
 ---
 
-[@miles 7/5/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1h589y1d8c.md)
+[@miles 7/5/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1h5uk5b7a8.md)
 
-2022.07.05 早   新中国联邦 | 新闻访谈   新中国联邦戒烟大直播感想；美加强与G7的合作，应对中共挑战；文贵先生戒烟日重磅爆料；香港沦陷25周年，新任伪政权上位
+2022.07.05 六四回响 七哥的健康生活探秘
 
-<img src="https://media.gettr.com/group17/origin/2022/07/05/13/d678fbe9-b382-b1ba-99a9-9276874b9a46/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/07/05/14/6d7dbbb6-83fe-1ec2-4b0f-886f210d6a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ For English： gettr.com/post/p1h3w8pee4f
 7/3/2022 Miles Guo: It was the corruption of Kuomintang that made the CCP what it is today. However Kuomintang will be the cause of the CCP's demise! Those who betrayed and slaughtered Taiwanese will be retributed; Taiwan will defi...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/04/21/a63f0d97-3b5b-e318-71b6-81f1c10a66a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 9:30 PM UTC  - :tv:直播](/content/gettr/p1h2ww498fb.md)
-
-7/3/2022 Miles Guo: The essence of the 20th Party Congress is that Xi is going to stay in power, and this is why it should be called "the 20th demise of the CCP". The CCP's 20th Party Congress was already doomed during the 19th Par...
-
-<img src="https://media.gettr.com/group15/getter/2022/07/04/21/c87b03f1-4f30-f458-d149-ba7e3103b588/out.jpg" width="506" height="284">
 
 ---
 
