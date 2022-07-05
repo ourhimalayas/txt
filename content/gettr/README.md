@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1h76l8f2fa.md)
+
+2022.07.05 PM NFSC news  U.S. Vaccine Injury Compensation Program Overwhelmed by Claims
+
+<img src="https://media.gettr.com/group14/origin/2022/07/05/22/c1ff06ce-5177-ff54-14bd-192cf1ccf50a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1h7o0dd503.md)
+
+7/5/2022 Miles Guo's GETTR: Fellow fighters should keep a close eye on the leakage of the data of 1 billion Chinese people, and this can become something like nuclear weapons for smart fellow fighters to take down the CCP. Zeng Qin...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/05/22/c42ff398-759e-b562-75b9-0ade767cc771/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p1h78fsb366.md)
 
 6/28/2022 Miles Guo: Xi Jinping will certainly invade Taiwan, and the U.S. and the West won’t stand aside. Eventually Taiwan will be recognized as a sovereign state.
@@ -21,14 +37,6 @@
 
 
 <img src="https://media.gettr.com/group12/getter/2022/07/05/22/dbbeb2d1-1a57-2d8d-3ee7-4607489a32fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1h7o0dd503.md)
-
-7/5/2022 Miles Guo's GETTR: Fellow fighters should keep a close eye on the leakage of the data of 1 billion Chinese people, and this can become something like nuclear weapons for smart fellow fighters to take down the CCP. Zeng Qin...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/05/22/c42ff398-759e-b562-75b9-0ade767cc771/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 2022-7-3《鸡血王喜币大作战》 第二百四十六集 嘉宾：NICK、文空
 
 <img src="https://media.gettr.com/group40/origin/2022/07/05/03/6ecec0c8-6bdc-1454-bb03-057d4bad76aa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/5/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1h3yb4eaf5.md)
-
-7/4/2022 Miles Guo’s GETTR: The United States of America is the greatest country in the world, and her establishment has brought unprecedented peace and development to the world, transforming the world from a slave society to a dem...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/05/02/0bd8b833-f3d5-f5a9-e007-10bd72b0edd5/out.jpg" width="506" height="284">
 
 ---
 
