@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/5/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1h67elb245.md)
+
+2022-7-5 《避风港》（68）世界各地出生率正大幅下降
+
+<img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 4:05 PM UTC  - :tv:直播](/content/gettr/p1h5uls3eaa.md)
+
+7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP’s assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether ali...
+
+<img src="https://media.gettr.com/group17/getter/2022/07/05/16/77270632-b586-fb8a-1d27-ea859d8df893/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 3:24 PM UTC  - :tv:直播](/content/gettr/p1h6atqbb77.md)
 
 6/28/2022 Miles Guo: Citizens of the New Federal State of China are being watched by the Swamp everyday; our rescue operation at the Ukraine front line demonstrated that the capability of the NFSC is supranational.
@@ -104,14 +120,6 @@
 
 ---
 
-[@miles 7/5/2022 4:05 PM UTC  - :tv:直播](/content/gettr/p1h5uls3eaa.md)
-
-7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP’s assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether ali...
-
-<img src="https://media.gettr.com/group17/getter/2022/07/05/16/77270632-b586-fb8a-1d27-ea859d8df893/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/5/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1h3kyb65d8.md)
 
 7/4/2022 Miles Guo‘s GETTR: Today is Independence Day. We will definitely bring a Statue of Liberty to China, and it will happen soon! Here, I am praying for everyone in the United States of America, the 1.4 billion Chinese people,...
@@ -157,14 +165,6 @@
 2022.07.04 晚 新中国联邦 | 新闻 Gnews将对中共进行精确打击 新中国联邦的直播是正义对邪恶的战争 未来将会公布中共三方面的重大信息 寄希望新中国联邦人能有驾驭财富的能力
 
 <img src="https://media.gettr.com/group27/origin/2022/07/05/00/cf4fa72e-e5e1-896e-a041-0fe70e32f6c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1h3p0x9c88.md)
-
-2022.07.04 PM NFSC Fringe The 25th anniversary of the "July 1st handover” in Hong Kong; Quit Smoking
-
-<img src="https://media.gettr.com/group26/origin/2022/07/04/23/769fada4-b52e-e912-5f2b-9d378ce89e68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
