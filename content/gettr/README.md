@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 7/4/2022 2:31 PM UTC ](/content/gettr/p1h16fi27ab.md)
+
+磐石精心打造的全新《时间点Timeline》！不容错过！👍
+
+---
+
 [@miles 7/5/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p1h3kyb65d8.md)
 
 7/4/2022 Miles Guo‘s GETTR: Today is Independence Day. We will definitely bring a Statue of Liberty to China, and it will happen soon! Here, I am praying for everyone in the United States of America, the 1.4 billion Chinese people,...
@@ -31,14 +37,6 @@
 7/3/2022 Miles Guo: The CCP has tampered with GETTR's data to an insane level. The New Federal State of China (NFSC) will certainly have our own blockchain technology, which will be applied to media, digital currencies, and various...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/05/00/a057ef38-8337-b368-4798-b8d34a6bc8bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 1:07 AM UTC  - :tv:直播](/content/gettr/p1h3s438bdf.md)
-
-7/4/2022 Miles Guo’s GETTR: Steve Cortes estimated that each share of GETTR would be $292, while Twitter would be only $38 per share. The United States of America is the greatest country in the world, and her establishment has brou...
-
-<img src="https://media.gettr.com/group44/getter/2022/07/05/01/cb599307-c7ef-5354-a823-4e1c1b36e3ce/out.jpg" width="506" height="284">
 
 ---
 
