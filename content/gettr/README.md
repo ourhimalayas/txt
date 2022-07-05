@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/5/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1h68yu898f.md)
+
+ 7月5号：尊敬的战友们好
+
+共产党内部的政治斗争……和经济危机……正在加速共产党的灭亡……战友们一定要抓住千载难逢的机会……多做一些有实际价值．实际行动结果的灭共直播．爆料……一切都已经开始！
+
+<img src="https://media.gettr.com/group45/getter/2022/07/05/14/72c3b9c8-9937-9cd0-a6cd-ce62facc3c97/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1h5uk5b7a8.md)
 
 2022.07.05 六四回响 七哥的健康生活探秘
@@ -74,13 +84,15 @@
 
 ---
 
-[@miles 7/5/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1h68yu898f.md)
+[@miles 7/5/2022 3:24 PM UTC  - :tv:直播](/content/gettr/p1h6atqbb77.md)
 
- 7月5号：尊敬的战友们好
+6/28/2022 Miles Guo: Citizens of the New Federal State of China are being watched by the Swamp everyday; our rescue operation at the Ukraine front line demonstrated that the capability of the NFSC is supranational.
 
-共产党内部的政治斗争……和经济危机……正在加速共产党的灭亡……战友们一定要抓住千载难逢的机会……多做一些有实际价值．实际行动结果的灭共直播．爆料……一切都已经开始！
 
-<img src="https://media.gettr.com/group45/getter/2022/07/05/14/72c3b9c8-9937-9cd0-a6cd-ce62facc3c97/out.jpg" width="506" height="284">
+
+6/28/2022 文贵直...
+
+<img src="https://media.gettr.com/group33/getter/2022/07/05/15/9adff648-8d58-1b43-9b18-c0224978f8b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +169,6 @@ For English： gettr.com/post/p1h3w8pee4f
 For English： gettr.com/post/p1h3w8pee4f
 
 <img src="https://media.gettr.com/group8/origin/2022/07/04/22/a6366223-8fc3-42af-03a2-c79b9d58b42a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 9:48 PM UTC  - :tv:直播](/content/gettr/p1h3d9zfd31.md)
-
-7/3/2022 Miles Guo: It was the corruption of Kuomintang that made the CCP what it is today. However Kuomintang will be the cause of the CCP's demise! Those who betrayed and slaughtered Taiwanese will be retributed; Taiwan will defi...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/04/21/a63f0d97-3b5b-e318-71b6-81f1c10a66a7/out.jpg" width="506" height="284">
 
 ---
 
