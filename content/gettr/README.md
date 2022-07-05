@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1h76l8f2fa.md)
+
+2022.07.05 PM NFSC news  U.S. Vaccine Injury Compensation Program Overwhelmed by Claims
+
+<img src="https://media.gettr.com/group14/origin/2022/07/05/22/c1ff06ce-5177-ff54-14bd-192cf1ccf50a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 10:45 PM UTC  - :tv:直播](/content/gettr/p1h7jue7623.md)
 
 7/5/2022 Miles Guo's GETTR: Yesterday, one country made a revolutionary decision about digital currencies, and it will have a significant impact on our fellow fighters’ Himalaya Coins; around the world, Communist China is the only ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1h76l8f2fa.md)
+[@miles 7/5/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1h7n0pc4d6.md)
 
-2022.07.05 PM NFSC news  U.S. Vaccine Injury Compensation Program Overwhelmed by Claims
+2022.07.05 NFSC fringe Episode 222  Canada day protests； Boris Johnson esta caindo
 
-<img src="https://media.gettr.com/group14/origin/2022/07/05/22/c1ff06ce-5177-ff54-14bd-192cf1ccf50a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 7/3/2022 Miles Guo: We got more information about Wang Jian's death than the Ministry of Justice of France and the CCP. Wang Jian's niece and his nephew-in-law are our fellow fighters, so is Chen Xiaofeng's ex-girlfriend, who video...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/05/06/6ecd5640-e57b-63c5-b1c5-6f8f823cc1f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h47g429dd.md)
-
-2022-7-3《鸡血王喜币大作战》 第二百四十六集 嘉宾：NICK、文空
-
-<img src="https://media.gettr.com/group40/origin/2022/07/05/03/6ecec0c8-6bdc-1454-bb03-057d4bad76aa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
