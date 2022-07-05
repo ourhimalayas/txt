@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1h67elb245.md)
+
+2022-7-5 《避风港》（68）世界各地出生率正大幅下降
+
+<img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1h65o9cb48.md)
 
 2022.07.05 文贵大直播精华版
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/5/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1h67elb245.md)
+[@miles 7/5/2022 8:08 PM UTC  - :tv:直播](/content/gettr/p1h765q4d79.md)
 
-2022-7-5 《避风港》（68）世界各地出生率正大幅下降
+2022.07.05 新中国联邦 | 喜健康 「探詢首楞嚴」善财童子医生分享读破万种经书之方法，传授楞严经结合传统医学治疗耳鸣及戒烟诀窍
 
-<img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@
 7/3/2022 Miles Guo: Gettr and GNews play different roles in ending the CCP.  As a social media platform, 99.975% of Gettr users are not Chinese, the power of our voice of ending the CCP is weak regarding influencing others. However...
 
 <img src="https://media.gettr.com/group34/getter/2022/07/05/00/77edf429-2b4c-f291-e3b5-ab473f5ea1ee/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1h3l426444.md)
-
-2022.07.04 晚 新中国联邦 | 新闻 Gnews将对中共进行精确打击 新中国联邦的直播是正义对邪恶的战争 未来将会公布中共三方面的重大信息 寄希望新中国联邦人能有驾驭财富的能力
-
-<img src="https://media.gettr.com/group27/origin/2022/07/05/00/cf4fa72e-e5e1-896e-a041-0fe70e32f6c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
