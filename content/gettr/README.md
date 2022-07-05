@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1h5rx20007.md)
+
+2022.07.05 早 新中国联邦 ｜ 新闻  盖特庆祝成立一周年 大科技公司媒体垄断时日无多；世界正在醒來 全球灭共已成必然；中共利用疫情进一步在百姓中制造阶级矛盾；
+
+<img src="https://media.gettr.com/group29/origin/2022/07/05/12/f9ea226b-93bd-3078-e5f3-408794cb4286/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1h55y62afc.md)
 
 2022.07.05 AM NFSC News  Miles Guo Calls on His Fellow Fighters to Quit Smoking
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 7/5/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1h5rx20007.md)
+[@miles 7/5/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1h589y1d8c.md)
 
-2022.07.05 早 新中国联邦 ｜ 新闻  盖特庆祝成立一周年 大科技公司媒体垄断时日无多；世界正在醒來 全球灭共已成必然；中共利用疫情进一步在百姓中制造阶级矛盾；
+2022.07.05 早   新中国联邦 | 新闻访谈   新中国联邦戒烟大直播感想；美加强与G7的合作，应对中共挑战；文贵先生戒烟日重磅爆料；香港沦陷25周年，新任伪政权上位
 
-<img src="https://media.gettr.com/group29/origin/2022/07/05/12/f9ea226b-93bd-3078-e5f3-408794cb4286/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/07/05/13/d678fbe9-b382-b1ba-99a9-9276874b9a46/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ For English： gettr.com/post/p1h3w8pee4f
 7/3/2022 Miles Guo: Through "Kill the landowners and distribute their land", the CCP held the peasants hostage and took over power;  Xi Jinping has been taking the same approach to extend his power since the 18th National Congress ...
 
 <img src="https://media.gettr.com/group41/getter/2022/07/04/21/88888678-d6b6-20af-3256-61cf72b046ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 8:49 PM UTC  - :tv:直播](/content/gettr/p1h37eee8d4.md)
-
-7月4号:尊敬的战友们好，今天是美国独立日，文贵在这里为世界、美国、新中国联邦祈愿……一切都己经开始……
-
-<img src="https://media.gettr.com/group12/getter/2022/07/04/20/3d8c0efb-1e20-55bc-2075-f741ff4fa44f/out.jpg" width="506" height="284">
 
 ---
 
