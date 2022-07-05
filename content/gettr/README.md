@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h47g429dd.md)
+
+2022-7-3《鸡血王喜币大作战》 第二百四十六集 嘉宾：NICK、文空
+
+<img src="https://media.gettr.com/group40/origin/2022/07/05/03/6ecec0c8-6bdc-1454-bb03-057d4bad76aa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1h3yb4eaf5.md)
 
 7/4/2022 Miles Guo’s GETTR: The United States of America is the greatest country in the world, and her establishment has brought unprecedented peace and development to the world, transforming the world from a slave society to a dem...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 7/5/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h47g429dd.md)
+[@miles 7/5/2022 6:36 AM UTC  - :tv:直播](/content/gettr/p1h4ru9e147.md)
 
-2022-7-3《鸡血王喜币大作战》 第二百四十六集 嘉宾：NICK、文空
+7/3/2022 Miles Guo: We got more information about Wang Jian's death than the Ministry of Justice of France and the CCP. Wang Jian's niece and his nephew-in-law are our fellow fighters, so is Chen Xiaofeng's ex-girlfriend, who video...
 
-<img src="https://media.gettr.com/group40/origin/2022/07/05/03/6ecec0c8-6bdc-1454-bb03-057d4bad76aa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/07/05/06/6ecd5640-e57b-63c5-b1c5-6f8f823cc1f5/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,20 +173,6 @@ For English： gettr.com/post/p1h3w8pee4f
 
 
 <img src="https://media.gettr.com/group6/origin/2022/07/04/16/22b5c8c8-ecfe-14be-dfc8-aa58dc70a6b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1h20xb214d.md)
-
-07.04.2022  《翻转面 — 采访澳洲航空公司32年工作的飞行员 Graham Hood先生》 谈一谈他是如何反对澳洲航空公司对新冠疫苗注射的政策 中文配音版 
-
-
-
-
-
-
-
-<img src="https://media.gettr.com/group19/origin/2022/07/04/14/7888064c-b5f7-9dc4-fe8a-13ee0872c4ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
