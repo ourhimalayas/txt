@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1h55y62afc.md)
+
+2022.07.05 AM NFSC News  Miles Guo Calls on His Fellow Fighters to Quit Smoking
+
+<img src="https://media.gettr.com/group6/origin/2022/07/05/12/be77f934-40d5-0798-cd64-77fcc2096c8c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1h5oza9372.md)
 
 20220705 NFSC日本語ニュース   台湾の過疎化  出生率が1年で23％低下
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 7/5/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1h55y62afc.md)
+[@miles 7/5/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1h5rx20007.md)
 
-2022.07.05 AM NFSC News  Miles Guo Calls on His Fellow Fighters to Quit Smoking
+2022.07.05 早 新中国联邦 ｜ 新闻  盖特庆祝成立一周年 大科技公司媒体垄断时日无多；世界正在醒來 全球灭共已成必然；中共利用疫情进一步在百姓中制造阶级矛盾；
 
-<img src="https://media.gettr.com/group6/origin/2022/07/05/12/be77f934-40d5-0798-cd64-77fcc2096c8c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/07/05/12/f9ea226b-93bd-3078-e5f3-408794cb4286/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ For English： gettr.com/post/p1h3w8pee4f
 7月4号:尊敬的战友们好，今天是美国独立日，文贵在这里为世界、美国、新中国联邦祈愿……一切都己经开始……
 
 <img src="https://media.gettr.com/group12/getter/2022/07/04/20/3d8c0efb-1e20-55bc-2075-f741ff4fa44f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1h2oxz9b6c.md)
-
-2022.07.04 新中国联邦 | 喜健康  《寻医问药》美国神经专科执业医生长阔高深在线答疑；《正道医学》人造子宫会被邪恶势力利用吗？
-
-
-
-<img src="https://media.gettr.com/group4/origin/2022/06/21/20/ea0a4b72-97c0-306b-3eaf-37aa91ffd4e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
