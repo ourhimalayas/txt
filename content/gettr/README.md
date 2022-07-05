@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 6:36 AM UTC  - :tv:直播](/content/gettr/p1h4ru9e147.md)
+
+7/3/2022 Miles Guo: We got more information about Wang Jian's death than the Ministry of Justice of France and the CCP. Wang Jian's niece and his nephew-in-law are our fellow fighters, so is Chen Xiaofeng's ex-girlfriend, who video...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/05/06/6ecd5640-e57b-63c5-b1c5-6f8f823cc1f5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h47g429dd.md)
 
 2022-7-3《鸡血王喜币大作战》 第二百四十六集 嘉宾：NICK、文空
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 7/5/2022 6:36 AM UTC  - :tv:直播](/content/gettr/p1h4ru9e147.md)
+[@miles 7/5/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1h5oza9372.md)
 
-7/3/2022 Miles Guo: We got more information about Wang Jian's death than the Ministry of Justice of France and the CCP. Wang Jian's niece and his nephew-in-law are our fellow fighters, so is Chen Xiaofeng's ex-girlfriend, who video...
+20220705 NFSC日本語ニュース   台湾の過疎化  出生率が1年で23％低下
 
-<img src="https://media.gettr.com/group23/getter/2022/07/05/06/6ecd5640-e57b-63c5-b1c5-6f8f823cc1f5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/07/05/11/28723c85-2a57-673a-c4d9-e06f522581ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,20 +167,6 @@ For English： gettr.com/post/p1h3w8pee4f
 
 
 <img src="https://media.gettr.com/group43/origin/2022/07/04/17/e646e2f5-00c5-5319-dd43-9771e418fa76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 4:13 PM UTC  - :tv:直播](/content/gettr/p1h16jz7b40.md)
-
-2022年7月4日 俄乌战争警示台海
-
-
-
-
-
-
-
-<img src="https://media.gettr.com/group6/origin/2022/07/04/16/22b5c8c8-ecfe-14be-dfc8-aa58dc70a6b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
