@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1h5uk5b7a8.md)
+
+2022.07.05 六四回响 七哥的健康生活探秘
+
+<img src="https://media.gettr.com/group40/origin/2022/07/05/14/6d7dbbb6-83fe-1ec2-4b0f-886f210d6a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1h589y1d8c.md)
 
 2022.07.05 早   新中国联邦 | 新闻访谈   新中国联邦戒烟大直播感想；美加强与G7的合作，应对中共挑战；文贵先生戒烟日重磅爆料；香港沦陷25周年，新任伪政权上位
@@ -66,11 +74,13 @@
 
 ---
 
-[@miles 7/5/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1h5uk5b7a8.md)
+[@miles 7/5/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1h68yu898f.md)
 
-2022.07.05 六四回响 七哥的健康生活探秘
+ 7月5号：尊敬的战友们好
 
-<img src="https://media.gettr.com/group40/origin/2022/07/05/14/6d7dbbb6-83fe-1ec2-4b0f-886f210d6a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+共产党内部的政治斗争……和经济危机……正在加速共产党的灭亡……战友们一定要抓住千载难逢的机会……多做一些有实际价值．实际行动结果的灭共直播．爆料……一切都已经开始！
+
+<img src="https://media.gettr.com/group45/getter/2022/07/05/14/72c3b9c8-9937-9cd0-a6cd-ce62facc3c97/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ For English： gettr.com/post/p1h3w8pee4f
 7/3/2022 Miles Guo: It was the corruption of Kuomintang that made the CCP what it is today. However Kuomintang will be the cause of the CCP's demise! Those who betrayed and slaughtered Taiwanese will be retributed; Taiwan will defi...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/04/21/a63f0d97-3b5b-e318-71b6-81f1c10a66a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 9:41 PM UTC  - :tv:直播](/content/gettr/p1h3i4of074.md)
-
-7/3/2022 Miles Guo: Through "Kill the landowners and distribute their land", the CCP held the peasants hostage and took over power;  Xi Jinping has been taking the same approach to extend his power since the 18th National Congress ...
-
-<img src="https://media.gettr.com/group41/getter/2022/07/04/21/88888678-d6b6-20af-3256-61cf72b046ff/out.jpg" width="506" height="284">
 
 ---
 
