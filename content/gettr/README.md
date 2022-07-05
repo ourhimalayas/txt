@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 7/5/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1h65o9cb48.md)
+
+2022.07.05 文贵大直播精华版
+
+<img src="https://media.gettr.com/group45/origin/2022/07/05/16/56e12a93-3ddf-bf60-be26-e145d30ee569/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 3:24 PM UTC  - :tv:直播](/content/gettr/p1h6atqbb77.md)
+
+6/28/2022 Miles Guo: Citizens of the New Federal State of China are being watched by the Swamp everyday; our rescue operation at the Ukraine front line demonstrated that the capability of the NFSC is supranational.
+
+
+
+6/28/2022 文贵直...
+
+<img src="https://media.gettr.com/group33/getter/2022/07/05/15/9adff648-8d58-1b43-9b18-c0224978f8b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1h68yu898f.md)
 
  7月5号：尊敬的战友们好
@@ -84,15 +104,11 @@
 
 ---
 
-[@miles 7/5/2022 3:24 PM UTC  - :tv:直播](/content/gettr/p1h6atqbb77.md)
+[@miles 7/5/2022 4:05 PM UTC  - :tv:直播](/content/gettr/p1h5uls3eaa.md)
 
-6/28/2022 Miles Guo: Citizens of the New Federal State of China are being watched by the Swamp everyday; our rescue operation at the Ukraine front line demonstrated that the capability of the NFSC is supranational.
+7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP’s assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether ali...
 
-
-
-6/28/2022 文贵直...
-
-<img src="https://media.gettr.com/group33/getter/2022/07/05/15/9adff648-8d58-1b43-9b18-c0224978f8b9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/07/05/16/77270632-b586-fb8a-1d27-ea859d8df893/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,26 +165,6 @@
 2022.07.04 PM NFSC Fringe The 25th anniversary of the "July 1st handover” in Hong Kong; Quit Smoking
 
 <img src="https://media.gettr.com/group26/origin/2022/07/04/23/769fada4-b52e-e912-5f2b-9d378ce89e68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h316w47a0.md)
-
-（1080版）飞飞秀 《郭先生破产案》 2022-07-04
-
-For English： gettr.com/post/p1h3w8pee4f
-
-<img src="https://media.gettr.com/group13/origin/2022/07/04/22/48d42910-d55d-3892-de38-977f6f957738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h3u0ce484.md)
-
-（4K版）飞飞秀 《郭先生破产案》 2022-07-04
-
-For English： gettr.com/post/p1h3w8pee4f
-
-<img src="https://media.gettr.com/group8/origin/2022/07/04/22/a6366223-8fc3-42af-03a2-c79b9d58b42a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
