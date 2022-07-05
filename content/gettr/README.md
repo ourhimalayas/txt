@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h7qfzd0c1.md)
+
+（4K版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
+
+For English：gettr.com/post/p1h7jftfaad
+
+<img src="https://media.gettr.com/group3/origin/2022/07/05/22/2ef18c37-5d9e-e01f-b79e-7bd201a64153/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 8:08 PM UTC  - :tv:直播](/content/gettr/p1h765q4d79.md)
+
+2022.07.05 新中国联邦 | 喜健康 「探詢首楞嚴」善财童子医生分享读破万种经书之方法，传授楞严经结合传统医学治疗耳鸣及戒烟诀窍
+
+<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1h67elb245.md)
 
 2022-7-5 《避风港》（68）世界各地出生率正大幅下降
@@ -18,11 +36,13 @@
 
 ---
 
-[@miles 7/5/2022 8:08 PM UTC  - :tv:直播](/content/gettr/p1h765q4d79.md)
+[@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h6xh28a21.md)
 
-2022.07.05 新中国联邦 | 喜健康 「探詢首楞嚴」善财童子医生分享读破万种经书之方法，传授楞严经结合传统医学治疗耳鸣及戒烟诀窍
+（1080版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
 
-<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/post/p1h7jftfaad
+
+<img src="https://media.gettr.com/group31/origin/2022/07/05/22/4e5aa393-8123-194f-8cc4-fbc54f760ee3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,22 +169,6 @@
 7/4/2022 Miles Guo’s GETTR: The world is gradually waking up even though the darkness has shrouded the world. A European tycoon told me that all the disasters in the world have to do with the CCP and said that only Communist China ...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/05/01/d621da03-5843-dc60-8ecf-e04ced253a6d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 12:55 AM UTC  - :tv:直播](/content/gettr/p1h39pe067f.md)
-
-7/3/2022 Miles Guo: The CCP has tampered with GETTR's data to an insane level. The New Federal State of China (NFSC) will certainly have our own blockchain technology, which will be applied to media, digital currencies, and various...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/05/00/a057ef38-8337-b368-4798-b8d34a6bc8bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 12:58 AM UTC  - :tv:直播](/content/gettr/p1h37gnb55c.md)
-
-7/3/2022 Miles Guo: Gettr and GNews play different roles in ending the CCP.  As a social media platform, 99.975% of Gettr users are not Chinese, the power of our voice of ending the CCP is weak regarding influencing others. However...
-
-<img src="https://media.gettr.com/group34/getter/2022/07/05/00/77edf429-2b4c-f291-e3b5-ab473f5ea1ee/out.jpg" width="506" height="284">
 
 ---
 
