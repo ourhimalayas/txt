@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/5/2022 12:55 AM UTC  - :tv:直播](/content/gettr/p1h39pe067f.md)
+
+7/3/2022 Miles Guo: The CCP has tampered with GETTR's data to an insane level. The New Federal State of China (NFSC) will certainly have our own blockchain technology, which will be applied to media, digital currencies, and various...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/05/00/a057ef38-8337-b368-4798-b8d34a6bc8bd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/5/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1h3l426444.md)
+
+2022.07.04 晚 新中国联邦 | 新闻 Gnews将对中共进行精确打击 新中国联邦的直播是正义对邪恶的战争 未来将会公布中共三方面的重大信息 寄希望新中国联邦人能有驾驭财富的能力
+
+<img src="https://media.gettr.com/group27/origin/2022/07/05/00/cf4fa72e-e5e1-896e-a041-0fe70e32f6c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1h3p0x9c88.md)
 
 2022.07.04 PM NFSC Fringe The 25th anniversary of the "July 1st handover” in Hong Kong; Quit Smoking
@@ -20,11 +36,11 @@ For English： gettr.com/post/p1h3w8pee4f
 
 ---
 
-[@miles 7/5/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1h3l426444.md)
+[@miles 7/5/2022 12:58 AM UTC  - :tv:直播](/content/gettr/p1h37gnb55c.md)
 
-2022.07.04 晚 新中国联邦 | 新闻 Gnews将对中共进行精确打击 新中国联邦的直播是正义对邪恶的战争 未来将会公布中共三方面的重大信息 寄希望新中国联邦人能有驾驭财富的能力
+7/3/2022 Miles Guo: Gettr and GNews play different roles in ending the CCP.  As a social media platform, 99.975% of Gettr users are not Chinese, the power of our voice of ending the CCP is weak regarding influencing others. However...
 
-<img src="https://media.gettr.com/group27/origin/2022/07/05/00/cf4fa72e-e5e1-896e-a041-0fe70e32f6c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/07/05/00/77edf429-2b4c-f291-e3b5-ab473f5ea1ee/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,22 +191,6 @@ For English： gettr.com/post/p1h3w8pee4f
 2022.07.04 早 新中国联邦 | 新闻 郭先生谈为何呼吁战友们戒烟 新中国联邦人需找到抑制邪恶的方法 香港沦陷25周年 报应将降临跟随中共作恶的人 中共独裁反助数字货币发展
 
 <img src="https://media.gettr.com/group30/origin/2022/07/04/12/b0017b7f-5349-5009-d8c5-2bdac5fc0fa3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1h04i5e8c1.md)
-
-2022.07.04 AM NFSC News  UK and NZ Leaders Issue a Joint Statement Condemning the CCP
-
-<img src="https://media.gettr.com/group46/origin/2022/07/04/11/81298051-8fa2-64da-1d8b-6cfa7c4446b3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/4/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h054e7916.md)
-
-20220704 NFSC日本語ニュース　　習近平氏の香港生まれ変わる言論に各界から反撥
-
-<img src="https://media.gettr.com/group22/origin/2022/07/04/11/d67af4e1-ef48-c4e6-2bd8-71ccca47c027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
