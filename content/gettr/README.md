@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1h3yb4eaf5.md)
+
+7/4/2022 Miles Guo’s GETTR: The United States of America is the greatest country in the world, and her establishment has brought unprecedented peace and development to the world, transforming the world from a slave society to a dem...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/05/02/0bd8b833-f3d5-f5a9-e007-10bd72b0edd5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p1h3gnbebed.md)
 
 2022.07.04 新中国联邦 | 喜财经 第99期 经济危机的严重性和对世界的改变；郭先生爆料中共在海外资产家人信息军事机密将会被公布；我们应该如何对待财富
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/5/2022 2:19 AM UTC  - :tv:直播](/content/gettr/p1h3yb4eaf5.md)
+[@miles 7/5/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h47g429dd.md)
 
-7/4/2022 Miles Guo’s GETTR: The United States of America is the greatest country in the world, and her establishment has brought unprecedented peace and development to the world, transforming the world from a slave society to a dem...
+2022-7-3《鸡血王喜币大作战》 第二百四十六集 嘉宾：NICK、文空
 
-<img src="https://media.gettr.com/group11/getter/2022/07/05/02/0bd8b833-f3d5-f5a9-e007-10bd72b0edd5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/07/05/03/6ecec0c8-6bdc-1454-bb03-057d4bad76aa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ For English： gettr.com/post/p1h3w8pee4f
 
 
 <img src="https://media.gettr.com/group19/origin/2022/07/04/14/7888064c-b5f7-9dc4-fe8a-13ee0872c4ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 2:57 PM UTC  - :tv:直播](/content/gettr/p1h1gpkdd4d.md)
-
-7/3/2022 Miles Guo: I never predict! My views are all based on learning, my personal network built over many years, and my goal of destroying the CCP; international organizations such as WTO, IMF, UN, etc. are all accomplices of th...
-
-<img src="https://media.gettr.com/group39/getter/2022/07/04/14/4198bf6f-857d-9a76-b27c-4e13aed21206/out.jpg" width="506" height="284">
 
 ---
 
