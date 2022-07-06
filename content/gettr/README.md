@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/6/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h8j5t6926.md)
+
+2022-7-5《鸡血王喜币大作战》 第二百四十七集 嘉宾：无双柳薇薇、青藤
+
+<img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1h8mdu2ed1.md)
 
 2022.07.05  新中国联邦 ｜ 喜财经  第100期  熙姐谈股市汇市黄金石油人民币走势；国内乱象，水虎之年灾难遍地；喜币，躺平币将在数字货币暴跌的大潮中当担中流砥柱
@@ -58,11 +66,11 @@
 
 ---
 
-[@miles 7/6/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h8j5t6926.md)
+[@miles 7/6/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1h7ygcba83.md)
 
-2022-7-5《鸡血王喜币大作战》 第二百四十七集 嘉宾：无双柳薇薇、青藤
+2022.07.05  文贵大直播精华版（女子戒烟监督队加场）
 
-<img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/07/06/04/b1dd500c-966f-8139-014f-f753f7d0ee1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 共产党内部的政治斗争……和经济危机……正在加速共产党的灭亡……战友们一定要抓住千载难逢的机会……多做一些有实际价值．实际行动结果的灭共直播．爆料……一切都已经开始！
 
 <img src="https://media.gettr.com/group45/getter/2022/07/05/14/72c3b9c8-9937-9cd0-a6cd-ce62facc3c97/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1h5uk5b7a8.md)
-
-2022.07.05 六四回响 七哥的健康生活探秘
-
-<img src="https://media.gettr.com/group40/origin/2022/07/05/14/6d7dbbb6-83fe-1ec2-4b0f-886f210d6a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
