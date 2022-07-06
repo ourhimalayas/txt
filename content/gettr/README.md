@@ -16,6 +16,22 @@
 
 ---
 
+[@miles 7/6/2022 8:03 AM UTC  - :tv:直播](/content/gettr/p1h8nwka6d3.md)
+
+《焦点》92期：欧洲农场关于工作方向的讨论，管理透明 / 服务战友 / 投资与救助跨农场合作
+
+<img src="https://media.gettr.com/group13/origin/2022/07/06/06/5f59f68c-ebb7-90ce-6620-eea4c814a49d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 5:22 AM UTC  - :tv:直播](/content/gettr/p1h8jl3b856.md)
+
+6/28/2022 Miles Guo: The wealth of the Chinese people which has been illegally appropriated by the CCP’s kleptocrats will surely be retrieved eventually, but to return the wealth to the Chinese people will be a long and difficult p...
+
+<img src="https://media.gettr.com/group14/getter/2022/07/06/05/9529fd7a-a813-e69e-fe80-7ad2db2604e5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1h7ygcba83.md)
 
 2022.07.05  文贵大直播精华版（女子戒烟监督队加场）
@@ -88,14 +104,6 @@
 
 ---
 
-[@miles 7/6/2022 5:22 AM UTC  - :tv:直播](/content/gettr/p1h8jl3b856.md)
-
-6/28/2022 Miles Guo: The wealth of the Chinese people which has been illegally appropriated by the CCP’s kleptocrats will surely be retrieved eventually, but to return the wealth to the Chinese people will be a long and difficult p...
-
-<img src="https://media.gettr.com/group14/getter/2022/07/06/05/9529fd7a-a813-e69e-fe80-7ad2db2604e5/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/5/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1h7o0dd503.md)
 
 7/5/2022 Miles Guo's GETTR: Fellow fighters should keep a close eye on the leakage of the data of 1 billion Chinese people, and this can become something like nuclear weapons for smart fellow fighters to take down the CCP. Zeng Qin...
@@ -159,14 +167,6 @@ For English：gettr.com/post/p1h7jftfaad
 2022-7-5 《避风港》（68）世界各地出生率正大幅下降
 
 <img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1h65o9cb48.md)
-
-2022.07.05 文贵大直播精华版
-
-<img src="https://media.gettr.com/group45/origin/2022/07/05/16/56e12a93-3ddf-bf60-be26-e145d30ee569/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
