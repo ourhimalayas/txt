@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/6/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1hauylb2c4.md)
+
+2022年7月6日 俄乌战争警示台海
+
+
+
+<img src="https://media.gettr.com/group14/origin/2022/07/06/16/272e9d68-d73d-decc-6218-911d7fb4fa07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1h9kiy88cc.md)
 
 2022年7月6日 文贵大直播：感觉来了专场 北天东地 （1080P版）
@@ -10,13 +20,11 @@
 
 ---
 
-[@miles 7/6/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1hauylb2c4.md)
+[@miles 7/6/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hbhvp21a3.md)
 
-2022年7月6日 俄乌战争警示台海
+2022.07.06 新中国联邦 | 喜健康  《寻医问药》褪黑素应该吃多长时间？ 肝有问题能吃青蒿素吗？腰椎间盘突出症是否能打激素针？ ；《医学观察》戒烟纵横谈，针灸戒烟
 
-
-
-<img src="https://media.gettr.com/group14/origin/2022/07/06/16/272e9d68-d73d-decc-6218-911d7fb4fa07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/07/02/20/19bffb0d-f8bf-9fa5-a635-af59aa025243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@
 7/5/2022 Miles Guo's GETTR: Fellow fighters should keep a close eye on the leakage of the data of 1 billion Chinese people, and this can become something like nuclear weapons for smart fellow fighters to take down the CCP. Zeng Qin...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/05/22/c42ff398-759e-b562-75b9-0ade767cc771/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 10:42 PM UTC  - :tv:直播](/content/gettr/p1h7s7r08b4.md)
-
-7/5/2022 Miles Guo's GETTR: The CCP’s propaganda media “Global Times“ lied that the Americans celebrated July 4th in frustration; but as a matter of fact, nearly tens of millions of Americans were traveling during the holiday and t...
-
-<img src="https://media.gettr.com/group14/getter/2022/07/05/22/5c57061d-592e-a624-0820-e7dea00e3201/out.jpg" width="506" height="284">
 
 ---
 
