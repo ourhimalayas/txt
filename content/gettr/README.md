@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/6/2022 8:03 AM UTC  - :tv:直播](/content/gettr/p1h8nwka6d3.md)
+
+《焦点》92期：欧洲农场关于工作方向的讨论，管理透明 / 服务战友 / 投资与救助跨农场合作
+
+<img src="https://media.gettr.com/group13/origin/2022/07/06/06/5f59f68c-ebb7-90ce-6620-eea4c814a49d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p1h8s1g76cc.md)
 
 7/3/2022 Miles Guo: The CCP’s 20th Party Congress was already doomed during the 19th Party Congress. Xi announced that 5 million CCP members had been arrested
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 7/6/2022 8:03 AM UTC  - :tv:直播](/content/gettr/p1h8nwka6d3.md)
+[@miles 7/6/2022 9:47 AM UTC  - 3圖](/content/gettr/p1h8r2x7585.md)
 
-《焦点》92期：欧洲农场关于工作方向的讨论，管理透明 / 服务战友 / 投资与救助跨农场合作
+7月6号：尊敬的战友们好．关于中国的人口实际数量……只有新中囯联邦．七哥．第一个向世界发出了中国人口数．大约10亿人左右的警告‼️……这是人类有史以来最大的谎言之一。【上海十亿人资料被曝光，已经出来一小部分。最大的谎言可能就是中国只有10亿人，而不是14亿】
 
-<img src="https://media.gettr.com/group13/origin/2022/07/06/06/5f59f68c-ebb7-90ce-6620-eea4c814a49d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/07/06/09/c54bc119-7d33-8a44-13c1-f37da467c7fc/64d3d7d670c0cf8ed13cc38366454bfb.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 2022-7-5 《避风港》（68）世界各地出生率正大幅下降
 
 <img src="https://media.gettr.com/group19/origin/2022/06/11/19/b20069ce-e01c-3848-28bd-898ff4ae1a64/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 4:05 PM UTC  - :tv:直播](/content/gettr/p1h5uls3eaa.md)
-
-7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP’s assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether ali...
-
-<img src="https://media.gettr.com/group17/getter/2022/07/05/16/77270632-b586-fb8a-1d27-ea859d8df893/out.jpg" width="506" height="284">
 
 ---
 
