@@ -10,6 +10,24 @@
 
 ---
 
+[@miles 7/6/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1hauylb2c4.md)
+
+2022年7月6日 俄乌战争警示台海
+
+
+
+<img src="https://media.gettr.com/group14/origin/2022/07/06/16/272e9d68-d73d-decc-6218-911d7fb4fa07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1h99we9035.md)
+
+2022年7月6日 文贵大直播：感觉来了专场 北天东地 （4K版）
+
+<img src="https://media.gettr.com/group40/origin/2022/07/06/12/7c4d5488-e68a-c0eb-37cf-f5257ea9e90c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h9ncnfdd8.md)
 
 20220706 NFSC日本語ニュース　　GETTR、ダイレクトメッセージ機能を増加
@@ -53,14 +71,6 @@
 
 
 <img src="https://media.gettr.com/group47/getter/2022/07/06/05/4f08e102-9d7b-ed19-3efc-28fbfb3385ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1h99we9035.md)
-
-2022年7月6日 文贵大直播：感觉来了专场 北天东地 （4K版）
-
-<img src="https://media.gettr.com/group40/origin/2022/07/06/12/7c4d5488-e68a-c0eb-37cf-f5257ea9e90c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,20 +159,6 @@
 7/5/2022 Miles Guo's GETTR: Fellow fighters should keep a close eye on the leakage of the data of 1 billion Chinese people, and this can become something like nuclear weapons for smart fellow fighters to take down the CCP. Zeng Qin...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/05/22/c42ff398-759e-b562-75b9-0ade767cc771/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 10:40 PM UTC  - :tv:直播](/content/gettr/p1h78fsb366.md)
-
-6/28/2022 Miles Guo: Xi Jinping will certainly invade Taiwan, and the U.S. and the West won’t stand aside. Eventually Taiwan will be recognized as a sovereign state.
-
-
-
-6/28/2022 文贵直播：习近平无论如何都会打台湾，美国等西方国家绝不会袖手旁观，台湾的国际地位最终会得到承认。
-
-
-
-<img src="https://media.gettr.com/group12/getter/2022/07/05/22/dbbeb2d1-1a57-2d8d-3ee7-4607489a32fd/out.jpg" width="506" height="284">
 
 ---
 
