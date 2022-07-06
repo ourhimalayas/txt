@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/6/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hbhvp21a3.md)
+
+2022.07.06 新中国联邦 | 喜健康  《寻医问药》褪黑素应该吃多长时间？ 肝有问题能吃青蒿素吗？腰椎间盘突出症是否能打激素针？ ；《医学观察》戒烟纵横谈，针灸戒烟
+
+<img src="https://media.gettr.com/group43/origin/2022/07/02/20/19bffb0d-f8bf-9fa5-a635-af59aa025243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 4:53 PM UTC  - :tv:直播](/content/gettr/p1hauylb2c4.md)
 
 2022年7月6日 俄乌战争警示台海
@@ -20,11 +28,11 @@
 
 ---
 
-[@miles 7/6/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hbhvp21a3.md)
+[@miles 7/6/2022 9:50 PM UTC  - :tv:直播](/content/gettr/p1hbdzkde71.md)
 
-2022.07.06 新中国联邦 | 喜健康  《寻医问药》褪黑素应该吃多长时间？ 肝有问题能吃青蒿素吗？腰椎间盘突出症是否能打激素针？ ；《医学观察》戒烟纵横谈，针灸戒烟
+7/6/2022 Miles Guo: The data leak from the Shanghai National Police database is definitely done by insiders! This is why our Whistleblowers' Movement has been advocating the strategy of "taking down the CCP with the CCP itself"; th...
 
-<img src="https://media.gettr.com/group43/origin/2022/07/02/20/19bffb0d-f8bf-9fa5-a635-af59aa025243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/07/06/21/2e6dbb14-5549-aee5-2711-8cb89eb5800e/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@
 2022.07.05 PM NFSC news  U.S. Vaccine Injury Compensation Program Overwhelmed by Claims
 
 <img src="https://media.gettr.com/group14/origin/2022/07/05/22/c1ff06ce-5177-ff54-14bd-192cf1ccf50a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/5/2022 10:45 PM UTC  - :tv:直播](/content/gettr/p1h7jue7623.md)
-
-7/5/2022 Miles Guo's GETTR: Yesterday, one country made a revolutionary decision about digital currencies, and it will have a significant impact on our fellow fighters’ Himalaya Coins; around the world, Communist China is the only ...
-
-<img src="https://media.gettr.com/group31/getter/2022/07/05/22/aa9cf0b1-21cc-79e7-5efc-630a06280d17/out.jpg" width="506" height="284">
 
 ---
 
