@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1hbqah3463.md)
+
+（4K版）飞飞秀 《跑得快篇》 2022-07-06
+
+For English：gettr.com/post/p1hc4bl526a
+
+<img src="https://media.gettr.com/group45/origin/2022/07/06/22/eb66404d-2660-c14a-a093-f180cd93ef44/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 9:50 PM UTC  - :tv:直播](/content/gettr/p1hbdzkde71.md)
+
+7/6/2022 Miles Guo: The data leak from the Shanghai National Police database is definitely done by insiders! This is why our Whistleblowers' Movement has been advocating the strategy of "taking down the CCP with the CCP itself"; th...
+
+<img src="https://media.gettr.com/group48/getter/2022/07/06/21/2e6dbb14-5549-aee5-2711-8cb89eb5800e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hbhvp21a3.md)
 
 2022.07.06 新中国联邦 | 喜健康  《寻医问药》褪黑素应该吃多长时间？ 肝有问题能吃青蒿素吗？腰椎间盘突出症是否能打激素针？ ；《医学观察》戒烟纵横谈，针灸戒烟
@@ -28,11 +46,13 @@
 
 ---
 
-[@miles 7/6/2022 9:50 PM UTC  - :tv:直播](/content/gettr/p1hbdzkde71.md)
+[@miles 7/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1hc3bn3bd0.md)
 
-7/6/2022 Miles Guo: The data leak from the Shanghai National Police database is definitely done by insiders! This is why our Whistleblowers' Movement has been advocating the strategy of "taking down the CCP with the CCP itself"; th...
+（1080版）飞飞秀 《跑得快篇》 2022-07-06
 
-<img src="https://media.gettr.com/group48/getter/2022/07/06/21/2e6dbb14-5549-aee5-2711-8cb89eb5800e/out.jpg" width="506" height="284">
+For English：gettr.com/post/p1hc4bl526a
+
+<img src="https://media.gettr.com/group45/origin/2022/07/06/22/eb66404d-2660-c14a-a093-f180cd93ef44/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,22 +171,6 @@
 2022.07.05 NFSC fringe Episode 222  Canada day protests； Boris Johnson esta caindo
 
 <img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1h76l8f2fa.md)
-
-2022.07.05 PM NFSC news  U.S. Vaccine Injury Compensation Program Overwhelmed by Claims
-
-<img src="https://media.gettr.com/group14/origin/2022/07/05/22/c1ff06ce-5177-ff54-14bd-192cf1ccf50a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/5/2022 10:56 PM UTC  - :tv:直播](/content/gettr/p1h7o0dd503.md)
-
-7/5/2022 Miles Guo's GETTR: Fellow fighters should keep a close eye on the leakage of the data of 1 billion Chinese people, and this can become something like nuclear weapons for smart fellow fighters to take down the CCP. Zeng Qin...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/05/22/c42ff398-759e-b562-75b9-0ade767cc771/out.jpg" width="506" height="284">
 
 ---
 
