@@ -12,6 +12,24 @@ For English：gettr.com/post/p1hc4bl526a
 
 ---
 
+[@miles 7/6/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1hbnjo41db.md)
+
+7/6/2022 Miles Guo: The Americans are awakened by us. They are very clear that the United States would not be safe as long as the CCP still exists. Now it is the lull before the storm. The US will lower the CCP's guard and then pro...
+
+<img src="https://media.gettr.com/group9/getter/2022/07/06/22/b43c8a78-dfd8-fdf8-c946-8fc3f9acf8dc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1hc3bn3bd0.md)
+
+（1080版）飞飞秀 《跑得快篇》 2022-07-06
+
+For English：gettr.com/post/p1hc4bl526a
+
+<img src="https://media.gettr.com/group45/origin/2022/07/06/22/eb66404d-2660-c14a-a093-f180cd93ef44/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 9:50 PM UTC  - :tv:直播](/content/gettr/p1hbdzkde71.md)
 
 7/6/2022 Miles Guo: The data leak from the Shanghai National Police database is definitely done by insiders! This is why our Whistleblowers' Movement has been advocating the strategy of "taking down the CCP with the CCP itself"; th...
@@ -43,16 +61,6 @@ For English：gettr.com/post/p1hc4bl526a
 2022年7月6日 文贵大直播：感觉来了专场 北天东地 （1080P版）
 
 <img src="https://media.gettr.com/group28/origin/2022/07/06/12/b8578749-8c50-d953-5134-1f7c49488680/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1hc3bn3bd0.md)
-
-（1080版）飞飞秀 《跑得快篇》 2022-07-06
-
-For English：gettr.com/post/p1hc4bl526a
-
-<img src="https://media.gettr.com/group45/origin/2022/07/06/22/eb66404d-2660-c14a-a093-f180cd93ef44/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ For English：gettr.com/post/p1hc4bl526a
 2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
 
 <img src="https://media.gettr.com/group42/origin/2022/07/06/00/c3b87aac-59fb-9614-89b1-8a8742bb997c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1h7n0pc4d6.md)
-
-2022.07.05 NFSC fringe Episode 222  Canada day protests； Boris Johnson esta caindo
-
-<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
