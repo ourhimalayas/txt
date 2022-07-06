@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/6/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1h7wk0dad9.md)
+
+2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
+
+<img src="https://media.gettr.com/group42/origin/2022/07/06/00/c3b87aac-59fb-9614-89b1-8a8742bb997c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1h7n0pc4d6.md)
 
 2022.07.05 NFSC fringe Episode 222  Canada day protests； Boris Johnson esta caindo
@@ -26,7 +34,7 @@
 
 ---
 
-[@miles 7/6/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1h7wk0dad9.md)
+[@miles 7/6/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p1h7wc728ab.md)
 
 2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 2022.07.05 AM NFSC News  Miles Guo Calls on His Fellow Fighters to Quit Smoking
 
 <img src="https://media.gettr.com/group6/origin/2022/07/05/12/be77f934-40d5-0798-cd64-77fcc2096c8c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/5/2022 11:29 AM UTC  - :tv:直播](/content/gettr/p1h5oza9372.md)
-
-20220705 NFSC日本語ニュース   台湾の過疎化  出生率が1年で23％低下
-
-<img src="https://media.gettr.com/group9/origin/2022/07/05/11/28723c85-2a57-673a-c4d9-e06f522581ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
