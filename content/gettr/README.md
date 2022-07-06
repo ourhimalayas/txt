@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/6/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1h8mdu2ed1.md)
+
+2022.07.05  新中国联邦 ｜ 喜财经  第100期  熙姐谈股市汇市黄金石油人民币走势；国内乱象，水虎之年灾难遍地；喜币，躺平币将在数字货币暴跌的大潮中当担中流砥柱
+
+<img src="https://media.gettr.com/group4/origin/2022/07/06/02/b59313e8-99de-1f71-45d9-cdab708f45d3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1h7oyif01f.md)
 
 2022.07.05 晚 新中国联邦 | 新闻访谈 好人話題之三：培養修養，尊重他人； 加国边境堵爆，医生怼联邦； 全球經濟和糧食危機迫在眉睫； 昨天荷兰农民起义
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 7/6/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1h8mdu2ed1.md)
+[@miles 7/6/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h8j5t6926.md)
 
-2022.07.05  新中国联邦 ｜ 喜财经  第100期  熙姐谈股市汇市黄金石油人民币走势；国内乱象，水虎之年灾难遍地；喜币，躺平币将在数字货币暴跌的大潮中当担中流砥柱
+2022-7-5《鸡血王喜币大作战》 第二百四十七集 嘉宾：无双柳薇薇、青藤
 
-<img src="https://media.gettr.com/group4/origin/2022/07/06/02/b59313e8-99de-1f71-45d9-cdab708f45d3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 2022.07.05 六四回响 七哥的健康生活探秘
 
 <img src="https://media.gettr.com/group40/origin/2022/07/05/14/6d7dbbb6-83fe-1ec2-4b0f-886f210d6a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 1:03 PM UTC  - :tv:直播](/content/gettr/p1h589y1d8c.md)
-
-2022.07.05 早   新中国联邦 | 新闻访谈   新中国联邦戒烟大直播感想；美加强与G7的合作，应对中共挑战；文贵先生戒烟日重磅爆料；香港沦陷25周年，新任伪政权上位
-
-<img src="https://media.gettr.com/group17/origin/2022/07/05/13/d678fbe9-b382-b1ba-99a9-9276874b9a46/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
