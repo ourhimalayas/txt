@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/6/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1h9kiy88cc.md)
+
+2022年7月6日 文贵大直播：感觉来了专场 北天东地 （1080P版）
+
+<img src="https://media.gettr.com/group28/origin/2022/07/06/12/b8578749-8c50-d953-5134-1f7c49488680/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h9ncnfdd8.md)
+
+20220706 NFSC日本語ニュース　　GETTR、ダイレクトメッセージ機能を増加
+
+<img src="https://media.gettr.com/group13/origin/2022/07/06/11/ba5226c9-a375-b2f0-d303-eee5d842bd07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h8wax7fbf.md)
 
 2022.07.06 新中国联邦 | 军情室 浅谈纵深作战
@@ -40,11 +56,11 @@
 
 ---
 
-[@miles 7/6/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h9ncnfdd8.md)
+[@miles 7/6/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1h99we9035.md)
 
-20220706 NFSC日本語ニュース　　GETTR、ダイレクトメッセージ機能を増加
+2022年7月6日 文贵大直播：感觉来了专场 北天东地 （4K版）
 
-<img src="https://media.gettr.com/group13/origin/2022/07/06/11/ba5226c9-a375-b2f0-d303-eee5d842bd07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/07/06/12/7c4d5488-e68a-c0eb-37cf-f5257ea9e90c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,26 +171,6 @@
 7/5/2022 Miles Guo's GETTR: The CCP’s propaganda media “Global Times“ lied that the Americans celebrated July 4th in frustration; but as a matter of fact, nearly tens of millions of Americans were traveling during the holiday and t...
 
 <img src="https://media.gettr.com/group14/getter/2022/07/05/22/5c57061d-592e-a624-0820-e7dea00e3201/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h7qfzd0c1.md)
-
-（4K版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
-
-For English：gettr.com/post/p1h7jftfaad
-
-<img src="https://media.gettr.com/group3/origin/2022/07/05/22/2ef18c37-5d9e-e01f-b79e-7bd201a64153/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1h6xh28a21.md)
-
-（1080版）飞飞秀 《文宝老奶奶谈义工》 2022-07-05
-
-For English：gettr.com/post/p1h7jftfaad
-
-<img src="https://media.gettr.com/group31/origin/2022/07/05/22/4e5aa393-8123-194f-8cc4-fbc54f760ee3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
