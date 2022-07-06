@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/6/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p1h8s1g76cc.md)
+
+7/3/2022 Miles Guo: The CCP’s 20th Party Congress was already doomed during the 19th Party Congress. Xi announced that 5 million CCP members had been arrested
+
+
+
+7/3/2022 文贵直播：中共20大早在19大就已经没了！习宣称抓了500万党员！
+
+
+
+<img src="https://media.gettr.com/group47/getter/2022/07/06/05/4f08e102-9d7b-ed19-3efc-28fbfb3385ad/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1h7ygcba83.md)
+
+2022.07.05  文贵大直播精华版（女子戒烟监督队加场）
+
+<img src="https://media.gettr.com/group16/origin/2022/07/06/04/b1dd500c-966f-8139-014f-f753f7d0ee1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h8j5t6926.md)
 
 2022-7-5《鸡血王喜币大作战》 第二百四十七集 嘉宾：无双柳薇薇、青藤
@@ -66,11 +88,11 @@
 
 ---
 
-[@miles 7/6/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1h7ygcba83.md)
+[@miles 7/6/2022 5:22 AM UTC  - :tv:直播](/content/gettr/p1h8jl3b856.md)
 
-2022.07.05  文贵大直播精华版（女子戒烟监督队加场）
+6/28/2022 Miles Guo: The wealth of the Chinese people which has been illegally appropriated by the CCP’s kleptocrats will surely be retrieved eventually, but to return the wealth to the Chinese people will be a long and difficult p...
 
-<img src="https://media.gettr.com/group16/origin/2022/07/06/04/b1dd500c-966f-8139-014f-f753f7d0ee1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/07/06/05/9529fd7a-a813-e69e-fe80-7ad2db2604e5/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,28 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 7/3/2022 Miles Guo: Here are the three historical revelations for today - 1) All the CCP’s assets accumulated overseas in the past 72 years will be disclosed; 2) all the information about the families of the CCP cadres, whether ali...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/05/16/77270632-b586-fb8a-1d27-ea859d8df893/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 3:24 PM UTC  - :tv:直播](/content/gettr/p1h6atqbb77.md)
-
-6/28/2022 Miles Guo: Citizens of the New Federal State of China are being watched by the Swamp everyday; our rescue operation at the Ukraine front line demonstrated that the capability of the NFSC is supranational.
-
-
-
-6/28/2022 文贵直...
-
-<img src="https://media.gettr.com/group33/getter/2022/07/05/15/9adff648-8d58-1b43-9b18-c0224978f8b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1h68yu898f.md)
-
- 7月5号：尊敬的战友们好
-
-共产党内部的政治斗争……和经济危机……正在加速共产党的灭亡……战友们一定要抓住千载难逢的机会……多做一些有实际价值．实际行动结果的灭共直播．爆料……一切都已经开始！
-
-<img src="https://media.gettr.com/group45/getter/2022/07/05/14/72c3b9c8-9937-9cd0-a6cd-ce62facc3c97/out.jpg" width="506" height="284">
 
 ---
 
