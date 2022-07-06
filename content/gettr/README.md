@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/6/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1hc5kqdbf3.md)
+
+07.06.2022 PM NFSC News  Urgent recall on CCP virus vaccine in face of at least 40,000 deaths
+
+<img src="https://media.gettr.com/group20/origin/2022/07/06/23/3639dfac-9ec5-3616-8972-d585642043b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1hbnjo41db.md)
+
+7/6/2022 Miles Guo: The Americans are awakened by us. They are very clear that the United States would not be safe as long as the CCP still exists. Now it is the lull before the storm. The US will lower the CCP's guard and then pro...
+
+<img src="https://media.gettr.com/group9/getter/2022/07/06/22/b43c8a78-dfd8-fdf8-c946-8fc3f9acf8dc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1hbqah3463.md)
 
 （4K版）飞飞秀 《跑得快篇》 2022-07-06
@@ -12,11 +28,11 @@ For English：gettr.com/post/p1hc4bl526a
 
 ---
 
-[@miles 7/6/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1hbnjo41db.md)
+[@miles 7/6/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1hcdyl0c58.md)
 
-7/6/2022 Miles Guo: The Americans are awakened by us. They are very clear that the United States would not be safe as long as the CCP still exists. Now it is the lull before the storm. The US will lower the CCP's guard and then pro...
+7/6/2022 Miles Guo: The data leak proves that China's population is only 1 billion, not the 1.4 billion claimed by the CCP, which is consistent with the information exposed by the New Federal State of China earlier. It indicates th...
 
-<img src="https://media.gettr.com/group9/getter/2022/07/06/22/b43c8a78-dfd8-fdf8-c946-8fc3f9acf8dc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/07/06/22/0915be30-8f5a-c61d-dea5-220ca21aae18/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ For English：gettr.com/post/p1hc4bl526a
 2022.07.05 晚 新中国联邦 | 新闻访谈 好人話題之三：培養修養，尊重他人； 加国边境堵爆，医生怼联邦； 全球經濟和糧食危機迫在眉睫； 昨天荷兰农民起义
 
 <img src="https://media.gettr.com/group34/origin/2022/07/06/01/a09bb5f6-98f3-98a8-9849-ba39722a5556/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/6/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p1h7wc728ab.md)
-
-2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
-
-<img src="https://media.gettr.com/group42/origin/2022/07/06/00/c3b87aac-59fb-9614-89b1-8a8742bb997c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1h7wk0dad9.md)
-
-2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
-
-<img src="https://media.gettr.com/group42/origin/2022/07/06/00/c3b87aac-59fb-9614-89b1-8a8742bb997c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
