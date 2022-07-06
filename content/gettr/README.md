@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/5/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1h7n0pc4d6.md)
+
+2022.07.05 NFSC fringe Episode 222  Canada day protests； Boris Johnson esta caindo
+
+<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/5/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1h76l8f2fa.md)
 
 2022.07.05 PM NFSC news  U.S. Vaccine Injury Compensation Program Overwhelmed by Claims
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 7/5/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1h7n0pc4d6.md)
+[@miles 7/6/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1h7wk0dad9.md)
 
-2022.07.05 NFSC fringe Episode 222  Canada day protests； Boris Johnson esta caindo
+2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
 
-<img src="https://media.gettr.com/group3/origin/2022/06/10/23/b57ada97-3a47-fea5-6abb-18fb87abd10e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/07/06/00/c3b87aac-59fb-9614-89b1-8a8742bb997c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 20220705 NFSC日本語ニュース   台湾の過疎化  出生率が1年で23％低下
 
 <img src="https://media.gettr.com/group9/origin/2022/07/05/11/28723c85-2a57-673a-c4d9-e06f522581ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 6:36 AM UTC  - :tv:直播](/content/gettr/p1h4ru9e147.md)
-
-7/3/2022 Miles Guo: We got more information about Wang Jian's death than the Ministry of Justice of France and the CCP. Wang Jian's niece and his nephew-in-law are our fellow fighters, so is Chen Xiaofeng's ex-girlfriend, who video...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/05/06/6ecd5640-e57b-63c5-b1c5-6f8f823cc1f5/out.jpg" width="506" height="284">
 
 ---
 
