@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/6/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p1h7wc728ab.md)
+
+2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
+
+<img src="https://media.gettr.com/group42/origin/2022/07/06/00/c3b87aac-59fb-9614-89b1-8a8742bb997c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1h7wk0dad9.md)
 
 2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 7/6/2022 12:52 AM UTC  - :tv:直播](/content/gettr/p1h7wc728ab.md)
+[@miles 7/6/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1h7oyif01f.md)
 
-2022.07.05  晚 新中国联邦⎪新闻  中共借香港推出利率“互换通”；欧洲话事人认同共产党是制造世界灾难的罪魁祸首；班农战斗室：中共是人类史上最大的杀人机器；全球至少4万人死于中共病毒疫苗
+2022.07.05 晚 新中国联邦 | 新闻访谈 好人話題之三：培養修養，尊重他人； 加国边境堵爆，医生怼联邦； 全球經濟和糧食危機迫在眉睫； 昨天荷兰农民起义
 
-<img src="https://media.gettr.com/group42/origin/2022/07/06/00/c3b87aac-59fb-9614-89b1-8a8742bb997c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/07/06/01/a09bb5f6-98f3-98a8-9849-ba39722a5556/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 2022.07.05 早 新中国联邦 ｜ 新闻  盖特庆祝成立一周年 大科技公司媒体垄断时日无多；世界正在醒來 全球灭共已成必然；中共利用疫情进一步在百姓中制造阶级矛盾；
 
 <img src="https://media.gettr.com/group29/origin/2022/07/05/12/f9ea226b-93bd-3078-e5f3-408794cb4286/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1h55y62afc.md)
-
-2022.07.05 AM NFSC News  Miles Guo Calls on His Fellow Fighters to Quit Smoking
-
-<img src="https://media.gettr.com/group6/origin/2022/07/05/12/be77f934-40d5-0798-cd64-77fcc2096c8c/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
