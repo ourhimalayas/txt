@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/6/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h8wax7fbf.md)
+
+2022.07.06 新中国联邦 | 军情室 浅谈纵深作战
+
+<img src="https://media.gettr.com/group23/origin/2022/06/06/11/432fdac6-af9f-27a8-9347-d6f6c3f62a9f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 9:47 AM UTC  - 3圖](/content/gettr/p1h8r2x7585.md)
 
 7月6号：尊敬的战友们好．关于中国的人口实际数量……只有新中囯联邦．七哥．第一个向世界发出了中国人口数．大约10亿人左右的警告‼️……这是人类有史以来最大的谎言之一。【上海十亿人资料被曝光，已经出来一小部分。最大的谎言可能就是中国只有10亿人，而不是14亿】
@@ -32,11 +40,11 @@
 
 ---
 
-[@miles 7/6/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h8wax7fbf.md)
+[@miles 7/6/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h9ncnfdd8.md)
 
-2022.07.06 新中国联邦 | 军情室 浅谈纵深作战
+20220706 NFSC日本語ニュース　　GETTR、ダイレクトメッセージ機能を増加
 
-<img src="https://media.gettr.com/group23/origin/2022/06/06/11/432fdac6-af9f-27a8-9347-d6f6c3f62a9f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/07/06/11/ba5226c9-a375-b2f0-d303-eee5d842bd07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1h7jftfaad
 For English：gettr.com/post/p1h7jftfaad
 
 <img src="https://media.gettr.com/group31/origin/2022/07/05/22/4e5aa393-8123-194f-8cc4-fbc54f760ee3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/5/2022 8:08 PM UTC  - :tv:直播](/content/gettr/p1h765q4d79.md)
-
-2022.07.05 新中国联邦 | 喜健康 「探詢首楞嚴」善财童子医生分享读破万种经书之方法，传授楞严经结合传统医学治疗耳鸣及戒烟诀窍
-
-<img src="https://media.gettr.com/group21/origin/2022/06/17/19/fa510596-f7e8-d212-957c-22fd28bc538a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
