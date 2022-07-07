@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1heff39e8b.md)
+
+2022.07.07 早 新中国联邦｜新闻 中共减少的人口相当于一个美国消失；上海帮曝光中共公安大数据 以共灭共走向高潮；美国FBI与英国MI5领袖首次同场警告中共；以人为本体制设计和民主人工智能实验
+
+<img src="https://media.gettr.com/group39/origin/2022/07/07/12/3d01eb79-94a8-5189-ff80-de5603e98bf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 12:02 PM UTC  - :tv:直播](/content/gettr/p1hdtuz5336.md)
 
 2022.07.07 AM NFSC news  Hebei's new police chief of CCP dies of sudden illness
@@ -98,11 +106,11 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 
 ---
 
-[@miles 7/7/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1heff39e8b.md)
+[@miles 7/7/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1hejcs0935.md)
 
-2022.07.07 早 新中国联邦｜新闻 中共减少的人口相当于一个美国消失；上海帮曝光中共公安大数据 以共灭共走向高潮；美国FBI与英国MI5领袖首次同场警告中共；以人为本体制设计和民主人工智能实验
+2022.07.07 早 新中国联邦 | 新闻访谈  墙国AI监控党员忠诚度，金三胖开党会维稳；美国施压ASML扩大光刻机出口禁令；美FBI和英军情五处史上首次联合警示中共威胁；斯里兰卡破产.
 
-<img src="https://media.gettr.com/group39/origin/2022/07/07/12/3d01eb79-94a8-5189-ff80-de5603e98bf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/04/09/12/6acce39b-ebf8-22ee-c497-b01d45163b10/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ For English：gettr.com/post/p1hc4bl526a
 7/6/2022 Miles Guo: The data leak from the Shanghai National Police database is definitely done by insiders! This is why our Whistleblowers' Movement has been advocating the strategy of "taking down the CCP with the CCP itself"; th...
 
 <img src="https://media.gettr.com/group48/getter/2022/07/06/21/2e6dbb14-5549-aee5-2711-8cb89eb5800e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hbhvp21a3.md)
-
-2022.07.06 新中国联邦 | 喜健康  《寻医问药》褪黑素应该吃多长时间？ 肝有问题能吃青蒿素吗？腰椎间盘突出症是否能打激素针？ ；《医学观察》戒烟纵横谈，针灸戒烟
-
-<img src="https://media.gettr.com/group43/origin/2022/07/02/20/19bffb0d-f8bf-9fa5-a635-af59aa025243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
