@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p1hdv4ca593.md)
+
+7/6/2022 Miles Guo: The citizens of the New Federal State of China are completely different from the Chinese people under the rule of the Chinese Communist Party! The self-confidence and unity of the citizens of the NFSC impressed ...
+
+<img src="https://media.gettr.com/group37/getter/2022/07/07/07/8332c0ae-28da-f8db-6aa5-c7e9f8adc375/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 6:00 AM UTC  - :tv:直播](/content/gettr/p1hd78n3016.md)
 
 7/6/2022 Miles Guo: This recent data leak of one billion Chinese people's information is a smart move by Zeng Qinghong, Meng Jianzhu, and others for the purpose of having all the Chinese people target the Zhongnanhai Pit and Xi Jin...
@@ -50,11 +58,13 @@
 
 ---
 
-[@miles 7/7/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p1hdv4ca593.md)
+[@miles 7/7/2022 8:25 AM UTC ](/content/gettr/p1hdvw2ec14.md)
 
-7/6/2022 Miles Guo: The citizens of the New Federal State of China are completely different from the Chinese people under the rule of the Chinese Communist Party! The self-confidence and unity of the citizens of the NFSC impressed ...
+1 billion population data leaked means the critical moment to eliminate the Chinese Communist Party (CCP) 
 
-<img src="https://media.gettr.com/group37/getter/2022/07/07/07/8332c0ae-28da-f8db-6aa5-c7e9f8adc375/out.jpg" width="506" height="284">
+A hacker recently claimed to have acquired more than 23 TB data from Shanghai public security system, including sensitive p...
+
+<img src="https://media.gettr.com/group48/origin/2022/07/07/08/4c39d772-2a38-e575-670c-e0d2d77ba8ee/b4f7c94f2722d4a23f045d7d5d8aba3c.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ For English：gettr.com/post/p1hc4bl526a
 20220706 NFSC日本語ニュース　　GETTR、ダイレクトメッセージ機能を増加
 
 <img src="https://media.gettr.com/group13/origin/2022/07/06/11/ba5226c9-a375-b2f0-d303-eee5d842bd07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1h8wax7fbf.md)
-
-2022.07.06 新中国联邦 | 军情室 浅谈纵深作战
-
-<img src="https://media.gettr.com/group23/origin/2022/06/06/11/432fdac6-af9f-27a8-9347-d6f6c3f62a9f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
