@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1herq5e9b0.md)
+
+2022.07.07 文贵大直播精华版
+
+<img src="https://media.gettr.com/group44/origin/2022/07/07/15/459b7821-fa5b-1a6c-55ee-a26564249eab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1hea2h1a44.md)
 
 MILES GUO 直播 2022-07-07
@@ -122,11 +130,11 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 
 ---
 
-[@miles 7/7/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1herq5e9b0.md)
+[@miles 7/7/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1hg0l299fb.md)
 
-2022.07.07 文贵大直播精华版
+2022-7-7 《避风港》（69）为人类繁衍，拒绝儿童新冠疫苗
 
-<img src="https://media.gettr.com/group44/origin/2022/07/07/15/459b7821-fa5b-1a6c-55ee-a26564249eab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/07/07/18/9c8c0525-8b97-927b-b28d-8eb5691ca0dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 7/6/2022 Miles Guo: The Americans are awakened by us. They are very clear that the United States would not be safe as long as the CCP still exists. Now it is the lull before the storm. The US will lower the CCP's guard and then pro...
 
 <img src="https://media.gettr.com/group9/getter/2022/07/06/22/b43c8a78-dfd8-fdf8-c946-8fc3f9acf8dc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1hc3bn3bd0.md)
-
-（1080版）飞飞秀 《跑得快篇》 2022-07-06
-
-For English：gettr.com/post/p1hc4bl526a
-
-<img src="https://media.gettr.com/group45/origin/2022/07/06/22/eb66404d-2660-c14a-a093-f180cd93ef44/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
