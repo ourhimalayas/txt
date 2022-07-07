@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1hd3f6ce62.md)
+
+2022.07.06  新中国联邦 ｜ 喜财经  第101期  中共用房地产崩盘搞垮世界经济  美元地位与数字美元的最佳选择
+
+<img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1hc0r5a53e.md)
 
 2022.07.06.晚 新中国联邦 | 新闻访谈 G20峰会 聚焦经济、战争、中美关系 关税妥协？经济真的撑不住了 灾难当前，疫苗却在继续 “社会调剂” 挑战道德底线 中共警方数据库信息泄露
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 7/7/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1hd3f6ce62.md)
+[@miles 7/7/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1hcqvw147e.md)
 
-2022.07.06  新中国联邦 ｜ 喜财经  第101期  中共用房地产崩盘搞垮世界经济  美元地位与数字美元的最佳选择
+2022-7-6《鸡血王喜币大作战》 第二百四十八集 嘉宾：Nick、七里香
 
-<img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/07/07/03/9e87221d-40c1-fe4e-81b7-c0836316271e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English：gettr.com/post/p1hc4bl526a
 《焦点》92期：欧洲农场关于工作方向的讨论，管理透明 / 服务战友 / 投资与救助跨农场合作
 
 <img src="https://media.gettr.com/group13/origin/2022/07/06/06/5f59f68c-ebb7-90ce-6620-eea4c814a49d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 5:22 AM UTC  - :tv:直播](/content/gettr/p1h8jl3b856.md)
-
-6/28/2022 Miles Guo: The wealth of the Chinese people which has been illegally appropriated by the CCP’s kleptocrats will surely be retrieved eventually, but to return the wealth to the Chinese people will be a long and difficult p...
-
-<img src="https://media.gettr.com/group14/getter/2022/07/06/05/9529fd7a-a813-e69e-fe80-7ad2db2604e5/out.jpg" width="506" height="284">
 
 ---
 
