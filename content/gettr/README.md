@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p1hc455d788.md)
+
+2022.07.06 晚 新中国联邦｜新闻 “10亿”中国人的数据被盗，让每个人拥有灭共的核武器；未来的数字货币是一切的力量；从东北今昔以及南北韩看文明源于制度；2025是人类新生的开始
+
+<img src="https://media.gettr.com/group7/origin/2022/07/07/00/90de9174-7b98-6857-b14b-24675c006347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1hbo0u5179.md)
 
 2022.07.06 NFSC fringe Episode 223
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/7/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p1hc455d788.md)
+[@miles 7/7/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1hc0r5a53e.md)
 
-2022.07.06 晚 新中国联邦｜新闻 “10亿”中国人的数据被盗，让每个人拥有灭共的核武器；未来的数字货币是一切的力量；从东北今昔以及南北韩看文明源于制度；2025是人类新生的开始
+2022.07.06.晚 新中国联邦 | 新闻访谈 G20峰会 聚焦经济、战争、中美关系 关税妥协？经济真的撑不住了 灾难当前，疫苗却在继续 “社会调剂” 挑战道德底线 中共警方数据库信息泄露
 
-<img src="https://media.gettr.com/group7/origin/2022/07/07/00/90de9174-7b98-6857-b14b-24675c006347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/07/07/01/162efef2-137a-e4fa-2572-0b9a56a5169d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ For English：gettr.com/post/p1hc4bl526a
 6/28/2022 Miles Guo: The wealth of the Chinese people which has been illegally appropriated by the CCP’s kleptocrats will surely be retrieved eventually, but to return the wealth to the Chinese people will be a long and difficult p...
 
 <img src="https://media.gettr.com/group14/getter/2022/07/06/05/9529fd7a-a813-e69e-fe80-7ad2db2604e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 4:46 AM UTC  - :tv:直播](/content/gettr/p1h7ygcba83.md)
-
-2022.07.05  文贵大直播精华版（女子戒烟监督队加场）
-
-<img src="https://media.gettr.com/group16/origin/2022/07/06/04/b1dd500c-966f-8139-014f-f753f7d0ee1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
