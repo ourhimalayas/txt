@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/7/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1hgtp5700d.md)
+
+2022.07.07 NFSC Fringe   Breaking! Largest data breach in history, 1 Billion Chinese date leaked
+
+<img src="https://media.gettr.com/group8/origin/2022/07/07/23/a4eb93e8-581a-cb27-574a-661373f9376b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1hgjlm01c0.md)
+
+7月7号：这些机械战士的现代化武器……第一次大规模的军事行动使用的战场……可能是……中共侵略台湾的战斗中……【Unitree Go1 是新一代机器狗，速度可达 17 公里/小时，具有自适应关节和智能侧跟随系统。这是 Unitree 工厂的大规模测试】
+
+<img src="https://media.gettr.com/group10/getter/2022/07/07/23/2a3cfaa8-23a1-7bb3-7d62-9c31b31b0df7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1hg84ae76e.md)
 
 2022.07.07 PM NFSC news  Scottish Government Demands Removal of CCP Surveillance Equipment
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 7/7/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1hgjlm01c0.md)
+[@miles 7/7/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1hh0bgfe45.md)
 
-7月7号：这些机械战士的现代化武器……第一次大规模的军事行动使用的战场……可能是……中共侵略台湾的战斗中……【Unitree Go1 是新一代机器狗，速度可达 17 公里/小时，具有自适应关节和智能侧跟随系统。这是 Unitree 工厂的大规模测试】
+7/6/2022 Miles Guo: This recent data leak of one billion Chinese people’s information is a smart move by Zeng Qinghong and Meng Jianzhu to target Xi Jinping; the overseas Chinese will soon face all kinds of problems and risks creat...
 
-<img src="https://media.gettr.com/group10/getter/2022/07/07/23/2a3cfaa8-23a1-7bb3-7d62-9c31b31b0df7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/07/07/23/2b4fead6-d284-8f66-50af-c825cd92abe9/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,30 +170,6 @@ MILES GUO 直播 2022-07-07
 07.07.2020   25 years regime in HK — Untold history in HK; Uncover secrets in HK
 
 <img src="https://media.gettr.com/group43/origin/2022/07/07/10/629604be-44e1-469c-2826-5d5f1a61066d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 8:30 AM UTC ](/content/gettr/p1hd84934b3.md)
-
-Three Revelations that Witness History
-
-1 All CCP’s overseas assets in the past 72 years will be disclosed.
-
-2 The information of all family members of the CCP will be released regardless of whether they are alive or not.
-
-3 All th...
-
-<img src="https://media.gettr.com/group48/origin/2022/07/07/08/84fa0a1b-e28d-92aa-8d65-a6334f114f50/4b74279396bc20e55c35434c3c2014de.png" width="506" height="284">
-
----
-
-[@miles 7/7/2022 8:25 AM UTC ](/content/gettr/p1hdvw2ec14.md)
-
-1 billion population data leaked means the critical moment to eliminate the Chinese Communist Party (CCP) 
-
-A hacker recently claimed to have acquired more than 23 TB data from Shanghai public security system, including sensitive p...
-
-<img src="https://media.gettr.com/group48/origin/2022/07/07/08/4c39d772-2a38-e575-670c-e0d2d77ba8ee/b4f7c94f2722d4a23f045d7d5d8aba3c.jpg" width="506" height="284">
 
 ---
 
