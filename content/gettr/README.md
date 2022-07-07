@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 7/6/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1hbo0u5179.md)
+
+2022.07.06 NFSC fringe Episode 223
+
+<img src="https://media.gettr.com/group47/origin/2022/07/06/23/2ee97a57-ac21-d1b5-8523-2defb235f7eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/6/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1hc5kqdbf3.md)
 
 07.06.2022 PM NFSC News  Urgent recall on CCP virus vaccine in face of at least 40,000 deaths
 
 <img src="https://media.gettr.com/group20/origin/2022/07/06/23/3639dfac-9ec5-3616-8972-d585642043b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 11:53 PM UTC  - :tv:直播](/content/gettr/p1hbpej779c.md)
+
+7/6/2022 Miles Guo: Breaking! It was Alvin Jiang, Zeng Qinghong, Wang Qishan, Meng Jianzhu, and Sun Lijun who leaked the data from the Shanghai National Police database. Their purpose was to undermine their common enemy - Xi Jinpin...
+
+<img src="https://media.gettr.com/group44/getter/2022/07/06/23/848ebc78-002b-c7aa-4ded-7734bd6ed852/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1hcdyl0c58.md)
+
+7/6/2022 Miles Guo: The data leak proves that China's population is only 1 billion, not the 1.4 billion claimed by the CCP, which is consistent with the information exposed by the New Federal State of China earlier. It indicates th...
+
+<img src="https://media.gettr.com/group15/getter/2022/07/06/22/0915be30-8f5a-c61d-dea5-220ca21aae18/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,14 +49,6 @@
 For English：gettr.com/post/p1hc4bl526a
 
 <img src="https://media.gettr.com/group45/origin/2022/07/06/22/eb66404d-2660-c14a-a093-f180cd93ef44/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1hcdyl0c58.md)
-
-7/6/2022 Miles Guo: The data leak proves that China's population is only 1 billion, not the 1.4 billion claimed by the CCP, which is consistent with the information exposed by the New Federal State of China earlier. It indicates th...
-
-<img src="https://media.gettr.com/group15/getter/2022/07/06/22/0915be30-8f5a-c61d-dea5-220ca21aae18/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ For English：gettr.com/post/p1hc4bl526a
 2022-7-5《鸡血王喜币大作战》 第二百四十七集 嘉宾：无双柳薇薇、青藤
 
 <img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/6/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p1h8mdu2ed1.md)
-
-2022.07.05  新中国联邦 ｜ 喜财经  第100期  熙姐谈股市汇市黄金石油人民币走势；国内乱象，水虎之年灾难遍地；喜币，躺平币将在数字货币暴跌的大潮中当担中流砥柱
-
-<img src="https://media.gettr.com/group4/origin/2022/07/06/02/b59313e8-99de-1f71-45d9-cdab708f45d3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/6/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p1h7oyif01f.md)
-
-2022.07.05 晚 新中国联邦 | 新闻访谈 好人話題之三：培養修養，尊重他人； 加国边境堵爆，医生怼联邦； 全球經濟和糧食危機迫在眉睫； 昨天荷兰农民起义
-
-<img src="https://media.gettr.com/group34/origin/2022/07/06/01/a09bb5f6-98f3-98a8-9849-ba39722a5556/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
