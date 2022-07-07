@@ -2,11 +2,31 @@
 ---
 
 
+[@miles 7/7/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1hg548225e.md)
+
+（4K版）飞飞秀 《数据安全》2022-07-07
+
+For English: gettr.com/post/p1hgjce83f3
+
+<img src="https://media.gettr.com/group42/origin/2022/07/07/22/59b13f57-2114-f553-bb63-20c3eb6491e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1hfrmp4ba2.md)
 
 7/6/2022 Miles Guo: In order to ensure its political security, the CCP has turned the three Northeastern Provinces into agricultural provinces and ruined the farmland, water resources, and mountains of Northeast China. The industri...
 
 <img src="https://media.gettr.com/group11/getter/2022/07/07/21/947ed6d8-77cf-9382-e8ee-7c6206f50822/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1hg19j1928.md)
+
+(1080版) 飞飞秀 《数据安全》2022-07-07
+
+For English: gettr.com/post/p1hgjce83f3
+
+<img src="https://media.gettr.com/group49/origin/2022/07/07/22/0cb633dd-f042-e202-0625-edf0db6ae260/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -26,6 +46,14 @@
 ...
 
 <img src="https://media.gettr.com/group19/getter/2022/07/07/21/d79c6703-ddcc-40ff-c243-a9e0fcc8c3bc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1hfxe73287.md)
+
+7/6/2022 Mile Guo: The Northeasterners were among the first in China to be enlightened by western democracy and civilization; why has the CCP been vilifying and suppressing the Northeasterners? Because the CCP worries that the brav...
+
+<img src="https://media.gettr.com/group22/getter/2022/07/07/21/e14ed6f4-fcf2-5653-9d7c-a5b9fd3295fa/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,30 +174,6 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 2022.07.06  新中国联邦 ｜ 喜财经  第101期  中共用房地产崩盘搞垮世界经济  美元地位与数字美元的最佳选择
 
 <img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/7/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1hc0r5a53e.md)
-
-2022.07.06.晚 新中国联邦 | 新闻访谈 G20峰会 聚焦经济、战争、中美关系 关税妥协？经济真的撑不住了 灾难当前，疫苗却在继续 “社会调剂” 挑战道德底线 中共警方数据库信息泄露
-
-<img src="https://media.gettr.com/group36/origin/2022/07/07/01/162efef2-137a-e4fa-2572-0b9a56a5169d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/7/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p1hc455d788.md)
-
-2022.07.06 晚 新中国联邦｜新闻 “10亿”中国人的数据被盗，让每个人拥有灭共的核武器；未来的数字货币是一切的力量；从东北今昔以及南北韩看文明源于制度；2025是人类新生的开始
-
-<img src="https://media.gettr.com/group7/origin/2022/07/07/00/90de9174-7b98-6857-b14b-24675c006347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1hfxe73287.md)
-
-7/6/2022 Mile Guo: The Northeasterners were among the first in China to be enlightened by western democracy and civilization; why has the CCP been vilifying and suppressing the Northeasterners? Because the CCP worries that the brav...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/07/21/e14ed6f4-fcf2-5653-9d7c-a5b9fd3295fa/out.jpg" width="506" height="284">
 
 ---
 
