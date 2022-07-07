@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p1hgn1x919b.md)
+
+7/06/2022 Miles Guo: Northeast China is just a place to exploit economically and something on their resume to shine; only the CCP is able to turn Northeast China, the origin of Hongshan Culture, into what it looks like today; the N...
+
+<img src="https://media.gettr.com/group5/getter/2022/07/07/22/e2af99f0-9292-d887-bd91-94bf428e22ba/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1hg548225e.md)
 
 （4K版）飞飞秀 《数据安全》2022-07-07
@@ -12,11 +20,15 @@ For English: gettr.com/post/p1hgjce83f3
 
 ---
 
-[@miles 7/7/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1hfrmp4ba2.md)
+[@miles 7/7/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1hgbre8cd2.md)
 
-7/6/2022 Miles Guo: In order to ensure its political security, the CCP has turned the three Northeastern Provinces into agricultural provinces and ruined the farmland, water resources, and mountains of Northeast China. The industri...
+7/6/2022 Miles Guo: The data leak proves that China’s population is only 1 billion, which is consistent with what we exposed earlier. It indicates that data previously published by Communist China is fake!
 
-<img src="https://media.gettr.com/group11/getter/2022/07/07/21/947ed6d8-77cf-9382-e8ee-7c6206f50822/out.jpg" width="506" height="284">
+
+
+7/6/2022 文贵直播：泄露的数据证明中...
+
+<img src="https://media.gettr.com/group38/getter/2022/07/07/22/52f1a0ff-9ee6-ef1d-884b-078976a6477e/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +39,14 @@ For English: gettr.com/post/p1hgjce83f3
 For English: gettr.com/post/p1hgjce83f3
 
 <img src="https://media.gettr.com/group49/origin/2022/07/07/22/0cb633dd-f042-e202-0625-edf0db6ae260/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1hfrmp4ba2.md)
+
+7/6/2022 Miles Guo: In order to ensure its political security, the CCP has turned the three Northeastern Provinces into agricultural provinces and ruined the farmland, water resources, and mountains of Northeast China. The industri...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/07/21/947ed6d8-77cf-9382-e8ee-7c6206f50822/out.jpg" width="506" height="284">
 
 ---
 
@@ -158,22 +178,6 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 7/6/2022 Miles Guo: This recent data leak of one billion Chinese people's information is a smart move by Zeng Qinghong, Meng Jianzhu, and others for the purpose of having all the Chinese people target the Zhongnanhai Pit and Xi Jin...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/07/05/a7518cdc-fb96-f64f-a37f-d1ea541423a9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1hcqvw147e.md)
-
-2022-7-6《鸡血王喜币大作战》 第二百四十八集 嘉宾：Nick、七里香
-
-<img src="https://media.gettr.com/group43/origin/2022/07/07/03/9e87221d-40c1-fe4e-81b7-c0836316271e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/7/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1hd3f6ce62.md)
-
-2022.07.06  新中国联邦 ｜ 喜财经  第101期  中共用房地产崩盘搞垮世界经济  美元地位与数字美元的最佳选择
-
-<img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
