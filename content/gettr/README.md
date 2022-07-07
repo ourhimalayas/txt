@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/7/2022 8:30 AM UTC ](/content/gettr/p1hd84934b3.md)
+
+Three Revelations that Witness History
+
+1 All CCP’s overseas assets in the past 72 years will be disclosed.
+
+2 The information of all family members of the CCP will be released regardless of whether they are alive or not.
+
+3 All th...
+
+<img src="https://media.gettr.com/group48/origin/2022/07/07/08/84fa0a1b-e28d-92aa-8d65-a6334f114f50/4b74279396bc20e55c35434c3c2014de.png" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 8:25 AM UTC ](/content/gettr/p1hdvw2ec14.md)
 
 1 billion population data leaked means the critical moment to eliminate the Chinese Communist Party (CCP) 
@@ -68,17 +82,11 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 
 ---
 
-[@miles 7/7/2022 8:30 AM UTC ](/content/gettr/p1hd84934b3.md)
+[@miles 7/7/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1hdl20ec1e.md)
 
-Three Revelations that Witness History
+07.07.2020   25 years regime in HK — Untold history in HK; Uncover secrets in HK
 
-1 All CCP’s overseas assets in the past 72 years will be disclosed.
-
-2 The information of all family members of the CCP will be released regardless of whether they are alive or not.
-
-3 All th...
-
-<img src="https://media.gettr.com/group48/origin/2022/07/07/08/84fa0a1b-e28d-92aa-8d65-a6334f114f50/4b74279396bc20e55c35434c3c2014de.png" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/07/07/10/629604be-44e1-469c-2826-5d5f1a61066d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English：gettr.com/post/p1hc4bl526a
 
 
 <img src="https://media.gettr.com/group14/origin/2022/07/06/16/272e9d68-d73d-decc-6218-911d7fb4fa07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 12:31 PM UTC  - :tv:直播](/content/gettr/p1h9kiy88cc.md)
-
-2022年7月6日 文贵大直播：感觉来了专场 北天东地 （1080P版）
-
-<img src="https://media.gettr.com/group28/origin/2022/07/06/12/b8578749-8c50-d953-5134-1f7c49488680/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
