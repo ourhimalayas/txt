@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1hcqvw147e.md)
+
+2022-7-6《鸡血王喜币大作战》 第二百四十八集 嘉宾：Nick、七里香
+
+<img src="https://media.gettr.com/group43/origin/2022/07/07/03/9e87221d-40c1-fe4e-81b7-c0836316271e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1hd3f6ce62.md)
 
 2022.07.06  新中国联邦 ｜ 喜财经  第101期  中共用房地产崩盘搞垮世界经济  美元地位与数字美元的最佳选择
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 7/7/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1hcqvw147e.md)
+[@miles 7/7/2022 6:00 AM UTC  - :tv:直播](/content/gettr/p1hd78n3016.md)
 
-2022-7-6《鸡血王喜币大作战》 第二百四十八集 嘉宾：Nick、七里香
+7/6/2022 Miles Guo: This recent data leak of one billion Chinese people's information is a smart move by Zeng Qinghong, Meng Jianzhu, and others for the purpose of having all the Chinese people target the Zhongnanhai Pit and Xi Jin...
 
-<img src="https://media.gettr.com/group43/origin/2022/07/07/03/9e87221d-40c1-fe4e-81b7-c0836316271e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/07/07/05/a7518cdc-fb96-f64f-a37f-d1ea541423a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English：gettr.com/post/p1hc4bl526a
 7月6号：尊敬的战友们好．关于中国的人口实际数量……只有新中囯联邦．七哥．第一个向世界发出了中国人口数．大约10亿人左右的警告‼️……这是人类有史以来最大的谎言之一。【上海十亿人资料被曝光，已经出来一小部分。最大的谎言可能就是中国只有10亿人，而不是14亿】
 
 <img src="https://media.gettr.com/group40/getter/2022/07/06/09/c54bc119-7d33-8a44-13c1-f37da467c7fc/64d3d7d670c0cf8ed13cc38366454bfb.jpg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 8:03 AM UTC  - :tv:直播](/content/gettr/p1h8nwka6d3.md)
-
-《焦点》92期：欧洲农场关于工作方向的讨论，管理透明 / 服务战友 / 投资与救助跨农场合作
-
-<img src="https://media.gettr.com/group13/origin/2022/07/06/06/5f59f68c-ebb7-90ce-6620-eea4c814a49d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
