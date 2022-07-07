@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 7/6/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1hc5kqdbf3.md)
+[@miles 7/7/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p1hc455d788.md)
 
-07.06.2022 PM NFSC News  Urgent recall on CCP virus vaccine in face of at least 40,000 deaths
+2022.07.06 晚 新中国联邦｜新闻 “10亿”中国人的数据被盗，让每个人拥有灭共的核武器；未来的数字货币是一切的力量；从东北今昔以及南北韩看文明源于制度；2025是人类新生的开始
 
-<img src="https://media.gettr.com/group20/origin/2022/07/06/23/3639dfac-9ec5-3616-8972-d585642043b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/07/07/00/90de9174-7b98-6857-b14b-24675c006347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 7/6/2022 Miles Guo: Breaking! It was Alvin Jiang, Zeng Qinghong, Wang Qishan, Meng Jianzhu, and Sun Lijun who leaked the data from the Shanghai National Police database. Their purpose was to undermine their common enemy - Xi Jinpin...
 
 <img src="https://media.gettr.com/group44/getter/2022/07/06/23/848ebc78-002b-c7aa-4ded-7734bd6ed852/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/6/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1hc5kqdbf3.md)
+
+07.06.2022 PM NFSC News  Urgent recall on CCP virus vaccine in face of at least 40,000 deaths
+
+<img src="https://media.gettr.com/group20/origin/2022/07/06/23/3639dfac-9ec5-3616-8972-d585642043b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ For English：gettr.com/post/p1hc4bl526a
 2022.07.05  文贵大直播精华版（女子戒烟监督队加场）
 
 <img src="https://media.gettr.com/group16/origin/2022/07/06/04/b1dd500c-966f-8139-014f-f753f7d0ee1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 3:03 AM UTC  - :tv:直播](/content/gettr/p1h8j5t6926.md)
-
-2022-7-5《鸡血王喜币大作战》 第二百四十七集 嘉宾：无双柳薇薇、青藤
-
-<img src="https://media.gettr.com/group24/origin/2022/06/26/03/38f2d59c-32a9-bdbe-7752-b02317adcf97/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
