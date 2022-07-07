@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1hdl20ec1e.md)
+
+07.07.2020   25 years regime in HK — Untold history in HK; Uncover secrets in HK
+
+<img src="https://media.gettr.com/group43/origin/2022/07/07/10/629604be-44e1-469c-2826-5d5f1a61066d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 8:30 AM UTC ](/content/gettr/p1hd84934b3.md)
 
 Three Revelations that Witness History
@@ -82,11 +90,11 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 
 ---
 
-[@miles 7/7/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1hdl20ec1e.md)
+[@miles 7/7/2022 12:02 PM UTC  - :tv:直播](/content/gettr/p1hdtuz5336.md)
 
-07.07.2020   25 years regime in HK — Untold history in HK; Uncover secrets in HK
+2022.07.07 AM NFSC news  Hebei's new police chief of CCP dies of sudden illness
 
-<img src="https://media.gettr.com/group43/origin/2022/07/07/10/629604be-44e1-469c-2826-5d5f1a61066d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/07/07/12/6cdc312e-baeb-1245-ce9a-632bb61ad26d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English：gettr.com/post/p1hc4bl526a
 
 
 <img src="https://media.gettr.com/group14/origin/2022/07/06/16/272e9d68-d73d-decc-6218-911d7fb4fa07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p1h99we9035.md)
-
-2022年7月6日 文贵大直播：感觉来了专场 北天东地 （4K版）
-
-<img src="https://media.gettr.com/group40/origin/2022/07/06/12/7c4d5488-e68a-c0eb-37cf-f5257ea9e90c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
