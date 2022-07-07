@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/7/2022 8:25 AM UTC ](/content/gettr/p1hdvw2ec14.md)
+
+1 billion population data leaked means the critical moment to eliminate the Chinese Communist Party (CCP) 
+
+A hacker recently claimed to have acquired more than 23 TB data from Shanghai public security system, including sensitive p...
+
+<img src="https://media.gettr.com/group48/origin/2022/07/07/08/4c39d772-2a38-e575-670c-e0d2d77ba8ee/b4f7c94f2722d4a23f045d7d5d8aba3c.jpg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p1hdv4ca593.md)
 
 7/6/2022 Miles Guo: The citizens of the New Federal State of China are completely different from the Chinese people under the rule of the Chinese Communist Party! The self-confidence and unity of the citizens of the NFSC impressed ...
@@ -58,13 +68,17 @@
 
 ---
 
-[@miles 7/7/2022 8:25 AM UTC ](/content/gettr/p1hdvw2ec14.md)
+[@miles 7/7/2022 8:30 AM UTC ](/content/gettr/p1hd84934b3.md)
 
-1 billion population data leaked means the critical moment to eliminate the Chinese Communist Party (CCP) 
+Three Revelations that Witness History
 
-A hacker recently claimed to have acquired more than 23 TB data from Shanghai public security system, including sensitive p...
+1 All CCP’s overseas assets in the past 72 years will be disclosed.
 
-<img src="https://media.gettr.com/group48/origin/2022/07/07/08/4c39d772-2a38-e575-670c-e0d2d77ba8ee/b4f7c94f2722d4a23f045d7d5d8aba3c.jpg" width="506" height="284">
+2 The information of all family members of the CCP will be released regardless of whether they are alive or not.
+
+3 All th...
+
+<img src="https://media.gettr.com/group48/origin/2022/07/07/08/84fa0a1b-e28d-92aa-8d65-a6334f114f50/4b74279396bc20e55c35434c3c2014de.png" width="506" height="284">
 
 ---
 
@@ -159,14 +173,6 @@ For English：gettr.com/post/p1hc4bl526a
 2022年7月6日 文贵大直播：感觉来了专场 北天东地 （4K版）
 
 <img src="https://media.gettr.com/group40/origin/2022/07/06/12/7c4d5488-e68a-c0eb-37cf-f5257ea9e90c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1h9ncnfdd8.md)
-
-20220706 NFSC日本語ニュース　　GETTR、ダイレクトメッセージ機能を増加
-
-<img src="https://media.gettr.com/group13/origin/2022/07/06/11/ba5226c9-a375-b2f0-d303-eee5d842bd07/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
