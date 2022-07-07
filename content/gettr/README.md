@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1hea2h1a44.md)
+
+MILES GUO 直播 2022-07-07
+
+<img src="https://media.gettr.com/group9/getter/2022/07/07/14/d4d87332-96e6-7425-592b-64ef0c607738/dcab0b1e37d894f673f7ffdbb7aa980f.jpg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1hejcs0935.md)
 
 2022.07.07 早 新中国联邦 | 新闻访谈  墙国AI监控党员忠诚度，金三胖开党会维稳；美国施压ASML扩大光刻机出口禁令；美FBI和英军情五处史上首次联合警示中共威胁；斯里兰卡破产.
@@ -114,11 +122,11 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 
 ---
 
-[@miles 7/7/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1hea2h1a44.md)
+[@miles 7/7/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1herq5e9b0.md)
 
-MILES GUO 直播 2022-07-07
+2022.07.07 文贵大直播精华版
 
-<img src="https://media.gettr.com/group9/getter/2022/07/07/14/d4d87332-96e6-7425-592b-64ef0c607738/dcab0b1e37d894f673f7ffdbb7aa980f.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/07/07/15/459b7821-fa5b-1a6c-55ee-a26564249eab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,16 +159,6 @@ MILES GUO 直播 2022-07-07
 7/6/2022 Miles Guo: The Americans are awakened by us. They are very clear that the United States would not be safe as long as the CCP still exists. Now it is the lull before the storm. The US will lower the CCP's guard and then pro...
 
 <img src="https://media.gettr.com/group9/getter/2022/07/06/22/b43c8a78-dfd8-fdf8-c946-8fc3f9acf8dc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1hbqah3463.md)
-
-（4K版）飞飞秀 《跑得快篇》 2022-07-06
-
-For English：gettr.com/post/p1hc4bl526a
-
-<img src="https://media.gettr.com/group45/origin/2022/07/06/22/eb66404d-2660-c14a-a093-f180cd93ef44/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
