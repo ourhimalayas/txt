@@ -10,13 +10,11 @@
 
 ---
 
-[@miles 7/7/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1hg548225e.md)
+[@miles 7/7/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1hg84ae76e.md)
 
-（4K版）飞飞秀 《数据安全》2022-07-07
+2022.07.07 PM NFSC news  Scottish Government Demands Removal of CCP Surveillance Equipment
 
-For English: gettr.com/post/p1hgjce83f3
-
-<img src="https://media.gettr.com/group42/origin/2022/07/07/22/59b13f57-2114-f553-bb63-20c3eb6491e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -29,6 +27,16 @@ For English: gettr.com/post/p1hgjce83f3
 7/6/2022 文贵直播：泄露的数据证明中...
 
 <img src="https://media.gettr.com/group38/getter/2022/07/07/22/52f1a0ff-9ee6-ef1d-884b-078976a6477e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1hg548225e.md)
+
+（4K版）飞飞秀 《数据安全》2022-07-07
+
+For English: gettr.com/post/p1hgjce83f3
+
+<img src="https://media.gettr.com/group42/origin/2022/07/07/22/59b13f57-2114-f553-bb63-20c3eb6491e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -170,14 +178,6 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 7/6/2022 Miles Guo: The citizens of the New Federal State of China are completely different from the Chinese people under the rule of the Chinese Communist Party! The self-confidence and unity of the citizens of the NFSC impressed ...
 
 <img src="https://media.gettr.com/group37/getter/2022/07/07/07/8332c0ae-28da-f8db-6aa5-c7e9f8adc375/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 6:00 AM UTC  - :tv:直播](/content/gettr/p1hd78n3016.md)
-
-7/6/2022 Miles Guo: This recent data leak of one billion Chinese people's information is a smart move by Zeng Qinghong, Meng Jianzhu, and others for the purpose of having all the Chinese people target the Zhongnanhai Pit and Xi Jin...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/07/05/a7518cdc-fb96-f64f-a37f-d1ea541423a9/out.jpg" width="506" height="284">
 
 ---
 
