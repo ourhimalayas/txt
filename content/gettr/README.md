@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1hg84ae76e.md)
+
+2022.07.07 PM NFSC news  Scottish Government Demands Removal of CCP Surveillance Equipment
+
+<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p1hgn1x919b.md)
 
 7/06/2022 Miles Guo: Northeast China is just a place to exploit economically and something on their resume to shine; only the CCP is able to turn Northeast China, the origin of Hongshan Culture, into what it looks like today; the N...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/7/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1hg84ae76e.md)
+[@miles 7/7/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1hgjlm01c0.md)
 
-2022.07.07 PM NFSC news  Scottish Government Demands Removal of CCP Surveillance Equipment
+7月7号：这些机械战士的现代化武器……第一次大规模的军事行动使用的战场……可能是……中共侵略台湾的战斗中……【Unitree Go1 是新一代机器狗，速度可达 17 公里/小时，具有自适应关节和智能侧跟随系统。这是 Unitree 工厂的大规模测试】
 
-<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/07/07/23/2a3cfaa8-23a1-7bb3-7d62-9c31b31b0df7/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +178,6 @@ Three Revelations that Witness History
 A hacker recently claimed to have acquired more than 23 TB data from Shanghai public security system, including sensitive p...
 
 <img src="https://media.gettr.com/group48/origin/2022/07/07/08/4c39d772-2a38-e575-670c-e0d2d77ba8ee/b4f7c94f2722d4a23f045d7d5d8aba3c.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 7:44 AM UTC  - :tv:直播](/content/gettr/p1hdv4ca593.md)
-
-7/6/2022 Miles Guo: The citizens of the New Federal State of China are completely different from the Chinese people under the rule of the Chinese Communist Party! The self-confidence and unity of the citizens of the NFSC impressed ...
-
-<img src="https://media.gettr.com/group37/getter/2022/07/07/07/8332c0ae-28da-f8db-6aa5-c7e9f8adc375/out.jpg" width="506" height="284">
 
 ---
 
