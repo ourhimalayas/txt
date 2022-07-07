@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1hc0r5a53e.md)
+
+2022.07.06.晚 新中国联邦 | 新闻访谈 G20峰会 聚焦经济、战争、中美关系 关税妥协？经济真的撑不住了 灾难当前，疫苗却在继续 “社会调剂” 挑战道德底线 中共警方数据库信息泄露
+
+<img src="https://media.gettr.com/group36/origin/2022/07/07/01/162efef2-137a-e4fa-2572-0b9a56a5169d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p1hc455d788.md)
 
 2022.07.06 晚 新中国联邦｜新闻 “10亿”中国人的数据被盗，让每个人拥有灭共的核武器；未来的数字货币是一切的力量；从东北今昔以及南北韩看文明源于制度；2025是人类新生的开始
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 7/7/2022 1:09 AM UTC  - :tv:直播](/content/gettr/p1hc0r5a53e.md)
+[@miles 7/7/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p1hd3f6ce62.md)
 
-2022.07.06.晚 新中国联邦 | 新闻访谈 G20峰会 聚焦经济、战争、中美关系 关税妥协？经济真的撑不住了 灾难当前，疫苗却在继续 “社会调剂” 挑战道德底线 中共警方数据库信息泄露
+2022.07.06  新中国联邦 ｜ 喜财经  第101期  中共用房地产崩盘搞垮世界经济  美元地位与数字美元的最佳选择
 
-<img src="https://media.gettr.com/group36/origin/2022/07/07/01/162efef2-137a-e4fa-2572-0b9a56a5169d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/06/25/02/c869130a-6124-6b15-43aa-d7b03f78d8fa/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,20 +157,6 @@ For English：gettr.com/post/p1hc4bl526a
 《焦点》92期：欧洲农场关于工作方向的讨论，管理透明 / 服务战友 / 投资与救助跨农场合作
 
 <img src="https://media.gettr.com/group13/origin/2022/07/06/06/5f59f68c-ebb7-90ce-6620-eea4c814a49d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p1h8s1g76cc.md)
-
-7/3/2022 Miles Guo: The CCP’s 20th Party Congress was already doomed during the 19th Party Congress. Xi announced that 5 million CCP members had been arrested
-
-
-
-7/3/2022 文贵直播：中共20大早在19大就已经没了！习宣称抓了500万党员！
-
-
-
-<img src="https://media.gettr.com/group47/getter/2022/07/06/05/4f08e102-9d7b-ed19-3efc-28fbfb3385ad/out.jpg" width="506" height="284">
 
 ---
 
