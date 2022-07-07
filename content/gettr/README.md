@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1hejcs0935.md)
+
+2022.07.07 早 新中国联邦 | 新闻访谈  墙国AI监控党员忠诚度，金三胖开党会维稳；美国施压ASML扩大光刻机出口禁令；美FBI和英军情五处史上首次联合警示中共威胁；斯里兰卡破产.
+
+<img src="https://media.gettr.com/group14/origin/2022/04/09/12/6acce39b-ebf8-22ee-c497-b01d45163b10/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1heff39e8b.md)
 
 2022.07.07 早 新中国联邦｜新闻 中共减少的人口相当于一个美国消失；上海帮曝光中共公安大数据 以共灭共走向高潮；美国FBI与英国MI5领袖首次同场警告中共；以人为本体制设计和民主人工智能实验
@@ -106,11 +114,11 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 
 ---
 
-[@miles 7/7/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1hejcs0935.md)
+[@miles 7/7/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1hea2h1a44.md)
 
-2022.07.07 早 新中国联邦 | 新闻访谈  墙国AI监控党员忠诚度，金三胖开党会维稳；美国施压ASML扩大光刻机出口禁令；美FBI和英军情五处史上首次联合警示中共威胁；斯里兰卡破产.
+MILES GUO 直播 2022-07-07
 
-<img src="https://media.gettr.com/group14/origin/2022/04/09/12/6acce39b-ebf8-22ee-c497-b01d45163b10/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/07/07/14/d4d87332-96e6-7425-592b-64ef0c607738/dcab0b1e37d894f673f7ffdbb7aa980f.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ For English：gettr.com/post/p1hc4bl526a
 For English：gettr.com/post/p1hc4bl526a
 
 <img src="https://media.gettr.com/group45/origin/2022/07/06/22/eb66404d-2660-c14a-a093-f180cd93ef44/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 9:50 PM UTC  - :tv:直播](/content/gettr/p1hbdzkde71.md)
-
-7/6/2022 Miles Guo: The data leak from the Shanghai National Police database is definitely done by insiders! This is why our Whistleblowers' Movement has been advocating the strategy of "taking down the CCP with the CCP itself"; th...
-
-<img src="https://media.gettr.com/group48/getter/2022/07/06/21/2e6dbb14-5549-aee5-2711-8cb89eb5800e/out.jpg" width="506" height="284">
 
 ---
 
