@@ -2,6 +2,41 @@
 ---
 
 
+[@miles 7/7/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1hfrmp4ba2.md)
+
+7/6/2022 Miles Guo: In order to ensure its political security, the CCP has turned the three Northeastern Provinces into agricultural provinces and ruined the farmland, water resources, and mountains of Northeast China. The industri...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/07/21/947ed6d8-77cf-9382-e8ee-7c6206f50822/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 9:18 PM UTC  - :tv:直播](/content/gettr/p1hg060f3fa.md)
+
+7/6/2022 Miles Guo: From the 1920s-1940s, the once affluent and advanced northeastern provinces of China were betrayed by the world again and again, and the northeasterners became the victims of the savage looting from the former S...
+
+<img src="https://media.gettr.com/group45/getter/2022/07/07/21/ecc72c12-8cbe-9e9f-fa87-f9bd484fc49e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 9:22 PM UTC  - :tv:直播](/content/gettr/p1hgd3k36ea.md)
+
+7/6/2022 Miles Guo: The data leak from the Shanghai National Police database is definitely done by insiders! This is why our Whistleblowers’ Movement has been advocating the strategy of “taking down the CCP with the CCP itself”!
+
+
+...
+
+<img src="https://media.gettr.com/group19/getter/2022/07/07/21/d79c6703-ddcc-40ff-c243-a9e0fcc8c3bc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hftzv6f01.md)
+
+2022.07.07 新中国联邦 | 喜健康  《健康生活》回应七哥：提起爸爸，我也想哭。中共利用中国男人吸烟得癌症来吸血；如何正念生活。
+
+<img src="https://media.gettr.com/group42/origin/2022/06/14/20/744949ca-d21a-43ac-a030-b28a61c93dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1hg0l299fb.md)
 
 2022-7-7 《避风港》（69）为人类繁衍，拒绝儿童新冠疫苗
@@ -130,43 +165,11 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 
 ---
 
-[@miles 7/6/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1hbo0u5179.md)
+[@miles 7/7/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1hfxe73287.md)
 
-2022.07.06 NFSC fringe Episode 223
+7/6/2022 Mile Guo: The Northeasterners were among the first in China to be enlightened by western democracy and civilization; why has the CCP been vilifying and suppressing the Northeasterners? Because the CCP worries that the brav...
 
-<img src="https://media.gettr.com/group47/origin/2022/07/06/23/2ee97a57-ac21-d1b5-8523-2defb235f7eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hftzv6f01.md)
-
-2022.07.07 新中国联邦 | 喜健康  《健康生活》回应七哥：提起爸爸，我也想哭。中共利用中国男人吸烟得癌症来吸血；如何正念生活。
-
-<img src="https://media.gettr.com/group42/origin/2022/06/14/20/744949ca-d21a-43ac-a030-b28a61c93dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 11:53 PM UTC  - :tv:直播](/content/gettr/p1hbpej779c.md)
-
-7/6/2022 Miles Guo: Breaking! It was Alvin Jiang, Zeng Qinghong, Wang Qishan, Meng Jianzhu, and Sun Lijun who leaked the data from the Shanghai National Police database. Their purpose was to undermine their common enemy - Xi Jinpin...
-
-<img src="https://media.gettr.com/group44/getter/2022/07/06/23/848ebc78-002b-c7aa-4ded-7734bd6ed852/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1hc5kqdbf3.md)
-
-07.06.2022 PM NFSC News  Urgent recall on CCP virus vaccine in face of at least 40,000 deaths
-
-<img src="https://media.gettr.com/group20/origin/2022/07/06/23/3639dfac-9ec5-3616-8972-d585642043b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/6/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1hcdyl0c58.md)
-
-7/6/2022 Miles Guo: The data leak proves that China's population is only 1 billion, not the 1.4 billion claimed by the CCP, which is consistent with the information exposed by the New Federal State of China earlier. It indicates th...
-
-<img src="https://media.gettr.com/group15/getter/2022/07/06/22/0915be30-8f5a-c61d-dea5-220ca21aae18/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/07/07/21/e14ed6f4-fcf2-5653-9d7c-a5b9fd3295fa/out.jpg" width="506" height="284">
 
 ---
 
