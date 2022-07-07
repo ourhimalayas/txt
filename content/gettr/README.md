@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/7/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1hg0l299fb.md)
+
+2022-7-7 《避风港》（69）为人类繁衍，拒绝儿童新冠疫苗
+
+<img src="https://media.gettr.com/group23/origin/2022/07/07/18/9c8c0525-8b97-927b-b28d-8eb5691ca0dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1herq5e9b0.md)
 
 2022.07.07 文贵大直播精华版
@@ -130,11 +138,11 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 
 ---
 
-[@miles 7/7/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1hg0l299fb.md)
+[@miles 7/7/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hftzv6f01.md)
 
-2022-7-7 《避风港》（69）为人类繁衍，拒绝儿童新冠疫苗
+2022.07.07 新中国联邦 | 喜健康  《健康生活》回应七哥：提起爸爸，我也想哭。中共利用中国男人吸烟得癌症来吸血；如何正念生活。
 
-<img src="https://media.gettr.com/group23/origin/2022/07/07/18/9c8c0525-8b97-927b-b28d-8eb5691ca0dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/06/14/20/744949ca-d21a-43ac-a030-b28a61c93dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ A hacker recently claimed to have acquired more than 23 TB data from Shanghai pu
 7/6/2022 Miles Guo: The data leak proves that China's population is only 1 billion, not the 1.4 billion claimed by the CCP, which is consistent with the information exposed by the New Federal State of China earlier. It indicates th...
 
 <img src="https://media.gettr.com/group15/getter/2022/07/06/22/0915be30-8f5a-c61d-dea5-220ca21aae18/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/6/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1hbnjo41db.md)
-
-7/6/2022 Miles Guo: The Americans are awakened by us. They are very clear that the United States would not be safe as long as the CCP still exists. Now it is the lull before the storm. The US will lower the CCP's guard and then pro...
-
-<img src="https://media.gettr.com/group9/getter/2022/07/06/22/b43c8a78-dfd8-fdf8-c946-8fc3f9acf8dc/out.jpg" width="506" height="284">
 
 ---
 
