@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/8/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1hj3me0114.md)
+
+2022.07.08 新中国联邦 | 军情室 谈东北兴衰
+
+<img src="https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 3:02 AM UTC ](/content/gettr/p1hhg812d1b.md)
 
 7月7号：安倍在奈良的选举演说中遭到枪击，现在心脏停止状态。这是真的吗？
@@ -14,11 +22,11 @@ https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
 
 ---
 
-[@miles 7/8/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1hj3me0114.md)
+[@miles 7/8/2022 11:34 AM UTC  - :tv:直播](/content/gettr/p1hjior4c6e.md)
 
-2022.07.08 新中国联邦 | 军情室 谈东北兴衰
+20220708ＮＦＳＣニュース 安倍元首相が銃撃を受け死亡
 
-<img src="https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/07/08/11/13477af8-ecea-2697-dba9-82969d72b098/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English: gettr.com/post/p1hgjce83f3
 For English: gettr.com/post/p1hgjce83f3
 
 <img src="https://media.gettr.com/group49/origin/2022/07/07/22/0cb633dd-f042-e202-0625-edf0db6ae260/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 9:18 PM UTC  - :tv:直播](/content/gettr/p1hg060f3fa.md)
-
-7/6/2022 Miles Guo: From the 1920s-1940s, the once affluent and advanced northeastern provinces of China were betrayed by the world again and again, and the northeasterners became the victims of the savage looting from the former S...
-
-<img src="https://media.gettr.com/group45/getter/2022/07/07/21/ecc72c12-8cbe-9e9f-fa87-f9bd484fc49e/out.jpg" width="506" height="284">
 
 ---
 
