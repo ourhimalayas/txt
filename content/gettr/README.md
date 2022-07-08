@@ -12,11 +12,11 @@ GFASHION尺码选择分享（1080P）
 
 ---
 
-[@miles 7/8/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p1hk19s9a7a.md)
+[@miles 7/8/2022 8:28 PM UTC  - :tv:直播](/content/gettr/p1hkp56b1fa.md)
 
 GCLUBS会员线下体验 
 
-现场试穿GFASHION （1080P）
+GFASHION尺码选择分享（1080P）
 
 <img src="https://media.gettr.com/group18/origin/2022/07/08/14/bd7b9918-bfee-943d-be06-2cf2f89c3176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -29,6 +29,16 @@ GCLUBS会员线下体验
 GFASHION尺码选择分享  （4K）
 
 <img src="https://media.gettr.com/group38/origin/2022/07/08/14/d2a90d48-c9ff-34f3-a8d2-e0af84870820/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p1hk19s9a7a.md)
+
+GCLUBS会员线下体验 
+
+现场试穿GFASHION （1080P）
+
+<img src="https://media.gettr.com/group18/origin/2022/07/08/14/bd7b9918-bfee-943d-be06-2cf2f89c3176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 他在 Instagram 上面拥有12.2 M 的粉丝 ❤️❤️❤️❤️❤️❤️🤩🤩🤩🤩🤩🤩🤩🤩�...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/08/00/b1acdb02-b314-7c12-dd24-40a2974bd01a/45de3143fba31b924dc5c6cac8b41c5c.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1hh0bgfe45.md)
-
-7/6/2022 Miles Guo: This recent data leak of one billion Chinese people’s information is a smart move by Zeng Qinghong and Meng Jianzhu to target Xi Jinping; the overseas Chinese will soon face all kinds of problems and risks creat...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/07/23/2b4fead6-d284-8f66-50af-c825cd92abe9/out.jpg" width="506" height="284">
 
 ---
 
