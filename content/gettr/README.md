@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/8/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1hitesa7d7.md)
+
+2022.07.08 早 新中国联邦 | 新闻访谈  美国司法部渎职，谁是背后黑手（文贵先生个人破产案)  日本前首相安倍在演讲中被枪杀身亡  英国首相辞职 接下来会发生什么？
+
+<img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1hjh8g8d82.md)
+
+2022.07.08 早 新中国联邦 ｜ 新闻  郭先生解读疫苗灾难后的另一挑战；美国驻港澳总领事谴责中共对香港的打压；墙内再爆金融危机丑闻；美军战机可在一小时内摧毁中共海军
+
+<img src="https://media.gettr.com/group6/origin/2022/07/08/12/68cb9a9d-48fe-fe1d-af56-24ec0fefe2ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1hin7i6e11.md)
 
 2022.07.08 AM NFSC news  GETTR and GNews Play Different Roles in Taking down the CCP
@@ -38,11 +54,11 @@ https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
 
 ---
 
-[@miles 7/8/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1hjh8g8d82.md)
+[@miles 7/8/2022 1:09 PM UTC ](/content/gettr/p1hjh3rb0d1.md)
 
-2022.07.08 早 新中国联邦 ｜ 新闻  郭先生解读疫苗灾难后的另一挑战；美国驻港澳总领事谴责中共对香港的打压；墙内再爆金融危机丑闻；美军战机可在一小时内摧毁中共海军
+7月8号：尊敬的战友们好．太多战友给我发信息．关于前日本首相安倍先生被刺杀一事希望我能直播一下……我马上开始直播．只能半小时。【从日本安倍被杀害看中国人的人性……和智商。】
 
-<img src="https://media.gettr.com/group6/origin/2022/07/08/12/68cb9a9d-48fe-fe1d-af56-24ec0fefe2ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/07/08/13/20738d8e-bbd1-9615-3043-27fef5f6bfed/fe0c43e797be01471695429a465b71bd.jpg" width="506" height="284">
 
 ---
 
@@ -163,26 +179,6 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 7/6/2022 文贵直播：泄露的数据证明中...
 
 <img src="https://media.gettr.com/group38/getter/2022/07/07/22/52f1a0ff-9ee6-ef1d-884b-078976a6477e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1hg548225e.md)
-
-（4K版）飞飞秀 《数据安全》2022-07-07
-
-For English: gettr.com/post/p1hgjce83f3
-
-<img src="https://media.gettr.com/group42/origin/2022/07/07/22/59b13f57-2114-f553-bb63-20c3eb6491e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1hg19j1928.md)
-
-(1080版) 飞飞秀 《数据安全》2022-07-07
-
-For English: gettr.com/post/p1hgjce83f3
-
-<img src="https://media.gettr.com/group49/origin/2022/07/07/22/0cb633dd-f042-e202-0625-edf0db6ae260/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
