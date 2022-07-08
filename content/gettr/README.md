@@ -14,11 +14,29 @@ https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
 
 ---
 
+[@miles 7/8/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1hj3me0114.md)
+
+2022.07.08 新中国联邦 | 军情室 谈东北兴衰
+
+<img src="https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1hh759cea6.md)
 
 2022-7-7《鸡血王喜币大作战》 第二百四十九集 嘉宾：无双柳薇薇、风雨之中
 
 <img src="https://media.gettr.com/group17/origin/2022/07/08/03/e0d2a9aa-05c7-547a-d455-ea6bc2c52744/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 3:14 AM UTC  - 2圖](/content/gettr/p1hhjb56828.md)
+
+7月7号：为什么美国司法部又一次的创造美国上历史的第一次发生这样渎职……故意任用利益冲突的人做我的信托人？
+
+刚任命的信托人是在中国有着巨大的利益PAG长期合作的伙伴，这简直是疯狂了……没有天理了……共产党真的控制美国司法部吗？为什么与共产党腐败的一个又一个案子……如要把我遣返和打官司中的一个又一个的不正常的司法程序。都是从美国司法部开始的呢，到底谁是背后的黑手呢？是什么原因呢？【七哥在康州的个人破产案，被康州法庭受理后，法庭为七哥指定七哥个人财产监督人如果...
+
+<img src="https://media.gettr.com/group22/getter/2022/07/08/03/2a0165e2-682a-6754-9dce-0089feaab229/0a37cf92496bca7a1fde04578469cce6.jpg" width="506" height="284">
 
 ---
 
@@ -77,16 +95,6 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 2022.07.07 NFSC Fringe   Breaking! Largest data breach in history, 1 Billion Chinese date leaked
 
 <img src="https://media.gettr.com/group8/origin/2022/07/07/23/a4eb93e8-581a-cb27-574a-661373f9376b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 3:14 AM UTC  - 2圖](/content/gettr/p1hhjb56828.md)
-
-7月7号：为什么美国司法部又一次的创造美国上历史的第一次发生这样渎职……故意任用利益冲突的人做我的信托人？
-
-刚任命的信托人是在中国有着巨大的利益PAG长期合作的伙伴，这简直是疯狂了……没有天理了……共产党真的控制美国司法部吗？为什么与共产党腐败的一个又一个案子……如要把我遣返和打官司中的一个又一个的不正常的司法程序。都是从美国司法部开始的呢，到底谁是背后的黑手呢？是什么原因呢？【七哥在康州的个人破产案，被康州法庭受理后，法庭为七哥指定七哥个人财产监督人如果...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/08/03/2a0165e2-682a-6754-9dce-0089feaab229/0a37cf92496bca7a1fde04578469cce6.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ For English: gettr.com/post/p1hgjce83f3
 For English: gettr.com/post/p1hgjce83f3
 
 <img src="https://media.gettr.com/group49/origin/2022/07/07/22/0cb633dd-f042-e202-0625-edf0db6ae260/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1hfrmp4ba2.md)
-
-7/6/2022 Miles Guo: In order to ensure its political security, the CCP has turned the three Northeastern Provinces into agricultural provinces and ruined the farmland, water resources, and mountains of Northeast China. The industri...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/07/21/947ed6d8-77cf-9382-e8ee-7c6206f50822/out.jpg" width="506" height="284">
 
 ---
 
