@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/8/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1hlf608535.md)
+
+7/8/2022 Miles Guo: PAX and PAG managed to let the DOJ replace the trustee of my personal bankruptcy case with a person from Paul Hastings LLP, which works for PAG. This once again shows the Americans the collusion between the CCP ...
+
+<img src="https://media.gettr.com/group16/getter/2022/07/08/23/6ffd7372-a49d-fe72-5659-097e8bee6d10/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1hlo2j73b7.md)
+
+2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
+
+<img src="https://media.gettr.com/group18/origin/2022/02/21/02/0973bb1b-cce8-eb39-aea6-b848d5deb9e9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1hlmr281a5.md)
 
 2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
@@ -18,11 +34,11 @@ https://www.cnbc.com/2022/07/08/elon-musk-notifies-twitter-he-is-terminating-dea
 
 ---
 
-[@miles 7/8/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1hlo2j73b7.md)
+[@miles 7/8/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1hltxgbbab.md)
 
-2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
+2022.07.08  NFSC fringe  Episode 225 Former Japan PM Abe Assassinated 
 
-<img src="https://media.gettr.com/group18/origin/2022/02/21/02/0973bb1b-cce8-eb39-aea6-b848d5deb9e9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/07/08/23/03797bb9-2890-8945-f830-79309f5c243d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,24 +171,6 @@ GCLUBS会员线下体验
 20220708ＮＦＳＣニュース 安倍元首相が銃撃を受け死亡
 
 <img src="https://media.gettr.com/group17/origin/2022/07/08/11/13477af8-ecea-2697-dba9-82969d72b098/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1hj3me0114.md)
-
-2022.07.08 新中国联邦 | 军情室 谈东北兴衰
-
-<img src="https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 3:14 AM UTC  - 2圖](/content/gettr/p1hhjb56828.md)
-
-7月7号：为什么美国司法部又一次的创造美国上历史的第一次发生这样渎职……故意任用利益冲突的人做我的信托人？
-
-刚任命的信托人是在中国有着巨大的利益PAG长期合作的伙伴，这简直是疯狂了……没有天理了……共产党真的控制美国司法部吗？为什么与共产党腐败的一个又一个案子……如要把我遣返和打官司中的一个又一个的不正常的司法程序。都是从美国司法部开始的呢，到底谁是背后的黑手呢？是什么原因呢？【七哥在康州的个人破产案，被康州法庭受理后，法庭为七哥指定七哥个人财产监督人如果...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/08/03/2a0165e2-682a-6754-9dce-0089feaab229/0a37cf92496bca7a1fde04578469cce6.jpg" width="506" height="284">
 
 ---
 
