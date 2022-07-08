@@ -2,6 +2,36 @@
 ---
 
 
+[@miles 7/8/2022 3:02 AM UTC ](/content/gettr/p1hhg812d1b.md)
+
+7月7号：安倍在奈良的选举演说中遭到枪击，现在心脏停止状态。这是真的吗？
+
+
+
+
+
+https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
+
+---
+
+[@miles 7/8/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1hh759cea6.md)
+
+2022-7-7《鸡血王喜币大作战》 第二百四十九集 嘉宾：无双柳薇薇、风雨之中
+
+<img src="https://media.gettr.com/group17/origin/2022/07/08/03/e0d2a9aa-05c7-547a-d455-ea6bc2c52744/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h316w47a0.md)
+
+（1080版）飞飞秀 《郭先生破产案》 2022-07-04
+
+For English： gettr.com/post/p1h3w8pee4f
+
+<img src="https://media.gettr.com/group13/origin/2022/07/04/22/48d42910-d55d-3892-de38-977f6f957738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1hh6l963bf.md)
 
 2022.07.07  新中国联邦 ｜ 喜财经  第102期  中共国信托的资产20万亿资金，多少吸入房地产黑洞
@@ -50,13 +80,13 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 
 ---
 
-[@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h316w47a0.md)
+[@miles 7/8/2022 3:14 AM UTC  - 2圖](/content/gettr/p1hhjb56828.md)
 
-（1080版）飞飞秀 《郭先生破产案》 2022-07-04
+7月7号：为什么美国司法部又一次的创造美国上历史的第一次发生这样渎职……故意任用利益冲突的人做我的信托人？
 
-For English： gettr.com/post/p1h3w8pee4f
+刚任命的信托人是在中国有着巨大的利益PAG长期合作的伙伴，这简直是疯狂了……没有天理了……共产党真的控制美国司法部吗？为什么与共产党腐败的一个又一个案子……如要把我遣返和打官司中的一个又一个的不正常的司法程序。都是从美国司法部开始的呢，到底谁是背后的黑手呢？是什么原因呢？【七哥在康州的个人破产案，被康州法庭受理后，法庭为七哥指定七哥个人财产监督人如果...
 
-<img src="https://media.gettr.com/group13/origin/2022/07/04/22/48d42910-d55d-3892-de38-977f6f957738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/07/08/03/2a0165e2-682a-6754-9dce-0089feaab229/0a37cf92496bca7a1fde04578469cce6.jpg" width="506" height="284">
 
 ---
 
@@ -156,30 +186,6 @@ For English: gettr.com/post/p1hgjce83f3
 7/6/2022 Mile Guo: The Northeasterners were among the first in China to be enlightened by western democracy and civilization; why has the CCP been vilifying and suppressing the Northeasterners? Because the CCP worries that the brav...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/07/21/e14ed6f4-fcf2-5653-9d7c-a5b9fd3295fa/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1hftzv6f01.md)
-
-2022.07.07 新中国联邦 | 喜健康  《健康生活》回应七哥：提起爸爸，我也想哭。中共利用中国男人吸烟得癌症来吸血；如何正念生活。
-
-<img src="https://media.gettr.com/group42/origin/2022/06/14/20/744949ca-d21a-43ac-a030-b28a61c93dc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 6:31 PM UTC  - :tv:直播](/content/gettr/p1hg0l299fb.md)
-
-2022-7-7 《避风港》（69）为人类繁衍，拒绝儿童新冠疫苗
-
-<img src="https://media.gettr.com/group23/origin/2022/07/07/18/9c8c0525-8b97-927b-b28d-8eb5691ca0dc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1herq5e9b0.md)
-
-2022.07.07 文贵大直播精华版
-
-<img src="https://media.gettr.com/group44/origin/2022/07/07/15/459b7821-fa5b-1a6c-55ee-a26564249eab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
