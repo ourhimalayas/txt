@@ -2,17 +2,15 @@
 ---
 
 
-[@miles 7/8/2022 7:18 PM UTC  - :tv:直播](/content/gettr/p1hkmyia9e5.md)
+[@miles 7/7/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1hh0bgfe45.md)
 
-GCLUBS会员线下体验 
+7/6/2022 Miles Guo: This recent data leak of one billion Chinese people’s information is a smart move by Zeng Qinghong and Meng Jianzhu to target Xi Jinping; the overseas Chinese will soon face all kinds of problems and risks creat...
 
-GFASHION尺码选择分享（1080P）
-
-<img src="https://media.gettr.com/group18/origin/2022/07/08/14/bd7b9918-bfee-943d-be06-2cf2f89c3176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/07/07/23/2b4fead6-d284-8f66-50af-c825cd92abe9/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 7/8/2022 8:28 PM UTC  - :tv:直播](/content/gettr/p1hkp56b1fa.md)
+[@miles 7/8/2022 7:18 PM UTC  - :tv:直播](/content/gettr/p1hkmyia9e5.md)
 
 GCLUBS会员线下体验 
 
