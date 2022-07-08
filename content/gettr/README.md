@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/8/2022 11:34 AM UTC  - :tv:直播](/content/gettr/p1hjior4c6e.md)
+
+20220708ＮＦＳＣニュース 安倍元首相が銃撃を受け死亡
+
+<img src="https://media.gettr.com/group17/origin/2022/07/08/11/13477af8-ecea-2697-dba9-82969d72b098/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p1hj3me0114.md)
 
 2022.07.08 新中国联邦 | 军情室 谈东北兴衰
@@ -22,11 +30,11 @@ https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
 
 ---
 
-[@miles 7/8/2022 11:34 AM UTC  - :tv:直播](/content/gettr/p1hjior4c6e.md)
+[@miles 7/8/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1hin7i6e11.md)
 
-20220708ＮＦＳＣニュース 安倍元首相が銃撃を受け死亡
+2022.07.08 AM NFSC news  GETTR and GNews Play Different Roles in Taking down the CCP
 
-<img src="https://media.gettr.com/group17/origin/2022/07/08/11/13477af8-ecea-2697-dba9-82969d72b098/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/07/08/12/d7941a7e-dbe9-98ec-866b-852f48308bc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,17 +175,6 @@ For English: gettr.com/post/p1hgjce83f3
 For English: gettr.com/post/p1hgjce83f3
 
 <img src="https://media.gettr.com/group49/origin/2022/07/07/22/0cb633dd-f042-e202-0625-edf0db6ae260/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 9:22 PM UTC  - :tv:直播](/content/gettr/p1hgd3k36ea.md)
-
-7/6/2022 Miles Guo: The data leak from the Shanghai National Police database is definitely done by insiders! This is why our Whistleblowers’ Movement has been advocating the strategy of “taking down the CCP with the CCP itself”!
-
-
-...
-
-<img src="https://media.gettr.com/group19/getter/2022/07/07/21/d79c6703-ddcc-40ff-c243-a9e0fcc8c3bc/out.jpg" width="506" height="284">
 
 ---
 
