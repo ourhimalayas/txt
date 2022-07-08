@@ -2,6 +2,12 @@
 ---
 
 
+[@xiaojiaozi 7/8/2022 12:08 AM UTC ](/content/gettr/c18ivtt7dd7.md)
+
+🔥🔥🔥
+
+---
+
 [@miles 7/7/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1hgtp5700d.md)
 
 2022.07.07 NFSC Fringe   Breaking! Largest data breach in history, 1 Billion Chinese date leaked
@@ -10,9 +16,19 @@
 
 ---
 
-[@xiaojiaozi 7/8/2022 12:08 AM UTC ](/content/gettr/c18ivtt7dd7.md)
+[@miles 7/8/2022 12:15 AM UTC  - 4圖](/content/gettr/p1hgw8s8563.md)
 
-🔥🔥🔥
+Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Montería出生和长大，13岁时开始做音乐。他凭借单曲《Una Lady Como Tú》(2016年)走红。2019年8月23日，他发行了首张专辑《ADN》
+
+
+
+他在演唱会上穿上了#G| Fashion 的新款牛仔系列，上面有着我们新中国联邦的图腾——信仰之星
+
+
+
+他在 Instagram 上面拥有12.2 M 的粉丝 ❤️❤️❤️❤️❤️❤️🤩🤩🤩🤩🤩🤩🤩🤩�...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/08/00/b1acdb02-b314-7c12-dd24-40a2974bd01a/45de3143fba31b924dc5c6cac8b41c5c.jpg" width="506" height="284">
 
 ---
 
@@ -160,14 +176,6 @@ MILES GUO 直播 2022-07-07
 2022.07.07 早 新中国联邦｜新闻 中共减少的人口相当于一个美国消失；上海帮曝光中共公安大数据 以共灭共走向高潮；美国FBI与英国MI5领袖首次同场警告中共；以人为本体制设计和民主人工智能实验
 
 <img src="https://media.gettr.com/group39/origin/2022/07/07/12/3d01eb79-94a8-5189-ff80-de5603e98bf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 12:02 PM UTC  - :tv:直播](/content/gettr/p1hdtuz5336.md)
-
-2022.07.07 AM NFSC news  Hebei's new police chief of CCP dies of sudden illness
-
-<img src="https://media.gettr.com/group31/origin/2022/07/07/12/6cdc312e-baeb-1245-ce9a-632bb61ad26d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
