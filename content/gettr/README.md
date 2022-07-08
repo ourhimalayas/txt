@@ -2,11 +2,13 @@
 ---
 
 
-[@miles 7/8/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1hitesa7d7.md)
+[@miles 7/8/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p1hk19s9a7a.md)
 
-2022.07.08 早 新中国联邦 | 新闻访谈  美国司法部渎职，谁是背后黑手（文贵先生个人破产案)  日本前首相安倍在演讲中被枪杀身亡  英国首相辞职 接下来会发生什么？
+GCLUBS会员线下体验 
 
-<img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+现场试穿GFASHION （1080P）
+
+<img src="https://media.gettr.com/group18/origin/2022/07/08/14/bd7b9918-bfee-943d-be06-2cf2f89c3176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,24 @@
 从日本安倍被杀害看中国人的人性……和智商。
 
 <img src="https://media.gettr.com/group16/origin/2022/07/08/13/c308cbc5-f926-d119-aeb0-a2fa9ef5179c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1hitesa7d7.md)
+
+2022.07.08 早 新中国联邦 | 新闻访谈  美国司法部渎职，谁是背后黑手（文贵先生个人破产案)  日本前首相安倍在演讲中被枪杀身亡  英国首相辞职 接下来会发生什么？
+
+<img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1hjv67ba18.md)
+
+GCLUBS会员线下体验 
+
+现场试穿GFASHION  （4K）
+
+<img src="https://media.gettr.com/group38/origin/2022/07/08/14/d2a90d48-c9ff-34f3-a8d2-e0af84870820/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,26 +179,6 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 7月7号：这些机械战士的现代化武器……第一次大规模的军事行动使用的战场……可能是……中共侵略台湾的战斗中……【Unitree Go1 是新一代机器狗，速度可达 17 公里/小时，具有自适应关节和智能侧跟随系统。这是 Unitree 工厂的大规模测试】
 
 <img src="https://media.gettr.com/group10/getter/2022/07/07/23/2a3cfaa8-23a1-7bb3-7d62-9c31b31b0df7/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1hg84ae76e.md)
-
-2022.07.07 PM NFSC news  Scottish Government Demands Removal of CCP Surveillance Equipment
-
-<img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/7/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p1hgbre8cd2.md)
-
-7/6/2022 Miles Guo: The data leak proves that China’s population is only 1 billion, which is consistent with what we exposed earlier. It indicates that data previously published by Communist China is fake!
-
-
-
-7/6/2022 文贵直播：泄露的数据证明中...
-
-<img src="https://media.gettr.com/group38/getter/2022/07/07/22/52f1a0ff-9ee6-ef1d-884b-078976a6477e/out.jpg" width="506" height="284">
 
 ---
 
