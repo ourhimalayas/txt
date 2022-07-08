@@ -2,9 +2,35 @@
 ---
 
 
+[@miles 7/8/2022 10:49 PM UTC ](/content/gettr/p1hl7r66c2d.md)
+
+7月8号：咋又让七哥蒙对了呢？Elon Musk notifies Twitter he is terminating deal
+
+https://www.cnbc.com/2022/07/08/elon-musk-notifies-twitter-he-is-terminating-deal.html?__source=iosappshare%7Ccom.apple.UIKit.activity.CopyToPasteboard
+
+---
+
 [@miles 7/8/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1hla4q5ea4.md)
 
 (1080版) 飞飞秀 《利益冲突·第一篇》2022-07-08
+
+For English： gettr.com/post/p1hkkrt248a
+
+<img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 10:56 PM UTC ](/content/gettr/p1hlqg85a0e.md)
+
+ 7月8号：尊敬的战友们好……共产党在美国司法系统的渗透……最终会通过。我们新中国联邦……将他们挖掘出来，不管他们多狡猾，不管他们有多狡诈，他们已经犯下了天大的错误，……出具无法逆转的谎言和誓言文件，这是对美国人和对所有爱护和尊重美国法律公平的人的侮辱……
+
+<img src="https://media.gettr.com/group8/getter/2022/07/08/18/0699e70d-caee-8e82-888a-6bd500b07d91/1c4218b9bc52989b19472c1ffda173d2.jpg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1hlbtz987d.md)
+
+(4K版) 飞飞秀 《利益冲突·第一篇》2022-07-08
 
 For English： gettr.com/post/p1hkkrt248a
 
@@ -17,16 +43,6 @@ For English： gettr.com/post/p1hkkrt248a
 7/8/2022 Miles Guo: Based on the information we have collected so far, there must be some stories behind the assassination of Shinzo Abe, and the assassinator's motive is absolutely not as simple as what he claimed. I will keep a c...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/08/21/acaf1405-1e97-8a08-a6c2-1fdf979918e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1hlbtz987d.md)
-
-(4K版) 飞飞秀 《利益冲突·第一篇》2022-07-08
-
-For English： gettr.com/post/p1hkkrt248a
-
-<img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,24 +177,6 @@ https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
 刚任命的信托人是在中国有着巨大的利益PAG长期合作的伙伴，这简直是疯狂了……没有天理了……共产党真的控制美国司法部吗？为什么与共产党腐败的一个又一个案子……如要把我遣返和打官司中的一个又一个的不正常的司法程序。都是从美国司法部开始的呢，到底谁是背后的黑手呢？是什么原因呢？【七哥在康州的个人破产案，被康州法庭受理后，法庭为七哥指定七哥个人财产监督人如果...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/08/03/2a0165e2-682a-6754-9dce-0089feaab229/0a37cf92496bca7a1fde04578469cce6.jpg" width="506" height="284">
-
----
-
-[@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h316w47a0.md)
-
-（1080版）飞飞秀 《郭先生破产案》 2022-07-04
-
-For English： gettr.com/post/p1h3w8pee4f
-
-<img src="https://media.gettr.com/group13/origin/2022/07/04/22/48d42910-d55d-3892-de38-977f6f957738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1hh6l963bf.md)
-
-2022.07.07  新中国联邦 ｜ 喜财经  第102期  中共国信托的资产20万亿资金，多少吸入房地产黑洞
-
-<img src="https://media.gettr.com/group18/origin/2022/07/08/02/498278a7-ddb1-ec77-9082-e14fd44ae9b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
