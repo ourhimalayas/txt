@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 7/7/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1hh0bgfe45.md)
+[@miles 7/8/2022 9:45 PM UTC  - :tv:直播](/content/gettr/p1hl7wk6555.md)
 
-7/6/2022 Miles Guo: This recent data leak of one billion Chinese people’s information is a smart move by Zeng Qinghong and Meng Jianzhu to target Xi Jinping; the overseas Chinese will soon face all kinds of problems and risks creat...
+7/8/2022 Miles Guo: Based on the information we have collected so far, there must be some stories behind the assassination of Shinzo Abe, and the assassinator's motive is absolutely not as simple as what he claimed. I will keep a c...
 
-<img src="https://media.gettr.com/group22/getter/2022/07/07/23/2b4fead6-d284-8f66-50af-c825cd92abe9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/07/08/21/acaf1405-1e97-8a08-a6c2-1fdf979918e9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1hldlx9ba3.md)
+
+7/3/2022 Miles Guo: The legal system in the US is not absolutely fair, but it gives everyone a chance to speak; however in Communist China, have you seen any of the 5 million detained CCP members able to speak up? Therefore I am co...
+
+<img src="https://media.gettr.com/group34/getter/2022/07/08/21/09139f2b-7b9b-5618-3d98-3f7257840017/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +175,6 @@ For English： gettr.com/post/p1h3w8pee4f
 2022.07.07 晚 新中国联邦 ｜ 新闻  中共蓄意打压 东北至此没落；爆料革命成功唤醒美国 以美灭共迈向新征程；盖特首席技术官畅谈盖特新功能；拒绝给儿童接种中共病毒疫苗的八大理由
 
 <img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 12:15 AM UTC  - 4圖](/content/gettr/p1hgw8s8563.md)
-
-Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Montería出生和长大，13岁时开始做音乐。他凭借单曲《Una Lady Como Tú》(2016年)走红。2019年8月23日，他发行了首张专辑《ADN》
-
-
-
-他在演唱会上穿上了#G| Fashion 的新款牛仔系列，上面有着我们新中国联邦的图腾——信仰之星
-
-
-
-他在 Instagram 上面拥有12.2 M 的粉丝 ❤️❤️❤️❤️❤️❤️🤩🤩🤩🤩🤩🤩🤩🤩�...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/08/00/b1acdb02-b314-7c12-dd24-40a2974bd01a/45de3143fba31b924dc5c6cac8b41c5c.jpg" width="506" height="284">
 
 ---
 
