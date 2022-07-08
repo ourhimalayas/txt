@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/8/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1hispn7366.md)
+
+从日本安倍被杀害看中国人的人性……和智商。
+
+<img src="https://media.gettr.com/group16/origin/2022/07/08/13/c308cbc5-f926-d119-aeb0-a2fa9ef5179c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 1:09 PM UTC ](/content/gettr/p1hjh3rb0d1.md)
+
+7月8号：尊敬的战友们好．太多战友给我发信息．关于前日本首相安倍先生被刺杀一事希望我能直播一下……我马上开始直播．只能半小时。【从日本安倍被杀害看中国人的人性……和智商。】
+
+<img src="https://media.gettr.com/group40/getter/2022/07/08/13/20738d8e-bbd1-9615-3043-27fef5f6bfed/fe0c43e797be01471695429a465b71bd.jpg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1hjh8g8d82.md)
 
 2022.07.08 早 新中国联邦 ｜ 新闻  郭先生解读疫苗灾难后的另一挑战；美国驻港澳总领事谴责中共对香港的打压；墙内再爆金融危机丑闻；美军战机可在一小时内摧毁中共海军
@@ -51,14 +67,6 @@
 
 
 https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
-
----
-
-[@miles 7/8/2022 1:09 PM UTC ](/content/gettr/p1hjh3rb0d1.md)
-
-7月8号：尊敬的战友们好．太多战友给我发信息．关于前日本首相安倍先生被刺杀一事希望我能直播一下……我马上开始直播．只能半小时。【从日本安倍被杀害看中国人的人性……和智商。】
-
-<img src="https://media.gettr.com/group40/getter/2022/07/08/13/20738d8e-bbd1-9615-3043-27fef5f6bfed/fe0c43e797be01471695429a465b71bd.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 2022.07.07 PM NFSC news  Scottish Government Demands Removal of CCP Surveillance Equipment
 
 <img src="https://media.gettr.com/group15/origin/2022/06/21/22/9d6746b2-0e51-0647-8ba6-3cd72b7543c7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/7/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p1hgn1x919b.md)
-
-7/06/2022 Miles Guo: Northeast China is just a place to exploit economically and something on their resume to shine; only the CCP is able to turn Northeast China, the origin of Hongshan Culture, into what it looks like today; the N...
-
-<img src="https://media.gettr.com/group5/getter/2022/07/07/22/e2af99f0-9292-d887-bd91-94bf428e22ba/out.jpg" width="506" height="284">
 
 ---
 
