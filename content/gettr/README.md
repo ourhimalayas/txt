@@ -2,11 +2,31 @@
 ---
 
 
+[@miles 7/8/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1hla4q5ea4.md)
+
+(1080版) 飞飞秀 《利益冲突·第一篇》2022-07-08
+
+For English： gettr.com/post/p1hkkrt248a
+
+<img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 9:45 PM UTC  - :tv:直播](/content/gettr/p1hl7wk6555.md)
 
 7/8/2022 Miles Guo: Based on the information we have collected so far, there must be some stories behind the assassination of Shinzo Abe, and the assassinator's motive is absolutely not as simple as what he claimed. I will keep a c...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/08/21/acaf1405-1e97-8a08-a6c2-1fdf979918e9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1hlbtz987d.md)
+
+(4K版) 飞飞秀 《利益冲突·第一篇》2022-07-08
+
+For English： gettr.com/post/p1hkkrt248a
+
+<img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,22 +179,6 @@ For English： gettr.com/post/p1h3w8pee4f
 2022.07.07  新中国联邦 ｜ 喜财经  第102期  中共国信托的资产20万亿资金，多少吸入房地产黑洞
 
 <img src="https://media.gettr.com/group18/origin/2022/07/08/02/498278a7-ddb1-ec77-9082-e14fd44ae9b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/8/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1hgy6u868f.md)
-
-2022.07.07 晚 新中国联邦 ｜ 新闻访谈  上海公安十亿人口泄漏数据分析，以共灭共-会有更多故意数据泄漏！美國勸阿斯麥不要向中國出口DUV光刻機
-
-<img src="https://media.gettr.com/group26/origin/2022/07/08/01/9bff5d8d-7ccc-ebe3-5c4f-89e88c5fa4d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/8/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1hguvf9737.md)
-
-2022.07.07 晚 新中国联邦 ｜ 新闻  中共蓄意打压 东北至此没落；爆料革命成功唤醒美国 以美灭共迈向新征程；盖特首席技术官畅谈盖特新功能；拒绝给儿童接种中共病毒疫苗的八大理由
-
-<img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
