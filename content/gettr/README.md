@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/8/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1hin7i6e11.md)
+
+2022.07.08 AM NFSC news  GETTR and GNews Play Different Roles in Taking down the CCP
+
+<img src="https://media.gettr.com/group17/origin/2022/07/08/12/d7941a7e-dbe9-98ec-866b-852f48308bc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 11:34 AM UTC  - :tv:直播](/content/gettr/p1hjior4c6e.md)
 
 20220708ＮＦＳＣニュース 安倍元首相が銃撃を受け死亡
@@ -30,11 +38,11 @@ https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
 
 ---
 
-[@miles 7/8/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1hin7i6e11.md)
+[@miles 7/8/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1hjh8g8d82.md)
 
-2022.07.08 AM NFSC news  GETTR and GNews Play Different Roles in Taking down the CCP
+2022.07.08 早 新中国联邦 ｜ 新闻  郭先生解读疫苗灾难后的另一挑战；美国驻港澳总领事谴责中共对香港的打压；墙内再爆金融危机丑闻；美军战机可在一小时内摧毁中共海军
 
-<img src="https://media.gettr.com/group17/origin/2022/07/08/12/d7941a7e-dbe9-98ec-866b-852f48308bc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/07/08/12/68cb9a9d-48fe-fe1d-af56-24ec0fefe2ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ For English: gettr.com/post/p1hgjce83f3
 For English: gettr.com/post/p1hgjce83f3
 
 <img src="https://media.gettr.com/group49/origin/2022/07/07/22/0cb633dd-f042-e202-0625-edf0db6ae260/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1hfxe73287.md)
-
-7/6/2022 Mile Guo: The Northeasterners were among the first in China to be enlightened by western democracy and civilization; why has the CCP been vilifying and suppressing the Northeasterners? Because the CCP worries that the brav...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/07/21/e14ed6f4-fcf2-5653-9d7c-a5b9fd3295fa/out.jpg" width="506" height="284">
 
 ---
 
