@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/8/2022 7:18 PM UTC  - :tv:直播](/content/gettr/p1hkmyia9e5.md)
+
+GCLUBS会员线下体验 
+
+GFASHION尺码选择分享（1080P）
+
+<img src="https://media.gettr.com/group18/origin/2022/07/08/14/bd7b9918-bfee-943d-be06-2cf2f89c3176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 2:55 PM UTC  - :tv:直播](/content/gettr/p1hk19s9a7a.md)
 
 GCLUBS会员线下体验 
@@ -9,6 +19,26 @@ GCLUBS会员线下体验
 现场试穿GFASHION （1080P）
 
 <img src="https://media.gettr.com/group18/origin/2022/07/08/14/bd7b9918-bfee-943d-be06-2cf2f89c3176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 7:18 PM UTC  - :tv:直播](/content/gettr/p1hl9xp8b14.md)
+
+GCLUBS会员线下体验 
+
+GFASHION尺码选择分享  （4K）
+
+<img src="https://media.gettr.com/group38/origin/2022/07/08/14/d2a90d48-c9ff-34f3-a8d2-e0af84870820/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1hjv67ba18.md)
+
+GCLUBS会员线下体验 
+
+现场试穿GFASHION  （4K）
+
+<img src="https://media.gettr.com/group38/origin/2022/07/08/14/d2a90d48-c9ff-34f3-a8d2-e0af84870820/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,16 +55,6 @@ GCLUBS会员线下体验
 2022.07.08 早 新中国联邦 | 新闻访谈  美国司法部渎职，谁是背后黑手（文贵先生个人破产案)  日本前首相安倍在演讲中被枪杀身亡  英国首相辞职 接下来会发生什么？
 
 <img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/8/2022 2:56 PM UTC  - :tv:直播](/content/gettr/p1hjv67ba18.md)
-
-GCLUBS会员线下体验 
-
-现场试穿GFASHION  （4K）
-
-<img src="https://media.gettr.com/group38/origin/2022/07/08/14/d2a90d48-c9ff-34f3-a8d2-e0af84870820/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -158,27 +178,11 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 
 ---
 
-[@miles 7/7/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1hgtp5700d.md)
-
-2022.07.07 NFSC Fringe   Breaking! Largest data breach in history, 1 Billion Chinese date leaked
-
-<img src="https://media.gettr.com/group8/origin/2022/07/07/23/a4eb93e8-581a-cb27-574a-661373f9376b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/7/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1hh0bgfe45.md)
 
 7/6/2022 Miles Guo: This recent data leak of one billion Chinese people’s information is a smart move by Zeng Qinghong and Meng Jianzhu to target Xi Jinping; the overseas Chinese will soon face all kinds of problems and risks creat...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/07/23/2b4fead6-d284-8f66-50af-c825cd92abe9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1hgjlm01c0.md)
-
-7月7号：这些机械战士的现代化武器……第一次大规模的军事行动使用的战场……可能是……中共侵略台湾的战斗中……【Unitree Go1 是新一代机器狗，速度可达 17 公里/小时，具有自适应关节和智能侧跟随系统。这是 Unitree 工厂的大规模测试】
-
-<img src="https://media.gettr.com/group10/getter/2022/07/07/23/2a3cfaa8-23a1-7bb3-7d62-9c31b31b0df7/out.jpg" width="506" height="284">
 
 ---
 
