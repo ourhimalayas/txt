@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/8/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1hh6l963bf.md)
+
+2022.07.07  新中国联邦 ｜ 喜财经  第102期  中共国信托的资产20万亿资金，多少吸入房地产黑洞
+
+<img src="https://media.gettr.com/group18/origin/2022/07/08/02/498278a7-ddb1-ec77-9082-e14fd44ae9b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1hgy6u868f.md)
 
 2022.07.07 晚 新中国联邦 ｜ 新闻访谈  上海公安十亿人口泄漏数据分析，以共灭共-会有更多故意数据泄漏！美國勸阿斯麥不要向中國出口DUV光刻機
@@ -42,11 +50,13 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 
 ---
 
-[@miles 7/8/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1hh6l963bf.md)
+[@miles 7/4/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1h316w47a0.md)
 
-2022.07.07  新中国联邦 ｜ 喜财经  第102期  中共国信托的资产20万亿资金，多少吸入房地产黑洞
+（1080版）飞飞秀 《郭先生破产案》 2022-07-04
 
-<img src="https://media.gettr.com/group18/origin/2022/07/08/02/498278a7-ddb1-ec77-9082-e14fd44ae9b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+For English： gettr.com/post/p1h3w8pee4f
+
+<img src="https://media.gettr.com/group13/origin/2022/07/04/22/48d42910-d55d-3892-de38-977f6f957738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -170,14 +180,6 @@ For English: gettr.com/post/p1hgjce83f3
 2022.07.07 文贵大直播精华版
 
 <img src="https://media.gettr.com/group44/origin/2022/07/07/15/459b7821-fa5b-1a6c-55ee-a26564249eab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1hea2h1a44.md)
-
-MILES GUO 直播 2022-07-07
-
-<img src="https://media.gettr.com/group9/getter/2022/07/07/14/d4d87332-96e6-7425-592b-64ef0c607738/dcab0b1e37d894f673f7ffdbb7aa980f.jpg" width="506" height="284">
 
 ---
 
