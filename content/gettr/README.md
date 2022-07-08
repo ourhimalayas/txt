@@ -10,13 +10,11 @@ https://www.cnbc.com/2022/07/08/elon-musk-notifies-twitter-he-is-terminating-dea
 
 ---
 
-[@miles 7/8/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1hla4q5ea4.md)
+[@miles 7/8/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1hlmr281a5.md)
 
-(1080版) 飞飞秀 《利益冲突·第一篇》2022-07-08
+2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
 
-For English： gettr.com/post/p1hkkrt248a
-
-<img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/02/21/02/0973bb1b-cce8-eb39-aea6-b848d5deb9e9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -25,6 +23,16 @@ For English： gettr.com/post/p1hkkrt248a
  7月8号：尊敬的战友们好……共产党在美国司法系统的渗透……最终会通过。我们新中国联邦……将他们挖掘出来，不管他们多狡猾，不管他们有多狡诈，他们已经犯下了天大的错误，……出具无法逆转的谎言和誓言文件，这是对美国人和对所有爱护和尊重美国法律公平的人的侮辱……
 
 <img src="https://media.gettr.com/group8/getter/2022/07/08/18/0699e70d-caee-8e82-888a-6bd500b07d91/1c4218b9bc52989b19472c1ffda173d2.jpg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1hla4q5ea4.md)
+
+(1080版) 飞飞秀 《利益冲突·第一篇》2022-07-08
+
+For English： gettr.com/post/p1hkkrt248a
+
+<img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -147,18 +155,6 @@ GCLUBS会员线下体验
 2022.07.08 新中国联邦 | 军情室 谈东北兴衰
 
 <img src="https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 3:02 AM UTC ](/content/gettr/p1hhg812d1b.md)
-
-7月7号：安倍在奈良的选举演说中遭到枪击，现在心脏停止状态。这是真的吗？
-
-
-
-
-
-https://news.yahoo.co.jp/articles/8478f07039f207068c8a73c510cbe7b44fecf74f
 
 ---
 
