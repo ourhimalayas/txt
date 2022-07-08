@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/8/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1hgy6u868f.md)
+
+2022.07.07 晚 新中国联邦 ｜ 新闻访谈  上海公安十亿人口泄漏数据分析，以共灭共-会有更多故意数据泄漏！美國勸阿斯麥不要向中國出口DUV光刻機
+
+<img src="https://media.gettr.com/group26/origin/2022/07/08/01/9bff5d8d-7ccc-ebe3-5c4f-89e88c5fa4d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1hguvf9737.md)
 
 2022.07.07 晚 新中国联邦 ｜ 新闻  中共蓄意打压 东北至此没落；爆料革命成功唤醒美国 以美灭共迈向新征程；盖特首席技术官畅谈盖特新功能；拒绝给儿童接种中共病毒疫苗的八大理由
@@ -34,11 +42,11 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 
 ---
 
-[@miles 7/8/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1hgy6u868f.md)
+[@miles 7/8/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1hh6l963bf.md)
 
-2022.07.07 晚 新中国联邦 ｜ 新闻访谈  上海公安十亿人口泄漏数据分析，以共灭共-会有更多故意数据泄漏！美國勸阿斯麥不要向中國出口DUV光刻機
+2022.07.07  新中国联邦 ｜ 喜财经  第102期  中共国信托的资产20万亿资金，多少吸入房地产黑洞
 
-<img src="https://media.gettr.com/group26/origin/2022/07/08/01/9bff5d8d-7ccc-ebe3-5c4f-89e88c5fa4d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/07/08/02/498278a7-ddb1-ec77-9082-e14fd44ae9b9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -170,14 +178,6 @@ For English: gettr.com/post/p1hgjce83f3
 MILES GUO 直播 2022-07-07
 
 <img src="https://media.gettr.com/group9/getter/2022/07/07/14/d4d87332-96e6-7425-592b-64ef0c607738/dcab0b1e37d894f673f7ffdbb7aa980f.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p1hejcs0935.md)
-
-2022.07.07 早 新中国联邦 | 新闻访谈  墙国AI监控党员忠诚度，金三胖开党会维稳；美国施压ASML扩大光刻机出口禁令；美FBI和英军情五处史上首次联合警示中共威胁；斯里兰卡破产.
-
-<img src="https://media.gettr.com/group14/origin/2022/04/09/12/6acce39b-ebf8-22ee-c497-b01d45163b10/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
