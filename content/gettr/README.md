@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/8/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1hlmr281a5.md)
+
+2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
+
+<img src="https://media.gettr.com/group18/origin/2022/02/21/02/0973bb1b-cce8-eb39-aea6-b848d5deb9e9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 10:49 PM UTC ](/content/gettr/p1hl7r66c2d.md)
 
 7月8号：咋又让七哥蒙对了呢？Elon Musk notifies Twitter he is terminating deal
@@ -10,7 +18,7 @@ https://www.cnbc.com/2022/07/08/elon-musk-notifies-twitter-he-is-terminating-dea
 
 ---
 
-[@miles 7/8/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1hlmr281a5.md)
+[@miles 7/8/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1hlo2j73b7.md)
 
 2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
 
@@ -155,14 +163,6 @@ GCLUBS会员线下体验
 2022.07.08 新中国联邦 | 军情室 谈东北兴衰
 
 <img src="https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1hh759cea6.md)
-
-2022-7-7《鸡血王喜币大作战》 第二百四十九集 嘉宾：无双柳薇薇、风雨之中
-
-<img src="https://media.gettr.com/group17/origin/2022/07/08/03/e0d2a9aa-05c7-547a-d455-ea6bc2c52744/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
