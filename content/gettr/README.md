@@ -2,20 +2,6 @@
 ---
 
 
-[@xiaojiaozi 7/8/2022 12:08 AM UTC ](/content/gettr/c18ivtt7dd7.md)
-
-🔥🔥🔥
-
----
-
-[@miles 7/7/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1hgtp5700d.md)
-
-2022.07.07 NFSC Fringe   Breaking! Largest data breach in history, 1 Billion Chinese date leaked
-
-<img src="https://media.gettr.com/group8/origin/2022/07/07/23/a4eb93e8-581a-cb27-574a-661373f9376b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/8/2022 12:15 AM UTC  - 4圖](/content/gettr/p1hgw8s8563.md)
 
 Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Montería出生和长大，13岁时开始做音乐。他凭借单曲《Una Lady Como Tú》(2016年)走红。2019年8月23日，他发行了首张专辑《ADN》
@@ -29,6 +15,22 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 他在 Instagram 上面拥有12.2 M 的粉丝 ❤️❤️❤️❤️❤️❤️🤩🤩🤩🤩🤩🤩🤩🤩�...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/08/00/b1acdb02-b314-7c12-dd24-40a2974bd01a/45de3143fba31b924dc5c6cac8b41c5c.jpg" width="506" height="284">
+
+---
+
+[@miles 7/7/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1hgtp5700d.md)
+
+2022.07.07 NFSC Fringe   Breaking! Largest data breach in history, 1 Billion Chinese date leaked
+
+<img src="https://media.gettr.com/group8/origin/2022/07/07/23/a4eb93e8-581a-cb27-574a-661373f9376b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1hguvf9737.md)
+
+2022.07.07 晚 新中国联邦 ｜ 新闻  中共蓄意打压 东北至此没落；爆料革命成功唤醒美国 以美灭共迈向新征程；盖特首席技术官畅谈盖特新功能；拒绝给儿童接种中共病毒疫苗的八大理由
+
+<img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
