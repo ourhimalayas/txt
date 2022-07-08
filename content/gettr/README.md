@@ -10,6 +10,20 @@
 
 ---
 
+[@xiaojiaozi 7/8/2022 12:08 AM UTC ](/content/gettr/c18ivtt7dd7.md)
+
+🔥🔥🔥
+
+---
+
+[@miles 7/7/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1hh0bgfe45.md)
+
+7/6/2022 Miles Guo: This recent data leak of one billion Chinese people’s information is a smart move by Zeng Qinghong and Meng Jianzhu to target Xi Jinping; the overseas Chinese will soon face all kinds of problems and risks creat...
+
+<img src="https://media.gettr.com/group22/getter/2022/07/07/23/2b4fead6-d284-8f66-50af-c825cd92abe9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/7/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1hgjlm01c0.md)
 
 7月7号：这些机械战士的现代化武器……第一次大规模的军事行动使用的战场……可能是……中共侵略台湾的战斗中……【Unitree Go1 是新一代机器狗，速度可达 17 公里/小时，具有自适应关节和智能侧跟随系统。这是 Unitree 工厂的大规模测试】
@@ -31,14 +45,6 @@
 7/06/2022 Miles Guo: Northeast China is just a place to exploit economically and something on their resume to shine; only the CCP is able to turn Northeast China, the origin of Hongshan Culture, into what it looks like today; the N...
 
 <img src="https://media.gettr.com/group5/getter/2022/07/07/22/e2af99f0-9292-d887-bd91-94bf428e22ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/7/2022 11:40 PM UTC  - :tv:直播](/content/gettr/p1hh0bgfe45.md)
-
-7/6/2022 Miles Guo: This recent data leak of one billion Chinese people’s information is a smart move by Zeng Qinghong and Meng Jianzhu to target Xi Jinping; the overseas Chinese will soon face all kinds of problems and risks creat...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/07/23/2b4fead6-d284-8f66-50af-c825cd92abe9/out.jpg" width="506" height="284">
 
 ---
 
@@ -162,14 +168,6 @@ MILES GUO 直播 2022-07-07
 2022.07.07 AM NFSC news  Hebei's new police chief of CCP dies of sudden illness
 
 <img src="https://media.gettr.com/group31/origin/2022/07/07/12/6cdc312e-baeb-1245-ce9a-632bb61ad26d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/7/2022 11:00 AM UTC  - :tv:直播](/content/gettr/p1hdl20ec1e.md)
-
-07.07.2020   25 years regime in HK — Untold history in HK; Uncover secrets in HK
-
-<img src="https://media.gettr.com/group43/origin/2022/07/07/10/629604be-44e1-469c-2826-5d5f1a61066d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
