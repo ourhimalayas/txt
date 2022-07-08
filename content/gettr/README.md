@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/8/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1hguvf9737.md)
+
+2022.07.07 晚 新中国联邦 ｜ 新闻  中共蓄意打压 东北至此没落；爆料革命成功唤醒美国 以美灭共迈向新征程；盖特首席技术官畅谈盖特新功能；拒绝给儿童接种中共病毒疫苗的八大理由
+
+<img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 12:15 AM UTC  - 4圖](/content/gettr/p1hgw8s8563.md)
 
 Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Montería出生和长大，13岁时开始做音乐。他凭借单曲《Una Lady Como Tú》(2016年)走红。2019年8月23日，他发行了首张专辑《ADN》
@@ -26,11 +34,11 @@ Manuel Turizo，缩写为MTZ，是一名哥伦比亚雷鬼顿歌手。他在Mont
 
 ---
 
-[@miles 7/8/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1hguvf9737.md)
+[@miles 7/8/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p1hgy6u868f.md)
 
-2022.07.07 晚 新中国联邦 ｜ 新闻  中共蓄意打压 东北至此没落；爆料革命成功唤醒美国 以美灭共迈向新征程；盖特首席技术官畅谈盖特新功能；拒绝给儿童接种中共病毒疫苗的八大理由
+2022.07.07 晚 新中国联邦 ｜ 新闻访谈  上海公安十亿人口泄漏数据分析，以共灭共-会有更多故意数据泄漏！美國勸阿斯麥不要向中國出口DUV光刻機
 
-<img src="https://media.gettr.com/group7/origin/2022/06/12/23/c2941968-afc3-052e-d931-d69369462291/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/07/08/01/9bff5d8d-7ccc-ebe3-5c4f-89e88c5fa4d0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -170,14 +178,6 @@ MILES GUO 直播 2022-07-07
 2022.07.07 早 新中国联邦 | 新闻访谈  墙国AI监控党员忠诚度，金三胖开党会维稳；美国施压ASML扩大光刻机出口禁令；美FBI和英军情五处史上首次联合警示中共威胁；斯里兰卡破产.
 
 <img src="https://media.gettr.com/group14/origin/2022/04/09/12/6acce39b-ebf8-22ee-c497-b01d45163b10/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/7/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p1heff39e8b.md)
-
-2022.07.07 早 新中国联邦｜新闻 中共减少的人口相当于一个美国消失；上海帮曝光中共公安大数据 以共灭共走向高潮；美国FBI与英国MI5领袖首次同场警告中共；以人为本体制设计和民主人工智能实验
-
-<img src="https://media.gettr.com/group39/origin/2022/07/07/12/3d01eb79-94a8-5189-ff80-de5603e98bf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
