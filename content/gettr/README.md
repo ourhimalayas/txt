@@ -2,11 +2,15 @@
 ---
 
 
-[@miles 7/9/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1hlt7b42f8.md)
+[@miles 7/9/2022 3:06 AM UTC ](/content/gettr/p1hlyoe8c65.md)
 
-2022.07.08  新中国联邦 | 喜财经  第103期 馬歇爾計劃、布雷頓森林體系、石油美元; 世界危機已經到來，主權國家違約，新能源政策; 韓國、德國貿易逆差
+Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江——香港经典歌曲特辑
 
-<img src="https://media.gettr.com/group15/origin/2022/07/09/01/ca5a3aeb-85d5-f756-5ad8-bd37a4effdd4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMay
+
+嘉宾：鬼五 @ghostfifthly
 
 ---
 
@@ -15,6 +19,22 @@
 7/8/2022 Miles Guo: Shinzo Abe is one of a few professional politicians in the world that are clean and wise. The CCP Embassy in Japan is inextricably linked to the assassination of Abe! Two months ago, the CCP told Japan that it w...
 
 <img src="https://media.gettr.com/group47/getter/2022/07/09/02/da368b63-2a0e-b981-1048-26a2cb768dd5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/9/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1hlt7b42f8.md)
+
+2022.07.08  新中国联邦 | 喜财经  第103期 馬歇爾計劃、布雷頓森林體系、石油美元; 世界危機已經到來，主權國家違約，新能源政策; 韓國、德國貿易逆差
+
+<img src="https://media.gettr.com/group15/origin/2022/07/09/01/ca5a3aeb-85d5-f756-5ad8-bd37a4effdd4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 7/9/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1hlwtwcb04.md)
+
+2022-7-8《鸡血王喜币大作战》250期 嘉宾：文空、封神榜 #安倍遇刺与美国司法部的惊天黑暗
+
+<img src="https://media.gettr.com/group28/origin/2022/07/09/03/e67ecfe5-7d3a-cc54-6a2d-06d8075e2e78/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,26 +177,6 @@ For English： gettr.com/post/p1hkkrt248a
 7/3/2022 Miles Guo: The legal system in the US is not absolutely fair, but it gives everyone a chance to speak; however in Communist China, have you seen any of the 5 million detained CCP members able to speak up? Therefore I am co...
 
 <img src="https://media.gettr.com/group34/getter/2022/07/08/21/09139f2b-7b9b-5618-3d98-3f7257840017/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 7:18 PM UTC  - :tv:直播](/content/gettr/p1hkmyia9e5.md)
-
-GCLUBS会员线下体验 
-
-GFASHION尺码选择分享（1080P）
-
-<img src="https://media.gettr.com/group18/origin/2022/07/08/14/bd7b9918-bfee-943d-be06-2cf2f89c3176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 7:18 PM UTC  - :tv:直播](/content/gettr/p1hl9xp8b14.md)
-
-GCLUBS会员线下体验 
-
-GFASHION尺码选择分享  （4K）
-
-<img src="https://media.gettr.com/group38/origin/2022/07/08/14/d2a90d48-c9ff-34f3-a8d2-e0af84870820/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
