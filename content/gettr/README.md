@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 7/8/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1hlf608535.md)
+[@miles 7/9/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1hljxg3080.md)
 
-7/8/2022 Miles Guo: PAX and PAG managed to let the DOJ replace the trustee of my personal bankruptcy case with a person from Paul Hastings LLP, which works for PAG. This once again shows the Americans the collusion between the CCP ...
+2022.07.08 晚 新中国联邦 ｜ 新闻  中共10亿数据的泄露开启了以共灭共的大门；郭文贵先生破产案的财产受托人涉及与太平联盟重大利益冲突；安倍遭枪击 中共急封“可惜不是你”；孙力军案一审开庭
 
-<img src="https://media.gettr.com/group16/getter/2022/07/08/23/6ffd7372-a49d-fe72-5659-097e8bee6d10/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/07/09/00/564d91fa-24d5-5b79-50bb-9c77cfad812e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 大根谭124-大事分享和互动
 
 <img src="https://media.gettr.com/group40/origin/2022/07/08/22/1ad5c93a-3531-f0a4-88b4-20e4c6e286f0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1hlf608535.md)
+
+7/8/2022 Miles Guo: PAX and PAG managed to let the DOJ replace the trustee of my personal bankruptcy case with a person from Paul Hastings LLP, which works for PAG. This once again shows the Americans the collusion between the CCP ...
+
+<img src="https://media.gettr.com/group16/getter/2022/07/08/23/6ffd7372-a49d-fe72-5659-097e8bee6d10/out.jpg" width="506" height="284">
+
+---
+
+[@mr3rights 7/7/2022 3:38 PM UTC ](/content/gettr/p1hevnj4a0e.md)
+
+说说东北（续）
+
+918之后日本和国民政府谈不拢，索性将溥仪拉出来，1932年3月成立满洲国，控制整个东北。1937年的七七事变后，日本全面侵华，其后又发动太平洋战争，整个战争期间日本把东北看成是大后方来经营。当时日本根据科学分析东北一定有石油，在东北找油，只是阴差阳错，因为大庆油田是长条形的，日本专家勘探的方向与油田平行，错过了，据说已经到了安达，离油田也就几公里。如果日本人找到了大庆油田，也许就不会打印尼和东南半岛去搞石油，美国也不会遏制日本引发珍珠港之...
 
 ---
 
@@ -155,22 +171,6 @@ GCLUBS会员线下体验
 7月8号：尊敬的战友们好．太多战友给我发信息．关于前日本首相安倍先生被刺杀一事希望我能直播一下……我马上开始直播．只能半小时。【从日本安倍被杀害看中国人的人性……和智商。】
 
 <img src="https://media.gettr.com/group40/getter/2022/07/08/13/20738d8e-bbd1-9615-3043-27fef5f6bfed/fe0c43e797be01471695429a465b71bd.jpg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 12:37 PM UTC  - :tv:直播](/content/gettr/p1hjh8g8d82.md)
-
-2022.07.08 早 新中国联邦 ｜ 新闻  郭先生解读疫苗灾难后的另一挑战；美国驻港澳总领事谴责中共对香港的打压；墙内再爆金融危机丑闻；美军战机可在一小时内摧毁中共海军
-
-<img src="https://media.gettr.com/group6/origin/2022/07/08/12/68cb9a9d-48fe-fe1d-af56-24ec0fefe2ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 12:01 PM UTC  - :tv:直播](/content/gettr/p1hin7i6e11.md)
-
-2022.07.08 AM NFSC news  GETTR and GNews Play Different Roles in Taking down the CCP
-
-<img src="https://media.gettr.com/group17/origin/2022/07/08/12/d7941a7e-dbe9-98ec-866b-852f48308bc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
