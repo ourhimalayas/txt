@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/9/2022 7:08 AM UTC  - :tv:直播](/content/gettr/p1hml4u0a3a.md)
+
+7/8/2022 Miles Guo: The Chinese people who have been enslaved under the CCP's rule are so ignorant and pathetic that they would burst into tears and fall to their knees to show gratitude to the kleptocrats such as Jiang Zemin and Z...
+
+<img src="https://media.gettr.com/group44/getter/2022/07/09/07/621daff9-ea02-8111-0afd-6c6693747a1a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/9/2022 6:00 AM UTC  - :tv:直播](/content/gettr/p1hmknhdcc0.md)
+
+7/8/2022 Miles Guo: The PAX case will send all the attorneys and the officials in the DOJ and the Hong Kong government colluding with PAG, and all PAG's senior executives and attorneys to jail. The CCP cannot deceive the US forever...
+
+<img src="https://media.gettr.com/group42/getter/2022/07/09/05/64f8ca5a-9533-3231-7be4-9edfe54984ba/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/9/2022 5:05 AM UTC  - :tv:直播](/content/gettr/p1hm0pd2d90.md)
 
 How could PAG make the DOJ ignore an obvious conflict of interest and change the trustee assigned to my personal bankruptcy case from a highly respected Republican, Mr. Joe D. Whitley, to Luc A. Despins, a partner of Paul Hastings ...
@@ -42,11 +58,11 @@ Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江�
 
 ---
 
-[@miles 7/9/2022 6:00 AM UTC  - :tv:直播](/content/gettr/p1hmknhdcc0.md)
+[@miles 7/9/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p1hmico7e09.md)
 
-7/8/2022 Miles Guo: The PAX case will send all the attorneys and the officials in the DOJ and the Hong Kong government colluding with PAG, and all PAG's senior executives and attorneys to jail. The CCP cannot deceive the US forever...
+7/8/2022 Miles Guo:  It is sick for some people in mainland China to feel happy when Mr. Shinzo Abe is assassinated. Their behavior is the outcome of being brainwashed by the CCP's propaganda for years. A country or a nation will n...
 
-<img src="https://media.gettr.com/group42/getter/2022/07/09/05/64f8ca5a-9533-3231-7be4-9edfe54984ba/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/07/09/07/c5b2d94d-204e-30db-4d25-1bb77e05fc13/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,29 +180,11 @@ Whether superior or inferior, whether noble or humble, wheth...
 
 ---
 
-[@miles 7/8/2022 10:49 PM UTC ](/content/gettr/p1hl7r66c2d.md)
-
-7月8号：咋又让七哥蒙对了呢？Elon Musk notifies Twitter he is terminating deal
-
-https://www.cnbc.com/2022/07/08/elon-musk-notifies-twitter-he-is-terminating-deal.html?__source=iosappshare%7Ccom.apple.UIKit.activity.CopyToPasteboard
-
----
-
 [@miles 7/8/2022 10:56 PM UTC ](/content/gettr/p1hlqg85a0e.md)
 
  7月8号：尊敬的战友们好……共产党在美国司法系统的渗透……最终会通过。我们新中国联邦……将他们挖掘出来，不管他们多狡猾，不管他们有多狡诈，他们已经犯下了天大的错误，……出具无法逆转的谎言和誓言文件，这是对美国人和对所有爱护和尊重美国法律公平的人的侮辱……
 
 <img src="https://media.gettr.com/group8/getter/2022/07/08/18/0699e70d-caee-8e82-888a-6bd500b07d91/1c4218b9bc52989b19472c1ffda173d2.jpg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1hlbtz987d.md)
-
-(4K版) 飞飞秀 《利益冲突·第一篇》2022-07-08
-
-For English： gettr.com/post/p1hkkrt248a
-
-<img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
