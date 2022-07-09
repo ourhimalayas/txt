@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 7/9/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p1hptg7a1f1.md)
+[@miles 7/9/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1hph7lc275.md)
 
-7/8/2022 Miles Guo: It is the custom of retired politicians in Japan not to bother their people, while in Communist China, a retired CCP manager would enjoy privileges far better than that of former Japanese prime ministers. This i...
+ 7月9号：感谢这位战友做的这个专业可爱的视频……太棒了！
 
-<img src="https://media.gettr.com/group27/getter/2022/07/09/21/b44672e5-fdb8-2d47-2fd0-bdeefac5118e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/07/09/22/7986e067-636d-07c0-cf9f-89d55049ab18/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 7/9/2022 Miles Guo's GETTR: Paul Hastings, a top 10 U.S. law firm, has generated tremendous revenues from the Greater-China region and represented or advised numerous clients that are inextricably linked to the CCP. However, it wen...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/09/22/ccd70d08-642e-50f3-532b-787892660ae8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/9/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p1hptg7a1f1.md)
+
+7/8/2022 Miles Guo: It is the custom of retired politicians in Japan not to bother their people, while in Communist China, a retired CCP manager would enjoy privileges far better than that of former Japanese prime ministers. This i...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/09/21/b44672e5-fdb8-2d47-2fd0-bdeefac5118e/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ To differentiate between true and false as well as good and evil
 Whether superior or inferior, whether noble or humble, wheth...
 
 <img src="https://media.gettr.com/group49/origin/2022/07/09/01/1de614f6-a373-8336-8d49-b6611baf0afd/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1hllbkd88d.md)
-
-2022.07.08 晚 新中国联邦 | 新闻访谈  谁在背后操作美国司法部不正常司法程序（文贵先生个人破产案）     中共蠢蠢欲动台湾     从日本前首相安倍被杀害看中国人的人性和智商
-
-<img src="https://media.gettr.com/group35/origin/2022/07/09/00/7904011a-f21d-5f09-3b16-9ddc2de4c55a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
