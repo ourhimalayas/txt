@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/9/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1hph7lc275.md)
+
+ 7月9号：感谢这位战友做的这个专业可爱的视频……太棒了！
+
+<img src="https://media.gettr.com/group5/getter/2022/07/09/22/7986e067-636d-07c0-cf9f-89d55049ab18/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/9/2022 10:21 PM UTC  - :tv:直播](/content/gettr/p1hpqwvaa26.md)
 
 7/9/2022 Miles Guo's GETTR: Luc A. Despins, the new trustee appointed by the DOJ and a partner of Paul Hastings LLP, asked to board Lady May the day before yesterday and bluntly attempted to deceive Her Honorable Julie Manning by c...
@@ -10,11 +18,9 @@
 
 ---
 
-[@miles 7/9/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1hph7lc275.md)
+[@miles 7/9/2022 11:19 PM UTC ](/content/gettr/p1hpu5tde4b.md)
 
- 7月9号：感谢这位战友做的这个专业可爱的视频……太棒了！
-
-<img src="https://media.gettr.com/group5/getter/2022/07/09/22/7986e067-636d-07c0-cf9f-89d55049ab18/out.jpg" width="506" height="284">
+7月 9日；太棒了。【】、】【】、、】【】、
 
 ---
 
@@ -167,22 +173,6 @@ Demographic data leak leads to national trial of the Chinese Communist Party (CC
 On July 6, Miles Guo said that China's economy is vulnerable...
 
 <img src="https://media.gettr.com/group47/origin/2022/07/09/02/098d83e7-454b-015d-0fae-5a8353924d32/ab3955ec7f6748fefef4b3f2732ddf9f.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 1:20 AM UTC  - :tv:直播](/content/gettr/p1hlrhsafaf.md)
-
-人要识善恶辨真假
-
-所有的人，还有高低之分、贵族之分、贫贱之分，关键的问题，你是否能坚持你自己，还有一个，能真正的辨真假，识善恶，这是根本的问题。你一生念起，一生恶念和善念，都会给你算账的。不信试试。
-
-
-
-To differentiate between true and false as well as good and evil 
-
-Whether superior or inferior, whether noble or humble, wheth...
-
-<img src="https://media.gettr.com/group49/origin/2022/07/09/01/1de614f6-a373-8336-8d49-b6611baf0afd/out.jpg" width="506" height="284">
 
 ---
 
