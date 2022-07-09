@@ -14,6 +14,34 @@ Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江�
 
 ---
 
+[@miles 7/9/2022 4:53 AM UTC ](/content/gettr/p1hm99ga640.md)
+
+战友们好！
+
+🥳🥳美国国庆日Gclub会员尊贵独享活动仍在继续！🥳🥳
+
+
+
+🥂自七月四号美国独立日庆典开始，Gfashion正在举办为期三周的仅供尊贵的Gclub会员专享活动，且在线上线下同时进行。纽约总部办公室现开放第二批GClubs会员现场试穿GFashion活动。
+
+
+
+❗️❗️ 现场有大惊喜：七哥量身定做的GFashion服饰，全世界独一无二的衣服，仅在现场有售。独一无二，绝无仅有。
+
+
+
+欢迎全球GClubs会员到现场试穿及购买🥰🥰。...
+
+---
+
+[@miles 7/9/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1hlwtwcb04.md)
+
+2022-7-8《鸡血王喜币大作战》250期 嘉宾：文空、封神榜 #安倍遇刺与美国司法部的惊天黑暗
+
+<img src="https://media.gettr.com/group28/origin/2022/07/09/03/e67ecfe5-7d3a-cc54-6a2d-06d8075e2e78/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/9/2022 2:48 AM UTC  - :tv:直播](/content/gettr/p1hly8612d1.md)
 
 7/8/2022 Miles Guo: Shinzo Abe is one of a few professional politicians in the world that are clean and wise. The CCP Embassy in Japan is inextricably linked to the assassination of Abe! Two months ago, the CCP told Japan that it w...
@@ -27,14 +55,6 @@ Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江�
 2022.07.08  新中国联邦 | 喜财经  第103期 馬歇爾計劃、布雷頓森林體系、石油美元; 世界危機已經到來，主權國家違約，新能源政策; 韓國、德國貿易逆差
 
 <img src="https://media.gettr.com/group15/origin/2022/07/09/01/ca5a3aeb-85d5-f756-5ad8-bd37a4effdd4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/9/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1hlwtwcb04.md)
-
-2022-7-8《鸡血王喜币大作战》250期 嘉宾：文空、封神榜 #安倍遇刺与美国司法部的惊天黑暗
-
-<img src="https://media.gettr.com/group28/origin/2022/07/09/03/e67ecfe5-7d3a-cc54-6a2d-06d8075e2e78/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,14 +181,6 @@ For English： gettr.com/post/p1hkkrt248a
 For English： gettr.com/post/p1hkkrt248a
 
 <img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 9:45 PM UTC  - :tv:直播](/content/gettr/p1hl7wk6555.md)
-
-7/8/2022 Miles Guo: Based on the information we have collected so far, there must be some stories behind the assassination of Shinzo Abe, and the assassinator's motive is absolutely not as simple as what he claimed. I will keep a c...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/08/21/acaf1405-1e97-8a08-a6c2-1fdf979918e9/out.jpg" width="506" height="284">
 
 ---
 
