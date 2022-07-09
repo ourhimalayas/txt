@@ -10,6 +10,20 @@
 
 ---
 
+[@himalayatwins 7/9/2022 7:18 AM UTC ](/content/gettr/c18nd8uc5c4.md)
+
+Luc A. Despins被前妻起诉 不支付诉讼期间赡养费给前期和三个孩子 2012年康州最高法判决要支付赡养费；当时2009年Luc到Paul Hasting年薪大约5百5十万美元 而他妻子带三个孩子每个月收入125美金。Luc A. Despins就是人渣啊 https://caselaw.findlaw.com/ct-superior-court/1593773.html
+
+---
+
+[@miles 7/9/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p1hmico7e09.md)
+
+7/8/2022 Miles Guo:  It is sick for some people in mainland China to feel happy when Mr. Shinzo Abe is assassinated. Their behavior is the outcome of being brainwashed by the CCP's propaganda for years. A country or a nation will n...
+
+<img src="https://media.gettr.com/group25/getter/2022/07/09/07/c5b2d94d-204e-30db-4d25-1bb77e05fc13/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/9/2022 6:00 AM UTC  - :tv:直播](/content/gettr/p1hmknhdcc0.md)
 
 7/8/2022 Miles Guo: The PAX case will send all the attorneys and the officials in the DOJ and the Hong Kong government colluding with PAG, and all PAG's senior executives and attorneys to jail. The CCP cannot deceive the US forever...
@@ -55,14 +69,6 @@ Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江�
 钢琴/歌手：QMay
 
 嘉宾：鬼五 @ghostfifthly
-
----
-
-[@miles 7/9/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p1hmico7e09.md)
-
-7/8/2022 Miles Guo:  It is sick for some people in mainland China to feel happy when Mr. Shinzo Abe is assassinated. Their behavior is the outcome of being brainwashed by the CCP's propaganda for years. A country or a nation will n...
-
-<img src="https://media.gettr.com/group25/getter/2022/07/09/07/c5b2d94d-204e-30db-4d25-1bb77e05fc13/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +183,6 @@ Whether superior or inferior, whether noble or humble, wheth...
 2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
 
 <img src="https://media.gettr.com/group18/origin/2022/02/21/02/0973bb1b-cce8-eb39-aea6-b848d5deb9e9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/8/2022 10:56 PM UTC ](/content/gettr/p1hlqg85a0e.md)
-
- 7月8号：尊敬的战友们好……共产党在美国司法系统的渗透……最终会通过。我们新中国联邦……将他们挖掘出来，不管他们多狡猾，不管他们有多狡诈，他们已经犯下了天大的错误，……出具无法逆转的谎言和誓言文件，这是对美国人和对所有爱护和尊重美国法律公平的人的侮辱……
-
-<img src="https://media.gettr.com/group8/getter/2022/07/08/18/0699e70d-caee-8e82-888a-6bd500b07d91/1c4218b9bc52989b19472c1ffda173d2.jpg" width="506" height="284">
 
 ---
 
