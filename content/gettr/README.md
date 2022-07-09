@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/9/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p1hptg7a1f1.md)
+
+7/8/2022 Miles Guo: It is the custom of retired politicians in Japan not to bother their people, while in Communist China, a retired CCP manager would enjoy privileges far better than that of former Japanese prime ministers. This i...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/09/21/b44672e5-fdb8-2d47-2fd0-bdeefac5118e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/9/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1hpm764baf.md)
+
+7/6/2022 Miles Guo: It was Alvin Jiang, Zeng Qinghong, Wang Qishan, Meng Jianzhu and Sun Lijun who leaked the data from the Shanghai National Police database. Their purpose was to undermine their common enemy - Xi Jinping. More inf...
+
+<img src="https://media.gettr.com/group25/getter/2022/07/09/22/4e338825-2c21-d03d-8b2c-e18df8589a1c/out.jpg" width="506" height="284">
+
+---
+
 [@drzevzelenko 7/9/2022 4:19 AM UTC ](/content/gettr/p1hlx2n9474.md)
 
 I just wanted to let everyone know who is now posting from all of Dr. Zelenko's social media accounts.
@@ -12,11 +28,11 @@ My name is Daniel, many of you know me as @DschlopesIsBack and I am very close f
 
 ---
 
-[@miles 7/9/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1hocif7559.md)
+[@miles 7/9/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1hprzk3fe8.md)
 
-7月9号：尊敬的战友们好，我们与PAG诉讼正在进行到关键的时刻，我们一定要让美国．真正的了解中国共产党在西方……和美国司法界的渗透，就像在媒体界的渗透一样，对美国的的威胁……远远大于常规武器，我们一定会让西方看到这一切背后的真相。达到我们依法灭共的目的！衷心地感谢所有的战友们的关注和关心，一切都已经开始。[今天我们节目里提到的几家公司的相关信息，他们全部删掉了，没删干净，搜索里还是有，点进去变成404https://caselaw.findlaw.com/c...
+7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. This is fishy! At least half of Paul Hastings LLP’s revenue comes from Communist China and i...
 
-<img src="https://media.gettr.com/group35/getter/2022/07/09/14/a1857189-8375-4f8d-a73c-0aa8b9785380/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/07/09/22/c09d3851-f4a2-b785-ad22-699b4e0ce6e7/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +41,14 @@ My name is Daniel, many of you know me as @DschlopesIsBack and I am very close f
 Evidence of direct conflict of interest of #PaulHastings LLP.
 
 <img src="https://media.gettr.com/group47/origin/2022/07/09/15/950f4be3-fb4c-8c46-1cc9-9c9c5a651328/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/9/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1hocif7559.md)
+
+7月9号：尊敬的战友们好，我们与PAG诉讼正在进行到关键的时刻，我们一定要让美国．真正的了解中国共产党在西方……和美国司法界的渗透，就像在媒体界的渗透一样，对美国的的威胁……远远大于常规武器，我们一定会让西方看到这一切背后的真相。达到我们依法灭共的目的！衷心地感谢所有的战友们的关注和关心，一切都已经开始。[今天我们节目里提到的几家公司的相关信息，他们全部删掉了，没删干净，搜索里还是有，点进去变成404https://caselaw.findlaw.com/c...
+
+<img src="https://media.gettr.com/group35/getter/2022/07/09/14/a1857189-8375-4f8d-a73c-0aa8b9785380/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,30 +185,6 @@ Whether superior or inferior, whether noble or humble, wheth...
 2022.07.08 晚 新中国联邦 ｜ 新闻  中共10亿数据的泄露开启了以共灭共的大门；郭文贵先生破产案的财产受托人涉及与太平联盟重大利益冲突；安倍遭枪击 中共急封“可惜不是你”；孙力军案一审开庭
 
 <img src="https://media.gettr.com/group31/origin/2022/07/09/00/564d91fa-24d5-5b79-50bb-9c77cfad812e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@longwood 7/8/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hl5tu7313.md)
-
-大根谭124-大事分享和互动
-
-<img src="https://media.gettr.com/group40/origin/2022/07/08/22/1ad5c93a-3531-f0a4-88b4-20e4c6e286f0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 11:31 PM UTC  - :tv:直播](/content/gettr/p1hlf608535.md)
-
-7/8/2022 Miles Guo: PAX and PAG managed to let the DOJ replace the trustee of my personal bankruptcy case with a person from Paul Hastings LLP, which works for PAG. This once again shows the Americans the collusion between the CCP ...
-
-<img src="https://media.gettr.com/group16/getter/2022/07/08/23/6ffd7372-a49d-fe72-5659-097e8bee6d10/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1hltxgbbab.md)
-
-2022.07.08  NFSC fringe  Episode 225 Former Japan PM Abe Assassinated 
-
-<img src="https://media.gettr.com/group11/origin/2022/07/08/23/03797bb9-2890-8945-f830-79309f5c243d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
