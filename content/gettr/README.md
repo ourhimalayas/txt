@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/9/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1hllbkd88d.md)
+
+2022.07.08 晚 新中国联邦 | 新闻访谈  谁在背后操作美国司法部不正常司法程序（文贵先生个人破产案）     中共蠢蠢欲动台湾     从日本前首相安倍被杀害看中国人的人性和智商
+
+<img src="https://media.gettr.com/group35/origin/2022/07/09/00/7904011a-f21d-5f09-3b16-9ddc2de4c55a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/9/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1hljxg3080.md)
 
 2022.07.08 晚 新中国联邦 ｜ 新闻  中共10亿数据的泄露开启了以共灭共的大门；郭文贵先生破产案的财产受托人涉及与太平联盟重大利益冲突；安倍遭枪击 中共急封“可惜不是你”；孙力军案一审开庭
@@ -10,11 +18,19 @@
 
 ---
 
-[@miles 7/9/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1hllbkd88d.md)
+[@miles 7/9/2022 1:20 AM UTC  - :tv:直播](/content/gettr/p1hlrhsafaf.md)
 
-2022.07.08 晚 新中国联邦 | 新闻访谈  谁在背后操作美国司法部不正常司法程序（文贵先生个人破产案）     中共蠢蠢欲动台湾     从日本前首相安倍被杀害看中国人的人性和智商
+人要识善恶辨真假
 
-<img src="https://media.gettr.com/group35/origin/2022/07/09/00/7904011a-f21d-5f09-3b16-9ddc2de4c55a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+所有的人，还有高低之分、贵族之分、贫贱之分，关键的问题，你是否能坚持你自己，还有一个，能真正的辨真假，识善恶，这是根本的问题。你一生念起，一生恶念和善念，都会给你算账的。不信试试。
+
+
+
+To differentiate between true and false as well as good and evil 
+
+Whether superior or inferior, whether noble or humble, wheth...
+
+<img src="https://media.gettr.com/group49/origin/2022/07/09/01/1de614f6-a373-8336-8d49-b6611baf0afd/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +179,6 @@ GCLUBS会员线下体验
 从日本安倍被杀害看中国人的人性……和智商。
 
 <img src="https://media.gettr.com/group16/origin/2022/07/08/13/c308cbc5-f926-d119-aeb0-a2fa9ef5179c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 1:09 PM UTC ](/content/gettr/p1hjh3rb0d1.md)
-
-7月8号：尊敬的战友们好．太多战友给我发信息．关于前日本首相安倍先生被刺杀一事希望我能直播一下……我马上开始直播．只能半小时。【从日本安倍被杀害看中国人的人性……和智商。】
-
-<img src="https://media.gettr.com/group40/getter/2022/07/08/13/20738d8e-bbd1-9615-3043-27fef5f6bfed/fe0c43e797be01471695429a465b71bd.jpg" width="506" height="284">
 
 ---
 
