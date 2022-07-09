@@ -2,11 +2,29 @@
 ---
 
 
+[@drzevzelenko 7/9/2022 4:19 AM UTC ](/content/gettr/p1hlx2n9474.md)
+
+I just wanted to let everyone know who is now posting from all of Dr. Zelenko's social media accounts.
+
+
+
+My name is Daniel, many of you know me as @DschlopesIsBack and I am very close friends with Zev.  He wanted me to take over h...
+
+---
+
 [@miles 7/9/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1hocif7559.md)
 
 7月9号：尊敬的战友们好，我们与PAG诉讼正在进行到关键的时刻，我们一定要让美国．真正的了解中国共产党在西方……和美国司法界的渗透，就像在媒体界的渗透一样，对美国的的威胁……远远大于常规武器，我们一定会让西方看到这一切背后的真相。达到我们依法灭共的目的！衷心地感谢所有的战友们的关注和关心，一切都已经开始。[今天我们节目里提到的几家公司的相关信息，他们全部删掉了，没删干净，搜索里还是有，点进去变成404https://caselaw.findlaw.com/c...
 
 <img src="https://media.gettr.com/group35/getter/2022/07/09/14/a1857189-8375-4f8d-a73c-0aa8b9785380/out.jpg" width="506" height="284">
+
+---
+
+[@s7gril 7/9/2022 3:20 PM UTC  - :tv:直播](/content/gettr/c18oaiaac08.md)
+
+Evidence of direct conflict of interest of #PaulHastings LLP.
+
+<img src="https://media.gettr.com/group47/origin/2022/07/09/15/950f4be3-fb4c-8c46-1cc9-9c9c5a651328/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +185,6 @@ Whether superior or inferior, whether noble or humble, wheth...
 2022.07.08  NFSC fringe  Episode 225 Former Japan PM Abe Assassinated 
 
 <img src="https://media.gettr.com/group11/origin/2022/07/08/23/03797bb9-2890-8945-f830-79309f5c243d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1hlo2j73b7.md)
-
-2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
-
-<img src="https://media.gettr.com/group18/origin/2022/02/21/02/0973bb1b-cce8-eb39-aea6-b848d5deb9e9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/8/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1hlmr281a5.md)
-
-2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
-
-<img src="https://media.gettr.com/group18/origin/2022/02/21/02/0973bb1b-cce8-eb39-aea6-b848d5deb9e9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
