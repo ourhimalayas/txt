@@ -2,18 +2,6 @@
 ---
 
 
-[@miles 7/9/2022 3:06 AM UTC ](/content/gettr/p1hlyoe8c65.md)
-
-Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江——香港经典歌曲特辑
-
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMay
-
-嘉宾：鬼五 @ghostfifthly
-
----
-
 [@miles 7/9/2022 4:53 AM UTC ](/content/gettr/p1hm99ga640.md)
 
 战友们好！
@@ -31,6 +19,26 @@ Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江�
 
 
 欢迎全球GClubs会员到现场试穿及购买🥰🥰。...
+
+---
+
+[@miles 7/9/2022 3:06 AM UTC ](/content/gettr/p1hlyoe8c65.md)
+
+Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江——香港经典歌曲特辑
+
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMay
+
+嘉宾：鬼五 @ghostfifthly
+
+---
+
+[@miles 7/9/2022 5:05 AM UTC  - :tv:直播](/content/gettr/p1hm0pd2d90.md)
+
+How could PAG make the DOJ ignore an obvious conflict of interest and change the trustee assigned to my personal bankruptcy case from a highly respected Republican, Mr. Joe D. Whitley, to Luc A. Despins, a partner of Paul Hastings ...
+
+<img src="https://media.gettr.com/group9/getter/2022/07/09/04/d54aae46-1f3a-2e4d-ff64-c8dfd9ef484f/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ For English： gettr.com/post/p1hkkrt248a
 For English： gettr.com/post/p1hkkrt248a
 
 <img src="https://media.gettr.com/group3/origin/2022/07/08/22/ff2f38ec-f3eb-b4ea-c410-2ca591f1a541/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 9:53 PM UTC  - :tv:直播](/content/gettr/p1hldlx9ba3.md)
-
-7/3/2022 Miles Guo: The legal system in the US is not absolutely fair, but it gives everyone a chance to speak; however in Communist China, have you seen any of the 5 million detained CCP members able to speak up? Therefore I am co...
-
-<img src="https://media.gettr.com/group34/getter/2022/07/08/21/09139f2b-7b9b-5618-3d98-3f7257840017/out.jpg" width="506" height="284">
 
 ---
 
