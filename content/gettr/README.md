@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/9/2022 10:21 PM UTC  - :tv:直播](/content/gettr/p1hpqwvaa26.md)
+
+7/9/2022 Miles Guo's GETTR: Luc A. Despins, the new trustee appointed by the DOJ and a partner of Paul Hastings LLP, asked to board Lady May the day before yesterday and bluntly attempted to deceive Her Honorable Julie Manning by c...
+
+<img src="https://media.gettr.com/group21/getter/2022/07/09/22/3071a8f1-ebaa-c352-49c7-693e845a0b93/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/9/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p1hptg7a1f1.md)
 
 7/8/2022 Miles Guo: It is the custom of retired politicians in Japan not to bother their people, while in Communist China, a retired CCP manager would enjoy privileges far better than that of former Japanese prime ministers. This i...
@@ -10,21 +18,19 @@
 
 ---
 
+[@miles 7/9/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1hpxrua62f.md)
+
+7/9/2022 Miles Guo's GETTR: Paul Hastings, a top 10 U.S. law firm, has generated tremendous revenues from the Greater-China region and represented or advised numerous clients that are inextricably linked to the CCP. However, it wen...
+
+<img src="https://media.gettr.com/group22/getter/2022/07/09/22/ccd70d08-642e-50f3-532b-787892660ae8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/9/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1hpm764baf.md)
 
 7/6/2022 Miles Guo: It was Alvin Jiang, Zeng Qinghong, Wang Qishan, Meng Jianzhu and Sun Lijun who leaked the data from the Shanghai National Police database. Their purpose was to undermine their common enemy - Xi Jinping. More inf...
 
 <img src="https://media.gettr.com/group25/getter/2022/07/09/22/4e338825-2c21-d03d-8b2c-e18df8589a1c/out.jpg" width="506" height="284">
-
----
-
-[@drzevzelenko 7/9/2022 4:19 AM UTC ](/content/gettr/p1hlx2n9474.md)
-
-I just wanted to let everyone know who is now posting from all of Dr. Zelenko's social media accounts.
-
-
-
-My name is Daniel, many of you know me as @DschlopesIsBack and I am very close friends with Zev.  He wanted me to take over h...
 
 ---
 
@@ -177,14 +183,6 @@ Whether superior or inferior, whether noble or humble, wheth...
 2022.07.08 晚 新中国联邦 | 新闻访谈  谁在背后操作美国司法部不正常司法程序（文贵先生个人破产案）     中共蠢蠢欲动台湾     从日本前首相安倍被杀害看中国人的人性和智商
 
 <img src="https://media.gettr.com/group35/origin/2022/07/09/00/7904011a-f21d-5f09-3b16-9ddc2de4c55a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p1hljxg3080.md)
-
-2022.07.08 晚 新中国联邦 ｜ 新闻  中共10亿数据的泄露开启了以共灭共的大门；郭文贵先生破产案的财产受托人涉及与太平联盟重大利益冲突；安倍遭枪击 中共急封“可惜不是你”；孙力军案一审开庭
-
-<img src="https://media.gettr.com/group31/origin/2022/07/09/00/564d91fa-24d5-5b79-50bb-9c77cfad812e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
