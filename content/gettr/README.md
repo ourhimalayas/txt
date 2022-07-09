@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/9/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p1hllbkd88d.md)
+
+2022.07.08 晚 新中国联邦 | 新闻访谈  谁在背后操作美国司法部不正常司法程序（文贵先生个人破产案）     中共蠢蠢欲动台湾     从日本前首相安倍被杀害看中国人的人性和智商
+
+<img src="https://media.gettr.com/group35/origin/2022/07/09/00/7904011a-f21d-5f09-3b16-9ddc2de4c55a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@mr3rights 7/7/2022 3:38 PM UTC ](/content/gettr/p1hevnj4a0e.md)
+
+说说东北（续）
+
+918之后日本和国民政府谈不拢，索性将溥仪拉出来，1932年3月成立满洲国，控制整个东北。1937年的七七事变后，日本全面侵华，其后又发动太平洋战争，整个战争期间日本把东北看成是大后方来经营。当时日本根据科学分析东北一定有石油，在东北找油，只是阴差阳错，因为大庆油田是长条形的，日本专家勘探的方向与油田平行，错过了，据说已经到了安达，离油田也就几公里。如果日本人找到了大庆油田，也许就不会打印尼和东南半岛去搞石油，美国也不会遏制日本引发珍珠港之...
+
+---
+
 [@longwood 7/8/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hl5tu7313.md)
 
 大根谭124-大事分享和互动
@@ -23,14 +39,6 @@
 7/8/2022 Miles Guo: PAX and PAG managed to let the DOJ replace the trustee of my personal bankruptcy case with a person from Paul Hastings LLP, which works for PAG. This once again shows the Americans the collusion between the CCP ...
 
 <img src="https://media.gettr.com/group16/getter/2022/07/08/23/6ffd7372-a49d-fe72-5659-097e8bee6d10/out.jpg" width="506" height="284">
-
----
-
-[@mr3rights 7/7/2022 3:38 PM UTC ](/content/gettr/p1hevnj4a0e.md)
-
-说说东北（续）
-
-918之后日本和国民政府谈不拢，索性将溥仪拉出来，1932年3月成立满洲国，控制整个东北。1937年的七七事变后，日本全面侵华，其后又发动太平洋战争，整个战争期间日本把东北看成是大后方来经营。当时日本根据科学分析东北一定有石油，在东北找油，只是阴差阳错，因为大庆油田是长条形的，日本专家勘探的方向与油田平行，错过了，据说已经到了安达，离油田也就几公里。如果日本人找到了大庆油田，也许就不会打印尼和东南半岛去搞石油，美国也不会遏制日本引发珍珠港之...
 
 ---
 
@@ -155,14 +163,6 @@ GCLUBS会员线下体验
 从日本安倍被杀害看中国人的人性……和智商。
 
 <img src="https://media.gettr.com/group16/origin/2022/07/08/13/c308cbc5-f926-d119-aeb0-a2fa9ef5179c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/8/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1hitesa7d7.md)
-
-2022.07.08 早 新中国联邦 | 新闻访谈  美国司法部渎职，谁是背后黑手（文贵先生个人破产案)  日本前首相安倍在演讲中被枪杀身亡  英国首相辞职 接下来会发生什么？
-
-<img src="https://media.gettr.com/group20/origin/2022/06/29/12/a77e33f1-f648-0492-b6fa-0ff60dc783d5/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
