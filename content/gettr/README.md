@@ -10,6 +10,22 @@
 
 ---
 
+[@longwood 7/8/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hl5tu7313.md)
+
+大根谭124-大事分享和互动
+
+<img src="https://media.gettr.com/group40/origin/2022/07/08/22/1ad5c93a-3531-f0a4-88b4-20e4c6e286f0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/8/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1hltxgbbab.md)
+
+2022.07.08  NFSC fringe  Episode 225 Former Japan PM Abe Assassinated 
+
+<img src="https://media.gettr.com/group11/origin/2022/07/08/23/03797bb9-2890-8945-f830-79309f5c243d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/8/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p1hlo2j73b7.md)
 
 2022.07.08 PM NFSC News   Gettr’s CTO Introduces the New Features of the Platform
@@ -31,14 +47,6 @@
 7月8号：咋又让七哥蒙对了呢？Elon Musk notifies Twitter he is terminating deal
 
 https://www.cnbc.com/2022/07/08/elon-musk-notifies-twitter-he-is-terminating-deal.html?__source=iosappshare%7Ccom.apple.UIKit.activity.CopyToPasteboard
-
----
-
-[@miles 7/8/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1hltxgbbab.md)
-
-2022.07.08  NFSC fringe  Episode 225 Former Japan PM Abe Assassinated 
-
-<img src="https://media.gettr.com/group11/origin/2022/07/08/23/03797bb9-2890-8945-f830-79309f5c243d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ GCLUBS会员线下体验
 2022.07.08 AM NFSC news  GETTR and GNews Play Different Roles in Taking down the CCP
 
 <img src="https://media.gettr.com/group17/origin/2022/07/08/12/d7941a7e-dbe9-98ec-866b-852f48308bc9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/8/2022 11:34 AM UTC  - :tv:直播](/content/gettr/p1hjior4c6e.md)
-
-20220708ＮＦＳＣニュース 安倍元首相が銃撃を受け死亡
-
-<img src="https://media.gettr.com/group17/origin/2022/07/08/11/13477af8-ecea-2697-dba9-82969d72b098/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
