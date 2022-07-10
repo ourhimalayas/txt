@@ -2,13 +2,19 @@
 ---
 
 
-[@miles 7/9/2022 2:07 AM UTC ](/content/gettr/p1hmgja2902.md)
+[@miles 7/10/2022 12:50 PM UTC  - :tv:直播](/content/gettr/p1hrm58a205.md)
 
-Demographic data leak leads to national trial of the Chinese Communist Party (CCP) and the Whistleblower Movement (WM) enters an era of automatic annihilation of the CCP
+2022年7月10日 文贵大直播：量子农场成立首秀 （1080p版）
 
-On July 6, Miles Guo said that China's economy is vulnerable...
+<img src="https://media.gettr.com/group3/origin/2022/07/10/12/e1b6b5f3-1007-3b73-1dca-9a211f62641a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
-<img src="https://media.gettr.com/group47/origin/2022/07/09/02/098d83e7-454b-015d-0fae-5a8353924d32/ab3955ec7f6748fefef4b3f2732ddf9f.jpg" width="506" height="284">
+---
+
+[@miles 7/10/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1hrbqo2f34.md)
+
+2022年7月10日 文贵大直播：量子农场成立首秀 （4K版）
+
+<img src="https://media.gettr.com/group11/origin/2022/07/10/12/33850561-71d4-991e-7219-1f55c8a98520/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +175,6 @@ Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江�
 2022-7-8《鸡血王喜币大作战》250期 嘉宾：文空、封神榜 #安倍遇刺与美国司法部的惊天黑暗
 
 <img src="https://media.gettr.com/group28/origin/2022/07/09/03/e67ecfe5-7d3a-cc54-6a2d-06d8075e2e78/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/9/2022 2:48 AM UTC  - :tv:直播](/content/gettr/p1hly8612d1.md)
-
-7/8/2022 Miles Guo: Shinzo Abe is one of a few professional politicians in the world that are clean and wise. The CCP Embassy in Japan is inextricably linked to the assassination of Abe! Two months ago, the CCP told Japan that it w...
-
-<img src="https://media.gettr.com/group47/getter/2022/07/09/02/da368b63-2a0e-b981-1048-26a2cb768dd5/out.jpg" width="506" height="284">
 
 ---
 
