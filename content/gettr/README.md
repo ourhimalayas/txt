@@ -2,11 +2,27 @@
 ---
 
 
+[@miles 7/10/2022 11:00 PM UTC ](/content/gettr/p1htdage6f8.md)
+
+
+
+7月10日：太精彩了，这样的素质怎么会被掏空呢？越战越勇……战中取智．战中取能……越战越仁……
+
+---
+
 [@miles 7/10/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1htbtd6d1f.md)
 
 7/10/2022 Miles Guo: The assassination of Abe and the resignation of Boris Johnson are more or less associated with the influence of the interest groups of Russia and the CCP. As far as our mission of taking down the CCP is concern...
 
 <img src="https://media.gettr.com/group21/getter/2022/07/10/22/fdebed13-11e1-ac5f-19e5-91fbb78e27c3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/10/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1httud3cce.md)
+
+7/10/2022 Miles Guo: Hon. Julie A. Manning was outraged by the DOJ's procedural violations in changing the trustee. Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community...
+
+<img src="https://media.gettr.com/group15/getter/2022/07/10/23/a77ca309-1dab-f3cd-3046-aa6225bb1868/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,34 +159,6 @@ Luc A. Despins被前妻起诉 不支付诉讼期间赡养费给前期和三个�
 7/8/2022 Miles Guo: The PAX case will send all the attorneys and the officials in the DOJ and the Hong Kong government colluding with PAG, and all PAG's senior executives and attorneys to jail. The CCP cannot deceive the US forever...
 
 <img src="https://media.gettr.com/group42/getter/2022/07/09/05/64f8ca5a-9533-3231-7be4-9edfe54984ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 5:05 AM UTC  - :tv:直播](/content/gettr/p1hm0pd2d90.md)
-
-How could PAG make the DOJ ignore an obvious conflict of interest and change the trustee assigned to my personal bankruptcy case from a highly respected Republican, Mr. Joe D. Whitley, to Luc A. Despins, a partner of Paul Hastings ...
-
-<img src="https://media.gettr.com/group9/getter/2022/07/09/04/d54aae46-1f3a-2e4d-ff64-c8dfd9ef484f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 4:53 AM UTC ](/content/gettr/p1hm99ga640.md)
-
-战友们好！
-
-🥳🥳美国国庆日Gclub会员尊贵独享活动仍在继续！🥳🥳
-
-
-
-🥂自七月四号美国独立日庆典开始，Gfashion正在举办为期三周的仅供尊贵的Gclub会员专享活动，且在线上线下同时进行。纽约总部办公室现开放第二批GClubs会员现场试穿GFashion活动。
-
-
-
-❗️❗️ 现场有大惊喜：七哥量身定做的GFashion服饰，全世界独一无二的衣服，仅在现场有售。独一无二，绝无仅有。
-
-
-
-欢迎全球GClubs会员到现场试穿及购买🥰🥰。...
 
 ---
 
