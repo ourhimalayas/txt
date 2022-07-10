@@ -2,11 +2,33 @@
 ---
 
 
+[@miles 7/9/2022 2:07 AM UTC ](/content/gettr/p1hmgja2902.md)
+
+Demographic data leak leads to national trial of the Chinese Communist Party (CCP) and the Whistleblower Movement (WM) enters an era of automatic annihilation of the CCP
+
+On July 6, Miles Guo said that China's economy is vulnerable...
+
+<img src="https://media.gettr.com/group47/origin/2022/07/09/02/098d83e7-454b-015d-0fae-5a8353924d32/ab3955ec7f6748fefef4b3f2732ddf9f.jpg" width="506" height="284">
+
+---
+
 [@miles 7/10/2022 4:06 AM UTC  - :tv:直播](/content/gettr/p1hqu9n4de6.md)
 
 7/8/2022 Miles Guo: I ask those Chinese who express their happiness over Abe's death to search their souls, what causes their behaviors? Abe was tragically assassinated because he lost his PM privileges after he left office, while ...
 
 <img src="https://media.gettr.com/group45/getter/2022/07/10/04/b930829b-b4d2-6006-ca7f-9ddaa1e7f4b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/10/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1hr27134e8.md)
+
+7/8/2022 Miles Guo: The original trustee of my personal bankruptcy case was replaced with a person from Paul Hastings LLP. This change has again shown to the Americans how bad the CCP has infiltrated in the US judicial system
+
+
+
+7/...
+
+<img src="https://media.gettr.com/group46/getter/2022/07/10/04/c6270715-f3b4-f082-910f-5bb2c5bc743b/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,18 +51,6 @@
 7/9/2022 Miles Guo's GETTR: Luc A. Despins, the new trustee appointed by the DOJ and a partner of Paul Hastings LLP, asked to board Lady May the day before yesterday and bluntly attempted to deceive Her Honorable Julie Manning by c...
 
 <img src="https://media.gettr.com/group21/getter/2022/07/09/22/3071a8f1-ebaa-c352-49c7-693e845a0b93/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/10/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1hr27134e8.md)
-
-7/8/2022 Miles Guo: The original trustee of my personal bankruptcy case was replaced with a person from Paul Hastings LLP. This change has again shown to the Americans how bad the CCP has infiltrated in the US judicial system
-
-
-
-7/...
-
-<img src="https://media.gettr.com/group46/getter/2022/07/10/04/c6270715-f3b4-f082-910f-5bb2c5bc743b/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,14 +83,6 @@
 7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. This is fishy! At least half of Paul Hastings LLP’s revenue comes from Communist China and i...
 
 <img src="https://media.gettr.com/group5/getter/2022/07/09/22/c09d3851-f4a2-b785-ad22-699b4e0ce6e7/out.jpg" width="506" height="284">
-
----
-
-[@s7gril 7/9/2022 3:20 PM UTC  - :tv:直播](/content/gettr/c18oaiaac08.md)
-
-Evidence of direct conflict of interest of #PaulHastings LLP.
-
-<img src="https://media.gettr.com/group47/origin/2022/07/09/15/950f4be3-fb4c-8c46-1cc9-9c9c5a651328/out.jpg" width="506" height="284">
 
 ---
 
