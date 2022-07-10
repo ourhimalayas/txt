@@ -2,15 +2,19 @@
 ---
 
 
-[@miles 7/9/2022 3:06 AM UTC ](/content/gettr/p1hlyoe8c65.md)
+[@miles 7/10/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1htbtd6d1f.md)
 
-Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江——香港经典歌曲特辑
+7/10/2022 Miles Guo: The assassination of Abe and the resignation of Boris Johnson are more or less associated with the influence of the interest groups of Russia and the CCP. As far as our mission of taking down the CCP is concern...
 
-歌手：Superman @supermanwang
+<img src="https://media.gettr.com/group21/getter/2022/07/10/22/fdebed13-11e1-ac5f-19e5-91fbb78e27c3/out.jpg" width="506" height="284">
 
-钢琴/歌手：QMay
+---
 
-嘉宾：鬼五 @ghostfifthly
+[@miles 7/10/2022 10:36 PM UTC  - :tv:直播](/content/gettr/p1htnld56a3.md)
+
+7/10/2022 Miles Guo: The CCP's unrestricted warfare against the US is based in Canada. Trudeau's lack of action against the CCP implies the CCP has something on him. The top richest people from Canada are scared of the CCP which is...
+
+<img src="https://media.gettr.com/group17/getter/2022/07/10/22/c0d982f1-adb9-aaf4-e876-eb23553e02f8/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +171,6 @@ How could PAG make the DOJ ignore an obvious conflict of interest and change the
 
 
 欢迎全球GClubs会员到现场试穿及购买🥰🥰。...
-
----
-
-[@miles 7/9/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1hlwtwcb04.md)
-
-2022-7-8《鸡血王喜币大作战》250期 嘉宾：文空、封神榜 #安倍遇刺与美国司法部的惊天黑暗
-
-<img src="https://media.gettr.com/group28/origin/2022/07/09/03/e67ecfe5-7d3a-cc54-6a2d-06d8075e2e78/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
