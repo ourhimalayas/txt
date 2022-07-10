@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/10/2022 4:06 AM UTC  - :tv:直播](/content/gettr/p1hqu9n4de6.md)
+
+7/8/2022 Miles Guo: I ask those Chinese who express their happiness over Abe's death to search their souls, what causes their behaviors? Abe was tragically assassinated because he lost his PM privileges after he left office, while ...
+
+<img src="https://media.gettr.com/group45/getter/2022/07/10/04/b930829b-b4d2-6006-ca7f-9ddaa1e7f4b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/9/2022 11:19 PM UTC ](/content/gettr/p1hpu5tde4b.md)
+
+7月 9日；太棒了。【】、】【】、、】【】、
+
+---
+
 [@miles 7/9/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1hph7lc275.md)
 
  7月9号：感谢这位战友做的这个专业可爱的视频……太棒了！
@@ -18,9 +32,15 @@
 
 ---
 
-[@miles 7/9/2022 11:19 PM UTC ](/content/gettr/p1hpu5tde4b.md)
+[@miles 7/10/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1hr27134e8.md)
 
-7月 9日；太棒了。【】、】【】、、】【】、
+7/8/2022 Miles Guo: The original trustee of my personal bankruptcy case was replaced with a person from Paul Hastings LLP. This change has again shown to the Americans how bad the CCP has infiltrated in the US judicial system
+
+
+
+7/...
+
+<img src="https://media.gettr.com/group46/getter/2022/07/10/04/c6270715-f3b4-f082-910f-5bb2c5bc743b/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,24 +175,6 @@ Super-May线上直播音乐会 第十五期：消失的自由，永恒的香江�
 7/8/2022 Miles Guo: Shinzo Abe is one of a few professional politicians in the world that are clean and wise. The CCP Embassy in Japan is inextricably linked to the assassination of Abe! Two months ago, the CCP told Japan that it w...
 
 <img src="https://media.gettr.com/group47/getter/2022/07/09/02/da368b63-2a0e-b981-1048-26a2cb768dd5/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p1hlt7b42f8.md)
-
-2022.07.08  新中国联邦 | 喜财经  第103期 馬歇爾計劃、布雷頓森林體系、石油美元; 世界危機已經到來，主權國家違約，新能源政策; 韓國、德國貿易逆差
-
-<img src="https://media.gettr.com/group15/origin/2022/07/09/01/ca5a3aeb-85d5-f756-5ad8-bd37a4effdd4/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/9/2022 2:07 AM UTC ](/content/gettr/p1hmgja2902.md)
-
-Demographic data leak leads to national trial of the Chinese Communist Party (CCP) and the Whistleblower Movement (WM) enters an era of automatic annihilation of the CCP
-
-On July 6, Miles Guo said that China's economy is vulnerable...
-
-<img src="https://media.gettr.com/group47/origin/2022/07/09/02/098d83e7-454b-015d-0fae-5a8353924d32/ab3955ec7f6748fefef4b3f2732ddf9f.jpg" width="506" height="284">
 
 ---
 
