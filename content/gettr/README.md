@@ -2,11 +2,17 @@
 ---
 
 
-[@realfayfay 7/11/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1hwi9m2cd7.md)
+[@miles 7/9/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1hpxrua62f.md)
 
-（1080版）飞飞秀 《利益冲突·第四篇》 2022-07-11
+7/9/2022 Miles Guo's GETTR: Paul Hastings, a top 10 U.S. law firm, has generated tremendous revenues from the Greater-China region and represented or advised numerous clients that are inextricably linked to the CCP. However, it wen...
 
-<img src="https://media.gettr.com/group44/origin/2022/07/11/13/a2f709be-04dc-319c-db72-30e1cb0c79a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/07/09/22/ccd70d08-642e-50f3-532b-787892660ae8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/11/2022 3:26 PM UTC ](/content/gettr/p1hwbr611f4.md)
+
+ 7月11号：这是一个光辉灿烂，上天赐给我们的美好日子……这样的节目，这样的男人……这样的女人……怎么让人不喜欢？
 
 ---
 
@@ -27,12 +33,6 @@ The Latest Case of Judical Corruption In The US
 美国司法腐败最新案例
 
 <img src="https://media.gettr.com/group19/getter/2022/07/11/11/cab49a4c-57fc-be7d-f0a4-48ed3805d881/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 3:26 PM UTC ](/content/gettr/p1hwbr611f4.md)
-
- 7月11号：这是一个光辉灿烂，上天赐给我们的美好日子……这样的节目，这样的男人……这样的女人……怎么让人不喜欢？
 
 ---
 
