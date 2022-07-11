@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/11/2022 2:14 AM UTC ](/content/gettr/p1huaz19bdd.md)
+
+Miles Guo, Whistleblower, the #1 Enemy of the Chinese Communist Party (CCP), Is Being Mistreated by DOJ in America
+
+
+
+https://www.issuewire.com/miles-guo-whistleblower-the-1-enemy-of-the-chinese-communist-party-ccp-is-being-mistrea...
+
+---
+
 [@miles 7/11/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1htmp25f65.md)
 
 This time, PAG openly committed fraud by having the DOJ collude with the CCP regarding the appointment of the trustee. PAX and PAG showed the Americans how powerful the CCP and PAG are. They were able to withdraw the trustee appoin...
@@ -18,13 +28,11 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 
 ---
 
-[@miles 7/11/2022 2:14 AM UTC ](/content/gettr/p1huaz19bdd.md)
+[@miles 7/11/2022 2:23 AM UTC  - :tv:直播](/content/gettr/p1hui4s0318.md)
 
-Miles Guo, Whistleblower, the #1 Enemy of the Chinese Communist Party (CCP), Is Being Mistreated by DOJ in America
+7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. At least half of Paul Hastings LLP’s revenue comes from Communist China. Don’t you see any c...
 
-
-
-https://www.issuewire.com/miles-guo-whistleblower-the-1-enemy-of-the-chinese-communist-party-ccp-is-being-mistrea...
+<img src="https://media.gettr.com/group12/getter/2022/07/11/02/7c8752f8-2cba-cd64-0f5c-0ba96ef8a417/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ https://www.issuewire.com/miles-guo-whistleblower-the-1-enemy-of-the-chinese-com
 [@himalayatwins 7/9/2022 7:18 AM UTC ](/content/gettr/c18nd8uc5c4.md)
 
 Luc A. Despins被前妻起诉 不支付诉讼期间赡养费给前期和三个孩子 2012年康州最高法判决要支付赡养费；当时2009年Luc到Paul Hasting年薪大约5百5十万美元 而他妻子带三个孩子每个月收入125美金。Luc A. Despins就是人渣啊 https://caselaw.findlaw.com/ct-superior-court/1593773.html
-
----
-
-[@miles 7/9/2022 7:14 AM UTC  - :tv:直播](/content/gettr/p1hmico7e09.md)
-
-7/8/2022 Miles Guo:  It is sick for some people in mainland China to feel happy when Mr. Shinzo Abe is assassinated. Their behavior is the outcome of being brainwashed by the CCP's propaganda for years. A country or a nation will n...
-
-<img src="https://media.gettr.com/group25/getter/2022/07/09/07/c5b2d94d-204e-30db-4d25-1bb77e05fc13/out.jpg" width="506" height="284">
 
 ---
 
