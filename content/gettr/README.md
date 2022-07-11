@@ -2,6 +2,22 @@
 ---
 
 
+[@realfayfay 7/11/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1hwi9m2cd7.md)
+
+（1080版）飞飞秀 《利益冲突·第四篇》 2022-07-11
+
+<img src="https://media.gettr.com/group44/origin/2022/07/11/13/a2f709be-04dc-319c-db72-30e1cb0c79a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/11/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1hw7va2f42.md)
+
+ 7月11号：尊敬的战友们好，我们进入了与美国黑暗势力和共产党在美国潜伏力量的面对面的较量，这是上天给我们送来灭共的最好的礼物……最好的机会，让我们真正的开始：以美灭共．以法灭共．普衡律师事务所是一个开启中美之间政治，法律，经济黑暗的大门！全球的战友们．真心灭共者．让我们开始吧……
+
+<img src="https://media.gettr.com/group34/getter/2022/07/11/13/0918d1d6-a6b3-5f4c-f079-94256add58fc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1hvi1ie32a.md)
 
 The Latest Case of Judical Corruption In The US
@@ -14,11 +30,9 @@ The Latest Case of Judical Corruption In The US
 
 ---
 
-[@miles 7/11/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1hw7va2f42.md)
+[@miles 7/11/2022 3:26 PM UTC ](/content/gettr/p1hwbr611f4.md)
 
- 7月11号：尊敬的战友们好，我们进入了与美国黑暗势力和共产党在美国潜伏力量的面对面的较量，这是上天给我们送来灭共的最好的礼物……最好的机会，让我们真正的开始：以美灭共．以法灭共．普衡律师事务所是一个开启中美之间政治，法律，经济黑暗的大门！全球的战友们．真心灭共者．让我们开始吧……
-
-<img src="https://media.gettr.com/group34/getter/2022/07/11/13/0918d1d6-a6b3-5f4c-f079-94256add58fc/out.jpg" width="506" height="284">
+ 7月11号：这是一个光辉灿烂，上天赐给我们的美好日子……这样的节目，这样的男人……这样的女人……怎么让人不喜欢？
 
 ---
 
@@ -151,22 +165,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
  7月9号：感谢这位战友做的这个专业可爱的视频……太棒了！
 
 <img src="https://media.gettr.com/group5/getter/2022/07/09/22/7986e067-636d-07c0-cf9f-89d55049ab18/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 10:21 PM UTC  - :tv:直播](/content/gettr/p1hpqwvaa26.md)
-
-7/9/2022 Miles Guo's GETTR: Luc A. Despins, the new trustee appointed by the DOJ and a partner of Paul Hastings LLP, asked to board Lady May the day before yesterday and bluntly attempted to deceive Her Honorable Julie Manning by c...
-
-<img src="https://media.gettr.com/group21/getter/2022/07/09/22/3071a8f1-ebaa-c352-49c7-693e845a0b93/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1hpxrua62f.md)
-
-7/9/2022 Miles Guo's GETTR: Paul Hastings, a top 10 U.S. law firm, has generated tremendous revenues from the Greater-China region and represented or advised numerous clients that are inextricably linked to the CCP. However, it wen...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/09/22/ccd70d08-642e-50f3-532b-787892660ae8/out.jpg" width="506" height="284">
 
 ---
 
