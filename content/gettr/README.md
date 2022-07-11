@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/11/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1htmp25f65.md)
+
+This time, PAG openly committed fraud by having the DOJ collude with the CCP regarding the appointment of the trustee. PAX and PAG showed the Americans how powerful the CCP and PAG are. They were able to withdraw the trustee appoin...
+
+<img src="https://media.gettr.com/group16/origin/2022/07/09/13/5ea827cc-0563-959e-ccec-6076e8df5274/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/10/2022 11:00 PM UTC ](/content/gettr/p1htdage6f8.md)
 
 
@@ -10,11 +18,13 @@
 
 ---
 
-[@miles 7/11/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1htmp25f65.md)
+[@miles 7/11/2022 2:14 AM UTC ](/content/gettr/p1huaz19bdd.md)
 
-This time, PAG openly committed fraud by having the DOJ collude with the CCP regarding the appointment of the trustee. PAX and PAG showed the Americans how powerful the CCP and PAG are. They were able to withdraw the trustee appoin...
+Miles Guo, Whistleblower, the #1 Enemy of the Chinese Communist Party (CCP), Is Being Mistreated by DOJ in America
 
-<img src="https://media.gettr.com/group16/origin/2022/07/09/13/5ea827cc-0563-959e-ccec-6076e8df5274/out.jpg" width="506" height="284">
+
+
+https://www.issuewire.com/miles-guo-whistleblower-the-1-enemy-of-the-chinese-communist-party-ccp-is-being-mistrea...
 
 ---
 
@@ -143,14 +153,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 [@himalayatwins 7/9/2022 7:18 AM UTC ](/content/gettr/c18nd8uc5c4.md)
 
 Luc A. Despins被前妻起诉 不支付诉讼期间赡养费给前期和三个孩子 2012年康州最高法判决要支付赡养费；当时2009年Luc到Paul Hasting年薪大约5百5十万美元 而他妻子带三个孩子每个月收入125美金。Luc A. Despins就是人渣啊 https://caselaw.findlaw.com/ct-superior-court/1593773.html
-
----
-
-[@miles 7/9/2022 7:08 AM UTC  - :tv:直播](/content/gettr/p1hml4u0a3a.md)
-
-7/8/2022 Miles Guo: The Chinese people who have been enslaved under the CCP's rule are so ignorant and pathetic that they would burst into tears and fall to their knees to show gratitude to the kleptocrats such as Jiang Zemin and Z...
-
-<img src="https://media.gettr.com/group44/getter/2022/07/09/07/621daff9-ea02-8111-0afd-6c6693747a1a/out.jpg" width="506" height="284">
 
 ---
 
