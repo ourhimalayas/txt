@@ -10,11 +10,31 @@
 
 ---
 
+[@longwood 7/11/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hyghs7ddf.md)
+
+大根谭127 - 内容分享和互动
+
+<img src="https://media.gettr.com/group36/origin/2022/07/11/23/69259bcd-78f5-b1b2-0523-b84d0fc4338b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1hy50o0b07.md)
 
 7/10/2022 Miles Guo: The CCP had a clear motive to kill PM Abe, and the resignation of the British PM was pushed by the CCP and Russian interest groups. Both events will bring us more allies who are determined to take down the CCP!...
 
 <img src="https://media.gettr.com/group33/getter/2022/07/11/23/d97596fe-296e-435c-80e2-31239957b358/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1hykyea13b.md)
+
+7/10/2022 Miles Guo: The bankruptcy of Sri Lanka, which has received enormous funding from the CCP, will trigger the bankruptcy of 40 to 60 countries, but sadly the Chinese people will end up being the most hated people!
+
+
+
+7/10/20...
+
+<img src="https://media.gettr.com/group24/getter/2022/07/11/23/865b3f0a-7c3a-38f1-2d15-914a3c2179d2/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,18 +59,6 @@
 [@miles 7/11/2022 5:48 PM UTC ](/content/gettr/p1hwxqb2da9.md)
 
 😍😍😍😍😍😍😍😍
-
----
-
-[@miles 7/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1hykyea13b.md)
-
-7/10/2022 Miles Guo: The bankruptcy of Sri Lanka, which has received enormous funding from the CCP, will trigger the bankruptcy of 40 to 60 countries, but sadly the Chinese people will end up being the most hated people!
-
-
-
-7/10/20...
-
-<img src="https://media.gettr.com/group24/getter/2022/07/11/23/865b3f0a-7c3a-38f1-2d15-914a3c2179d2/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 7/10/2022 Miles Guo: The CCP's unrestricted warfare against the US is based in Canada. Trudeau's lack of action against the CCP implies the CCP has something on him. The top richest people from Canada are scared of the CCP which is...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/10/22/c0d982f1-adb9-aaf4-e876-eb23553e02f8/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/10/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1hrbqo2f34.md)
-
-2022年7月10日 文贵大直播：量子农场成立首秀 （4K版）
-
-<img src="https://media.gettr.com/group11/origin/2022/07/10/12/33850561-71d4-991e-7219-1f55c8a98520/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
