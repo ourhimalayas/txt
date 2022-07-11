@@ -8,6 +8,16 @@
 
 ---
 
+[@miles 7/11/2022 9:58 PM UTC ](/content/gettr/p1hxndg7e39.md)
+
+周三文贵大直播问题征集
+
+☺️请战友们留言区留言☺️
+
+<img src="https://media.gettr.com/group18/origin/2022/07/11/21/6d287f20-8f5e-d1f8-cc3d-4b3f076381b8/98d98e85dc3ea1831a54617ac2214772.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 3:26 PM UTC ](/content/gettr/p1hwbr611f4.md)
 
  7月11号：这是一个光辉灿烂，上天赐给我们的美好日子……这样的节目，这样的男人……这样的女人……怎么让人不喜欢？
@@ -155,14 +165,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 [@miles 7/9/2022 11:19 PM UTC ](/content/gettr/p1hpu5tde4b.md)
 
 7月 9日；太棒了。【】、】【】、、】【】、
-
----
-
-[@miles 7/9/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1hph7lc275.md)
-
- 7月9号：感谢这位战友做的这个专业可爱的视频……太棒了！
-
-<img src="https://media.gettr.com/group5/getter/2022/07/09/22/7986e067-636d-07c0-cf9f-89d55049ab18/out.jpg" width="506" height="284">
 
 ---
 
