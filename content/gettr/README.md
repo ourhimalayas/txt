@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 7/11/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hya13feb7.md)
+
+7/10/2022 Miles Guo: The CCP controls Brazil's military, economy and politicians, and it intends to use its forces hidden inside Brazil to prevent current Brazil president Jair Bolsonaro from winning the next term in election. I be...
+
+<img src="https://media.gettr.com/group47/getter/2022/07/11/22/6b6865ef-eb24-3a40-d489-a502925d7f5f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/11/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1hy50o0b07.md)
+
+7/10/2022 Miles Guo: The CCP had a clear motive to kill PM Abe, and the resignation of the British PM was pushed by the CCP and Russian interest groups. Both events will bring us more allies who are determined to take down the CCP!...
+
+<img src="https://media.gettr.com/group33/getter/2022/07/11/23/d97596fe-296e-435c-80e2-31239957b358/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/11/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1hy9pb3804.md)
+
+7/10/2022 Miles Guo: It's very dangerous for the current Brazil president Jair Bolsonaro to try to balance between the U.S. and the Communist China. Cuba, Brazil and Venezuela will all soon go bankrupt and hence follow American dem...
+
+<img src="https://media.gettr.com/group4/getter/2022/07/11/22/6c5ea723-97e4-ce06-62b9-d7266f22b44e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 9:58 PM UTC ](/content/gettr/p1hxndg7e39.md)
 
 周三文贵大直播问题征集
@@ -18,11 +42,15 @@
 
 ---
 
-[@miles 7/11/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1hy9pb3804.md)
+[@miles 7/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1hykyea13b.md)
 
-7/10/2022 Miles Guo: It's very dangerous for the current Brazil president Jair Bolsonaro to try to balance between the U.S. and the Communist China. Cuba, Brazil and Venezuela will all soon go bankrupt and hence follow American dem...
+7/10/2022 Miles Guo: The bankruptcy of Sri Lanka, which has received enormous funding from the CCP, will trigger the bankruptcy of 40 to 60 countries, but sadly the Chinese people will end up being the most hated people!
 
-<img src="https://media.gettr.com/group4/getter/2022/07/11/22/6c5ea723-97e4-ce06-62b9-d7266f22b44e/out.jpg" width="506" height="284">
+
+
+7/10/20...
+
+<img src="https://media.gettr.com/group24/getter/2022/07/11/23/865b3f0a-7c3a-38f1-2d15-914a3c2179d2/out.jpg" width="506" height="284">
 
 ---
 
@@ -134,39 +162,11 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 
 ---
 
-[@miles 7/10/2022 12:50 PM UTC  - :tv:直播](/content/gettr/p1hrm58a205.md)
-
-2022年7月10日 文贵大直播：量子农场成立首秀 （1080p版）
-
-<img src="https://media.gettr.com/group3/origin/2022/07/10/12/e1b6b5f3-1007-3b73-1dca-9a211f62641a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/10/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1hrbqo2f34.md)
 
 2022年7月10日 文贵大直播：量子农场成立首秀 （4K版）
 
 <img src="https://media.gettr.com/group11/origin/2022/07/10/12/33850561-71d4-991e-7219-1f55c8a98520/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/10/2022 4:06 AM UTC  - :tv:直播](/content/gettr/p1hqu9n4de6.md)
-
-7/8/2022 Miles Guo: I ask those Chinese who express their happiness over Abe's death to search their souls, what causes their behaviors? Abe was tragically assassinated because he lost his PM privileges after he left office, while ...
-
-<img src="https://media.gettr.com/group45/getter/2022/07/10/04/b930829b-b4d2-6006-ca7f-9ddaa1e7f4b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/10/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1hr27134e8.md)
-
-7/8/2022 Miles Guo: The original trustee of my personal bankruptcy case was replaced with a person from Paul Hastings LLP. This change has again shown to the Americans how bad the CCP has infiltrated in the US judicial system
-
-
-
-7/...
-
-<img src="https://media.gettr.com/group46/getter/2022/07/10/04/c6270715-f3b4-f082-910f-5bb2c5bc743b/out.jpg" width="506" height="284">
 
 ---
 
