@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/11/2022 3:20 AM UTC  - :tv:直播](/content/gettr/p1huqjq3359.md)
+
+7/10/2022 Miles Guo: Through the prompt action, our fellow fighters revealed the connection between the newly appointed trustee and the CCP in the first place, which disrupts the CCP's plot to attempt to attack me through this case...
+
+<img src="https://media.gettr.com/group32/getter/2022/07/11/03/9ca4bdac-f461-79e0-38e1-0c53b981d3b0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 2:32 AM UTC  - :tv:直播](/content/gettr/p1hur810660.md)
 
 7/10/2022 Miles Guo:  More former Soviet Union Republics will join Kazakhstan to decouple from Russia and Communist China, which will trigger a radical geopolitical change in Euro-Asia; Humanity will enter a most prosperous era whe...
@@ -44,11 +52,11 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 
 ---
 
-[@miles 7/11/2022 3:20 AM UTC  - :tv:直播](/content/gettr/p1huqjq3359.md)
+[@miles 7/11/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1huufuf794.md)
 
-7/10/2022 Miles Guo: Through the prompt action, our fellow fighters revealed the connection between the newly appointed trustee and the CCP in the first place, which disrupts the CCP's plot to attempt to attack me through this case...
+7/10/2022 Miles Guo: The Chinese Communist Party has loaned hundreds of billions of yuan to the Rajapaksa family in Sri Lanka regardless of the fact that many Chinese people are starving. Sri Lanka's bankruptcy will trigger the sub...
 
-<img src="https://media.gettr.com/group32/getter/2022/07/11/03/9ca4bdac-f461-79e0-38e1-0c53b981d3b0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/07/11/07/b0a38711-5529-e5b8-d7ff-5780abe01435/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,14 +147,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 7/9/2022 Miles Guo's GETTR: Paul Hastings, a top 10 U.S. law firm, has generated tremendous revenues from the Greater-China region and represented or advised numerous clients that are inextricably linked to the CCP. However, it wen...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/09/22/ccd70d08-642e-50f3-532b-787892660ae8/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p1hptg7a1f1.md)
-
-7/8/2022 Miles Guo: It is the custom of retired politicians in Japan not to bother their people, while in Communist China, a retired CCP manager would enjoy privileges far better than that of former Japanese prime ministers. This i...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/09/21/b44672e5-fdb8-2d47-2fd0-bdeefac5118e/out.jpg" width="506" height="284">
 
 ---
 
