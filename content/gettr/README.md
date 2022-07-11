@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/11/2022 2:32 AM UTC  - :tv:直播](/content/gettr/p1hur810660.md)
+
+7/10/2022 Miles Guo:  More former Soviet Union Republics will join Kazakhstan to decouple from Russia and Communist China, which will trigger a radical geopolitical change in Euro-Asia; Humanity will enter a most prosperous era whe...
+
+<img src="https://media.gettr.com/group8/getter/2022/07/11/02/e10e1c2d-2839-349c-d31c-2627be49c09f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 2:23 AM UTC  - :tv:直播](/content/gettr/p1hui4s0318.md)
 
 7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. At least half of Paul Hastings LLP’s revenue comes from Communist China. Don’t you see any c...
@@ -36,11 +44,11 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 
 ---
 
-[@miles 7/11/2022 2:32 AM UTC  - :tv:直播](/content/gettr/p1hur810660.md)
+[@miles 7/11/2022 3:20 AM UTC  - :tv:直播](/content/gettr/p1huqjq3359.md)
 
-7/10/2022 Miles Guo:  More former Soviet Union Republics will join Kazakhstan to decouple from Russia and Communist China, which will trigger a radical geopolitical change in Euro-Asia; Humanity will enter a most prosperous era whe...
+7/10/2022 Miles Guo: Through the prompt action, our fellow fighters revealed the connection between the newly appointed trustee and the CCP in the first place, which disrupts the CCP's plot to attempt to attack me through this case...
 
-<img src="https://media.gettr.com/group8/getter/2022/07/11/02/e10e1c2d-2839-349c-d31c-2627be49c09f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/07/11/03/9ca4bdac-f461-79e0-38e1-0c53b981d3b0/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. This is fishy! At least half of Paul Hastings LLP’s revenue comes from Communist China and i...
 
 <img src="https://media.gettr.com/group5/getter/2022/07/09/22/c09d3851-f4a2-b785-ad22-699b4e0ce6e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1hocif7559.md)
-
-7月9号：尊敬的战友们好，我们与PAG诉讼正在进行到关键的时刻，我们一定要让美国．真正的了解中国共产党在西方……和美国司法界的渗透，就像在媒体界的渗透一样，对美国的的威胁……远远大于常规武器，我们一定会让西方看到这一切背后的真相。达到我们依法灭共的目的！衷心地感谢所有的战友们的关注和关心，一切都已经开始。[今天我们节目里提到的几家公司的相关信息，他们全部删掉了，没删干净，搜索里还是有，点进去变成404https://caselaw.findlaw.com/c...
-
-<img src="https://media.gettr.com/group35/getter/2022/07/09/14/a1857189-8375-4f8d-a73c-0aa8b9785380/out.jpg" width="506" height="284">
 
 ---
 
