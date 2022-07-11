@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 7/11/2022 7:37 AM UTC  - :tv:直播](/content/gettr/p1hv7w859ac.md)
+
+The Latest Case of Judical Corruption In The US
+
+
+
+美国司法腐败最新案例
+
+<img src="https://media.gettr.com/group15/getter/2022/07/11/07/6e603127-1ed3-c182-e0f2-5edcd78c8a0f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/11/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1huufuf794.md)
+
+7/10/2022 Miles Guo: The Chinese Communist Party has loaned hundreds of billions of yuan to the Rajapaksa family in Sri Lanka regardless of the fact that many Chinese people are starving. Sri Lanka's bankruptcy will trigger the sub...
+
+<img src="https://media.gettr.com/group19/getter/2022/07/11/07/b0a38711-5529-e5b8-d7ff-5780abe01435/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 3:20 AM UTC  - :tv:直播](/content/gettr/p1huqjq3359.md)
 
 7/10/2022 Miles Guo: Through the prompt action, our fellow fighters revealed the connection between the newly appointed trustee and the CCP in the first place, which disrupts the CCP's plot to attempt to attack me through this case...
@@ -52,11 +72,11 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 
 ---
 
-[@miles 7/11/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1huufuf794.md)
+[@s7gril 7/11/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p1hty7c349b.md)
 
-7/10/2022 Miles Guo: The Chinese Communist Party has loaned hundreds of billions of yuan to the Rajapaksa family in Sri Lanka regardless of the fact that many Chinese people are starving. Sri Lanka's bankruptcy will trigger the sub...
+(Part 8) - Here is a shortened audio recording (part 1) of the hearing Judge Manning held on July 6th, 2022, regarding the withdrawal application of the 1st #Trustee #JoeWhitley, filed by the Office and the United States Trustee (#...
 
-<img src="https://media.gettr.com/group19/getter/2022/07/11/07/b0a38711-5529-e5b8-d7ff-5780abe01435/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/07/11/03/8bf7cc94-cc77-a563-7ff9-bd44cf490645/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,22 +167,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 7/9/2022 Miles Guo's GETTR: Paul Hastings, a top 10 U.S. law firm, has generated tremendous revenues from the Greater-China region and represented or advised numerous clients that are inextricably linked to the CCP. However, it wen...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/09/22/ccd70d08-642e-50f3-532b-787892660ae8/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p1hpm764baf.md)
-
-7/6/2022 Miles Guo: It was Alvin Jiang, Zeng Qinghong, Wang Qishan, Meng Jianzhu and Sun Lijun who leaked the data from the Shanghai National Police database. Their purpose was to undermine their common enemy - Xi Jinping. More inf...
-
-<img src="https://media.gettr.com/group25/getter/2022/07/09/22/4e338825-2c21-d03d-8b2c-e18df8589a1c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1hprzk3fe8.md)
-
-7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. This is fishy! At least half of Paul Hastings LLP’s revenue comes from Communist China and i...
-
-<img src="https://media.gettr.com/group5/getter/2022/07/09/22/c09d3851-f4a2-b785-ad22-699b4e0ce6e7/out.jpg" width="506" height="284">
 
 ---
 
