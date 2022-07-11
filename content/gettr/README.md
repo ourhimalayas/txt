@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 7/10/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1htbtd6d1f.md)
+[@miles 7/11/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1htmp25f65.md)
 
-7/10/2022 Miles Guo: The assassination of Abe and the resignation of Boris Johnson are more or less associated with the influence of the interest groups of Russia and the CCP. As far as our mission of taking down the CCP is concern...
+This time, PAG openly committed fraud by having the DOJ collude with the CCP regarding the appointment of the trustee. PAX and PAG showed the Americans how powerful the CCP and PAG are. They were able to withdraw the trustee appoin...
 
-<img src="https://media.gettr.com/group21/getter/2022/07/10/22/fdebed13-11e1-ac5f-19e5-91fbb78e27c3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/07/09/13/5ea827cc-0563-959e-ccec-6076e8df5274/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 7/10/2022 Miles Guo: Hon. Julie A. Manning was outraged by the DOJ's procedural violations in changing the trustee. Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community...
 
 <img src="https://media.gettr.com/group15/getter/2022/07/10/23/a77ca309-1dab-f3cd-3046-aa6225bb1868/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/10/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1htbtd6d1f.md)
+
+7/10/2022 Miles Guo: The assassination of Abe and the resignation of Boris Johnson are more or less associated with the influence of the interest groups of Russia and the CCP. As far as our mission of taking down the CCP is concern...
+
+<img src="https://media.gettr.com/group21/getter/2022/07/10/22/fdebed13-11e1-ac5f-19e5-91fbb78e27c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Luc A. Despins被前妻起诉 不支付诉讼期间赡养费给前期和三个�
 7/8/2022 Miles Guo:  It is sick for some people in mainland China to feel happy when Mr. Shinzo Abe is assassinated. Their behavior is the outcome of being brainwashed by the CCP's propaganda for years. A country or a nation will n...
 
 <img src="https://media.gettr.com/group25/getter/2022/07/09/07/c5b2d94d-204e-30db-4d25-1bb77e05fc13/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 6:00 AM UTC  - :tv:直播](/content/gettr/p1hmknhdcc0.md)
-
-7/8/2022 Miles Guo: The PAX case will send all the attorneys and the officials in the DOJ and the Hong Kong government colluding with PAG, and all PAG's senior executives and attorneys to jail. The CCP cannot deceive the US forever...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/09/05/64f8ca5a-9533-3231-7be4-9edfe54984ba/out.jpg" width="506" height="284">
 
 ---
 
