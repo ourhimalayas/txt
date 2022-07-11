@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/9/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1hprzk3fe8.md)
+
+7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. This is fishy! At least half of Paul Hastings LLP’s revenue comes from Communist China and i...
+
+<img src="https://media.gettr.com/group5/getter/2022/07/09/22/c09d3851-f4a2-b785-ad22-699b4e0ce6e7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 7:37 AM UTC  - :tv:直播](/content/gettr/p1hv7w859ac.md)
 
 The Latest Case of Judical Corruption In The US
@@ -69,14 +77,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 
 
 7月10日：太精彩了，这样的素质怎么会被掏空呢？越战越勇……战中取智．战中取能……越战越仁……
-
----
-
-[@s7gril 7/11/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p1hty7c349b.md)
-
-(Part 8) - Here is a shortened audio recording (part 1) of the hearing Judge Manning held on July 6th, 2022, regarding the withdrawal application of the 1st #Trustee #JoeWhitley, filed by the Office and the United States Trustee (#...
-
-<img src="https://media.gettr.com/group3/origin/2022/07/11/03/8bf7cc94-cc77-a563-7ff9-bd44cf490645/out.jpg" width="506" height="284">
 
 ---
 
