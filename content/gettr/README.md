@@ -2,12 +2,6 @@
 ---
 
 
-[@miles 7/11/2022 5:48 PM UTC ](/content/gettr/p1hwxqb2da9.md)
-
-😍😍😍😍😍😍😍😍
-
----
-
 [@miles 7/11/2022 9:58 PM UTC ](/content/gettr/p1hxndg7e39.md)
 
 周三文贵大直播问题征集
@@ -15,6 +9,20 @@
 ☺️请战友们留言区留言☺️
 
 <img src="https://media.gettr.com/group18/origin/2022/07/11/21/6d287f20-8f5e-d1f8-cc3d-4b3f076381b8/98d98e85dc3ea1831a54617ac2214772.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/11/2022 5:48 PM UTC ](/content/gettr/p1hwxqb2da9.md)
+
+😍😍😍😍😍😍😍😍
+
+---
+
+[@miles 7/11/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1hy9pb3804.md)
+
+7/10/2022 Miles Guo: It's very dangerous for the current Brazil president Jair Bolsonaro to try to balance between the U.S. and the Communist China. Cuba, Brazil and Venezuela will all soon go bankrupt and hence follow American dem...
+
+<img src="https://media.gettr.com/group4/getter/2022/07/11/22/6c5ea723-97e4-ce06-62b9-d7266f22b44e/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,12 +167,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 7/...
 
 <img src="https://media.gettr.com/group46/getter/2022/07/10/04/c6270715-f3b4-f082-910f-5bb2c5bc743b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/9/2022 11:19 PM UTC ](/content/gettr/p1hpu5tde4b.md)
-
-7月 9日；太棒了。【】、】【】、、】【】、
 
 ---
 
