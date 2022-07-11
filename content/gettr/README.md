@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 7/9/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1hprzk3fe8.md)
-
-7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. This is fishy! At least half of Paul Hastings LLP’s revenue comes from Communist China and i...
-
-<img src="https://media.gettr.com/group5/getter/2022/07/09/22/c09d3851-f4a2-b785-ad22-699b4e0ce6e7/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/11/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1hvi1ie32a.md)
 
 The Latest Case of Judical Corruption In The US
@@ -19,6 +11,14 @@ The Latest Case of Judical Corruption In The US
 美国司法腐败最新案例
 
 <img src="https://media.gettr.com/group19/getter/2022/07/11/11/cab49a4c-57fc-be7d-f0a4-48ed3805d881/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/11/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1hw7va2f42.md)
+
+ 7月11号：尊敬的战友们好，我们进入了与美国黑暗势力和共产党在美国潜伏力量的面对面的较量，这是上天给我们送来灭共的最好的礼物……最好的机会，让我们真正的开始：以美灭共．以法灭共．普衡律师事务所是一个开启中美之间政治，法律，经济黑暗的大门！全球的战友们．真心灭共者．让我们开始吧……
+
+<img src="https://media.gettr.com/group34/getter/2022/07/11/13/0918d1d6-a6b3-5f4c-f079-94256add58fc/out.jpg" width="506" height="284">
 
 ---
 
