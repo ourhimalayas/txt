@@ -10,7 +10,7 @@
 
 ---
 
-[@miles 7/11/2022 7:37 AM UTC  - :tv:直播](/content/gettr/p1hv7w859ac.md)
+[@miles 7/11/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p1hvi1ie32a.md)
 
 The Latest Case of Judical Corruption In The US
 
@@ -18,7 +18,7 @@ The Latest Case of Judical Corruption In The US
 
 美国司法腐败最新案例
 
-<img src="https://media.gettr.com/group15/getter/2022/07/11/07/6e603127-1ed3-c182-e0f2-5edcd78c8a0f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/07/11/11/cab49a4c-57fc-be7d-f0a4-48ed3805d881/out.jpg" width="506" height="284">
 
 ---
 
