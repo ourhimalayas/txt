@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/12/2022 7:48 AM UTC  - :tv:直播](/content/gettr/p1hzwkfc74a.md)
+
+7/10/2022 Miles Guo: Paul Hastings has some partner(s) who is/are CCP member(s) and its half revenue generated from the CCP, but its garbage partner Luc Despins dared to bluntly lie in the courtroom by testifying no conflict of int...
+
+<img src="https://media.gettr.com/group15/getter/2022/07/12/07/59f2e86f-ad87-3ced-dfe8-4d7ce61e0c98/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/12/2022 4:31 AM UTC  - :tv:直播](/content/gettr/p1hz0o5a6af.md)
 
 07/06/2022 Judge Manning: The U.S. Trustee's Office withdrew the trustee without either an explanation or a motion. The whole process does not make any sense.
@@ -64,11 +72,13 @@
 
 ---
 
-[@miles 7/12/2022 7:48 AM UTC  - :tv:直播](/content/gettr/p1hzwkfc74a.md)
+[@milesguolive 7/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1i0xpi569c.md)
 
-7/10/2022 Miles Guo: Paul Hastings has some partner(s) who is/are CCP member(s) and its half revenue generated from the CCP, but its garbage partner Luc Despins dared to bluntly lie in the courtroom by testifying no conflict of int...
+0710大直播精华版
 
-<img src="https://media.gettr.com/group15/getter/2022/07/12/07/59f2e86f-ad87-3ced-dfe8-4d7ce61e0c98/out.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group36/origin/2022/07/12/11/ccabb1b5-683a-3582-b578-eefe45ed23af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +181,6 @@ The Latest Case of Judical Corruption In The US
 7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. At least half of Paul Hastings LLP’s revenue comes from Communist China. Don’t you see any c...
 
 <img src="https://media.gettr.com/group12/getter/2022/07/11/02/7c8752f8-2cba-cd64-0f5c-0ba96ef8a417/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 2:14 AM UTC ](/content/gettr/p1huaz19bdd.md)
-
-Miles Guo, Whistleblower, the #1 Enemy of the Chinese Communist Party (CCP), Is Being Mistreated by DOJ in America
-
-
-
-https://www.issuewire.com/miles-guo-whistleblower-the-1-enemy-of-the-chinese-communist-party-ccp-is-being-mistrea...
 
 ---
 
