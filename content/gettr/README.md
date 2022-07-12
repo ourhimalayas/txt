@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/12/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p1i19r8e15d.md)
+
+ 7月12号：尊敬的战友们好……中共国的经济．房地产．国际环境．都到了，千年来最坏和最危险的程度，全球灭共，无人可挡．普衡律师事务所．DOJ 的违法，甚至涉嫌犯罪的欺骗法官的行为……遭到了全球的法律的强烈质疑……引发了美国司法界的愤怒，共产党。在美国的司法渗透的黑暗力量，将再次地帮助高效的以法灭共。
+
+<img src="https://media.gettr.com/group30/getter/2022/07/12/15/35f1d992-04a7-c2b2-2a0b-5ba5d429eaeb/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 7/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1i0xpi569c.md)
 
 0710大直播精华版
@@ -82,11 +90,15 @@
 
 ---
 
-[@miles 7/12/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p1i19r8e15d.md)
+[@miles 7/12/2022 9:35 PM UTC  - :tv:直播](/content/gettr/p1i2o5h19c9.md)
 
- 7月12号：尊敬的战友们好……中共国的经济．房地产．国际环境．都到了，千年来最坏和最危险的程度，全球灭共，无人可挡．普衡律师事务所．DOJ 的违法，甚至涉嫌犯罪的欺骗法官的行为……遭到了全球的法律的强烈质疑……引发了美国司法界的愤怒，共产党。在美国的司法渗透的黑暗力量，将再次地帮助高效的以法灭共。
+7/12/2022 Mile Guo’s GETTR: The world has been awakened by the assassination  of Shinzo Abe, Boris Johnson’s resignation, and the crisis in Argentina. Communism will become the public enemy of the entire world!
 
-<img src="https://media.gettr.com/group30/getter/2022/07/12/15/35f1d992-04a7-c2b2-2a0b-5ba5d429eaeb/out.jpg" width="506" height="284">
+
+
+7/12/2022 文贵盖特：安倍...
+
+<img src="https://media.gettr.com/group38/getter/2022/07/12/21/8e9711fe-a50f-bf73-3ddf-7793e84ba121/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +185,6 @@ The Latest Case of Judical Corruption In The US
 7/10/2022 Miles Guo: Through the prompt action, our fellow fighters revealed the connection between the newly appointed trustee and the CCP in the first place, which disrupts the CCP's plot to attempt to attack me through this case...
 
 <img src="https://media.gettr.com/group32/getter/2022/07/11/03/9ca4bdac-f461-79e0-38e1-0c53b981d3b0/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 2:32 AM UTC  - :tv:直播](/content/gettr/p1hur810660.md)
-
-7/10/2022 Miles Guo:  More former Soviet Union Republics will join Kazakhstan to decouple from Russia and Communist China, which will trigger a radical geopolitical change in Euro-Asia; Humanity will enter a most prosperous era whe...
-
-<img src="https://media.gettr.com/group8/getter/2022/07/11/02/e10e1c2d-2839-349c-d31c-2627be49c09f/out.jpg" width="506" height="284">
 
 ---
 
