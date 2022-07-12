@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/12/2022 4:31 AM UTC  - :tv:直播](/content/gettr/p1hz0o5a6af.md)
+
+07/06/2022 Judge Manning: The U.S. Trustee's Office withdrew the trustee without either an explanation or a motion. The whole process does not make any sense.
+
+
+
+07/06/2022 曼宁法官：美国受托人办公室既没有做出解释，也没有提出动议，就撤换了受托人。现在的整个程序完全说不通。
+
+<img src="https://media.gettr.com/group25/getter/2022/07/12/04/775ff06f-f31a-1e32-c0a1-b5a14283f7c9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/12/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1hzfll3c24.md)
 
 07/06/2022 曼宁法官：如果受托人Joe D. Whitley不合格，就应该有一个程序，不能随随便便就撤销。
@@ -52,15 +64,11 @@
 
 ---
 
-[@miles 7/12/2022 4:31 AM UTC  - :tv:直播](/content/gettr/p1hz0o5a6af.md)
+[@miles 7/12/2022 7:48 AM UTC  - :tv:直播](/content/gettr/p1hzwkfc74a.md)
 
-07/06/2022 Judge Manning: The U.S. Trustee's Office withdrew the trustee without either an explanation or a motion. The whole process does not make any sense.
+7/10/2022 Miles Guo: Paul Hastings has some partner(s) who is/are CCP member(s) and its half revenue generated from the CCP, but its garbage partner Luc Despins dared to bluntly lie in the courtroom by testifying no conflict of int...
 
-
-
-07/06/2022 曼宁法官：美国受托人办公室既没有做出解释，也没有提出动议，就撤换了受托人。现在的整个程序完全说不通。
-
-<img src="https://media.gettr.com/group25/getter/2022/07/12/04/775ff06f-f31a-1e32-c0a1-b5a14283f7c9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/07/12/07/59f2e86f-ad87-3ced-dfe8-4d7ce61e0c98/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Miles Guo, Whistleblower, the #1 Enemy of the Chinese Communist Party (CCP), Is 
 
 
 https://www.issuewire.com/miles-guo-whistleblower-the-1-enemy-of-the-chinese-communist-party-ccp-is-being-mistrea...
-
----
-
-[@miles 7/11/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p1htmp25f65.md)
-
-This time, PAG openly committed fraud by having the DOJ collude with the CCP regarding the appointment of the trustee. PAX and PAG showed the Americans how powerful the CCP and PAG are. They were able to withdraw the trustee appoin...
-
-<img src="https://media.gettr.com/group16/origin/2022/07/09/13/5ea827cc-0563-959e-ccec-6076e8df5274/out.jpg" width="506" height="284">
 
 ---
 
