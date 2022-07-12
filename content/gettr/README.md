@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/12/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1hzfll3c24.md)
+
+07/06/2022 曼宁法官：如果受托人Joe D. Whitley不合格，就应该有一个程序，不能随随便便就撤销。
+
+
+
+07/06/2022 Judge Manning: If the trustee(Joe D. Whitley) is not qualified, there should be a process in place and it can't just be withdrawn at will.
+
+<img src="https://media.gettr.com/group29/getter/2022/07/12/04/c1b3cff5-30a6-c12e-3087-a0200f4b6b90/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/12/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p1hzd9v7327.md)
 
 07/06/2022 Judge Manning:  This trustee(Joe D. Whitley) is still the trustee until this trustee is not.
@@ -40,15 +52,15 @@
 
 ---
 
-[@miles 7/12/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1hzfll3c24.md)
+[@miles 7/12/2022 4:31 AM UTC  - :tv:直播](/content/gettr/p1hz0o5a6af.md)
 
-07/06/2022 曼宁法官：如果受托人Joe D. Whitley不合格，就应该有一个程序，不能随随便便就撤销。
+07/06/2022 Judge Manning: The U.S. Trustee's Office withdrew the trustee without either an explanation or a motion. The whole process does not make any sense.
 
 
 
-07/06/2022 Judge Manning: If the trustee(Joe D. Whitley) is not qualified, there should be a process in place and it can't just be withdrawn at will.
+07/06/2022 曼宁法官：美国受托人办公室既没有做出解释，也没有提出动议，就撤换了受托人。现在的整个程序完全说不通。
 
-<img src="https://media.gettr.com/group29/getter/2022/07/12/04/c1b3cff5-30a6-c12e-3087-a0200f4b6b90/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/07/12/04/775ff06f-f31a-1e32-c0a1-b5a14283f7c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +181,6 @@ https://www.issuewire.com/miles-guo-whistleblower-the-1-enemy-of-the-chinese-com
 This time, PAG openly committed fraud by having the DOJ collude with the CCP regarding the appointment of the trustee. PAX and PAG showed the Americans how powerful the CCP and PAG are. They were able to withdraw the trustee appoin...
 
 <img src="https://media.gettr.com/group16/origin/2022/07/09/13/5ea827cc-0563-959e-ccec-6076e8df5274/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/10/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1httud3cce.md)
-
-7/10/2022 Miles Guo: Hon. Julie A. Manning was outraged by the DOJ's procedural violations in changing the trustee. Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community...
-
-<img src="https://media.gettr.com/group15/getter/2022/07/10/23/a77ca309-1dab-f3cd-3046-aa6225bb1868/out.jpg" width="506" height="284">
 
 ---
 
