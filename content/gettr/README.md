@@ -2,6 +2,16 @@
 ---
 
 
+[@milesguolive 7/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1i0xpi569c.md)
+
+0710大直播精华版
+
+
+
+<img src="https://media.gettr.com/group36/origin/2022/07/12/11/ccabb1b5-683a-3582-b578-eefe45ed23af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/12/2022 7:48 AM UTC  - :tv:直播](/content/gettr/p1hzwkfc74a.md)
 
 7/10/2022 Miles Guo: Paul Hastings has some partner(s) who is/are CCP member(s) and its half revenue generated from the CCP, but its garbage partner Luc Despins dared to bluntly lie in the courtroom by testifying no conflict of int...
@@ -72,13 +82,11 @@
 
 ---
 
-[@milesguolive 7/12/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1i0xpi569c.md)
+[@miles 7/12/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p1i19r8e15d.md)
 
-0710大直播精华版
+ 7月12号：尊敬的战友们好……中共国的经济．房地产．国际环境．都到了，千年来最坏和最危险的程度，全球灭共，无人可挡．普衡律师事务所．DOJ 的违法，甚至涉嫌犯罪的欺骗法官的行为……遭到了全球的法律的强烈质疑……引发了美国司法界的愤怒，共产党。在美国的司法渗透的黑暗力量，将再次地帮助高效的以法灭共。
 
-
-
-<img src="https://media.gettr.com/group36/origin/2022/07/12/11/ccabb1b5-683a-3582-b578-eefe45ed23af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/07/12/15/35f1d992-04a7-c2b2-2a0b-5ba5d429eaeb/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ The Latest Case of Judical Corruption In The US
 7/10/2022 Miles Guo:  More former Soviet Union Republics will join Kazakhstan to decouple from Russia and Communist China, which will trigger a radical geopolitical change in Euro-Asia; Humanity will enter a most prosperous era whe...
 
 <img src="https://media.gettr.com/group8/getter/2022/07/11/02/e10e1c2d-2839-349c-d31c-2627be49c09f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 2:23 AM UTC  - :tv:直播](/content/gettr/p1hui4s0318.md)
-
-7/9/2022 Miles Guo's GETTR: Luc A. Despins, partner of Paul Hastings LLP, was appointed as the new trustee in Miles Guo's bankruptcy case. At least half of Paul Hastings LLP’s revenue comes from Communist China. Don’t you see any c...
-
-<img src="https://media.gettr.com/group12/getter/2022/07/11/02/7c8752f8-2cba-cd64-0f5c-0ba96ef8a417/out.jpg" width="506" height="284">
 
 ---
 
