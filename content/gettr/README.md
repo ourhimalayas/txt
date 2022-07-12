@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/12/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p1hzd9v7327.md)
+
+07/06/2022 Judge Manning:  This trustee(Joe D. Whitley) is still the trustee until this trustee is not.
+
+
+
+07/06/2022 曼宁法官：除非之前的受托人Joe D. Whitley 被认定不再是受托人，否则他仍然是受托人。
+
+
+
+<img src="https://media.gettr.com/group30/getter/2022/07/12/02/9a2985bf-ef4a-b29c-b4dc-70a962e34165/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 11:53 PM UTC  - :tv:直播](/content/gettr/p1hy26t8791.md)
 
 7/11/2022 Miles Guo’s GETTR：I’ve been dealing with the U.S. Department of Justice since 2017. They first tried to repatriate me, then brought me to the SDNY court, now they are trying to get me into trouble with the bankruptcy case...
@@ -26,17 +40,15 @@
 
 ---
 
-[@miles 7/12/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p1hzd9v7327.md)
+[@miles 7/12/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1hzfll3c24.md)
 
-07/06/2022 Judge Manning:  This trustee(Joe D. Whitley) is still the trustee until this trustee is not.
-
-
-
-07/06/2022 曼宁法官：除非之前的受托人Joe D. Whitley 被认定不再是受托人，否则他仍然是受托人。
+07/06/2022 曼宁法官：如果受托人Joe D. Whitley不合格，就应该有一个程序，不能随随便便就撤销。
 
 
 
-<img src="https://media.gettr.com/group30/getter/2022/07/12/02/9a2985bf-ef4a-b29c-b4dc-70a962e34165/out.jpg" width="506" height="284">
+07/06/2022 Judge Manning: If the trustee(Joe D. Whitley) is not qualified, there should be a process in place and it can't just be withdrawn at will.
+
+<img src="https://media.gettr.com/group29/getter/2022/07/12/04/c1b3cff5-30a6-c12e-3087-a0200f4b6b90/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +169,6 @@ https://www.issuewire.com/miles-guo-whistleblower-the-1-enemy-of-the-chinese-com
 This time, PAG openly committed fraud by having the DOJ collude with the CCP regarding the appointment of the trustee. PAX and PAG showed the Americans how powerful the CCP and PAG are. They were able to withdraw the trustee appoin...
 
 <img src="https://media.gettr.com/group16/origin/2022/07/09/13/5ea827cc-0563-959e-ccec-6076e8df5274/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/10/2022 11:00 PM UTC ](/content/gettr/p1htdage6f8.md)
-
-
-
-7月10日：太精彩了，这样的素质怎么会被掏空呢？越战越勇……战中取智．战中取能……越战越仁……
 
 ---
 
