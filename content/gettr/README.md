@@ -2,6 +2,14 @@
 ---
 
 
+[@longwood 7/11/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hyghs7ddf.md)
+
+大根谭127 - 内容分享和互动
+
+<img src="https://media.gettr.com/group36/origin/2022/07/11/23/69259bcd-78f5-b1b2-0523-b84d0fc4338b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/11/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hya13feb7.md)
 
 7/10/2022 Miles Guo: The CCP controls Brazil's military, economy and politicians, and it intends to use its forces hidden inside Brazil to prevent current Brazil president Jair Bolsonaro from winning the next term in election. I be...
@@ -10,11 +18,11 @@
 
 ---
 
-[@longwood 7/11/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hyghs7ddf.md)
+[@miles 7/11/2022 11:53 PM UTC  - :tv:直播](/content/gettr/p1hy26t8791.md)
 
-大根谭127 - 内容分享和互动
+7/11/2022 Miles Guo’s GETTR：I’ve been dealing with the U.S. Department of Justice since 2017. They first tried to repatriate me, then brought me to the SDNY court, now they are trying to get me into trouble with the bankruptcy case...
 
-<img src="https://media.gettr.com/group36/origin/2022/07/11/23/69259bcd-78f5-b1b2-0523-b84d0fc4338b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/07/11/23/38edc9c1-bd9d-1798-87d5-7c1d52846148/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 7/10/2022 Miles Guo: Hon. Julie A. Manning was outraged by the DOJ's procedural violations in changing the trustee. Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community...
 
 <img src="https://media.gettr.com/group15/getter/2022/07/10/23/a77ca309-1dab-f3cd-3046-aa6225bb1868/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/10/2022 10:35 PM UTC  - :tv:直播](/content/gettr/p1htbtd6d1f.md)
-
-7/10/2022 Miles Guo: The assassination of Abe and the resignation of Boris Johnson are more or less associated with the influence of the interest groups of Russia and the CCP. As far as our mission of taking down the CCP is concern...
-
-<img src="https://media.gettr.com/group21/getter/2022/07/10/22/fdebed13-11e1-ac5f-19e5-91fbb78e27c3/out.jpg" width="506" height="284">
 
 ---
 
