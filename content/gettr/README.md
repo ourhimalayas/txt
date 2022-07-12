@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/11/2022 11:53 PM UTC  - :tv:直播](/content/gettr/p1hy26t8791.md)
+
+7/11/2022 Miles Guo’s GETTR：I’ve been dealing with the U.S. Department of Justice since 2017. They first tried to repatriate me, then brought me to the SDNY court, now they are trying to get me into trouble with the bankruptcy case...
+
+<img src="https://media.gettr.com/group25/getter/2022/07/11/23/38edc9c1-bd9d-1798-87d5-7c1d52846148/out.jpg" width="506" height="284">
+
+---
+
 [@longwood 7/11/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hyghs7ddf.md)
 
 大根谭127 - 内容分享和互动
@@ -18,11 +26,17 @@
 
 ---
 
-[@miles 7/11/2022 11:53 PM UTC  - :tv:直播](/content/gettr/p1hy26t8791.md)
+[@miles 7/12/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p1hzd9v7327.md)
 
-7/11/2022 Miles Guo’s GETTR：I’ve been dealing with the U.S. Department of Justice since 2017. They first tried to repatriate me, then brought me to the SDNY court, now they are trying to get me into trouble with the bankruptcy case...
+07/06/2022 Judge Manning:  This trustee(Joe D. Whitley) is still the trustee until this trustee is not.
 
-<img src="https://media.gettr.com/group25/getter/2022/07/11/23/38edc9c1-bd9d-1798-87d5-7c1d52846148/out.jpg" width="506" height="284">
+
+
+07/06/2022 曼宁法官：除非之前的受托人Joe D. Whitley 被认定不再是受托人，否则他仍然是受托人。
+
+
+
+<img src="https://media.gettr.com/group30/getter/2022/07/12/02/9a2985bf-ef4a-b29c-b4dc-70a962e34165/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +173,6 @@ This time, PAG openly committed fraud by having the DOJ collude with the CCP reg
 7/10/2022 Miles Guo: Hon. Julie A. Manning was outraged by the DOJ's procedural violations in changing the trustee. Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community...
 
 <img src="https://media.gettr.com/group15/getter/2022/07/10/23/a77ca309-1dab-f3cd-3046-aa6225bb1868/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/10/2022 10:36 PM UTC  - :tv:直播](/content/gettr/p1htnld56a3.md)
-
-7/10/2022 Miles Guo: The CCP's unrestricted warfare against the US is based in Canada. Trudeau's lack of action against the CCP implies the CCP has something on him. The top richest people from Canada are scared of the CCP which is...
-
-<img src="https://media.gettr.com/group17/getter/2022/07/10/22/c0d982f1-adb9-aaf4-e876-eb23553e02f8/out.jpg" width="506" height="284">
 
 ---
 
