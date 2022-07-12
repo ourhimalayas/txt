@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/12/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1i2gog7c80.md)
+
+(1080版) 飞飞秀 《利益冲突·第五篇》2022-07-12
+
+For English：gettr.com/post/p1i332v3e4c
+
+<img src="https://media.gettr.com/group12/origin/2022/07/12/22/f9d7c5db-b705-e5dc-91d8-ab1d92796a12/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/12/2022 9:35 PM UTC  - :tv:直播](/content/gettr/p1i2o5h19c9.md)
+
+7/12/2022 Mile Guo’s GETTR: The world has been awakened by the assassination  of Shinzo Abe, Boris Johnson’s resignation, and the crisis in Argentina. Communism will become the public enemy of the entire world!
+
+
+
+7/12/2022 文贵盖特：安倍...
+
+<img src="https://media.gettr.com/group38/getter/2022/07/12/21/8e9711fe-a50f-bf73-3ddf-7793e84ba121/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/12/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p1i19r8e15d.md)
 
  7月12号：尊敬的战友们好……中共国的经济．房地产．国际环境．都到了，千年来最坏和最危险的程度，全球灭共，无人可挡．普衡律师事务所．DOJ 的违法，甚至涉嫌犯罪的欺骗法官的行为……遭到了全球的法律的强烈质疑……引发了美国司法界的愤怒，共产党。在美国的司法渗透的黑暗力量，将再次地帮助高效的以法灭共。
@@ -90,15 +112,13 @@
 
 ---
 
-[@miles 7/12/2022 9:35 PM UTC  - :tv:直播](/content/gettr/p1i2o5h19c9.md)
+[@miles 7/12/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1i33gye502.md)
 
-7/12/2022 Mile Guo’s GETTR: The world has been awakened by the assassination  of Shinzo Abe, Boris Johnson’s resignation, and the crisis in Argentina. Communism will become the public enemy of the entire world!
+（4K版）飞飞秀 《利益冲突·第五篇》2022-07-12
 
+For English：gettr.com/post/p1i332v3e4c
 
-
-7/12/2022 文贵盖特：安倍...
-
-<img src="https://media.gettr.com/group38/getter/2022/07/12/21/8e9711fe-a50f-bf73-3ddf-7793e84ba121/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/07/12/22/9d1fe512-d12d-531c-1bea-76e2fb528f60/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,22 +189,6 @@ The Latest Case of Judical Corruption In The US
 美国司法腐败最新案例
 
 <img src="https://media.gettr.com/group19/getter/2022/07/11/11/cab49a4c-57fc-be7d-f0a4-48ed3805d881/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 7:23 AM UTC  - :tv:直播](/content/gettr/p1huufuf794.md)
-
-7/10/2022 Miles Guo: The Chinese Communist Party has loaned hundreds of billions of yuan to the Rajapaksa family in Sri Lanka regardless of the fact that many Chinese people are starving. Sri Lanka's bankruptcy will trigger the sub...
-
-<img src="https://media.gettr.com/group19/getter/2022/07/11/07/b0a38711-5529-e5b8-d7ff-5780abe01435/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 3:20 AM UTC  - :tv:直播](/content/gettr/p1huqjq3359.md)
-
-7/10/2022 Miles Guo: Through the prompt action, our fellow fighters revealed the connection between the newly appointed trustee and the CCP in the first place, which disrupts the CCP's plot to attempt to attack me through this case...
-
-<img src="https://media.gettr.com/group32/getter/2022/07/11/03/9ca4bdac-f461-79e0-38e1-0c53b981d3b0/out.jpg" width="506" height="284">
 
 ---
 
