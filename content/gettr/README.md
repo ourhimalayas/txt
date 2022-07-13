@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/13/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1i7vut5dba.md)
+
+(4K版) 飞飞秀 《利益冲突·第六篇》2022-07-13
+
+For English：gettr.com/post/p1i7xrv9fee
+
+
+
+#破产案 #PAG #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group46/origin/2022/07/13/22/a099987b-7e9b-b6d0-67ca-437c9b1eea52/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/13/2022 9:55 PM UTC  - :tv:直播](/content/gettr/p1i7jzwcee1.md)
+
+7/13/2022 Miles Guo: It's said that various countries have made it clear to the U.S. that they would continue showing courtesy to the CCP politically and defraud the CCP economically. Many major banks around the world are trying to...
+
+<img src="https://media.gettr.com/group33/getter/2022/07/13/21/46bf7d51-2c6d-0c83-dfe4-d093dbc57e85/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 9:31 PM UTC  - :tv:直播](/content/gettr/p1i7wow4410.md)
 
 7/13/2022 Miles Guo: In order to wipe out or buy out the leaked data of 1 billion Chinese people, the CCP established a state security emergency taskforce and went so far as to hack some cloud servers that store the data and certai...
@@ -18,11 +40,17 @@
 
 ---
 
-[@miles 7/13/2022 9:55 PM UTC  - :tv:直播](/content/gettr/p1i7jzwcee1.md)
+[@miles 7/13/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1i7em3f7d3.md)
 
-7/13/2022 Miles Guo: It's said that various countries have made it clear to the U.S. that they would continue showing courtesy to the CCP politically and defraud the CCP economically. Many major banks around the world are trying to...
+(1080版) 飞飞秀 《利益冲突·第六篇》2022-07-13
 
-<img src="https://media.gettr.com/group33/getter/2022/07/13/21/46bf7d51-2c6d-0c83-dfe4-d093dbc57e85/out.jpg" width="506" height="284">
+For English：gettr.com/post/p1i332v3e4c
+
+
+
+#破产案 #PAG #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group31/origin/2022/07/13/22/25ba001c-ead2-ff10-9183-02887a020141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,28 +197,6 @@ For English：gettr.com/post/p1i332v3e4c
 07/06/2022 Judge Manning: If the trustee(Joe D. Whitley) is not qualified, there should be a process in place and it can't just be withdrawn at will.
 
 <img src="https://media.gettr.com/group29/getter/2022/07/12/04/c1b3cff5-30a6-c12e-3087-a0200f4b6b90/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/12/2022 2:55 AM UTC  - :tv:直播](/content/gettr/p1hzd9v7327.md)
-
-07/06/2022 Judge Manning:  This trustee(Joe D. Whitley) is still the trustee until this trustee is not.
-
-
-
-07/06/2022 曼宁法官：除非之前的受托人Joe D. Whitley 被认定不再是受托人，否则他仍然是受托人。
-
-
-
-<img src="https://media.gettr.com/group30/getter/2022/07/12/02/9a2985bf-ef4a-b29c-b4dc-70a962e34165/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 11:53 PM UTC  - :tv:直播](/content/gettr/p1hy26t8791.md)
-
-7/11/2022 Miles Guo’s GETTR：I’ve been dealing with the U.S. Department of Justice since 2017. They first tried to repatriate me, then brought me to the SDNY court, now they are trying to get me into trouble with the bankruptcy case...
-
-<img src="https://media.gettr.com/group25/getter/2022/07/11/23/38edc9c1-bd9d-1798-87d5-7c1d52846148/out.jpg" width="506" height="284">
 
 ---
 
