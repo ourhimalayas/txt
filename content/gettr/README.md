@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1i3j3zcbfd.md)
+
+7/12/2022 Miles Guo's GETTR: The foolish and ignorant CCP who rejoiced in the assassination of PM Shinzo Abe is dismayed to find out that the assassination has become the biggest nightmare for itself. The assassination of Abe is ex...
+
+<img src="https://media.gettr.com/group19/getter/2022/07/13/02/16242f53-b0c8-ebd0-df2a-f91460f73f97/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/12/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1i2gog7c80.md)
 
 (1080版) 飞飞秀 《利益冲突·第五篇》2022-07-12
@@ -12,11 +20,11 @@ For English：gettr.com/post/p1i332v3e4c
 
 ---
 
-[@miles 7/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1i3j3zcbfd.md)
+[@miles 7/13/2022 2:20 AM UTC  - :tv:直播](/content/gettr/p1i41q04837.md)
 
-7/12/2022 Miles Guo's GETTR: The foolish and ignorant CCP who rejoiced in the assassination of PM Shinzo Abe is dismayed to find out that the assassination has become the biggest nightmare for itself. The assassination of Abe is ex...
+7/8/2022 The Judge stated that Attorney Luc Despins can be appointed as the Chapter 11 Trustee in this case despite his admission on Paul Hastings’ connection with PAG, because can’t wait any longer for the appointment of a trustee...
 
-<img src="https://media.gettr.com/group19/getter/2022/07/13/02/16242f53-b0c8-ebd0-df2a-f91460f73f97/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/07/13/02/43b1be78-a15f-4e10-17d3-98c6f0f8e604/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ For English：gettr.com/post/p1i332v3e4c
 [@miles 7/11/2022 3:26 PM UTC ](/content/gettr/p1hwbr611f4.md)
 
  7月11号：这是一个光辉灿烂，上天赐给我们的美好日子……这样的节目，这样的男人……这样的女人……怎么让人不喜欢？
-
----
-
-[@miles 7/11/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p1hw7va2f42.md)
-
- 7月11号：尊敬的战友们好，我们进入了与美国黑暗势力和共产党在美国潜伏力量的面对面的较量，这是上天给我们送来灭共的最好的礼物……最好的机会，让我们真正的开始：以美灭共．以法灭共．普衡律师事务所是一个开启中美之间政治，法律，经济黑暗的大门！全球的战友们．真心灭共者．让我们开始吧……
-
-<img src="https://media.gettr.com/group34/getter/2022/07/11/13/0918d1d6-a6b3-5f4c-f079-94256add58fc/out.jpg" width="506" height="284">
 
 ---
 
