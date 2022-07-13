@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/13/2022 9:31 PM UTC  - :tv:直播](/content/gettr/p1i7wow4410.md)
+
+7/13/2022 Miles Guo: In order to wipe out or buy out the leaked data of 1 billion Chinese people, the CCP established a state security emergency taskforce and went so far as to hack some cloud servers that store the data and certai...
+
+<img src="https://media.gettr.com/group13/getter/2022/07/13/21/96680d34-a5d6-a91c-75a8-a4054b721907/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 9:27 PM UTC  - :tv:直播](/content/gettr/p1i749ya0da.md)
 
 7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/13/2022 9:31 PM UTC  - :tv:直播](/content/gettr/p1i7wow4410.md)
+[@miles 7/13/2022 9:55 PM UTC  - :tv:直播](/content/gettr/p1i7jzwcee1.md)
 
-7/13/2022 Miles Guo: In order to wipe out or buy out the leaked data of 1 billion Chinese people, the CCP established a state security emergency taskforce and went so far as to hack some cloud servers that store the data and certai...
+7/13/2022 Miles Guo: It's said that various countries have made it clear to the U.S. that they would continue showing courtesy to the CCP politically and defraud the CCP economically. Many major banks around the world are trying to...
 
-<img src="https://media.gettr.com/group13/getter/2022/07/13/21/96680d34-a5d6-a91c-75a8-a4054b721907/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/07/13/21/46bf7d51-2c6d-0c83-dfe4-d093dbc57e85/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ For English：gettr.com/post/p1i332v3e4c
 7/11/2022 Miles Guo’s GETTR：I’ve been dealing with the U.S. Department of Justice since 2017. They first tried to repatriate me, then brought me to the SDNY court, now they are trying to get me into trouble with the bankruptcy case...
 
 <img src="https://media.gettr.com/group25/getter/2022/07/11/23/38edc9c1-bd9d-1798-87d5-7c1d52846148/out.jpg" width="506" height="284">
-
----
-
-[@longwood 7/11/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hyghs7ddf.md)
-
-大根谭127 - 内容分享和互动
-
-<img src="https://media.gettr.com/group36/origin/2022/07/11/23/69259bcd-78f5-b1b2-0523-b84d0fc4338b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
