@@ -10,11 +10,31 @@
 
 ---
 
+[@miles 7/13/2022 12:51 PM UTC  - :tv:直播](/content/gettr/p1i5frhe191.md)
+
+Miles's livestream 2022-06-27七哥直播
+
+<img src="https://media.gettr.com/group5/origin/2022/07/13/12/05586032-0eda-2539-6787-a38b4d272478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 7:17 AM UTC  - :tv:直播](/content/gettr/p1i4g3t909d.md)
 
 7/10/2022 Miles Guo: Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community, and this was done in a criminal-like manner. This is an insult to the American judicial syste...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/13/07/81c217ec-7987-4843-9e4d-259f5de66407/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/13/2022 7:24 AM UTC  - :tv:直播](/content/gettr/p1i4uoie9f4.md)
+
+7/10/2022 Miles Guo: Investigation of the evil forces behind Ms. Holley’s change of trustee will certainly uncover the culprits behind the previous cases of George Higginbotham, Elliott Broidy, and Steve Wynn!
+
+
+
+7/10/2022 文贵直播：查清H...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/13/07/649e3801-f249-43c0-7c95-91dcac8394fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -53,18 +73,6 @@
 For English：gettr.com/post/p1i332v3e4c
 
 <img src="https://media.gettr.com/group12/origin/2022/07/12/22/f9d7c5db-b705-e5dc-91d8-ab1d92796a12/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 7:24 AM UTC  - :tv:直播](/content/gettr/p1i4uoie9f4.md)
-
-7/10/2022 Miles Guo: Investigation of the evil forces behind Ms. Holley’s change of trustee will certainly uncover the culprits behind the previous cases of George Higginbotham, Elliott Broidy, and Steve Wynn!
-
-
-
-7/10/2022 文贵直播：查清H...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/13/07/649e3801-f249-43c0-7c95-91dcac8394fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ For English：gettr.com/post/p1i332v3e4c
 大根谭127 - 内容分享和互动
 
 <img src="https://media.gettr.com/group36/origin/2022/07/11/23/69259bcd-78f5-b1b2-0523-b84d0fc4338b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1hya13feb7.md)
-
-7/10/2022 Miles Guo: The CCP controls Brazil's military, economy and politicians, and it intends to use its forces hidden inside Brazil to prevent current Brazil president Jair Bolsonaro from winning the next term in election. I be...
-
-<img src="https://media.gettr.com/group47/getter/2022/07/11/22/6b6865ef-eb24-3a40-d489-a502925d7f5f/out.jpg" width="506" height="284">
 
 ---
 
