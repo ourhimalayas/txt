@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/13/2022 12:51 PM UTC  - :tv:直播](/content/gettr/p1i5frhe191.md)
+
+Miles's livestream 2022-06-27七哥直播
+
+<img src="https://media.gettr.com/group5/origin/2022/07/13/12/05586032-0eda-2539-6787-a38b4d272478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 7:15 AM UTC  - :tv:直播](/content/gettr/p1i4f3ue35c.md)
 
 7/12/2022 Miles Guo's GETTR:  Customers at Henan local banks got arrested when they tried to withdraw money due to bank run, but the real disasters have not come yet; sadly, ignorant and stupid people could not see the upcoming dis...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/13/2022 12:51 PM UTC  - :tv:直播](/content/gettr/p1i5frhe191.md)
+[@miles 7/13/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1i57t5c4d0.md)
 
-Miles's livestream 2022-06-27七哥直播
+2022年7月13日大直播答疑专场
 
-<img src="https://media.gettr.com/group5/origin/2022/07/13/12/05586032-0eda-2539-6787-a38b4d272478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/07/13/12/14d9293d-d525-afbb-61bf-c50b9bc608da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ For English：gettr.com/post/p1i332v3e4c
 大根谭127 - 内容分享和互动
 
 <img src="https://media.gettr.com/group36/origin/2022/07/11/23/69259bcd-78f5-b1b2-0523-b84d0fc4338b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1hy50o0b07.md)
-
-7/10/2022 Miles Guo: The CCP had a clear motive to kill PM Abe, and the resignation of the British PM was pushed by the CCP and Russian interest groups. Both events will bring us more allies who are determined to take down the CCP!...
-
-<img src="https://media.gettr.com/group33/getter/2022/07/11/23/d97596fe-296e-435c-80e2-31239957b358/out.jpg" width="506" height="284">
 
 ---
 
