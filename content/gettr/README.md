@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 7/11/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p1hy50o0b07.md)
+[@miles 7/13/2022 9:27 PM UTC  - :tv:直播](/content/gettr/p1i749ya0da.md)
 
-7/10/2022 Miles Guo: The CCP had a clear motive to kill PM Abe, and the resignation of the British PM was pushed by the CCP and Russian interest groups. Both events will bring us more allies who are determined to take down the CCP!...
+7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
 
-<img src="https://media.gettr.com/group33/getter/2022/07/11/23/d97596fe-296e-435c-80e2-31239957b358/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/07/13/21/d9886e44-920c-92ab-031a-54989b1a9635/out.jpg" width="506" height="284">
 
 ---
 
