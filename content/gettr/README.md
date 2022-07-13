@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 7/13/2022 9:31 PM UTC  - :tv:直播](/content/gettr/p1i7wow4410.md)
+
+7/13/2022 Miles Guo: In order to wipe out or buy out the leaked data of 1 billion Chinese people, the CCP established a state security emergency taskforce and went so far as to hack some cloud servers that store the data and certai...
+
+<img src="https://media.gettr.com/group13/getter/2022/07/13/21/96680d34-a5d6-a91c-75a8-a4054b721907/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1i57t5c4d0.md)
 
 2022年7月13日大直播答疑专场
@@ -183,18 +191,6 @@ For English：gettr.com/post/p1i332v3e4c
 大根谭127 - 内容分享和互动
 
 <img src="https://media.gettr.com/group36/origin/2022/07/11/23/69259bcd-78f5-b1b2-0523-b84d0fc4338b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1hykyea13b.md)
-
-7/10/2022 Miles Guo: The bankruptcy of Sri Lanka, which has received enormous funding from the CCP, will trigger the bankruptcy of 40 to 60 countries, but sadly the Chinese people will end up being the most hated people!
-
-
-
-7/10/20...
-
-<img src="https://media.gettr.com/group24/getter/2022/07/11/23/865b3f0a-7c3a-38f1-2d15-914a3c2179d2/out.jpg" width="506" height="284">
 
 ---
 
