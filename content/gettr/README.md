@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/13/2022 2:20 AM UTC  - :tv:直播](/content/gettr/p1i41q04837.md)
+
+7/8/2022 The Judge stated that Attorney Luc Despins can be appointed as the Chapter 11 Trustee in this case despite his admission on Paul Hastings’ connection with PAG, because can’t wait any longer for the appointment of a trustee...
+
+<img src="https://media.gettr.com/group7/getter/2022/07/13/02/43b1be78-a15f-4e10-17d3-98c6f0f8e604/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1i3j3zcbfd.md)
 
 7/12/2022 Miles Guo's GETTR: The foolish and ignorant CCP who rejoiced in the assassination of PM Shinzo Abe is dismayed to find out that the assassination has become the biggest nightmare for itself. The assassination of Abe is ex...
@@ -20,11 +28,15 @@ For English：gettr.com/post/p1i332v3e4c
 
 ---
 
-[@miles 7/13/2022 2:20 AM UTC  - :tv:直播](/content/gettr/p1i41q04837.md)
+[@miles 7/13/2022 3:36 AM UTC  - :tv:直播](/content/gettr/p1i3v7y554a.md)
 
-7/8/2022 The Judge stated that Attorney Luc Despins can be appointed as the Chapter 11 Trustee in this case despite his admission on Paul Hastings’ connection with PAG, because can’t wait any longer for the appointment of a trustee...
+2022年7月8日，Luc Despins律师表示他们发现普衡律师事务所过去代表过的一些实体是PAG的一部分，会尽快向法庭提交一份补充披露。但就其个人而言，他从未代表过PAG
 
-<img src="https://media.gettr.com/group7/getter/2022/07/13/02/43b1be78-a15f-4e10-17d3-98c6f0f8e604/out.jpg" width="506" height="284">
+
+
+07/08/2022 Attorney Luc Despins said that they’ve discovered that Paul Hastings had in the past represented entities that are part of the PA...
+
+<img src="https://media.gettr.com/group44/getter/2022/07/13/03/6a486dc1-25ed-67bf-7cda-534af2bd9623/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,12 +191,6 @@ For English：gettr.com/post/p1i332v3e4c
 [@miles 7/11/2022 5:48 PM UTC ](/content/gettr/p1hwxqb2da9.md)
 
 😍😍😍😍😍😍😍😍
-
----
-
-[@miles 7/11/2022 3:26 PM UTC ](/content/gettr/p1hwbr611f4.md)
-
- 7月11号：这是一个光辉灿烂，上天赐给我们的美好日子……这样的节目，这样的男人……这样的女人……怎么让人不喜欢？
 
 ---
 
