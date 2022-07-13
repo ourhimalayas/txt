@@ -2,6 +2,34 @@
 ---
 
 
+[@miles 7/13/2022 7:15 AM UTC  - :tv:直播](/content/gettr/p1i4f3ue35c.md)
+
+7/12/2022 Miles Guo's GETTR:  Customers at Henan local banks got arrested when they tried to withdraw money due to bank run, but the real disasters have not come yet; sadly, ignorant and stupid people could not see the upcoming dis...
+
+<img src="https://media.gettr.com/group46/getter/2022/07/13/07/c38c1c2b-46cb-b2f2-ba6d-271b4c59d2ea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/13/2022 7:17 AM UTC  - :tv:直播](/content/gettr/p1i4g3t909d.md)
+
+7/10/2022 Miles Guo: Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community, and this was done in a criminal-like manner. This is an insult to the American judicial syste...
+
+<img src="https://media.gettr.com/group22/getter/2022/07/13/07/81c217ec-7987-4843-9e4d-259f5de66407/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/13/2022 3:36 AM UTC  - :tv:直播](/content/gettr/p1i3v7y554a.md)
+
+2022年7月8日，Luc Despins律师表示他们发现普衡律师事务所过去代表过的一些实体是PAG的一部分，会尽快向法庭提交一份补充披露。但就其个人而言，他从未代表过PAG
+
+
+
+07/08/2022 Attorney Luc Despins said that they’ve discovered that Paul Hastings had in the past represented entities that are part of the PA...
+
+<img src="https://media.gettr.com/group44/getter/2022/07/13/03/6a486dc1-25ed-67bf-7cda-534af2bd9623/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 2:20 AM UTC  - :tv:直播](/content/gettr/p1i41q04837.md)
 
 7/8/2022 The Judge stated that Attorney Luc Despins can be appointed as the Chapter 11 Trustee in this case despite his admission on Paul Hastings’ connection with PAG, because can’t wait any longer for the appointment of a trustee...
@@ -28,15 +56,15 @@ For English：gettr.com/post/p1i332v3e4c
 
 ---
 
-[@miles 7/13/2022 3:36 AM UTC  - :tv:直播](/content/gettr/p1i3v7y554a.md)
+[@miles 7/13/2022 7:24 AM UTC  - :tv:直播](/content/gettr/p1i4uoie9f4.md)
 
-2022年7月8日，Luc Despins律师表示他们发现普衡律师事务所过去代表过的一些实体是PAG的一部分，会尽快向法庭提交一份补充披露。但就其个人而言，他从未代表过PAG
+7/10/2022 Miles Guo: Investigation of the evil forces behind Ms. Holley’s change of trustee will certainly uncover the culprits behind the previous cases of George Higginbotham, Elliott Broidy, and Steve Wynn!
 
 
 
-07/08/2022 Attorney Luc Despins said that they’ve discovered that Paul Hastings had in the past represented entities that are part of the PA...
+7/10/2022 文贵直播：查清H...
 
-<img src="https://media.gettr.com/group44/getter/2022/07/13/03/6a486dc1-25ed-67bf-7cda-534af2bd9623/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/07/13/07/649e3801-f249-43c0-7c95-91dcac8394fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,30 +195,6 @@ For English：gettr.com/post/p1i332v3e4c
 7/10/20...
 
 <img src="https://media.gettr.com/group24/getter/2022/07/11/23/865b3f0a-7c3a-38f1-2d15-914a3c2179d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1hy9pb3804.md)
-
-7/10/2022 Miles Guo: It's very dangerous for the current Brazil president Jair Bolsonaro to try to balance between the U.S. and the Communist China. Cuba, Brazil and Venezuela will all soon go bankrupt and hence follow American dem...
-
-<img src="https://media.gettr.com/group4/getter/2022/07/11/22/6c5ea723-97e4-ce06-62b9-d7266f22b44e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 9:58 PM UTC ](/content/gettr/p1hxndg7e39.md)
-
-周三文贵大直播问题征集
-
-☺️请战友们留言区留言☺️
-
-<img src="https://media.gettr.com/group18/origin/2022/07/11/21/6d287f20-8f5e-d1f8-cc3d-4b3f076381b8/98d98e85dc3ea1831a54617ac2214772.jpeg" width="506" height="284">
-
----
-
-[@miles 7/11/2022 5:48 PM UTC ](/content/gettr/p1hwxqb2da9.md)
-
-😍😍😍😍😍😍😍😍
 
 ---
 
