@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 7/14/2022 7:29 AM UTC  - :tv:直播](/content/gettr/p1i9pk5313a.md)
+
+7/13/2022 Miles Guo: What the Whistleblowers' Movement has done proves to the world that the people of the New Federal State of China are the pioneer in this world; the ordinary Chinese lack the ability to tell true from false and ...
+
+<img src="https://media.gettr.com/group39/getter/2022/07/14/07/5b35300b-cb22-b998-b017-96dc59164643/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/14/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1i85ue0b68.md)
 
 7/13/2022  Miles Guo: Both houses of the Parliament of the U.K. have agreed that the U.K. will be destroyed by the CCP and Russia if they fail to fight; the upcoming era of quantum will revolutionize the distance, communications an...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/14/00/49bc73ba-5127-4ed5-cd2f-ff75f42ab99d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 12:51 AM UTC  - :tv:直播](/content/gettr/p1i8t8ob1a9.md)
+
+07/06/2022 Judge Manning believes that the U.S. Trustee Office's withdrawal of Mr. Whitley as a trustee is inconsistent with the relevant statute and requests an explanation from Holley, the U.S. Trustee Office's trial attorney, bu...
+
+<img src="https://media.gettr.com/group42/getter/2022/07/14/00/18dcd582-e3ec-ea5d-8f27-342f3e0b5347/out.jpg" width="506" height="284">
 
 ---
 
@@ -45,14 +61,6 @@ For English：gettr.com/post/p1i7xrv9fee
 #破产案 #PAG #PAX #Trustee #普衡
 
 <img src="https://media.gettr.com/group46/origin/2022/07/13/22/a099987b-7e9b-b6d0-67ca-437c9b1eea52/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 12:51 AM UTC  - :tv:直播](/content/gettr/p1i8t8ob1a9.md)
-
-07/06/2022 Judge Manning believes that the U.S. Trustee Office's withdrawal of Mr. Whitley as a trustee is inconsistent with the relevant statute and requests an explanation from Holley, the U.S. Trustee Office's trial attorney, bu...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/14/00/18dcd582-e3ec-ea5d-8f27-342f3e0b5347/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,18 +183,6 @@ For English：gettr.com/post/p1i332v3e4c
 For English：gettr.com/post/p1i332v3e4c
 
 <img src="https://media.gettr.com/group48/origin/2022/07/12/22/9d1fe512-d12d-531c-1bea-76e2fb528f60/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/12/2022 9:35 PM UTC  - :tv:直播](/content/gettr/p1i2o5h19c9.md)
-
-7/12/2022 Mile Guo’s GETTR: The world has been awakened by the assassination  of Shinzo Abe, Boris Johnson’s resignation, and the crisis in Argentina. Communism will become the public enemy of the entire world!
-
-
-
-7/12/2022 文贵盖特：安倍...
-
-<img src="https://media.gettr.com/group38/getter/2022/07/12/21/8e9711fe-a50f-bf73-3ddf-7793e84ba121/out.jpg" width="506" height="284">
 
 ---
 
