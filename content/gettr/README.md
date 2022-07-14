@@ -2,6 +2,16 @@
 ---
 
 
+[@wenbin 7/14/2022 11:56 AM UTC  - :tv:直播](/content/gettr/p1iabu7740d.md)
+
+Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the world
+
+
+
+<img src="https://media.gettr.com/group22/origin/2022/07/14/11/e607e86b-c53c-6ee6-52ed-e05c4af766c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/14/2022 7:36 AM UTC  - :tv:直播](/content/gettr/p1i8x609d49.md)
 
 7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
@@ -10,13 +20,11 @@
 
 ---
 
-[@wenbin 7/14/2022 11:56 AM UTC  - :tv:直播](/content/gettr/p1iabu7740d.md)
+[@milesguolive 7/14/2022 1:55 PM UTC  - :tv:直播](/content/gettr/p1iaihub8bc.md)
 
-Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the world
+0713大直播精华版
 
-
-
-<img src="https://media.gettr.com/group22/origin/2022/07/14/11/e607e86b-c53c-6ee6-52ed-e05c4af766c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/07/14/13/b8bfc6a0-070e-3492-cd0f-ae304a505b82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ For English：gettr.com/post/p1i332v3e4c
 07/08/2022 Attorney Luc Despins said that they’ve discovered that Paul Hastings had in the past represented entities that are part of the PA...
 
 <img src="https://media.gettr.com/group44/getter/2022/07/13/03/6a486dc1-25ed-67bf-7cda-534af2bd9623/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 2:20 AM UTC  - :tv:直播](/content/gettr/p1i41q04837.md)
-
-7/8/2022 The Judge stated that Attorney Luc Despins can be appointed as the Chapter 11 Trustee in this case despite his admission on Paul Hastings’ connection with PAG, because can’t wait any longer for the appointment of a trustee...
-
-<img src="https://media.gettr.com/group7/getter/2022/07/13/02/43b1be78-a15f-4e10-17d3-98c6f0f8e604/out.jpg" width="506" height="284">
 
 ---
 
