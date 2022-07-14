@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/14/2022 9:45 PM UTC  - :tv:直播](/content/gettr/p1icfjwe6f7.md)
+
+7/13/2022 Miles Guo: CCP China has gone from the so-called strong-nation in the past to today's real estate and banking sectors collapsing and CCP China-concept stocks being delisted from the U.S. stock market, and the core reason ...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/14/21/0982c4db-c3ec-3f97-46d9-ce7077a66327/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1icsxe7443.md)
+
+7/13/2022 Miles Guo: The ability to discern true and false, good and evil is critical for one to survive the upcoming disasters, and the Whistleblowers' Movement will help you to strengthen that ability; Communist China has turned ...
+
+<img src="https://media.gettr.com/group10/getter/2022/07/14/21/f9207336-d152-ebbd-ba60-6587d7273a54/out.jpg" width="506" height="284">
+
+---
+
 [@gtvrealpeople 7/14/2022 8:05 PM UTC  - :tv:直播](/content/gettr/p1icjrc798a.md)
 
 GCLUBS会员线下体验 
@@ -30,11 +46,15 @@ GCLUBS会员线下体验
 
 ---
 
-[@miles 7/14/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1icsxe7443.md)
+[@miles 7/14/2022 9:47 PM UTC  - :tv:直播](/content/gettr/p1id39b75eb.md)
 
-7/13/2022 Miles Guo: The ability to discern true and false, good and evil is critical for one to survive the upcoming disasters, and the Whistleblowers' Movement will help you to strengthen that ability; Communist China has turned ...
+7/14/2022 Miles Guo's GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and of course it can control your wealth and your life and death!
 
-<img src="https://media.gettr.com/group10/getter/2022/07/14/21/f9207336-d152-ebbd-ba60-6587d7273a54/out.jpg" width="506" height="284">
+
+
+7/14/2022 文贵盖特：PAG的危...
+
+<img src="https://media.gettr.com/group21/getter/2022/07/14/21/dd7c0c2a-1dd1-a173-a427-78217289f1b7/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +183,6 @@ For English：gettr.com/post/p1i332v3e4c
 7/13/2022 Miles Guo: It's said that various countries have made it clear to the U.S. that they would continue showing courtesy to the CCP politically and defraud the CCP economically. Many major banks around the world are trying to...
 
 <img src="https://media.gettr.com/group33/getter/2022/07/13/21/46bf7d51-2c6d-0c83-dfe4-d093dbc57e85/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 9:31 PM UTC  - :tv:直播](/content/gettr/p1i7wow4410.md)
-
-7/13/2022 Miles Guo: In order to wipe out or buy out the leaked data of 1 billion Chinese people, the CCP established a state security emergency taskforce and went so far as to hack some cloud servers that store the data and certai...
-
-<img src="https://media.gettr.com/group13/getter/2022/07/13/21/96680d34-a5d6-a91c-75a8-a4054b721907/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 9:27 PM UTC  - :tv:直播](/content/gettr/p1i749ya0da.md)
-
-7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
-
-<img src="https://media.gettr.com/group26/getter/2022/07/13/21/d9886e44-920c-92ab-031a-54989b1a9635/out.jpg" width="506" height="284">
 
 ---
 
