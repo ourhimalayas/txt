@@ -2,6 +2,16 @@
 ---
 
 
+[@gtvrealpeople 7/14/2022 7:14 PM UTC  - :tv:直播](/content/gettr/p1ic61b55a5.md)
+
+GCLUBS会员线下体验 
+
+现场试穿GFASHION
+
+<img src="https://media.gettr.com/group29/origin/2022/07/14/19/127d7200-a2d6-f558-a3f6-87a4d291e1da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/14/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1ibg6519f0.md)
 
  7月14日：尊敬的战友们好……七哥马上开始今天的乱流直播！
@@ -10,13 +20,13 @@
 
 ---
 
-[@gtvrealpeople 7/14/2022 7:14 PM UTC  - :tv:直播](/content/gettr/p1ic61b55a5.md)
+[@gtvrealpeople 7/14/2022 8:05 PM UTC  - :tv:直播](/content/gettr/p1icjrc798a.md)
 
 GCLUBS会员线下体验 
 
 现场试穿GFASHION
 
-<img src="https://media.gettr.com/group29/origin/2022/07/14/19/127d7200-a2d6-f558-a3f6-87a4d291e1da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/07/14/20/4a11d733-df11-2c44-d705-c33b57b9239f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,18 +179,6 @@ For English：gettr.com/post/p1i332v3e4c
 2022年7月13日大直播答疑专场
 
 <img src="https://media.gettr.com/group24/origin/2022/07/13/12/14d9293d-d525-afbb-61bf-c50b9bc608da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 7:24 AM UTC  - :tv:直播](/content/gettr/p1i4uoie9f4.md)
-
-7/10/2022 Miles Guo: Investigation of the evil forces behind Ms. Holley’s change of trustee will certainly uncover the culprits behind the previous cases of George Higginbotham, Elliott Broidy, and Steve Wynn!
-
-
-
-7/10/2022 文贵直播：查清H...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/13/07/649e3801-f249-43c0-7c95-91dcac8394fc/out.jpg" width="506" height="284">
 
 ---
 
