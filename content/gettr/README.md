@@ -16,11 +16,11 @@ For English：gettr.com/post/p1i7xrv9fee
 
 ---
 
-[@miles 7/14/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1i8hj2ff42.md)
+[@miles 7/14/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1i8hj77d7c.md)
 
- 7月13号：衷心地感谢樱花农场文艺妹妹．及团队制作的这精美的视频．戒烟的歌曲．太棒了，你戎烟了吗？
+7/13/2022 Miles Guo: In the absence of going through the legal process, the U.S. DOJ replaced my original bankruptcy trustee with someone who has ties with the CCP and absolutely has a conflict of interest, how absurd it is! It is ...
 
-<img src="https://media.gettr.com/group40/getter/2022/07/14/00/c82e562b-3bf9-129e-411d-b42b2bf0f0c1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/07/14/00/db58b7c9-0e1c-0cb3-8e53-c11d92e1ac15/out.jpg" width="506" height="284">
 
 ---
 
