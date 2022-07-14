@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/14/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1ibg6519f0.md)
+
+ 7月14日：尊敬的战友们好……七哥马上开始今天的乱流直播！
+
+<img src="https://media.gettr.com/group16/getter/2022/07/14/14/16d23904-754c-b0bb-db31-7b62250804e2/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 7/14/2022 1:55 PM UTC  - :tv:直播](/content/gettr/p1iaihub8bc.md)
+
+0713大直播精华版
+
+<img src="https://media.gettr.com/group28/origin/2022/07/14/13/b8bfc6a0-070e-3492-cd0f-ae304a505b82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@wenbin 7/14/2022 11:56 AM UTC  - :tv:直播](/content/gettr/p1iabu7740d.md)
 
 Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the world
@@ -20,11 +36,13 @@ Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the 
 
 ---
 
-[@milesguolive 7/14/2022 1:55 PM UTC  - :tv:直播](/content/gettr/p1iaihub8bc.md)
+[@miles 7/14/2022 2:37 PM UTC  - :tv:直播](/content/gettr/p1ibc2u8b62.md)
 
-0713大直播精华版
+MILES GUO 直播 2022-07-14
 
-<img src="https://media.gettr.com/group28/origin/2022/07/14/13/b8bfc6a0-070e-3492-cd0f-ae304a505b82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+太平联盟到底有多危险？
+
+<img src="https://media.gettr.com/group19/getter/2022/07/14/14/371258d2-6fc8-05e4-5bc6-a623a7ebc3bf/f899d14385d39a2112b9bd476fa60907.jpg" width="506" height="284">
 
 ---
 
@@ -144,14 +162,6 @@ For English：gettr.com/post/p1i332v3e4c
 
 ---
 
-[@miles 7/13/2022 7:15 AM UTC  - :tv:直播](/content/gettr/p1i4f3ue35c.md)
-
-7/12/2022 Miles Guo's GETTR:  Customers at Henan local banks got arrested when they tried to withdraw money due to bank run, but the real disasters have not come yet; sadly, ignorant and stupid people could not see the upcoming dis...
-
-<img src="https://media.gettr.com/group46/getter/2022/07/13/07/c38c1c2b-46cb-b2f2-ba6d-271b4c59d2ea/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/13/2022 7:17 AM UTC  - :tv:直播](/content/gettr/p1i4g3t909d.md)
 
 7/10/2022 Miles Guo: Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community, and this was done in a criminal-like manner. This is an insult to the American judicial syste...
@@ -169,18 +179,6 @@ For English：gettr.com/post/p1i332v3e4c
 7/10/2022 文贵直播：查清H...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/13/07/649e3801-f249-43c0-7c95-91dcac8394fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 3:36 AM UTC  - :tv:直播](/content/gettr/p1i3v7y554a.md)
-
-2022年7月8日，Luc Despins律师表示他们发现普衡律师事务所过去代表过的一些实体是PAG的一部分，会尽快向法庭提交一份补充披露。但就其个人而言，他从未代表过PAG
-
-
-
-07/08/2022 Attorney Luc Despins said that they’ve discovered that Paul Hastings had in the past represented entities that are part of the PA...
-
-<img src="https://media.gettr.com/group44/getter/2022/07/13/03/6a486dc1-25ed-67bf-7cda-534af2bd9623/out.jpg" width="506" height="284">
 
 ---
 
