@@ -2,6 +2,16 @@
 ---
 
 
+[@gtvrealpeople 7/14/2022 8:05 PM UTC  - :tv:直播](/content/gettr/p1icjrc798a.md)
+
+GCLUBS会员线下体验 
+
+现场试穿GFASHION
+
+<img src="https://media.gettr.com/group48/origin/2022/07/14/20/4a11d733-df11-2c44-d705-c33b57b9239f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gtvrealpeople 7/14/2022 7:14 PM UTC  - :tv:直播](/content/gettr/p1ic61b55a5.md)
 
 GCLUBS会员线下体验 
@@ -20,13 +30,11 @@ GCLUBS会员线下体验
 
 ---
 
-[@gtvrealpeople 7/14/2022 8:05 PM UTC  - :tv:直播](/content/gettr/p1icjrc798a.md)
+[@miles 7/14/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1icsxe7443.md)
 
-GCLUBS会员线下体验 
+7/13/2022 Miles Guo: The ability to discern true and false, good and evil is critical for one to survive the upcoming disasters, and the Whistleblowers' Movement will help you to strengthen that ability; Communist China has turned ...
 
-现场试穿GFASHION
-
-<img src="https://media.gettr.com/group48/origin/2022/07/14/20/4a11d733-df11-2c44-d705-c33b57b9239f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/07/14/21/f9207336-d152-ebbd-ba60-6587d7273a54/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ For English：gettr.com/post/p1i332v3e4c
 7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
 
 <img src="https://media.gettr.com/group26/getter/2022/07/13/21/d9886e44-920c-92ab-031a-54989b1a9635/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 1:00 PM UTC  - :tv:直播](/content/gettr/p1i57t5c4d0.md)
-
-2022年7月13日大直播答疑专场
-
-<img src="https://media.gettr.com/group24/origin/2022/07/13/12/14d9293d-d525-afbb-61bf-c50b9bc608da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
