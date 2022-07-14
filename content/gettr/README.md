@@ -10,6 +10,26 @@
 
 ---
 
+[@gtvrealpeople 7/14/2022 7:14 PM UTC  - :tv:直播](/content/gettr/p1ic61b55a5.md)
+
+GCLUBS会员线下体验 
+
+现场试穿GFASHION
+
+<img src="https://media.gettr.com/group29/origin/2022/07/14/19/127d7200-a2d6-f558-a3f6-87a4d291e1da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 2:37 PM UTC  - :tv:直播](/content/gettr/p1ibc2u8b62.md)
+
+MILES GUO 直播 2022-07-14
+
+太平联盟到底有多危险？
+
+<img src="https://media.gettr.com/group19/getter/2022/07/14/14/371258d2-6fc8-05e4-5bc6-a623a7ebc3bf/f899d14385d39a2112b9bd476fa60907.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 7/14/2022 1:55 PM UTC  - :tv:直播](/content/gettr/p1iaihub8bc.md)
 
 0713大直播精华版
@@ -33,16 +53,6 @@ Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the 
 7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
 
 <img src="https://media.gettr.com/group45/getter/2022/07/14/07/71079e05-6f3f-28f4-729b-b17904bd1845/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 2:37 PM UTC  - :tv:直播](/content/gettr/p1ibc2u8b62.md)
-
-MILES GUO 直播 2022-07-14
-
-太平联盟到底有多危险？
-
-<img src="https://media.gettr.com/group19/getter/2022/07/14/14/371258d2-6fc8-05e4-5bc6-a623a7ebc3bf/f899d14385d39a2112b9bd476fa60907.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +169,6 @@ For English：gettr.com/post/p1i332v3e4c
 2022年7月13日大直播答疑专场
 
 <img src="https://media.gettr.com/group24/origin/2022/07/13/12/14d9293d-d525-afbb-61bf-c50b9bc608da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 7:17 AM UTC  - :tv:直播](/content/gettr/p1i4g3t909d.md)
-
-7/10/2022 Miles Guo: Ms. Holley L. Claiborn of the DOJ replaced the trustee with Luc A. Despins, who is a scumbag in the legal community, and this was done in a criminal-like manner. This is an insult to the American judicial syste...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/13/07/81c217ec-7987-4843-9e4d-259f5de66407/out.jpg" width="506" height="284">
 
 ---
 
