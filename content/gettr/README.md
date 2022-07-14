@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 7/14/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1i8nh02c47.md)
+[@miles 7/14/2022 7:36 AM UTC  - :tv:直播](/content/gettr/p1i8x609d49.md)
 
-7/13/2022 Miles Guo: Paul Hastings has set off a shock wave across the US media, judicial community, and the political arena. The strategy of the Whistleblowers’ Movement to take down the CCP by the United States, by Law, and by th...
+7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
 
-<img src="https://media.gettr.com/group13/getter/2022/07/14/00/a421d8b7-76ab-2280-a7c4-e71c65b421a7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/07/14/07/71079e05-6f3f-28f4-729b-b17904bd1845/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 7/13/2022 Miles Guo: What the Whistleblowers' Movement has done proves to the world that the people of the New Federal State of China are the pioneer in this world; the ordinary Chinese lack the ability to tell true from false and ...
 
 <img src="https://media.gettr.com/group39/getter/2022/07/14/07/5b35300b-cb22-b998-b017-96dc59164643/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1i8nh02c47.md)
+
+7/13/2022 Miles Guo: Paul Hastings has set off a shock wave across the US media, judicial community, and the political arena. The strategy of the Whistleblowers’ Movement to take down the CCP by the United States, by Law, and by th...
+
+<img src="https://media.gettr.com/group13/getter/2022/07/14/00/a421d8b7-76ab-2280-a7c4-e71c65b421a7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 7:41 AM UTC  - :tv:直播](/content/gettr/p1ia5jk1bdd.md)
+
+7/13/2022 Miles Guo: The CCP’s Xi Jinping-Wang Qishan administration was trying to gain global hegemony by pushing the Belt and Road Initiative. The One Belt One Road initiative will make the CCP lose power, as well as the hearts a...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/14/07/bae0cf26-c18d-3989-93eb-b3a6ac79d73a/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,26 +179,6 @@ For English：gettr.com/post/p1i332v3e4c
 7/12/2022 Miles Guo's GETTR: The foolish and ignorant CCP who rejoiced in the assassination of PM Shinzo Abe is dismayed to find out that the assassination has become the biggest nightmare for itself. The assassination of Abe is ex...
 
 <img src="https://media.gettr.com/group19/getter/2022/07/13/02/16242f53-b0c8-ebd0-df2a-f91460f73f97/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/12/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1i2gog7c80.md)
-
-(1080版) 飞飞秀 《利益冲突·第五篇》2022-07-12
-
-For English：gettr.com/post/p1i332v3e4c
-
-<img src="https://media.gettr.com/group12/origin/2022/07/12/22/f9d7c5db-b705-e5dc-91d8-ab1d92796a12/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/12/2022 10:19 PM UTC  - :tv:直播](/content/gettr/p1i33gye502.md)
-
-（4K版）飞飞秀 《利益冲突·第五篇》2022-07-12
-
-For English：gettr.com/post/p1i332v3e4c
-
-<img src="https://media.gettr.com/group48/origin/2022/07/12/22/9d1fe512-d12d-531c-1bea-76e2fb528f60/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
