@@ -16,6 +16,28 @@ For English：gettr.com/post/p1i7xrv9fee
 
 ---
 
+[@miles 7/14/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1i8hj2ff42.md)
+
+ 7月13号：衷心地感谢樱花农场文艺妹妹．及团队制作的这精美的视频．戒烟的歌曲．太棒了，你戎烟了吗？
+
+<img src="https://media.gettr.com/group40/getter/2022/07/14/00/c82e562b-3bf9-129e-411d-b42b2bf0f0c1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/13/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1i7em3f7d3.md)
+
+(1080版) 飞飞秀 《利益冲突·第六篇》2022-07-13
+
+For English：gettr.com/post/p1i332v3e4c
+
+
+
+#破产案 #PAG #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group31/origin/2022/07/13/22/25ba001c-ead2-ff10-9183-02887a020141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 9:55 PM UTC  - :tv:直播](/content/gettr/p1i7jzwcee1.md)
 
 7/13/2022 Miles Guo: It's said that various countries have made it clear to the U.S. that they would continue showing courtesy to the CCP politically and defraud the CCP economically. Many major banks around the world are trying to...
@@ -37,20 +59,6 @@ For English：gettr.com/post/p1i7xrv9fee
 7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
 
 <img src="https://media.gettr.com/group26/getter/2022/07/13/21/d9886e44-920c-92ab-031a-54989b1a9635/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1i7em3f7d3.md)
-
-(1080版) 飞飞秀 《利益冲突·第六篇》2022-07-13
-
-For English：gettr.com/post/p1i332v3e4c
-
-
-
-#破产案 #PAG #PAX #Trustee #普衡
-
-<img src="https://media.gettr.com/group31/origin/2022/07/13/22/25ba001c-ead2-ff10-9183-02887a020141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,18 +193,6 @@ For English：gettr.com/post/p1i332v3e4c
 07/06/2022 曼宁法官：美国受托人办公室既没有做出解释，也没有提出动议，就撤换了受托人。现在的整个程序完全说不通。
 
 <img src="https://media.gettr.com/group25/getter/2022/07/12/04/775ff06f-f31a-1e32-c0a1-b5a14283f7c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/12/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1hzfll3c24.md)
-
-07/06/2022 曼宁法官：如果受托人Joe D. Whitley不合格，就应该有一个程序，不能随随便便就撤销。
-
-
-
-07/06/2022 Judge Manning: If the trustee(Joe D. Whitley) is not qualified, there should be a process in place and it can't just be withdrawn at will.
-
-<img src="https://media.gettr.com/group29/getter/2022/07/12/04/c1b3cff5-30a6-c12e-3087-a0200f4b6b90/out.jpg" width="506" height="284">
 
 ---
 
