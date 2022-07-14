@@ -2,11 +2,51 @@
 ---
 
 
+[@miles 7/14/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1idbwm0833.md)
+
+(1080版) 飞飞秀 《利益冲突·第七篇》2022-07-14
+
+For English：gettr.com/streaming/p1id1f010b2
+
+
+
+#破产案 #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group40/origin/2022/07/14/22/b2a42a93-3d23-eff4-b889-aa8cacccceb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/14/2022 9:45 PM UTC  - :tv:直播](/content/gettr/p1icfjwe6f7.md)
 
 7/13/2022 Miles Guo: CCP China has gone from the so-called strong-nation in the past to today's real estate and banking sectors collapsing and CCP China-concept stocks being delisted from the U.S. stock market, and the core reason ...
 
 <img src="https://media.gettr.com/group3/getter/2022/07/14/21/0982c4db-c3ec-3f97-46d9-ce7077a66327/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1id3l1387d.md)
+
+(4K版) 飞飞秀 《利益冲突·第七篇》2022-07-14
+
+For English：gettr.com/streaming/p1id1f010b2
+
+
+
+#破产案 #PAG #普衡
+
+<img src="https://media.gettr.com/group8/origin/2022/07/14/22/c88a404c-9af8-d125-102c-006376c93b67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 9:47 PM UTC  - :tv:直播](/content/gettr/p1id39b75eb.md)
+
+7/14/2022 Miles Guo's GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and of course it can control your wealth and your life and death!
+
+
+
+7/14/2022 文贵盖特：PAG的危...
+
+<img src="https://media.gettr.com/group21/getter/2022/07/14/21/dd7c0c2a-1dd1-a173-a427-78217289f1b7/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,18 +83,6 @@ GCLUBS会员线下体验
  7月14日：尊敬的战友们好……七哥马上开始今天的乱流直播！
 
 <img src="https://media.gettr.com/group16/getter/2022/07/14/14/16d23904-754c-b0bb-db31-7b62250804e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 9:47 PM UTC  - :tv:直播](/content/gettr/p1id39b75eb.md)
-
-7/14/2022 Miles Guo's GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and of course it can control your wealth and your life and death!
-
-
-
-7/14/2022 文贵盖特：PAG的危...
-
-<img src="https://media.gettr.com/group21/getter/2022/07/14/21/dd7c0c2a-1dd1-a173-a427-78217289f1b7/out.jpg" width="506" height="284">
 
 ---
 
@@ -150,20 +178,6 @@ Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the 
 
 ---
 
-[@miles 7/13/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1i7vut5dba.md)
-
-(4K版) 飞飞秀 《利益冲突·第六篇》2022-07-13
-
-For English：gettr.com/post/p1i7xrv9fee
-
-
-
-#破产案 #PAG #PAX #Trustee #普衡
-
-<img src="https://media.gettr.com/group46/origin/2022/07/13/22/a099987b-7e9b-b6d0-67ca-437c9b1eea52/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/13/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1i7em3f7d3.md)
 
 (1080版) 飞飞秀 《利益冲突·第六篇》2022-07-13
@@ -175,14 +189,6 @@ For English：gettr.com/post/p1i332v3e4c
 #破产案 #PAG #PAX #Trustee #普衡
 
 <img src="https://media.gettr.com/group31/origin/2022/07/13/22/25ba001c-ead2-ff10-9183-02887a020141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 9:55 PM UTC  - :tv:直播](/content/gettr/p1i7jzwcee1.md)
-
-7/13/2022 Miles Guo: It's said that various countries have made it clear to the U.S. that they would continue showing courtesy to the CCP politically and defraud the CCP economically. Many major banks around the world are trying to...
-
-<img src="https://media.gettr.com/group33/getter/2022/07/13/21/46bf7d51-2c6d-0c83-dfe4-d093dbc57e85/out.jpg" width="506" height="284">
 
 ---
 
