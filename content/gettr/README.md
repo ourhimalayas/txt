@@ -10,6 +10,24 @@
 
 ---
 
+[@wenbin 7/14/2022 11:56 AM UTC  - :tv:直播](/content/gettr/p1iabu7740d.md)
+
+Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the world
+
+
+
+<img src="https://media.gettr.com/group22/origin/2022/07/14/11/e607e86b-c53c-6ee6-52ed-e05c4af766c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 7:41 AM UTC  - :tv:直播](/content/gettr/p1ia5jk1bdd.md)
+
+7/13/2022 Miles Guo: The CCP’s Xi Jinping-Wang Qishan administration was trying to gain global hegemony by pushing the Belt and Road Initiative. The One Belt One Road initiative will make the CCP lose power, as well as the hearts a...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/14/07/bae0cf26-c18d-3989-93eb-b3a6ac79d73a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/14/2022 7:29 AM UTC  - :tv:直播](/content/gettr/p1i9pk5313a.md)
 
 7/13/2022 Miles Guo: What the Whistleblowers' Movement has done proves to the world that the people of the New Federal State of China are the pioneer in this world; the ordinary Chinese lack the ability to tell true from false and ...
@@ -23,14 +41,6 @@
 7/13/2022 Miles Guo: Paul Hastings has set off a shock wave across the US media, judicial community, and the political arena. The strategy of the Whistleblowers’ Movement to take down the CCP by the United States, by Law, and by th...
 
 <img src="https://media.gettr.com/group13/getter/2022/07/14/00/a421d8b7-76ab-2280-a7c4-e71c65b421a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 7:41 AM UTC  - :tv:直播](/content/gettr/p1ia5jk1bdd.md)
-
-7/13/2022 Miles Guo: The CCP’s Xi Jinping-Wang Qishan administration was trying to gain global hegemony by pushing the Belt and Road Initiative. The One Belt One Road initiative will make the CCP lose power, as well as the hearts a...
-
-<img src="https://media.gettr.com/group41/getter/2022/07/14/07/bae0cf26-c18d-3989-93eb-b3a6ac79d73a/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ For English：gettr.com/post/p1i332v3e4c
 7/8/2022 The Judge stated that Attorney Luc Despins can be appointed as the Chapter 11 Trustee in this case despite his admission on Paul Hastings’ connection with PAG, because can’t wait any longer for the appointment of a trustee...
 
 <img src="https://media.gettr.com/group7/getter/2022/07/13/02/43b1be78-a15f-4e10-17d3-98c6f0f8e604/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p1i3j3zcbfd.md)
-
-7/12/2022 Miles Guo's GETTR: The foolish and ignorant CCP who rejoiced in the assassination of PM Shinzo Abe is dismayed to find out that the assassination has become the biggest nightmare for itself. The assassination of Abe is ex...
-
-<img src="https://media.gettr.com/group19/getter/2022/07/13/02/16242f53-b0c8-ebd0-df2a-f91460f73f97/out.jpg" width="506" height="284">
 
 ---
 
