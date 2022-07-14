@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/14/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1i8hj77d7c.md)
+
+7/13/2022 Miles Guo: In the absence of going through the legal process, the U.S. DOJ replaced my original bankruptcy trustee with someone who has ties with the CCP and absolutely has a conflict of interest, how absurd it is! It is ...
+
+<img src="https://media.gettr.com/group48/getter/2022/07/14/00/db58b7c9-0e1c-0cb3-8e53-c11d92e1ac15/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/13/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1i7vut5dba.md)
 
 (4K版) 飞飞秀 《利益冲突·第六篇》2022-07-13
@@ -16,11 +24,11 @@ For English：gettr.com/post/p1i7xrv9fee
 
 ---
 
-[@miles 7/14/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1i8hj77d7c.md)
+[@miles 7/14/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1i83ie9465.md)
 
-7/13/2022 Miles Guo: In the absence of going through the legal process, the U.S. DOJ replaced my original bankruptcy trustee with someone who has ties with the CCP and absolutely has a conflict of interest, how absurd it is! It is ...
+ 7月13号：感谢日本樱花农场文艺妹妹．及团队．制作戒烟的歌曲和精美的视频！
 
-<img src="https://media.gettr.com/group48/getter/2022/07/14/00/db58b7c9-0e1c-0cb3-8e53-c11d92e1ac15/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/07/14/00/e0a2b682-27b7-e199-ed13-daa43e687c23/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,18 +189,6 @@ For English：gettr.com/post/p1i332v3e4c
 7/10/2022 Miles Guo: Paul Hastings has some partner(s) who is/are CCP member(s) and its half revenue generated from the CCP, but its garbage partner Luc Despins dared to bluntly lie in the courtroom by testifying no conflict of int...
 
 <img src="https://media.gettr.com/group15/getter/2022/07/12/07/59f2e86f-ad87-3ced-dfe8-4d7ce61e0c98/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/12/2022 4:31 AM UTC  - :tv:直播](/content/gettr/p1hz0o5a6af.md)
-
-07/06/2022 Judge Manning: The U.S. Trustee's Office withdrew the trustee without either an explanation or a motion. The whole process does not make any sense.
-
-
-
-07/06/2022 曼宁法官：美国受托人办公室既没有做出解释，也没有提出动议，就撤换了受托人。现在的整个程序完全说不通。
-
-<img src="https://media.gettr.com/group25/getter/2022/07/12/04/775ff06f-f31a-1e32-c0a1-b5a14283f7c9/out.jpg" width="506" height="284">
 
 ---
 
