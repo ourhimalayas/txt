@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/14/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1id3wmf72b.md)
+
+7/14/2022 Miles Guo: How dangerous is PAG? PAG was capable of having Duowei News work with it to falsify evidence to deceive an American judge, and it was able to shut down Duowei News and let Edward Moss, former attorney of O’Melv...
+
+<img src="https://media.gettr.com/group17/getter/2022/07/14/23/f7bf03e9-4313-aba2-8933-483c4103c73c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/14/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1idbwm0833.md)
 
 (1080版) 飞飞秀 《利益冲突·第七篇》2022-07-14
@@ -16,11 +24,11 @@ For English：gettr.com/streaming/p1id1f010b2
 
 ---
 
-[@miles 7/14/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1id3wmf72b.md)
+[@miles 7/15/2022 1:35 AM UTC  - :tv:直播](/content/gettr/p1idynj89df.md)
 
-7/14/2022 Miles Guo: How dangerous is PAG? PAG was capable of having Duowei News work with it to falsify evidence to deceive an American judge, and it was able to shut down Duowei News and let Edward Moss, former attorney of O’Melv...
+7/9/2022 Miles Guo's GETTR: Although the majority of Paul Hastings LLP’s revenue comes from China, its partner Luc A. Despins lied in the court that he didn’t know it! This is a good entry point for us to expose the CCP’s infiltrat...
 
-<img src="https://media.gettr.com/group17/getter/2022/07/14/23/f7bf03e9-4313-aba2-8933-483c4103c73c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/07/15/01/7b905ecb-ede1-c0cf-51ff-6d5443d08358/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the 
  7月13号：感谢日本樱花农场文艺妹妹．及团队．制作戒烟的歌曲和精美的视频！
 
 <img src="https://media.gettr.com/group43/getter/2022/07/14/00/e0a2b682-27b7-e199-ed13-daa43e687c23/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1i8hj77d7c.md)
-
-7/13/2022 Miles Guo: In the absence of going through the legal process, the U.S. DOJ replaced my original bankruptcy trustee with someone who has ties with the CCP and absolutely has a conflict of interest, how absurd it is! It is ...
-
-<img src="https://media.gettr.com/group48/getter/2022/07/14/00/db58b7c9-0e1c-0cb3-8e53-c11d92e1ac15/out.jpg" width="506" height="284">
 
 ---
 
