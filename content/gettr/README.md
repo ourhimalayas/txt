@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/15/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1ifmcncc3c.md)
+
+ 7月15号：尊敬的战友们好……共产党的金融．房地产．灾难正在毁掉中国．香港．和世界经济．全球的金融灾难即将到来，在这样的灾难时刻，我们更要小心病毒．和对家人的保护．一切都已经开始！
+
+<img src="https://media.gettr.com/group5/getter/2022/07/15/15/aacf3caf-3534-8076-57bd-4039e7127163/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/15/2022 7:05 AM UTC  - :tv:直播](/content/gettr/p1idxk3f954.md)
+
+7/14/2022 Miles Guo: Several senior executives of some top ten banks in Communist China just fled the country and told me that over 50% of the debt, accounts, and notes of the banks in Communist China are fake. The CCP's Central Co...
+
+<img src="https://media.gettr.com/group48/getter/2022/07/15/07/22c17a06-c121-9269-ff10-0c80d0c2fdb2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/15/2022 3:32 AM UTC  - :tv:直播](/content/gettr/p1iebs1205d.md)
 
 7/13/2022 Miles Guo: The DOJ replaced my original bankruptcy trustee with someone who is tied to the CCP and absolutely has conflicts of interest. It makes no difference than appointing Wang Qishan as my trustee.
@@ -19,14 +35,6 @@
 7/13/2022 文贵直播：...
 
 <img src="https://media.gettr.com/group40/getter/2022/07/15/03/2fb8881b-b8be-c6a4-4c40-e86ca321ed70/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 7:05 AM UTC  - :tv:直播](/content/gettr/p1idxk3f954.md)
-
-7/14/2022 Miles Guo: Several senior executives of some top ten banks in Communist China just fled the country and told me that over 50% of the debt, accounts, and notes of the banks in Communist China are fake. The CCP's Central Co...
-
-<img src="https://media.gettr.com/group48/getter/2022/07/15/07/22c17a06-c121-9269-ff10-0c80d0c2fdb2/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,16 +51,6 @@
 7/14/2022 Miles Guo:  Without going through the legal process and receiving the approval of the judge, Luc A. Despins and his law farm partner Paul Hastings replaced the original bankruptcy trustee of mine. Their wrongdoings are a ...
 
 <img src="https://media.gettr.com/group11/getter/2022/07/15/03/96392aee-ed62-368d-5683-4cbb7fe98d09/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 2:40 AM UTC  - :tv:直播](/content/gettr/p1ie8do8514.md)
-
-This Video shows a shocking judicial corruption in America. 👇👇👇
-
-It’s not just a legal lawsuit against Miles Guo, but a judicial unrestricted war by the CCP.  By infiltrating and corrupting the U.S. judicial system, the CCP has ...
-
-<img src="https://media.gettr.com/group16/origin/2022/07/15/02/acfd3001-98b4-9b94-a4b0-74cd5d8436e2/out.jpg" width="506" height="284">
 
 ---
 
