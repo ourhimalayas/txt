@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/15/2022 1:35 AM UTC  - :tv:直播](/content/gettr/p1idynj89df.md)
+
+7/9/2022 Miles Guo's GETTR: Although the majority of Paul Hastings LLP’s revenue comes from China, its partner Luc A. Despins lied in the court that he didn’t know it! This is a good entry point for us to expose the CCP’s infiltrat...
+
+<img src="https://media.gettr.com/group29/getter/2022/07/15/01/7b905ecb-ede1-c0cf-51ff-6d5443d08358/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/14/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1id3wmf72b.md)
 
 7/14/2022 Miles Guo: How dangerous is PAG? PAG was capable of having Duowei News work with it to falsify evidence to deceive an American judge, and it was able to shut down Duowei News and let Edward Moss, former attorney of O’Melv...
@@ -24,11 +32,13 @@ For English：gettr.com/streaming/p1id1f010b2
 
 ---
 
-[@miles 7/15/2022 1:35 AM UTC  - :tv:直播](/content/gettr/p1idynj89df.md)
+[@miles 7/15/2022 2:40 AM UTC  - :tv:直播](/content/gettr/p1ie8do8514.md)
 
-7/9/2022 Miles Guo's GETTR: Although the majority of Paul Hastings LLP’s revenue comes from China, its partner Luc A. Despins lied in the court that he didn’t know it! This is a good entry point for us to expose the CCP’s infiltrat...
+This Video shows a shocking judicial corruption in America. 👇👇👇
 
-<img src="https://media.gettr.com/group29/getter/2022/07/15/01/7b905ecb-ede1-c0cf-51ff-6d5443d08358/out.jpg" width="506" height="284">
+It’s not just a legal lawsuit against Miles Guo, but a judicial unrestricted war by the CCP.  By infiltrating and corrupting the U.S. judicial system, the CCP has ...
+
+<img src="https://media.gettr.com/group16/origin/2022/07/15/02/acfd3001-98b4-9b94-a4b0-74cd5d8436e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the 
 07/06/2022 Judge Manning believes that the U.S. Trustee Office's withdrawal of Mr. Whitley as a trustee is inconsistent with the relevant statute and requests an explanation from Holley, the U.S. Trustee Office's trial attorney, bu...
 
 <img src="https://media.gettr.com/group42/getter/2022/07/14/00/18dcd582-e3ec-ea5d-8f27-342f3e0b5347/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1i83ie9465.md)
-
- 7月13号：感谢日本樱花农场文艺妹妹．及团队．制作戒烟的歌曲和精美的视频！
-
-<img src="https://media.gettr.com/group43/getter/2022/07/14/00/e0a2b682-27b7-e199-ed13-daa43e687c23/out.jpg" width="506" height="284">
 
 ---
 
