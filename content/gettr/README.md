@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/15/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p1ie03k5f66.md)
+
+7/14/2022 Miles Guo: Certain executive of a Chinese bank recently escaped from the CCP China with his family; he brought extensive and real financial information with him; the data leak incident proved the following: CCP China's po...
+
+<img src="https://media.gettr.com/group48/getter/2022/07/15/06/c6dd27b1-92b4-32e6-2ad2-002d2e6cf3fe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/15/2022 3:32 AM UTC  - :tv:直播](/content/gettr/p1iebs1205d.md)
 
 7/13/2022 Miles Guo: The DOJ replaced my original bankruptcy trustee with someone who is tied to the CCP and absolutely has conflicts of interest. It makes no difference than appointing Wang Qishan as my trustee.
@@ -14,11 +22,27 @@
 
 ---
 
+[@miles 7/15/2022 7:05 AM UTC  - :tv:直播](/content/gettr/p1idxk3f954.md)
+
+7/14/2022 Miles Guo: Several senior executives of some top ten banks in Communist China just fled the country and told me that over 50% of the debt, accounts, and notes of the banks in Communist China are fake. The CCP's Central Co...
+
+<img src="https://media.gettr.com/group48/getter/2022/07/15/07/22c17a06-c121-9269-ff10-0c80d0c2fdb2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/15/2022 3:35 AM UTC  - :tv:直播](/content/gettr/p1idnih1cb9.md)
 
 7/9/2022 Miles Guo's GETTR:  Luc A. Despins, the new trustee appointed by the DOJ claimed that he just realized he had worked for PAG; I have the rights enshrined by the U.S. law to file an appeal and motion to withdraw and change ...
 
 <img src="https://media.gettr.com/group11/getter/2022/07/15/03/3a5db293-55d0-2d37-15be-d37e25c46a50/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/15/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1ie4gmbf76.md)
+
+7/14/2022 Miles Guo:  Without going through the legal process and receiving the approval of the judge, Luc A. Despins and his law farm partner Paul Hastings replaced the original bankruptcy trustee of mine. Their wrongdoings are a ...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/15/03/96392aee-ed62-368d-5683-4cbb7fe98d09/out.jpg" width="506" height="284">
 
 ---
 
@@ -59,14 +83,6 @@ For English：gettr.com/streaming/p1id1f010b2
 #破产案 #PAX #Trustee #普衡
 
 <img src="https://media.gettr.com/group40/origin/2022/07/14/22/b2a42a93-3d23-eff4-b889-aa8cacccceb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1ie4gmbf76.md)
-
-7/14/2022 Miles Guo:  Without going through the legal process and receiving the approval of the judge, Luc A. Despins and his law farm partner Paul Hastings replaced the original bankruptcy trustee of mine. Their wrongdoings are a ...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/15/03/96392aee-ed62-368d-5683-4cbb7fe98d09/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,27 +184,11 @@ Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the 
 
 ---
 
-[@miles 7/14/2022 7:36 AM UTC  - :tv:直播](/content/gettr/p1i8x609d49.md)
-
-7/13/2022 Miles Guo: Luc A. Despins and Paul Hastings LLP dared to tell blatant lies to the judge and commit fraud in the court. It is probably not the first time they have done this; we shall do our best to dig out all bankruptcy ...
-
-<img src="https://media.gettr.com/group45/getter/2022/07/14/07/71079e05-6f3f-28f4-729b-b17904bd1845/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/14/2022 7:41 AM UTC  - :tv:直播](/content/gettr/p1ia5jk1bdd.md)
 
 7/13/2022 Miles Guo: The CCP’s Xi Jinping-Wang Qishan administration was trying to gain global hegemony by pushing the Belt and Road Initiative. The One Belt One Road initiative will make the CCP lose power, as well as the hearts a...
 
 <img src="https://media.gettr.com/group41/getter/2022/07/14/07/bae0cf26-c18d-3989-93eb-b3a6ac79d73a/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 7:29 AM UTC  - :tv:直播](/content/gettr/p1i9pk5313a.md)
-
-7/13/2022 Miles Guo: What the Whistleblowers' Movement has done proves to the world that the people of the New Federal State of China are the pioneer in this world; the ordinary Chinese lack the ability to tell true from false and ...
-
-<img src="https://media.gettr.com/group39/getter/2022/07/14/07/5b35300b-cb22-b998-b017-96dc59164643/out.jpg" width="506" height="284">
 
 ---
 
