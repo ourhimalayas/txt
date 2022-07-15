@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/15/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p1iho3ced67.md)
+
+7/14/2022 Miles Guo: Every year the CCP spends $30 billion, or even hundreds of billions of dollars on attorney fees in the U.S., so that they could attract the senior officials of NASDAQ and DOJ to work for big law firms, which ar...
+
+<img src="https://media.gettr.com/group19/getter/2022/07/15/23/a69206d1-12b8-1eaa-ad19-dd8572a332cc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/15/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1ih2lt8c79.md)
 
 (4K版) 飞飞秀 《第八篇·司法部腐败案》2022-07-15
@@ -13,6 +21,28 @@ For English：gettr.com/post/p1ihj2ca1fe
 #DOJ #Higginbotham #腐败案
 
 <img src="https://media.gettr.com/group16/origin/2022/07/15/21/1af3db6e-f488-2b92-ce30-c13a79bd20ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/15/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1ih7xj48ce.md)
+
+7/15/2022 Miles Guo’s GETTR: Can you imagine people are beaten to death, get paralyzed, suffer vision loss or miscarriages from police assault, just because they want to withdraw their own money from banks? Yes this happened in Com...
+
+<img src="https://media.gettr.com/group37/getter/2022/07/15/23/d0e2a020-f05f-a506-bb19-2798042fe7f2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/15/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1ihfzvc54e.md)
+
+(1080版) 飞飞秀 《第八篇·司法部腐败案》2022-07-15
+
+For English：gettr.com/post/p1ihj2ca1fe
+
+
+
+#DOJ #Higginbotham #腐败案
+
+<img src="https://media.gettr.com/group12/origin/2022/07/15/22/d01dba4a-53fa-4f2b-df12-2d4e10548383/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -29,20 +59,6 @@ For English：gettr.com/post/p1ihj2ca1fe
 7/14/2022 Miles Guo: Certain executive of a Chinese bank recently escaped from the CCP China with his family; he brought extensive and real financial information with him; the data leak incident proved the following: CCP China's po...
 
 <img src="https://media.gettr.com/group48/getter/2022/07/15/06/c6dd27b1-92b4-32e6-2ad2-002d2e6cf3fe/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1ihfzvc54e.md)
-
-(1080版) 飞飞秀 《第八篇·司法部腐败案》2022-07-15
-
-For English：gettr.com/post/p1ihj2ca1fe
-
-
-
-#DOJ #Higginbotham #腐败案
-
-<img src="https://media.gettr.com/group12/origin/2022/07/15/22/d01dba4a-53fa-4f2b-df12-2d4e10548383/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -174,14 +190,6 @@ GCLUBS会员线下体验
 
 ---
 
-[@miles 7/14/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1ibg6519f0.md)
-
- 7月14日：尊敬的战友们好……七哥马上开始今天的乱流直播！
-
-<img src="https://media.gettr.com/group16/getter/2022/07/14/14/16d23904-754c-b0bb-db31-7b62250804e2/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/14/2022 2:37 PM UTC  - :tv:直播](/content/gettr/p1ibc2u8b62.md)
 
 MILES GUO 直播 2022-07-14
@@ -189,14 +197,6 @@ MILES GUO 直播 2022-07-14
 太平联盟到底有多危险？
 
 <img src="https://media.gettr.com/group19/getter/2022/07/14/14/371258d2-6fc8-05e4-5bc6-a623a7ebc3bf/f899d14385d39a2112b9bd476fa60907.jpg" width="506" height="284">
-
----
-
-[@milesguolive 7/14/2022 1:55 PM UTC  - :tv:直播](/content/gettr/p1iaihub8bc.md)
-
-0713大直播精华版
-
-<img src="https://media.gettr.com/group28/origin/2022/07/14/13/b8bfc6a0-070e-3492-cd0f-ae304a505b82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
