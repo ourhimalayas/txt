@@ -2,11 +2,17 @@
 ---
 
 
-[@miles 7/15/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p1ie03k5f66.md)
+[@miles 7/15/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1ih2lt8c79.md)
 
-7/14/2022 Miles Guo: Certain executive of a Chinese bank recently escaped from the CCP China with his family; he brought extensive and real financial information with him; the data leak incident proved the following: CCP China's po...
+(4K版) 飞飞秀 《第八篇·司法部腐败案》2022-07-15
 
-<img src="https://media.gettr.com/group48/getter/2022/07/15/06/c6dd27b1-92b4-32e6-2ad2-002d2e6cf3fe/out.jpg" width="506" height="284">
+For English：gettr.com/post/p1ihj2ca1fe
+
+
+
+#DOJ #Higginbotham #腐败案
+
+<img src="https://media.gettr.com/group16/origin/2022/07/15/21/1af3db6e-f488-2b92-ce30-c13a79bd20ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +21,28 @@
  7月15号：尊敬的战友们好……共产党的金融．房地产．灾难正在毁掉中国．香港．和世界经济．全球的金融灾难即将到来，在这样的灾难时刻，我们更要小心病毒．和对家人的保护．一切都已经开始！
 
 <img src="https://media.gettr.com/group5/getter/2022/07/15/15/aacf3caf-3534-8076-57bd-4039e7127163/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/15/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p1ie03k5f66.md)
+
+7/14/2022 Miles Guo: Certain executive of a Chinese bank recently escaped from the CCP China with his family; he brought extensive and real financial information with him; the data leak incident proved the following: CCP China's po...
+
+<img src="https://media.gettr.com/group48/getter/2022/07/15/06/c6dd27b1-92b4-32e6-2ad2-002d2e6cf3fe/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/15/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1ihfzvc54e.md)
+
+(1080版) 飞飞秀 《第八篇·司法部腐败案》2022-07-15
+
+For English：gettr.com/post/p1ihj2ca1fe
+
+
+
+#DOJ #Higginbotham #腐败案
+
+<img src="https://media.gettr.com/group12/origin/2022/07/15/22/d01dba4a-53fa-4f2b-df12-2d4e10548383/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,24 +197,6 @@ MILES GUO 直播 2022-07-14
 0713大直播精华版
 
 <img src="https://media.gettr.com/group28/origin/2022/07/14/13/b8bfc6a0-070e-3492-cd0f-ae304a505b82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@wenbin 7/14/2022 11:56 AM UTC  - :tv:直播](/content/gettr/p1iabu7740d.md)
-
-Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the world
-
-
-
-<img src="https://media.gettr.com/group22/origin/2022/07/14/11/e607e86b-c53c-6ee6-52ed-e05c4af766c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 7:41 AM UTC  - :tv:直播](/content/gettr/p1ia5jk1bdd.md)
-
-7/13/2022 Miles Guo: The CCP’s Xi Jinping-Wang Qishan administration was trying to gain global hegemony by pushing the Belt and Road Initiative. The One Belt One Road initiative will make the CCP lose power, as well as the hearts a...
-
-<img src="https://media.gettr.com/group41/getter/2022/07/14/07/bae0cf26-c18d-3989-93eb-b3a6ac79d73a/out.jpg" width="506" height="284">
 
 ---
 
