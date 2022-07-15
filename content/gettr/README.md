@@ -2,6 +2,36 @@
 ---
 
 
+[@miles 7/15/2022 3:32 AM UTC  - :tv:直播](/content/gettr/p1iebs1205d.md)
+
+7/13/2022 Miles Guo: The DOJ replaced my original bankruptcy trustee with someone who is tied to the CCP and absolutely has conflicts of interest. It makes no difference than appointing Wang Qishan as my trustee.
+
+
+
+7/13/2022 文贵直播：...
+
+<img src="https://media.gettr.com/group40/getter/2022/07/15/03/2fb8881b-b8be-c6a4-4c40-e86ca321ed70/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/15/2022 3:35 AM UTC  - :tv:直播](/content/gettr/p1idnih1cb9.md)
+
+7/9/2022 Miles Guo's GETTR:  Luc A. Despins, the new trustee appointed by the DOJ claimed that he just realized he had worked for PAG; I have the rights enshrined by the U.S. law to file an appeal and motion to withdraw and change ...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/15/03/3a5db293-55d0-2d37-15be-d37e25c46a50/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/15/2022 2:40 AM UTC  - :tv:直播](/content/gettr/p1ie8do8514.md)
+
+This Video shows a shocking judicial corruption in America. 👇👇👇
+
+It’s not just a legal lawsuit against Miles Guo, but a judicial unrestricted war by the CCP.  By infiltrating and corrupting the U.S. judicial system, the CCP has ...
+
+<img src="https://media.gettr.com/group16/origin/2022/07/15/02/acfd3001-98b4-9b94-a4b0-74cd5d8436e2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/15/2022 1:35 AM UTC  - :tv:直播](/content/gettr/p1idynj89df.md)
 
 7/9/2022 Miles Guo's GETTR: Although the majority of Paul Hastings LLP’s revenue comes from China, its partner Luc A. Despins lied in the court that he didn’t know it! This is a good entry point for us to expose the CCP’s infiltrat...
@@ -32,13 +62,11 @@ For English：gettr.com/streaming/p1id1f010b2
 
 ---
 
-[@miles 7/15/2022 2:40 AM UTC  - :tv:直播](/content/gettr/p1ie8do8514.md)
+[@miles 7/15/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1ie4gmbf76.md)
 
-This Video shows a shocking judicial corruption in America. 👇👇👇
+7/14/2022 Miles Guo:  Without going through the legal process and receiving the approval of the judge, Luc A. Despins and his law farm partner Paul Hastings replaced the original bankruptcy trustee of mine. Their wrongdoings are a ...
 
-It’s not just a legal lawsuit against Miles Guo, but a judicial unrestricted war by the CCP.  By infiltrating and corrupting the U.S. judicial system, the CCP has ...
-
-<img src="https://media.gettr.com/group16/origin/2022/07/15/02/acfd3001-98b4-9b94-a4b0-74cd5d8436e2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/07/15/03/96392aee-ed62-368d-5683-4cbb7fe98d09/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,30 +189,6 @@ Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the 
 7/13/2022 Miles Guo: What the Whistleblowers' Movement has done proves to the world that the people of the New Federal State of China are the pioneer in this world; the ordinary Chinese lack the ability to tell true from false and ...
 
 <img src="https://media.gettr.com/group39/getter/2022/07/14/07/5b35300b-cb22-b998-b017-96dc59164643/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 12:48 AM UTC  - :tv:直播](/content/gettr/p1i8nh02c47.md)
-
-7/13/2022 Miles Guo: Paul Hastings has set off a shock wave across the US media, judicial community, and the political arena. The strategy of the Whistleblowers’ Movement to take down the CCP by the United States, by Law, and by th...
-
-<img src="https://media.gettr.com/group13/getter/2022/07/14/00/a421d8b7-76ab-2280-a7c4-e71c65b421a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1i85ue0b68.md)
-
-7/13/2022  Miles Guo: Both houses of the Parliament of the U.K. have agreed that the U.K. will be destroyed by the CCP and Russia if they fail to fight; the upcoming era of quantum will revolutionize the distance, communications an...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/14/00/49bc73ba-5127-4ed5-cd2f-ff75f42ab99d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 12:51 AM UTC  - :tv:直播](/content/gettr/p1i8t8ob1a9.md)
-
-07/06/2022 Judge Manning believes that the U.S. Trustee Office's withdrawal of Mr. Whitley as a trustee is inconsistent with the relevant statute and requests an explanation from Holley, the U.S. Trustee Office's trial attorney, bu...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/14/00/18dcd582-e3ec-ea5d-8f27-342f3e0b5347/out.jpg" width="506" height="284">
 
 ---
 
