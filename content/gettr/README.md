@@ -16,11 +16,11 @@ For English：gettr.com/streaming/p1id1f010b2
 
 ---
 
-[@miles 7/14/2022 9:45 PM UTC  - :tv:直播](/content/gettr/p1icfjwe6f7.md)
+[@miles 7/14/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1id3wmf72b.md)
 
-7/13/2022 Miles Guo: CCP China has gone from the so-called strong-nation in the past to today's real estate and banking sectors collapsing and CCP China-concept stocks being delisted from the U.S. stock market, and the core reason ...
+7/14/2022 Miles Guo: How dangerous is PAG? PAG was capable of having Duowei News work with it to falsify evidence to deceive an American judge, and it was able to shut down Duowei News and let Edward Moss, former attorney of O’Melv...
 
-<img src="https://media.gettr.com/group3/getter/2022/07/14/21/0982c4db-c3ec-3f97-46d9-ce7077a66327/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/07/14/23/f7bf03e9-4313-aba2-8933-483c4103c73c/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,6 +35,14 @@ For English：gettr.com/streaming/p1id1f010b2
 #破产案 #PAG #普衡
 
 <img src="https://media.gettr.com/group8/origin/2022/07/14/22/c88a404c-9af8-d125-102c-006376c93b67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/14/2022 9:45 PM UTC  - :tv:直播](/content/gettr/p1icfjwe6f7.md)
+
+7/13/2022 Miles Guo: CCP China has gone from the so-called strong-nation in the past to today's real estate and banking sectors collapsing and CCP China-concept stocks being delisted from the U.S. stock market, and the core reason ...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/14/21/0982c4db-c3ec-3f97-46d9-ce7077a66327/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,20 +183,6 @@ Blue Lotus Vision--The CCP's infiltration of the US judicial system stunned the 
 7/13/2022 Miles Guo: In the absence of going through the legal process, the U.S. DOJ replaced my original bankruptcy trustee with someone who has ties with the CCP and absolutely has a conflict of interest, how absurd it is! It is ...
 
 <img src="https://media.gettr.com/group48/getter/2022/07/14/00/db58b7c9-0e1c-0cb3-8e53-c11d92e1ac15/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/13/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1i7em3f7d3.md)
-
-(1080版) 飞飞秀 《利益冲突·第六篇》2022-07-13
-
-For English：gettr.com/post/p1i332v3e4c
-
-
-
-#破产案 #PAG #PAX #Trustee #普衡
-
-<img src="https://media.gettr.com/group31/origin/2022/07/13/22/25ba001c-ead2-ff10-9183-02887a020141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
