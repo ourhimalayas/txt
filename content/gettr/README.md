@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 7/16/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1ilw0c7f4b.md)
+
+ 7月16号：尊敬的战友们好！一天都在忙，没有发盖特视频……非常的抱歉，好多战友发来的信息不能一一回复，请谅解，很多热点，明天9:00七哥直播总结，一切都已经开始！
+
+<img src="https://media.gettr.com/group17/getter/2022/07/16/22/272981ba-ab90-d07d-a7f5-83f72b59c37f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/16/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p1ilqba25c8.md)
+
+7/14/2022 Miles Guo: What emboldened Cahill Gordon & Reindel LLP, Richard Frankel and O’Melveny to deceive the US court in concert? CCP promised to pay them big money!
+
+
+
+7/14/2022 文贵直播：是什么让Cahill律所、Richard Frankel和O’Melveny串谋共同欺骗法...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/16/22/f129ed48-7375-f288-ffc9-547852bbcbb1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/16/2022 10:41 PM UTC  - :tv:直播](/content/gettr/p1ilhdo7f7c.md)
+
+7/14/2022 Miles Guo: How dangerous is PAG? PAG was able to have CCP’s Duowei News falsify evidence to deceive an American judge, and then shut down Duowei News!
+
+
+
+7/14/2022 文贵直播：PAG有多危险？PAG能让中共大外宣多维和它一起伪造证据欺骗美国法官，然后关掉多维! 
+
+
+
+
+
+<img src="https://media.gettr.com/group30/getter/2022/07/16/22/125b71e9-b784-1a73-5a75-a7e5838dc67f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1il6tv46c3.md)
 
 (1080版) 飞飞秀 《利益冲突·第九篇》2022-07-16
@@ -13,6 +49,34 @@ For English：gettr.com/streaming/p1ilsdu58f7
 #破产案 #PAX #Trustee #普衡
 
 <img src="https://media.gettr.com/group49/origin/2022/07/16/22/06bee392-4100-5abb-ae36-a536b023066e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/16/2022 10:43 PM UTC  - :tv:直播](/content/gettr/p1ilizu50d2.md)
+
+7/14/2022 Miles Guo: Why has O'Melveny been so arrogant, ignored due process and dared to violate professional ethics? Because it is a running dog of PAG!
+
+
+
+7/14/2022 文贵直播：为什么美迈斯胆大包天、无视程序、全然不顾律师职业道德？因为它们就是PAG的狗！
+
+
+
+<img src="https://media.gettr.com/group37/getter/2022/07/16/22/1fd8b6d1-ec31-d477-9362-f59568a5e7a9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1ilhws43b7.md)
+
+(4K版) 飞飞秀 《利益冲突·第九篇》2022-07-16
+
+For English：gettr.com/streaming/p1ilsdu58f7
+
+
+
+#破产案 #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group31/origin/2022/07/16/22/7b1209e5-590e-6610-2d17-5f1bf94a70a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -76,20 +140,6 @@ For English：gettr.com/streaming/p1ilsdu58f7
 
 ---
 
-[@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1ilhws43b7.md)
-
-(4K版) 飞飞秀 《利益冲突·第九篇》2022-07-16
-
-For English：gettr.com/streaming/p1ilsdu58f7
-
-
-
-#破产案 #PAX #Trustee #普衡
-
-<img src="https://media.gettr.com/group31/origin/2022/07/16/22/7b1209e5-590e-6610-2d17-5f1bf94a70a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/15/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1ih7xj48ce.md)
 
 7/15/2022 Miles Guo’s GETTR: Can you imagine people are beaten to death, get paralyzed, suffer vision loss or miscarriages from police assault, just because they want to withdraw their own money from banks? Yes this happened in Com...
@@ -150,47 +200,11 @@ For English：gettr.com/post/p1ihj2ca1fe
 
 ---
 
-[@miles 7/15/2022 3:32 AM UTC  - :tv:直播](/content/gettr/p1iebs1205d.md)
-
-7/13/2022 Miles Guo: The DOJ replaced my original bankruptcy trustee with someone who is tied to the CCP and absolutely has conflicts of interest. It makes no difference than appointing Wang Qishan as my trustee.
-
-
-
-7/13/2022 文贵直播：...
-
-<img src="https://media.gettr.com/group40/getter/2022/07/15/03/2fb8881b-b8be-c6a4-4c40-e86ca321ed70/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 3:35 AM UTC  - :tv:直播](/content/gettr/p1idnih1cb9.md)
-
-7/9/2022 Miles Guo's GETTR:  Luc A. Despins, the new trustee appointed by the DOJ claimed that he just realized he had worked for PAG; I have the rights enshrined by the U.S. law to file an appeal and motion to withdraw and change ...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/15/03/3a5db293-55d0-2d37-15be-d37e25c46a50/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/15/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1ie4gmbf76.md)
 
 7/14/2022 Miles Guo:  Without going through the legal process and receiving the approval of the judge, Luc A. Despins and his law farm partner Paul Hastings replaced the original bankruptcy trustee of mine. Their wrongdoings are a ...
 
 <img src="https://media.gettr.com/group11/getter/2022/07/15/03/96392aee-ed62-368d-5683-4cbb7fe98d09/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 1:35 AM UTC  - :tv:直播](/content/gettr/p1idynj89df.md)
-
-7/9/2022 Miles Guo's GETTR: Although the majority of Paul Hastings LLP’s revenue comes from China, its partner Luc A. Despins lied in the court that he didn’t know it! This is a good entry point for us to expose the CCP’s infiltrat...
-
-<img src="https://media.gettr.com/group29/getter/2022/07/15/01/7b905ecb-ede1-c0cf-51ff-6d5443d08358/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1id3wmf72b.md)
-
-7/14/2022 Miles Guo: How dangerous is PAG? PAG was capable of having Duowei News work with it to falsify evidence to deceive an American judge, and it was able to shut down Duowei News and let Edward Moss, former attorney of O’Melv...
-
-<img src="https://media.gettr.com/group17/getter/2022/07/14/23/f7bf03e9-4313-aba2-8933-483c4103c73c/out.jpg" width="506" height="284">
 
 ---
 
