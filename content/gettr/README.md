@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/16/2022 12:47 AM UTC  - :tv:直播](/content/gettr/p1ii2ohc77d.md)
+
+7/15/2022 Miles Guo: A large amount of bank notes issued by the banks in Communist China have not been exposed yet. The recent incident of Henan rural commercial banks is just the tip of the iceberg. Those banks are actually the fi...
+
+<img src="https://media.gettr.com/group47/getter/2022/07/16/00/0fe8a1c2-0bb9-eef2-5473-6d3d340112dc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/16/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1ihfura5d4.md)
 
 7/15/2022 Miles Guo’s GETTR: All the several major funds and real estate funds in Hong Kong that have been colluding with the CCP are in trouble. How much hard-earned money of the Hongkongers will be laundered by the CCP due to the...
@@ -26,11 +34,15 @@
 
 ---
 
-[@miles 7/16/2022 12:47 AM UTC  - :tv:直播](/content/gettr/p1ii2ohc77d.md)
+[@miles 7/16/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1ijyxh7297.md)
 
-7/15/2022 Miles Guo: A large amount of bank notes issued by the banks in Communist China have not been exposed yet. The recent incident of Henan rural commercial banks is just the tip of the iceberg. Those banks are actually the fi...
+7/14/2022 Miles Guo’s GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and it can control your wealth and your life and death!
 
-<img src="https://media.gettr.com/group47/getter/2022/07/16/00/0fe8a1c2-0bb9-eef2-5473-6d3d340112dc/out.jpg" width="506" height="284">
+
+
+7/14/2022 文贵盖特：PAG的危险在于它能控制美国的...
+
+<img src="https://media.gettr.com/group34/getter/2022/07/16/16/2b1e7725-b5d7-74bd-7f52-8af9fc99368b/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +195,6 @@ For English：gettr.com/streaming/p1id1f010b2
 7/14/2022 文贵盖特：PAG的危...
 
 <img src="https://media.gettr.com/group21/getter/2022/07/14/21/dd7c0c2a-1dd1-a173-a427-78217289f1b7/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 9:43 PM UTC  - :tv:直播](/content/gettr/p1icsxe7443.md)
-
-7/13/2022 Miles Guo: The ability to discern true and false, good and evil is critical for one to survive the upcoming disasters, and the Whistleblowers' Movement will help you to strengthen that ability; Communist China has turned ...
-
-<img src="https://media.gettr.com/group10/getter/2022/07/14/21/f9207336-d152-ebbd-ba60-6587d7273a54/out.jpg" width="506" height="284">
 
 ---
 
