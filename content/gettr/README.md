@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/15/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p1ihrne89e6.md)
+
+7/14/2022 Miles Guo: Luc A. Despins asked to get onto the yacht Lady May before he was approved to be the trustee and asked the Judge to appoint Paul Hastings as counsel to the trustee immediately. Paul Hastings also started workin...
+
+<img src="https://media.gettr.com/group15/getter/2022/07/15/23/892d03ff-4ab4-31c2-c40f-cc71f468c17d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/15/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p1iho3ced67.md)
 
 7/14/2022 Miles Guo: Every year the CCP spends $30 billion, or even hundreds of billions of dollars on attorney fees in the U.S., so that they could attract the senior officials of NASDAQ and DOJ to work for big law firms, which ar...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/15/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p1ihrne89e6.md)
+[@miles 7/16/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1ihfura5d4.md)
 
-7/14/2022 Miles Guo: Luc A. Despins asked to get onto the yacht Lady May before he was approved to be the trustee and asked the Judge to appoint Paul Hastings as counsel to the trustee immediately. Paul Hastings also started workin...
+7/15/2022 Miles Guo’s GETTR: All the several major funds and real estate funds in Hong Kong that have been colluding with the CCP are in trouble. How much hard-earned money of the Hongkongers will be laundered by the CCP due to the...
 
-<img src="https://media.gettr.com/group15/getter/2022/07/15/23/892d03ff-4ab4-31c2-c40f-cc71f468c17d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/07/16/00/62760766-fe23-7fd9-fd08-2e30579844a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,16 +193,6 @@ GCLUBS会员线下体验
 现场试穿GFASHION
 
 <img src="https://media.gettr.com/group48/origin/2022/07/14/20/4a11d733-df11-2c44-d705-c33b57b9239f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtvrealpeople 7/14/2022 7:14 PM UTC  - :tv:直播](/content/gettr/p1ic61b55a5.md)
-
-GCLUBS会员线下体验 
-
-现场试穿GFASHION
-
-<img src="https://media.gettr.com/group29/origin/2022/07/14/19/127d7200-a2d6-f558-a3f6-87a4d291e1da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
