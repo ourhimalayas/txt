@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/16/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1ihfura5d4.md)
+
+7/15/2022 Miles Guo’s GETTR: All the several major funds and real estate funds in Hong Kong that have been colluding with the CCP are in trouble. How much hard-earned money of the Hongkongers will be laundered by the CCP due to the...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/16/00/62760766-fe23-7fd9-fd08-2e30579844a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/15/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p1ihrne89e6.md)
 
 7/14/2022 Miles Guo: Luc A. Despins asked to get onto the yacht Lady May before he was approved to be the trustee and asked the Judge to appoint Paul Hastings as counsel to the trustee immediately. Paul Hastings also started workin...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 7/16/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1ihfura5d4.md)
+[@miles 7/16/2022 12:47 AM UTC  - :tv:直播](/content/gettr/p1ii2ohc77d.md)
 
-7/15/2022 Miles Guo’s GETTR: All the several major funds and real estate funds in Hong Kong that have been colluding with the CCP are in trouble. How much hard-earned money of the Hongkongers will be laundered by the CCP due to the...
+7/15/2022 Miles Guo: A large amount of bank notes issued by the banks in Communist China have not been exposed yet. The recent incident of Henan rural commercial banks is just the tip of the iceberg. Those banks are actually the fi...
 
-<img src="https://media.gettr.com/group11/getter/2022/07/16/00/62760766-fe23-7fd9-fd08-2e30579844a2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/07/16/00/0fe8a1c2-0bb9-eef2-5473-6d3d340112dc/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,16 +191,6 @@ For English：gettr.com/streaming/p1id1f010b2
 7/13/2022 Miles Guo: The ability to discern true and false, good and evil is critical for one to survive the upcoming disasters, and the Whistleblowers' Movement will help you to strengthen that ability; Communist China has turned ...
 
 <img src="https://media.gettr.com/group10/getter/2022/07/14/21/f9207336-d152-ebbd-ba60-6587d7273a54/out.jpg" width="506" height="284">
-
----
-
-[@gtvrealpeople 7/14/2022 8:05 PM UTC  - :tv:直播](/content/gettr/p1icjrc798a.md)
-
-GCLUBS会员线下体验 
-
-现场试穿GFASHION
-
-<img src="https://media.gettr.com/group48/origin/2022/07/14/20/4a11d733-df11-2c44-d705-c33b57b9239f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
