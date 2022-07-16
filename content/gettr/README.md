@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/16/2022 4:35 PM UTC  - :tv:直播](/content/gettr/p1ik5sn57ed.md)
+
+7/14/2022 Miles Guo: Every year the CCP spends $30 billion, or even hundreds of billions of dollars on attorney fees in the U.S., so that they could attract the senior officials of NASDAQ and DOJ to work for big law firms, which ar...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/16/16/98b1d398-174d-06a7-7ae7-f88c54e42fcc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/16/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1ijyxh7297.md)
 
 7/14/2022 Miles Guo’s GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and it can control your wealth and your life and death!
@@ -46,11 +54,11 @@
 
 ---
 
-[@miles 7/16/2022 4:35 PM UTC  - :tv:直播](/content/gettr/p1ik5sn57ed.md)
+[@miles 7/16/2022 5:06 PM UTC  - :tv:直播](/content/gettr/p1ik80qfc31.md)
 
-7/14/2022 Miles Guo: Every year the CCP spends $30 billion, or even hundreds of billions of dollars on attorney fees in the U.S., so that they could attract the senior officials of NASDAQ and DOJ to work for big law firms, which ar...
+7/14/2022 Miles Guo: How corrupt the US judicial system has become under the manipulation of the CCP! The trustee replacement incident will expose the evil backstage manipulator in the DOJ, as well as all the corrupt organizations ...
 
-<img src="https://media.gettr.com/group27/getter/2022/07/16/16/98b1d398-174d-06a7-7ae7-f88c54e42fcc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/07/16/17/da890a29-5dfe-5cf5-c3d3-9e5b8f7787a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,18 +191,6 @@ For English：gettr.com/streaming/p1id1f010b2
 #破产案 #PAG #普衡
 
 <img src="https://media.gettr.com/group8/origin/2022/07/14/22/c88a404c-9af8-d125-102c-006376c93b67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 9:47 PM UTC  - :tv:直播](/content/gettr/p1id39b75eb.md)
-
-7/14/2022 Miles Guo's GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and of course it can control your wealth and your life and death!
-
-
-
-7/14/2022 文贵盖特：PAG的危...
-
-<img src="https://media.gettr.com/group21/getter/2022/07/14/21/dd7c0c2a-1dd1-a173-a427-78217289f1b7/out.jpg" width="506" height="284">
 
 ---
 
