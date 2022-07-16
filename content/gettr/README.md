@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1il6tv46c3.md)
+
+(1080版) 飞飞秀 《利益冲突·第九篇》2022-07-16
+
+For English：gettr.com/streaming/p1ilsdu58f7
+
+
+
+#破产案 #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group49/origin/2022/07/16/22/06bee392-4100-5abb-ae36-a536b023066e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/16/2022 5:06 PM UTC  - :tv:直播](/content/gettr/p1ik80qfc31.md)
+
+7/14/2022 Miles Guo: How corrupt the US judicial system has become under the manipulation of the CCP! The trustee replacement incident will expose the evil backstage manipulator in the DOJ, as well as all the corrupt organizations ...
+
+<img src="https://media.gettr.com/group16/getter/2022/07/16/17/da890a29-5dfe-5cf5-c3d3-9e5b8f7787a0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/16/2022 4:35 PM UTC  - :tv:直播](/content/gettr/p1ik5sn57ed.md)
 
 7/14/2022 Miles Guo: Every year the CCP spends $30 billion, or even hundreds of billions of dollars on attorney fees in the U.S., so that they could attract the senior officials of NASDAQ and DOJ to work for big law firms, which ar...
@@ -54,11 +76,17 @@
 
 ---
 
-[@miles 7/16/2022 5:06 PM UTC  - :tv:直播](/content/gettr/p1ik80qfc31.md)
+[@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1ilhws43b7.md)
 
-7/14/2022 Miles Guo: How corrupt the US judicial system has become under the manipulation of the CCP! The trustee replacement incident will expose the evil backstage manipulator in the DOJ, as well as all the corrupt organizations ...
+(4K版) 飞飞秀 《利益冲突·第九篇》2022-07-16
 
-<img src="https://media.gettr.com/group16/getter/2022/07/16/17/da890a29-5dfe-5cf5-c3d3-9e5b8f7787a0/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p1ilsdu58f7
+
+
+
+#破产案 #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group31/origin/2022/07/16/22/7b1209e5-590e-6610-2d17-5f1bf94a70a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,34 +191,6 @@ For English：gettr.com/post/p1ihj2ca1fe
 7/14/2022 Miles Guo: How dangerous is PAG? PAG was capable of having Duowei News work with it to falsify evidence to deceive an American judge, and it was able to shut down Duowei News and let Edward Moss, former attorney of O’Melv...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/14/23/f7bf03e9-4313-aba2-8933-483c4103c73c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1idbwm0833.md)
-
-(1080版) 飞飞秀 《利益冲突·第七篇》2022-07-14
-
-For English：gettr.com/streaming/p1id1f010b2
-
-
-
-#破产案 #PAX #Trustee #普衡
-
-<img src="https://media.gettr.com/group40/origin/2022/07/14/22/b2a42a93-3d23-eff4-b889-aa8cacccceb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1id3l1387d.md)
-
-(4K版) 飞飞秀 《利益冲突·第七篇》2022-07-14
-
-For English：gettr.com/streaming/p1id1f010b2
-
-
-
-#破产案 #PAG #普衡
-
-<img src="https://media.gettr.com/group8/origin/2022/07/14/22/c88a404c-9af8-d125-102c-006376c93b67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
