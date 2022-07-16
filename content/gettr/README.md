@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/16/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1ijyxh7297.md)
+
+7/14/2022 Miles Guo’s GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and it can control your wealth and your life and death!
+
+
+
+7/14/2022 文贵盖特：PAG的危险在于它能控制美国的...
+
+<img src="https://media.gettr.com/group34/getter/2022/07/16/16/2b1e7725-b5d7-74bd-7f52-8af9fc99368b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/16/2022 12:47 AM UTC  - :tv:直播](/content/gettr/p1ii2ohc77d.md)
 
 7/15/2022 Miles Guo: A large amount of bank notes issued by the banks in Communist China have not been exposed yet. The recent incident of Henan rural commercial banks is just the tip of the iceberg. Those banks are actually the fi...
@@ -34,15 +46,11 @@
 
 ---
 
-[@miles 7/16/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1ijyxh7297.md)
+[@miles 7/16/2022 4:35 PM UTC  - :tv:直播](/content/gettr/p1ik5sn57ed.md)
 
-7/14/2022 Miles Guo’s GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and it can control your wealth and your life and death!
+7/14/2022 Miles Guo: Every year the CCP spends $30 billion, or even hundreds of billions of dollars on attorney fees in the U.S., so that they could attract the senior officials of NASDAQ and DOJ to work for big law firms, which ar...
 
-
-
-7/14/2022 文贵盖特：PAG的危险在于它能控制美国的...
-
-<img src="https://media.gettr.com/group34/getter/2022/07/16/16/2b1e7725-b5d7-74bd-7f52-8af9fc99368b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/07/16/16/98b1d398-174d-06a7-7ae7-f88c54e42fcc/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ For English：gettr.com/streaming/p1id1f010b2
 #破产案 #PAG #普衡
 
 <img src="https://media.gettr.com/group8/origin/2022/07/14/22/c88a404c-9af8-d125-102c-006376c93b67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/14/2022 9:45 PM UTC  - :tv:直播](/content/gettr/p1icfjwe6f7.md)
-
-7/13/2022 Miles Guo: CCP China has gone from the so-called strong-nation in the past to today's real estate and banking sectors collapsing and CCP China-concept stocks being delisted from the U.S. stock market, and the core reason ...
-
-<img src="https://media.gettr.com/group3/getter/2022/07/14/21/0982c4db-c3ec-3f97-46d9-ce7077a66327/out.jpg" width="506" height="284">
 
 ---
 
