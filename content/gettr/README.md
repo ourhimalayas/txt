@@ -16,6 +16,28 @@ For English：gettr.com/post/p1ipcw2bbc6
 
 ---
 
+[@miles 7/17/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1ipj7bdfb3.md)
+
+7/17/2022 Miles Guo: If we don't expose the CCP's deep infiltration in the US judicial system, nobody will be safe in the US! The trustee replacement case is of tremendous significance and will draw huge attention from the US Congr...
+
+<img src="https://media.gettr.com/group21/getter/2022/07/17/22/958ec279-2c3e-bb51-2046-fd0165dc5bcd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/17/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ipkz14838.md)
+
+(1080版) 飞飞秀 《第十篇·刘特佐》2022-07-17
+
+For English：gettr.com/post/p1ipcw2bbc6
+
+
+
+#1MDB #DOJ #JHOLOW #腐败案
+
+<img src="https://media.gettr.com/group18/origin/2022/07/17/22/4af88d0a-5a6a-d9f0-713c-25097583e6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@kikkou 7/17/2022 4:43 AM UTC  - :tv:直播](/content/gettr/p1im5ms3af1.md)
 
 
@@ -61,20 +83,6 @@ For English：gettr.com/post/p1ipcw2bbc6
  7月16号：尊敬的战友们好！一天都在忙，没有发盖特视频……非常的抱歉，好多战友发来的信息不能一一回复，请谅解，很多热点，明天9:00七哥直播总结，一切都已经开始！
 
 <img src="https://media.gettr.com/group17/getter/2022/07/16/22/272981ba-ab90-d07d-a7f5-83f72b59c37f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ipkz14838.md)
-
-(1080版) 飞飞秀 《第十篇·刘特佐》2022-07-17
-
-For English：gettr.com/post/p1ipcw2bbc6
-
-
-
-#1MDB #DOJ #JHOLOW #腐败案
-
-<img src="https://media.gettr.com/group18/origin/2022/07/17/22/4af88d0a-5a6a-d9f0-713c-25097583e6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ For English：gettr.com/streaming/p1ilsdu58f7
 7/14/2022 Miles Guo: Luc A. Despins asked to get onto the yacht Lady May before he was approved to be the trustee and asked the Judge to appoint Paul Hastings as counsel to the trustee immediately. Paul Hastings also started workin...
 
 <img src="https://media.gettr.com/group15/getter/2022/07/15/23/892d03ff-4ab4-31c2-c40f-cc71f468c17d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1ih7xj48ce.md)
-
-7/15/2022 Miles Guo’s GETTR: Can you imagine people are beaten to death, get paralyzed, suffer vision loss or miscarriages from police assault, just because they want to withdraw their own money from banks? Yes this happened in Com...
-
-<img src="https://media.gettr.com/group37/getter/2022/07/15/23/d0e2a020-f05f-a506-bb19-2798042fe7f2/out.jpg" width="506" height="284">
 
 ---
 
