@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/17/2022 1:09 PM UTC  - :tv:直播](/content/gettr/p1indzg38b4.md)
+
+美国司法的黑暗与共产党有什么关系！
+
+<img src="https://media.gettr.com/group49/origin/2022/07/17/13/49217ea8-e861-e01c-1521-c5d9f452dfe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/17/2022 8:45 AM UTC ](/content/gettr/p1ineurf0db.md)
 
  7月17号：感谢旧金山量子农场太棒了……
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 7/17/2022 1:09 PM UTC  - :tv:直播](/content/gettr/p1indzg38b4.md)
+[@miles 7/17/2022 1:21 PM UTC  - :tv:直播](/content/gettr/p1inwe7bbd0.md)
 
-美国司法的黑暗与共产党有什么关系！
+7/16/2022 Miles Guo’s GETTR: The Western financial bigwigs made it clear that the so-called bank sanctions and the Red Notice issued against me were all based on false accusations by the CCP. The collapse of the Qing Dynasty was be...
 
-<img src="https://media.gettr.com/group49/origin/2022/07/17/13/49217ea8-e861-e01c-1521-c5d9f452dfe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/07/17/13/6059dc27-2758-ad29-1ff8-d73ab31d02d5/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ For English：gettr.com/post/p1ihj2ca1fe
  7月15号：尊敬的战友们好……共产党的金融．房地产．灾难正在毁掉中国．香港．和世界经济．全球的金融灾难即将到来，在这样的灾难时刻，我们更要小心病毒．和对家人的保护．一切都已经开始！
 
 <img src="https://media.gettr.com/group5/getter/2022/07/15/15/aacf3caf-3534-8076-57bd-4039e7127163/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 7:05 AM UTC  - :tv:直播](/content/gettr/p1idxk3f954.md)
-
-7/14/2022 Miles Guo: Several senior executives of some top ten banks in Communist China just fled the country and told me that over 50% of the debt, accounts, and notes of the banks in Communist China are fake. The CCP's Central Co...
-
-<img src="https://media.gettr.com/group48/getter/2022/07/15/07/22c17a06-c121-9269-ff10-0c80d0c2fdb2/out.jpg" width="506" height="284">
 
 ---
 
