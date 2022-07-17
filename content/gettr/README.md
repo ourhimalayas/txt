@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/17/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1iq0omc1ed.md)
+
+7月17号：尊敬的战友们好……一个半小时以后的将开始……关于中共的绝密．震撼．影响世界安全的军事情报爆料……在七哥这个频道纽约八点直播即将开始，让我们一起来开启以情报灭共．的爆料革命的新时代吧……共产党你完了……
+
+<img src="https://media.gettr.com/group7/getter/2022/07/17/22/20ef99a8-670e-1a57-2d64-d67e919a9e2c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/17/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1ipj7bdfb3.md)
 
 7/17/2022 Miles Guo: If we don't expose the CCP's deep infiltration in the US judicial system, nobody will be safe in the US! The trustee replacement case is of tremendous significance and will draw huge attention from the US Congr...
@@ -21,14 +29,6 @@ For English：gettr.com/post/p1ipcw2bbc6
 #1MDB #DOJ #JHOLOW #腐败案
 
 <img src="https://media.gettr.com/group33/origin/2022/07/17/22/b59e1baa-5319-93b7-6a1c-653e99b31835/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1iq0omc1ed.md)
-
-7月17号：尊敬的战友们好……一个半小时以后的将开始……关于中共的绝密．震撼．影响世界安全的军事情报爆料……在七哥这个频道纽约八点直播即将开始，让我们一起来开启以情报灭共．的爆料革命的新时代吧……共产党你完了……
-
-<img src="https://media.gettr.com/group7/getter/2022/07/17/22/20ef99a8-670e-1a57-2d64-d67e919a9e2c/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +197,6 @@ For English：gettr.com/streaming/p1ilsdu58f7
 7/15/2022 Miles Guo: A large amount of bank notes issued by the banks in Communist China have not been exposed yet. The recent incident of Henan rural commercial banks is just the tip of the iceberg. Those banks are actually the fi...
 
 <img src="https://media.gettr.com/group47/getter/2022/07/16/00/0fe8a1c2-0bb9-eef2-5473-6d3d340112dc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 12:04 AM UTC  - :tv:直播](/content/gettr/p1ihfura5d4.md)
-
-7/15/2022 Miles Guo’s GETTR: All the several major funds and real estate funds in Hong Kong that have been colluding with the CCP are in trouble. How much hard-earned money of the Hongkongers will be laundered by the CCP due to the...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/16/00/62760766-fe23-7fd9-fd08-2e30579844a2/out.jpg" width="506" height="284">
 
 ---
 
