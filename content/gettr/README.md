@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/17/2022 8:45 AM UTC ](/content/gettr/p1ineurf0db.md)
+
+ 7月17号：感谢旧金山量子农场太棒了……
+
+<img src="https://media.gettr.com/group29/getter/2022/07/17/08/eba72c12-5c24-a52d-7312-1d76af6f3d34/4e12c466247f68ed6c1a7b3d709ebf61.jpg" width="506" height="284">
+
+---
+
 [@miles 7/16/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1ilw0c7f4b.md)
 
  7月16号：尊敬的战友们好！一天都在忙，没有发盖特视频……非常的抱歉，好多战友发来的信息不能一一回复，请谅解，很多热点，明天9:00七哥直播总结，一切都已经开始！
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/17/2022 8:45 AM UTC ](/content/gettr/p1ineurf0db.md)
+[@miles 7/17/2022 1:09 PM UTC  - :tv:直播](/content/gettr/p1indzg38b4.md)
 
- 7月17号：感谢旧金山量子农场太棒了……
+美国司法的黑暗与共产党有什么关系！
 
-<img src="https://media.gettr.com/group29/getter/2022/07/17/08/eba72c12-5c24-a52d-7312-1d76af6f3d34/4e12c466247f68ed6c1a7b3d709ebf61.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/07/17/13/49217ea8-e861-e01c-1521-c5d9f452dfe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ For English：gettr.com/post/p1ihj2ca1fe
  7月15号：尊敬的战友们好……共产党的金融．房地产．灾难正在毁掉中国．香港．和世界经济．全球的金融灾难即将到来，在这样的灾难时刻，我们更要小心病毒．和对家人的保护．一切都已经开始！
 
 <img src="https://media.gettr.com/group5/getter/2022/07/15/15/aacf3caf-3534-8076-57bd-4039e7127163/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 7:00 AM UTC  - :tv:直播](/content/gettr/p1ie03k5f66.md)
-
-7/14/2022 Miles Guo: Certain executive of a Chinese bank recently escaped from the CCP China with his family; he brought extensive and real financial information with him; the data leak incident proved the following: CCP China's po...
-
-<img src="https://media.gettr.com/group48/getter/2022/07/15/06/c6dd27b1-92b4-32e6-2ad2-002d2e6cf3fe/out.jpg" width="506" height="284">
 
 ---
 
