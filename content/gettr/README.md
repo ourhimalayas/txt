@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/17/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p1io4d4b8a9.md)
+
+7/16/2022 Miles Guo’s GETTR: Just because I expressed my thanks to our internal fellow fighters, the CCP, who claimed to have Four Matters of Confidence, became so freaked out that it started investigating massively who are the fel...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/17/15/57625071-ff2b-c732-bf79-c023570dbeeb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/17/2022 1:21 PM UTC  - :tv:直播](/content/gettr/p1inwe7bbd0.md)
 
 7/16/2022 Miles Guo’s GETTR: The Western financial bigwigs made it clear that the so-called bank sanctions and the Red Notice issued against me were all based on false accusations by the CCP. The collapse of the Qing Dynasty was be...
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 7/17/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p1io4d4b8a9.md)
+[@kikkou 7/17/2022 4:43 AM UTC  - :tv:直播](/content/gettr/p1im5ms3af1.md)
 
-7/16/2022 Miles Guo’s GETTR: Just because I expressed my thanks to our internal fellow fighters, the CCP, who claimed to have Four Matters of Confidence, became so freaked out that it started investigating massively who are the fel...
 
-<img src="https://media.gettr.com/group11/getter/2022/07/17/15/57625071-ff2b-c732-bf79-c023570dbeeb/out.jpg" width="506" height="284">
+
+<img src="https://media.gettr.com/group47/gvision/2022/07/17/04/bc227bb0-ad91-fd93-bb49-ed4637f16bf8/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,20 +185,6 @@ For English：gettr.com/streaming/p1ilsdu58f7
 7/15/2022 Miles Guo’s GETTR: Can you imagine people are beaten to death, get paralyzed, suffer vision loss or miscarriages from police assault, just because they want to withdraw their own money from banks? Yes this happened in Com...
 
 <img src="https://media.gettr.com/group37/getter/2022/07/15/23/d0e2a020-f05f-a506-bb19-2798042fe7f2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1ih2lt8c79.md)
-
-(4K版) 飞飞秀 《第八篇·司法部腐败案》2022-07-15
-
-For English：gettr.com/post/p1ihj2ca1fe
-
-
-
-#DOJ #Higginbotham #腐败案
-
-<img src="https://media.gettr.com/group16/origin/2022/07/15/21/1af3db6e-f488-2b92-ce30-c13a79bd20ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
