@@ -32,6 +32,14 @@ For English：gettr.com/post/p1ipcw2bbc6
 
 ---
 
+[@miles 7/17/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1ipujd4ddc.md)
+
+7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG. My personal bankruptcy case has received worldwide attention, and several lawyers from Zhon...
+
+<img src="https://media.gettr.com/group7/getter/2022/07/17/23/1a12e215-f726-c027-6d5c-5e13e864ae88/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/17/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ipkz14838.md)
 
 (1080版) 飞飞秀 《第十篇·刘特佐》2022-07-17
@@ -189,14 +197,6 @@ For English：gettr.com/streaming/p1ilsdu58f7
 7/14/2022 文贵盖特：PAG的危险在于它能控制美国的...
 
 <img src="https://media.gettr.com/group34/getter/2022/07/16/16/2b1e7725-b5d7-74bd-7f52-8af9fc99368b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 12:47 AM UTC  - :tv:直播](/content/gettr/p1ii2ohc77d.md)
-
-7/15/2022 Miles Guo: A large amount of bank notes issued by the banks in Communist China have not been exposed yet. The recent incident of Henan rural commercial banks is just the tip of the iceberg. Those banks are actually the fi...
-
-<img src="https://media.gettr.com/group47/getter/2022/07/16/00/0fe8a1c2-0bb9-eef2-5473-6d3d340112dc/out.jpg" width="506" height="284">
 
 ---
 
