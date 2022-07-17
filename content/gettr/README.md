@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/17/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ipcfw16ae.md)
+
+(4K版) 飞飞秀 《第十篇·刘特佐》2022-07-17
+
+For English：gettr.com/post/p1ipcw2bbc6
+
+
+
+#1MDB #DOJ #JHOLOW #腐败案
+
+<img src="https://media.gettr.com/group33/origin/2022/07/17/22/b59e1baa-5319-93b7-6a1c-653e99b31835/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@kikkou 7/17/2022 4:43 AM UTC  - :tv:直播](/content/gettr/p1im5ms3af1.md)
+
+
+
+<img src="https://media.gettr.com/group47/gvision/2022/07/17/04/bc227bb0-ad91-fd93-bb49-ed4637f16bf8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/17/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p1io4d4b8a9.md)
 
 7/16/2022 Miles Guo’s GETTR: Just because I expressed my thanks to our internal fellow fighters, the CCP, who claimed to have Four Matters of Confidence, became so freaked out that it started investigating massively who are the fel...
@@ -42,11 +64,17 @@
 
 ---
 
-[@kikkou 7/17/2022 4:43 AM UTC  - :tv:直播](/content/gettr/p1im5ms3af1.md)
+[@miles 7/17/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ipkz14838.md)
+
+(1080版) 飞飞秀 《第十篇·刘特佐》2022-07-17
+
+For English：gettr.com/post/p1ipcw2bbc6
 
 
 
-<img src="https://media.gettr.com/group47/gvision/2022/07/17/04/bc227bb0-ad91-fd93-bb49-ed4637f16bf8/out.jpg" width="506" height="284">
+#1MDB #DOJ #JHOLOW #腐败案
+
+<img src="https://media.gettr.com/group18/origin/2022/07/17/22/4af88d0a-5a6a-d9f0-713c-25097583e6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -172,33 +200,11 @@ For English：gettr.com/streaming/p1ilsdu58f7
 
 ---
 
-[@miles 7/15/2022 11:37 PM UTC  - :tv:直播](/content/gettr/p1iho3ced67.md)
-
-7/14/2022 Miles Guo: Every year the CCP spends $30 billion, or even hundreds of billions of dollars on attorney fees in the U.S., so that they could attract the senior officials of NASDAQ and DOJ to work for big law firms, which ar...
-
-<img src="https://media.gettr.com/group19/getter/2022/07/15/23/a69206d1-12b8-1eaa-ad19-dd8572a332cc/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/15/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p1ih7xj48ce.md)
 
 7/15/2022 Miles Guo’s GETTR: Can you imagine people are beaten to death, get paralyzed, suffer vision loss or miscarriages from police assault, just because they want to withdraw their own money from banks? Yes this happened in Com...
 
 <img src="https://media.gettr.com/group37/getter/2022/07/15/23/d0e2a020-f05f-a506-bb19-2798042fe7f2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 10:10 PM UTC  - :tv:直播](/content/gettr/p1ihfzvc54e.md)
-
-(1080版) 飞飞秀 《第八篇·司法部腐败案》2022-07-15
-
-For English：gettr.com/post/p1ihj2ca1fe
-
-
-
-#DOJ #Higginbotham #腐败案
-
-<img src="https://media.gettr.com/group12/origin/2022/07/15/22/d01dba4a-53fa-4f2b-df12-2d4e10548383/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
