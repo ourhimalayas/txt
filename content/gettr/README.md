@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 7/17/2022 8:45 AM UTC ](/content/gettr/p1ineurf0db.md)
+
+ 7月17号：感谢旧金山量子农场太棒了……
+
+<img src="https://media.gettr.com/group29/getter/2022/07/17/08/eba72c12-5c24-a52d-7312-1d76af6f3d34/4e12c466247f68ed6c1a7b3d709ebf61.jpg" width="506" height="284">
+
+---
+
 [@miles 7/16/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p1ilqba25c8.md)
 
 7/14/2022 Miles Guo: What emboldened Cahill Gordon & Reindel LLP, Richard Frankel and O’Melveny to deceive the US court in concert? CCP promised to pay them big money!
@@ -38,20 +46,6 @@
 
 ---
 
-[@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1il6tv46c3.md)
-
-(1080版) 飞飞秀 《利益冲突·第九篇》2022-07-16
-
-For English：gettr.com/streaming/p1ilsdu58f7
-
-
-
-#破产案 #PAX #Trustee #普衡
-
-<img src="https://media.gettr.com/group49/origin/2022/07/16/22/06bee392-4100-5abb-ae36-a536b023066e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/16/2022 10:43 PM UTC  - :tv:直播](/content/gettr/p1ilizu50d2.md)
 
 7/14/2022 Miles Guo: Why has O'Melveny been so arrogant, ignored due process and dared to violate professional ethics? Because it is a running dog of PAG!
@@ -63,6 +57,20 @@ For English：gettr.com/streaming/p1ilsdu58f7
 
 
 <img src="https://media.gettr.com/group37/getter/2022/07/16/22/1fd8b6d1-ec31-d477-9362-f59568a5e7a9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1il6tv46c3.md)
+
+(1080版) 飞飞秀 《利益冲突·第九篇》2022-07-16
+
+For English：gettr.com/streaming/p1ilsdu58f7
+
+
+
+#破产案 #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group49/origin/2022/07/16/22/06bee392-4100-5abb-ae36-a536b023066e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ For English：gettr.com/post/p1ihj2ca1fe
 7/14/2022 Miles Guo: Several senior executives of some top ten banks in Communist China just fled the country and told me that over 50% of the debt, accounts, and notes of the banks in Communist China are fake. The CCP's Central Co...
 
 <img src="https://media.gettr.com/group48/getter/2022/07/15/07/22c17a06-c121-9269-ff10-0c80d0c2fdb2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/15/2022 3:38 AM UTC  - :tv:直播](/content/gettr/p1ie4gmbf76.md)
-
-7/14/2022 Miles Guo:  Without going through the legal process and receiving the approval of the judge, Luc A. Despins and his law farm partner Paul Hastings replaced the original bankruptcy trustee of mine. Their wrongdoings are a ...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/15/03/96392aee-ed62-368d-5683-4cbb7fe98d09/out.jpg" width="506" height="284">
 
 ---
 
