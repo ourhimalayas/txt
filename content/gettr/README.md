@@ -10,6 +10,26 @@
 
 ---
 
+[@miles 7/18/2022 12:24 AM UTC  - :tv:直播](/content/gettr/p1ipqe07056.md)
+
+7/17/2022 Miles Guo: Our Whistleblowers'  Movement is entering into a new phase of blowing the whistle on the CCP's military information. We will divide all we have collected into three bataches, which will unearth the completed in...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/18/00/465b60df-ae1f-1ef1-b3e2-49749ca9c87e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1iq2v8093b.md)
+
+郭文贵先生破产案是美国司法系统被中共渗透的典型案例
+
+
+
+Mr. Miles Guo’s bankruptcy case is a typical case of the U.S. judicial system being infiltrated by the Chinese Communist Party
+
+<img src="https://media.gettr.com/group37/getter/2022/07/18/00/bece1ba6-2a36-e6f9-7ceb-502d1975d17b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/17/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1ipujd4ddc.md)
 
 7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG. My personal bankruptcy case has received worldwide attention, and several lawyers from Zhon...
@@ -45,18 +65,6 @@ For English：gettr.com/post/p1ipcw2bbc6
 #1MDB #DOJ #JHOLOW #腐败案
 
 <img src="https://media.gettr.com/group33/origin/2022/07/17/22/b59e1baa-5319-93b7-6a1c-653e99b31835/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1iq2v8093b.md)
-
-郭文贵先生破产案是美国司法系统被中共渗透的典型案例
-
-
-
-Mr. Miles Guo’s bankruptcy case is a typical case of the U.S. judicial system being infiltrated by the Chinese Communist Party
-
-<img src="https://media.gettr.com/group37/getter/2022/07/18/00/bece1ba6-2a36-e6f9-7ceb-502d1975d17b/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ For English：gettr.com/streaming/p1ilsdu58f7
 #破产案 #PAX #Trustee #普衡
 
 <img src="https://media.gettr.com/group31/origin/2022/07/16/22/7b1209e5-590e-6610-2d17-5f1bf94a70a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 5:06 PM UTC  - :tv:直播](/content/gettr/p1ik80qfc31.md)
-
-7/14/2022 Miles Guo: How corrupt the US judicial system has become under the manipulation of the CCP! The trustee replacement incident will expose the evil backstage manipulator in the DOJ, as well as all the corrupt organizations ...
-
-<img src="https://media.gettr.com/group16/getter/2022/07/16/17/da890a29-5dfe-5cf5-c3d3-9e5b8f7787a0/out.jpg" width="506" height="284">
 
 ---
 
