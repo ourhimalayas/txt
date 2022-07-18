@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/18/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1iq43j7ffa.md)
+
+2022.07.15 新中国联邦 | 军情室 特别节目 《军情大爆料》
+
+<img src="https://media.gettr.com/group33/origin/2022/07/18/00/57888527-03ab-1753-72dd-f969ee5d2c77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/17/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1ipujd4ddc.md)
+
+7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG. My personal bankruptcy case has received worldwide attention, and several lawyers from Zhon...
+
+<img src="https://media.gettr.com/group7/getter/2022/07/17/23/1a12e215-f726-c027-6d5c-5e13e864ae88/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/17/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1iq0omc1ed.md)
 
 7月17号：尊敬的战友们好……一个半小时以后的将开始……关于中共的绝密．震撼．影响世界安全的军事情报爆料……在七哥这个频道纽约八点直播即将开始，让我们一起来开启以情报灭共．的爆料革命的新时代吧……共产党你完了……
@@ -32,11 +48,15 @@ For English：gettr.com/post/p1ipcw2bbc6
 
 ---
 
-[@miles 7/17/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1ipujd4ddc.md)
+[@miles 7/18/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1iq2v8093b.md)
 
-7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG. My personal bankruptcy case has received worldwide attention, and several lawyers from Zhon...
+郭文贵先生破产案是美国司法系统被中共渗透的典型案例
 
-<img src="https://media.gettr.com/group7/getter/2022/07/17/23/1a12e215-f726-c027-6d5c-5e13e864ae88/out.jpg" width="506" height="284">
+
+
+Mr. Miles Guo’s bankruptcy case is a typical case of the U.S. judicial system being infiltrated by the Chinese Communist Party
+
+<img src="https://media.gettr.com/group37/getter/2022/07/18/00/bece1ba6-2a36-e6f9-7ceb-502d1975d17b/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,26 +197,6 @@ For English：gettr.com/streaming/p1ilsdu58f7
 7/14/2022 Miles Guo: How corrupt the US judicial system has become under the manipulation of the CCP! The trustee replacement incident will expose the evil backstage manipulator in the DOJ, as well as all the corrupt organizations ...
 
 <img src="https://media.gettr.com/group16/getter/2022/07/16/17/da890a29-5dfe-5cf5-c3d3-9e5b8f7787a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 4:35 PM UTC  - :tv:直播](/content/gettr/p1ik5sn57ed.md)
-
-7/14/2022 Miles Guo: Every year the CCP spends $30 billion, or even hundreds of billions of dollars on attorney fees in the U.S., so that they could attract the senior officials of NASDAQ and DOJ to work for big law firms, which ar...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/16/16/98b1d398-174d-06a7-7ae7-f88c54e42fcc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 4:27 PM UTC  - :tv:直播](/content/gettr/p1ijyxh7297.md)
-
-7/14/2022 Miles Guo’s GETTR: The danger of  PAG is that it can manipulate the judicial procedures, judges and the financial sector in the US, and it can control your wealth and your life and death!
-
-
-
-7/14/2022 文贵盖特：PAG的危险在于它能控制美国的...
-
-<img src="https://media.gettr.com/group34/getter/2022/07/16/16/2b1e7725-b5d7-74bd-7f52-8af9fc99368b/out.jpg" width="506" height="284">
 
 ---
 
