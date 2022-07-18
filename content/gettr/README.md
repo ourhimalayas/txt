@@ -22,11 +22,25 @@
 
 ---
 
+[@miles 7/18/2022 11:05 PM UTC ](/content/gettr/p1iu0k5bb9e.md)
+
+飞飞，知性大气气场巨大镇得住场子．大根儿性情气场强大而且很有感染力和火来国际帅男酷酷的的小样．超技帅哥小铁．洋柯基 山姆的理性成熟，这简直是绝了。
+
+---
+
 [@miles 7/18/2022 10:23 PM UTC  - :tv:直播](/content/gettr/p1iue6q8668.md)
 
 7/18/2022 Miles Guo’s GETTR: Does the disclosure of the CCP’s classified military intel have anything to do with the Chinese people? If so, what’s the relevance? If you understand the significance of those classified military docum...
 
 <img src="https://media.gettr.com/group33/getter/2022/07/18/22/2baf8900-4401-3c3c-ee53-f1f2cc9b625f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 10:25 PM UTC  - :tv:直播](/content/gettr/p1iucsy536b.md)
+
+7/13/2022 Miles Guo: Communist China is facing the collapse of real estate and banking sectors inside, and delisting of China-concept stocks and the complete failure of the “One Belt, One Road” policy outside; each of the Seven Maj...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/18/22/077481a3-6a01-6d1d-e29b-f0a99882f30f/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +55,6 @@ For English：gettr.com/streaming/p1iuchg81f7
 #绝密文件 #项目2707 #军民融合
 
 <img src="https://media.gettr.com/group7/origin/2022/07/18/22/27712fc0-2830-1c62-c39b-16cda7bedfe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 10:25 PM UTC  - :tv:直播](/content/gettr/p1iucsy536b.md)
-
-7/13/2022 Miles Guo: Communist China is facing the collapse of real estate and banking sectors inside, and delisting of China-concept stocks and the complete failure of the “One Belt, One Road” policy outside; each of the Seven Maj...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/18/22/077481a3-6a01-6d1d-e29b-f0a99882f30f/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +203,6 @@ For English：gettr.com/post/p1iqk6lcffe
 7/17/2022 Miles Guo: The New Federal State of China will disclose for the first time next week the intelligence regarding the CCP military plots to invade Taiwan and specifically target the US, Japan, and Europe to take over the wo...
 
 <img src="https://media.gettr.com/group39/getter/2022/07/18/00/6e36755a-65c1-ae8c-9c9a-be8739a07230/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 12:24 AM UTC  - :tv:直播](/content/gettr/p1ipqe07056.md)
-
-7/17/2022 Miles Guo: Our Whistleblowers'  Movement is entering into a new phase of blowing the whistle on the CCP's military information. We will divide all we have collected into three bataches, which will unearth the completed in...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/18/00/465b60df-ae1f-1ef1-b3e2-49749ca9c87e/out.jpg" width="506" height="284">
 
 ---
 
