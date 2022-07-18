@@ -2,17 +2,11 @@
 ---
 
 
-[@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1ilhws43b7.md)
+[@miles 7/18/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1iqw5z708b.md)
 
-(4K版) 飞飞秀 《利益冲突·第九篇》2022-07-16
+7/17/2022 Miles Guo: Both Malaysia and the US declined Jho Low's request for a settlement, and he will be extradited to the US. At that time, the dark backstage manipulator in the US DOJ will be exposed; the one who launched the in...
 
-For English：gettr.com/streaming/p1ilsdu58f7
-
-
-
-#破产案 #PAX #Trustee #普衡
-
-<img src="https://media.gettr.com/group31/origin/2022/07/16/22/7b1209e5-590e-6610-2d17-5f1bf94a70a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/07/18/03/0797b53c-df6b-f76c-18b9-40a2864c4083/out.jpg" width="506" height="284">
 
 ---
 
