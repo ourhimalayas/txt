@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/18/2022 11:27 AM UTC  - :tv:直播](/content/gettr/p1irg9s22c2.md)
+
+In response to the non-compliant assignment of trustee by the U.S. Department of Justice, Mr. Miles Guo will initiate a series of motions and appeals to expose the CCP’s infiltration of the U.S. judiciary and the black hands of the...
+
+<img src="https://media.gettr.com/group33/getter/2022/07/18/11/03a597f2-50c9-7396-7815-59b435dcb5d3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 6:32 AM UTC  - :tv:直播](/content/gettr/p1iqmi45c76.md)
 
 7/17/2022 Miles Guo: Biden's visit to Saudi Arabia is to stop Saudi Arabia from helping the CCP confront the U.S. by using oil and Chinese yuan.  Both Venezuela and Saudi Arabia have asked the U.S. to lift the sanctions on their le...
@@ -24,11 +32,11 @@ For English：gettr.com/post/p1iqk6lcffe
 
 ---
 
-[@miles 7/18/2022 11:27 AM UTC  - :tv:直播](/content/gettr/p1irg9s22c2.md)
+[@milesguolive 7/18/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1isbbnce00.md)
 
-In response to the non-compliant assignment of trustee by the U.S. Department of Justice, Mr. Miles Guo will initiate a series of motions and appeals to expose the CCP’s infiltration of the U.S. judiciary and the black hands of the...
+0717大直播精华版
 
-<img src="https://media.gettr.com/group33/getter/2022/07/18/11/03a597f2-50c9-7396-7815-59b435dcb5d3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/07/18/12/142393ba-364a-77fb-e344-dc4c0f7d9708/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ For English：gettr.com/post/p1ipcw2bbc6
 美国司法的黑暗与共产党有什么关系！
 
 <img src="https://media.gettr.com/group49/origin/2022/07/17/13/49217ea8-e861-e01c-1521-c5d9f452dfe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 8:45 AM UTC ](/content/gettr/p1ineurf0db.md)
-
- 7月17号：感谢旧金山量子农场太棒了……
-
-<img src="https://media.gettr.com/group29/getter/2022/07/17/08/eba72c12-5c24-a52d-7312-1d76af6f3d34/4e12c466247f68ed6c1a7b3d709ebf61.jpg" width="506" height="284">
 
 ---
 
