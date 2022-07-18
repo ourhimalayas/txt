@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/18/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1ist19aadb.md)
+
+7/17/2022 Miles Guo: The financial collapse of Communist China was not caused by the anti-Xi Jinping forces, but by the entire CCP collectively. It is the "great achievement" of the entire Chinese Communist Party and the best gift ...
+
+<img src="https://media.gettr.com/group46/getter/2022/07/18/17/62306192-f723-1cbf-8408-b96ea4375020/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 5:21 PM UTC  - :tv:直播](/content/gettr/p1it9zkd381.md)
+
+7/17/2022 Miles Guo: I believe that the Russia-Ukraine war will gradually escalate since Russia is a rogue country. Just like the CCP, it never hesitated to starve to death 300,000 people in the Siege of Changchun so that they coul...
+
+<img src="https://media.gettr.com/group12/getter/2022/07/18/17/1a863816-ecbe-2511-d6c1-af443fdbce9d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 4:35 PM UTC ](/content/gettr/p1it2f6cfe5.md)
 
 战友们好，飞飞秀节目时间调整如下：
@@ -74,11 +90,11 @@ For English：gettr.com/post/p1iqk6lcffe
 
 ---
 
-[@miles 7/18/2022 5:21 PM UTC  - :tv:直播](/content/gettr/p1it9zkd381.md)
+[@miles 7/18/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1it8g9cc8b.md)
 
-7/17/2022 Miles Guo: I believe that the Russia-Ukraine war will gradually escalate since Russia is a rogue country. Just like the CCP, it never hesitated to starve to death 300,000 people in the Siege of Changchun so that they coul...
+7/17/2022 Miles Guo: The fact that Sun Lijun and Fu Zhenghua's cases were sent to northeast China for trial means they got the severest punishment from the CCP; They won't be able to die and will suffer alive. Meanwhile the CCP can...
 
-<img src="https://media.gettr.com/group12/getter/2022/07/18/17/1a863816-ecbe-2511-d6c1-af443fdbce9d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/07/18/17/9523628f-601b-0b55-0d7b-76becffb6a73/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,20 +177,6 @@ Mr. Miles Guo’s bankruptcy case is a typical case of the U.S. judicial system 
 7/17/2022 Miles Guo: If we don't expose the CCP's deep infiltration in the US judicial system, nobody will be safe in the US! The trustee replacement case is of tremendous significance and will draw huge attention from the US Congr...
 
 <img src="https://media.gettr.com/group21/getter/2022/07/17/22/958ec279-2c3e-bb51-2046-fd0165dc5bcd/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ipcfw16ae.md)
-
-(4K版) 飞飞秀 《第十篇·刘特佐》2022-07-17
-
-For English：gettr.com/post/p1ipcw2bbc6
-
-
-
-#1MDB #DOJ #JHOLOW #腐败案
-
-<img src="https://media.gettr.com/group33/origin/2022/07/17/22/b59e1baa-5319-93b7-6a1c-653e99b31835/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
