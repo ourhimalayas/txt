@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/18/2022 2:02 PM UTC  - :tv:直播](/content/gettr/p1isfywa3ab.md)
+
+7/17/2022 Miles Guo: If the CCP collapses in 2025, the economic situation in Communist China will inevitably go through a lot of ups and downs until then; no matter how terrible the Chinese society and the Chinese people's liveliho...
+
+<img src="https://media.gettr.com/group45/getter/2022/07/18/14/a595dc4d-7ab4-675f-5bb9-4e9c45c034ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 1:44 PM UTC  - :tv:直播](/content/gettr/p1irx6i4804.md)
 
  9月18日：尊敬的战友们好，我们正在开启的前所未有的……关于共产党的军事恐怖行为爆料……向世界展示了中国共产党．不是一个合法的政权，完全以中国人民．全部的孩子．老人的身体和安全．作为战争的赌注，而且所有的设计．都是以毁灭中国人和全人类为目标所设计的……从以上的所有的军事情报当中，你们会看到比爹娘还亲的．中国共产党．是中国人最大的威胁．是14亿中国人最最大的敌人，请关注重点．每一个军事设施的周围．都有数百万人中国人被动的绑上了中共的战车，作为了战争绑票的对象...
@@ -48,11 +56,21 @@ For English：gettr.com/post/p1iqk6lcffe
 
 ---
 
-[@miles 7/18/2022 2:02 PM UTC  - :tv:直播](/content/gettr/p1isfywa3ab.md)
+[@miles 7/18/2022 4:35 PM UTC ](/content/gettr/p1it2f6cfe5.md)
 
-7/17/2022 Miles Guo: If the CCP collapses in 2025, the economic situation in Communist China will inevitably go through a lot of ups and downs until then; no matter how terrible the Chinese society and the Chinese people's liveliho...
+战友们好，飞飞秀节目时间调整如下：
 
-<img src="https://media.gettr.com/group45/getter/2022/07/18/14/a595dc4d-7ab4-675f-5bb9-4e9c45c034ac/out.jpg" width="506" height="284">
+
+
+1. 自美东时间7月18日起，原美东晚6点/墙内早6点播出的《飞飞秀》，现调整为《军事大爆料》节目。
+
+2. 原《飞飞秀》，现改为美东晚9点/墙内早9点播出。
+
+
+
+特此告知🙏
+
+<img src="https://media.gettr.com/group35/origin/2022/07/18/16/8e566399-3aa4-e713-38e2-a0cbf9e80cf1/ba7b8ac91950ed74b4174aa6c17c9371.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +189,6 @@ For English：gettr.com/post/p1ipcw2bbc6
 
 
 <img src="https://media.gettr.com/group47/gvision/2022/07/17/04/bc227bb0-ad91-fd93-bb49-ed4637f16bf8/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 3:25 PM UTC  - :tv:直播](/content/gettr/p1io4d4b8a9.md)
-
-7/16/2022 Miles Guo’s GETTR: Just because I expressed my thanks to our internal fellow fighters, the CCP, who claimed to have Four Matters of Confidence, became so freaked out that it started investigating massively who are the fel...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/17/15/57625071-ff2b-c732-bf79-c023570dbeeb/out.jpg" width="506" height="284">
 
 ---
 
