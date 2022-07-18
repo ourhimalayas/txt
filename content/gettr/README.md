@@ -16,11 +16,11 @@ For English：gettr.com/post/p1iqk6lcffe
 
 ---
 
-[@miles 7/18/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1iqw5z708b.md)
+[@miles 7/18/2022 6:32 AM UTC  - :tv:直播](/content/gettr/p1iqmi45c76.md)
 
-7/17/2022 Miles Guo: Both Malaysia and the US declined Jho Low's request for a settlement, and he will be extradited to the US. At that time, the dark backstage manipulator in the US DOJ will be exposed; the one who launched the in...
+7/17/2022 Miles Guo: Biden's visit to Saudi Arabia is to stop Saudi Arabia from helping the CCP confront the U.S. by using oil and Chinese yuan.  Both Venezuela and Saudi Arabia have asked the U.S. to lift the sanctions on their le...
 
-<img src="https://media.gettr.com/group11/getter/2022/07/18/03/0797b53c-df6b-f76c-18b9-40a2864c4083/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/07/18/06/194addd5-ae45-87c8-5826-d4edea855409/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,6 +35,14 @@ For English：gettr.com/post/p1iqk6lcffe
 #绝密文件 #代号910 #代号空军一体化
 
 <img src="https://media.gettr.com/group15/origin/2022/07/18/05/8bc7cf4d-06b0-ebb2-dcb0-cf88728571c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1iqw5z708b.md)
+
+7/17/2022 Miles Guo: Both Malaysia and the US declined Jho Low's request for a settlement, and he will be extradited to the US. At that time, the dark backstage manipulator in the US DOJ will be exposed; the one who launched the in...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/18/03/0797b53c-df6b-f76c-18b9-40a2864c4083/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +171,6 @@ For English：gettr.com/post/p1ipcw2bbc6
  7月17号：感谢旧金山量子农场太棒了……
 
 <img src="https://media.gettr.com/group29/getter/2022/07/17/08/eba72c12-5c24-a52d-7312-1d76af6f3d34/4e12c466247f68ed6c1a7b3d709ebf61.jpg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 10:41 PM UTC  - :tv:直播](/content/gettr/p1ilhdo7f7c.md)
-
-7/14/2022 Miles Guo: How dangerous is PAG? PAG was able to have CCP’s Duowei News falsify evidence to deceive an American judge, and then shut down Duowei News!
-
-
-
-7/14/2022 文贵直播：PAG有多危险？PAG能让中共大外宣多维和它一起伪造证据欺骗美国法官，然后关掉多维! 
-
-
-
-
-
-<img src="https://media.gettr.com/group30/getter/2022/07/16/22/125b71e9-b784-1a73-5a75-a7e5838dc67f/out.jpg" width="506" height="284">
 
 ---
 
