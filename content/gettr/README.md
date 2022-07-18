@@ -2,11 +2,47 @@
 ---
 
 
+[@miles 7/18/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1itrgjf520.md)
+
+(4K版) 七月十八日《军事大爆料》2022-07-18
+
+For English：gettr.com/streaming/p1iuchg81f7
+
+
+
+#绝密文件 #项目2707 #军民融合
+
+<img src="https://media.gettr.com/group7/origin/2022/07/18/22/27712fc0-2830-1c62-c39b-16cda7bedfe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1ist19aadb.md)
 
 7/17/2022 Miles Guo: The financial collapse of Communist China was not caused by the anti-Xi Jinping forces, but by the entire CCP collectively. It is the "great achievement" of the entire Chinese Communist Party and the best gift ...
 
 <img src="https://media.gettr.com/group46/getter/2022/07/18/17/62306192-f723-1cbf-8408-b96ea4375020/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1iud9615cb.md)
+
+(1080版) 七月十八日《军事大爆料》2022-07-18
+
+For English：gettr.com/streaming/p1iuchg81f7
+
+
+
+#绝密文件 #项目2707 #军民融合
+
+<img src="https://media.gettr.com/group50/origin/2022/07/18/22/846ee868-26e6-816e-5aa2-1153f9c66fa7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1it8g9cc8b.md)
+
+7/17/2022 Miles Guo: The fact that Sun Lijun and Fu Zhenghua's cases were sent to northeast China for trial means they got the severest punishment from the CCP; They won't be able to die and will suffer alive. Meanwhile the CCP can...
+
+<img src="https://media.gettr.com/group12/getter/2022/07/18/17/9523628f-601b-0b55-0d7b-76becffb6a73/out.jpg" width="506" height="284">
 
 ---
 
@@ -90,14 +126,6 @@ For English：gettr.com/post/p1iqk6lcffe
 
 ---
 
-[@miles 7/18/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1it8g9cc8b.md)
-
-7/17/2022 Miles Guo: The fact that Sun Lijun and Fu Zhenghua's cases were sent to northeast China for trial means they got the severest punishment from the CCP; They won't be able to die and will suffer alive. Meanwhile the CCP can...
-
-<img src="https://media.gettr.com/group12/getter/2022/07/18/17/9523628f-601b-0b55-0d7b-76becffb6a73/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/18/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1iqgc01775.md)
 
 (1080版) 《717军事爆料·第一篇》2022-07-17
@@ -161,22 +189,6 @@ Mr. Miles Guo’s bankruptcy case is a typical case of the U.S. judicial system 
 7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG. My personal bankruptcy case has received worldwide attention, and several lawyers from Zhon...
 
 <img src="https://media.gettr.com/group7/getter/2022/07/17/23/1a12e215-f726-c027-6d5c-5e13e864ae88/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1iq0omc1ed.md)
-
-7月17号：尊敬的战友们好……一个半小时以后的将开始……关于中共的绝密．震撼．影响世界安全的军事情报爆料……在七哥这个频道纽约八点直播即将开始，让我们一起来开启以情报灭共．的爆料革命的新时代吧……共产党你完了……
-
-<img src="https://media.gettr.com/group7/getter/2022/07/17/22/20ef99a8-670e-1a57-2d64-d67e919a9e2c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 10:15 PM UTC  - :tv:直播](/content/gettr/p1ipj7bdfb3.md)
-
-7/17/2022 Miles Guo: If we don't expose the CCP's deep infiltration in the US judicial system, nobody will be safe in the US! The trustee replacement case is of tremendous significance and will draw huge attention from the US Congr...
-
-<img src="https://media.gettr.com/group21/getter/2022/07/17/22/958ec279-2c3e-bb51-2046-fd0165dc5bcd/out.jpg" width="506" height="284">
 
 ---
 
