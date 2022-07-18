@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/18/2022 6:32 AM UTC  - :tv:直播](/content/gettr/p1iqmi45c76.md)
+
+7/17/2022 Miles Guo: Biden's visit to Saudi Arabia is to stop Saudi Arabia from helping the CCP confront the U.S. by using oil and Chinese yuan.  Both Venezuela and Saudi Arabia have asked the U.S. to lift the sanctions on their le...
+
+<img src="https://media.gettr.com/group32/getter/2022/07/18/06/194addd5-ae45-87c8-5826-d4edea855409/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1iqin2e257.md)
 
 (4K版) 《717军事爆料·第一篇》2022-07-17
@@ -16,11 +24,11 @@ For English：gettr.com/post/p1iqk6lcffe
 
 ---
 
-[@miles 7/18/2022 6:32 AM UTC  - :tv:直播](/content/gettr/p1iqmi45c76.md)
+[@miles 7/18/2022 11:27 AM UTC  - :tv:直播](/content/gettr/p1irg9s22c2.md)
 
-7/17/2022 Miles Guo: Biden's visit to Saudi Arabia is to stop Saudi Arabia from helping the CCP confront the U.S. by using oil and Chinese yuan.  Both Venezuela and Saudi Arabia have asked the U.S. to lift the sanctions on their le...
+In response to the non-compliant assignment of trustee by the U.S. Department of Justice, Mr. Miles Guo will initiate a series of motions and appeals to expose the CCP’s infiltration of the U.S. judiciary and the black hands of the...
 
-<img src="https://media.gettr.com/group32/getter/2022/07/18/06/194addd5-ae45-87c8-5826-d4edea855409/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/07/18/11/03a597f2-50c9-7396-7815-59b435dcb5d3/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,20 +179,6 @@ For English：gettr.com/post/p1ipcw2bbc6
  7月17号：感谢旧金山量子农场太棒了……
 
 <img src="https://media.gettr.com/group29/getter/2022/07/17/08/eba72c12-5c24-a52d-7312-1d76af6f3d34/4e12c466247f68ed6c1a7b3d709ebf61.jpg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 10:43 PM UTC  - :tv:直播](/content/gettr/p1ilizu50d2.md)
-
-7/14/2022 Miles Guo: Why has O'Melveny been so arrogant, ignored due process and dared to violate professional ethics? Because it is a running dog of PAG!
-
-
-
-7/14/2022 文贵直播：为什么美迈斯胆大包天、无视程序、全然不顾律师职业道德？因为它们就是PAG的狗！
-
-
-
-<img src="https://media.gettr.com/group37/getter/2022/07/16/22/1fd8b6d1-ec31-d477-9362-f59568a5e7a9/out.jpg" width="506" height="284">
 
 ---
 
