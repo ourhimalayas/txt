@@ -2,11 +2,37 @@
 ---
 
 
-[@miles 7/18/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1ipmv2b25b.md)
+[@miles 7/16/2022 10:29 PM UTC  - :tv:直播](/content/gettr/p1ilhws43b7.md)
 
-7/17/2022 Miles Guo: The New Federal State of China will disclose for the first time next week the intelligence regarding the CCP military plots to invade Taiwan and specifically target the US, Japan, and Europe to take over the wo...
+(4K版) 飞飞秀 《利益冲突·第九篇》2022-07-16
 
-<img src="https://media.gettr.com/group39/getter/2022/07/18/00/6e36755a-65c1-ae8c-9c9a-be8739a07230/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p1ilsdu58f7
+
+
+
+#破产案 #PAX #Trustee #普衡
+
+<img src="https://media.gettr.com/group31/origin/2022/07/16/22/7b1209e5-590e-6610-2d17-5f1bf94a70a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/16/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1ilw0c7f4b.md)
+
+ 7月16号：尊敬的战友们好！一天都在忙，没有发盖特视频……非常的抱歉，好多战友发来的信息不能一一回复，请谅解，很多热点，明天9:00七哥直播总结，一切都已经开始！
+
+<img src="https://media.gettr.com/group17/getter/2022/07/16/22/272981ba-ab90-d07d-a7f5-83f72b59c37f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/16/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p1ilqba25c8.md)
+
+7/14/2022 Miles Guo: What emboldened Cahill Gordon & Reindel LLP, Richard Frankel and O’Melveny to deceive the US court in concert? CCP promised to pay them big money!
+
+
+
+7/14/2022 文贵直播：是什么让Cahill律所、Richard Frankel和O’Melveny串谋共同欺骗法...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/16/22/f129ed48-7375-f288-ffc9-547852bbcbb1/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,19 +44,11 @@
 
 ---
 
-[@mosmultilingual 7/18/2022 12:24 AM UTC  - :tv:直播](/content/gettr/p1iq891a9b4.md)
+[@miles 7/18/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1ipmv2b25b.md)
 
-2022.07.15 NFSC Whistleblower's Movement Military in French
+7/17/2022 Miles Guo: The New Federal State of China will disclose for the first time next week the intelligence regarding the CCP military plots to invade Taiwan and specifically target the US, Japan, and Europe to take over the wo...
 
-<img src="https://media.gettr.com/group36/origin/2022/07/18/00/f981eeb2-d589-de4d-97ea-8c2fdd48b367/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@mostrans 7/18/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1iq56a3170.md)
-
-2022.07.15 NFSC Whistleblower's Movement Military
-
-<img src="https://media.gettr.com/group3/origin/2022/07/17/23/6232a5e9-00fa-411d-48d6-6ffe81b27829/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/07/18/00/6e36755a-65c1-ae8c-9c9a-be8739a07230/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,14 +57,6 @@
 7/17/2022 Miles Guo: Our Whistleblowers'  Movement is entering into a new phase of blowing the whistle on the CCP's military information. We will divide all we have collected into three bataches, which will unearth the completed in...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/18/00/465b60df-ae1f-1ef1-b3e2-49749ca9c87e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1iq43j7ffa.md)
-
-2022.07.15 新中国联邦 | 军情室 特别节目 《军情大爆料》
-
-<img src="https://media.gettr.com/group33/origin/2022/07/18/00/57888527-03ab-1753-72dd-f969ee5d2c77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
