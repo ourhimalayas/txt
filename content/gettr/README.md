@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/18/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1iqin2e257.md)
+
+(4K版) 《717军事爆料·第一篇》2022-07-17
+
+For English：gettr.com/post/p1iqk6lcffe
+
+
+
+#717大爆料 #绝密文件 #代号910 #代号空军一体化
+
+<img src="https://media.gettr.com/group32/origin/2022/07/18/05/05908552-a36a-8cdd-fef8-29fa470b3b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1iqw5z708b.md)
 
 7/17/2022 Miles Guo: Both Malaysia and the US declined Jho Low's request for a settlement, and he will be extradited to the US. At that time, the dark backstage manipulator in the US DOJ will be exposed; the one who launched the in...
@@ -10,23 +24,17 @@
 
 ---
 
-[@miles 7/16/2022 10:38 PM UTC  - :tv:直播](/content/gettr/p1ilw0c7f4b.md)
+[@miles 7/18/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1iqgc01775.md)
 
- 7月16号：尊敬的战友们好！一天都在忙，没有发盖特视频……非常的抱歉，好多战友发来的信息不能一一回复，请谅解，很多热点，明天9:00七哥直播总结，一切都已经开始！
+(1080版) 《717军事爆料·第一篇》2022-07-17
 
-<img src="https://media.gettr.com/group17/getter/2022/07/16/22/272981ba-ab90-d07d-a7f5-83f72b59c37f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p1ilqba25c8.md)
-
-7/14/2022 Miles Guo: What emboldened Cahill Gordon & Reindel LLP, Richard Frankel and O’Melveny to deceive the US court in concert? CCP promised to pay them big money!
+For English：gettr.com/post/p1iqk6lcffe
 
 
 
-7/14/2022 文贵直播：是什么让Cahill律所、Richard Frankel和O’Melveny串谋共同欺骗法...
+#绝密文件 #代号910 #代号空军一体化
 
-<img src="https://media.gettr.com/group3/getter/2022/07/16/22/f129ed48-7375-f288-ffc9-547852bbcbb1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/07/18/05/8bc7cf4d-06b0-ebb2-dcb0-cf88728571c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
