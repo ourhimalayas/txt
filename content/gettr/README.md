@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguolive 7/18/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1isbbnce00.md)
+
+0717大直播精华版
+
+<img src="https://media.gettr.com/group34/origin/2022/07/18/12/142393ba-364a-77fb-e344-dc4c0f7d9708/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 11:27 AM UTC  - :tv:直播](/content/gettr/p1irg9s22c2.md)
 
 In response to the non-compliant assignment of trustee by the U.S. Department of Justice, Mr. Miles Guo will initiate a series of motions and appeals to expose the CCP’s infiltration of the U.S. judiciary and the black hands of the...
@@ -32,11 +40,11 @@ For English：gettr.com/post/p1iqk6lcffe
 
 ---
 
-[@milesguolive 7/18/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1isbbnce00.md)
+[@miles 7/18/2022 1:44 PM UTC  - :tv:直播](/content/gettr/p1irx6i4804.md)
 
-0717大直播精华版
+ 9月18日：尊敬的战友们好，我们正在开启的前所未有的……关于共产党的军事恐怖行为爆料……向世界展示了中国共产党．不是一个合法的政权，完全以中国人民．全部的孩子．老人的身体和安全．作为战争的赌注，而且所有的设计．都是以毁灭中国人和全人类为目标所设计的……从以上的所有的军事情报当中，你们会看到比爹娘还亲的．中国共产党．是中国人最大的威胁．是14亿中国人最最大的敌人，请关注重点．每一个军事设施的周围．都有数百万人中国人被动的绑上了中共的战车，作为了战争绑票的对象...
 
-<img src="https://media.gettr.com/group34/origin/2022/07/18/12/142393ba-364a-77fb-e344-dc4c0f7d9708/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/07/18/13/e0b06e4f-33d9-a926-e74d-54ceda7ae67a/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ For English：gettr.com/post/p1ipcw2bbc6
 7/16/2022 Miles Guo’s GETTR: The Western financial bigwigs made it clear that the so-called bank sanctions and the Red Notice issued against me were all based on false accusations by the CCP. The collapse of the Qing Dynasty was be...
 
 <img src="https://media.gettr.com/group45/getter/2022/07/17/13/6059dc27-2758-ad29-1ff8-d73ab31d02d5/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 1:09 PM UTC  - :tv:直播](/content/gettr/p1indzg38b4.md)
-
-美国司法的黑暗与共产党有什么关系！
-
-<img src="https://media.gettr.com/group49/origin/2022/07/17/13/49217ea8-e861-e01c-1521-c5d9f452dfe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
