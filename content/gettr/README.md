@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/18/2022 4:35 PM UTC ](/content/gettr/p1it2f6cfe5.md)
+
+战友们好，飞飞秀节目时间调整如下：
+
+
+
+1. 自美东时间7月18日起，原美东晚6点/墙内早6点播出的《飞飞秀》，现调整为《军事大爆料》节目。
+
+2. 原《飞飞秀》，现改为美东晚9点/墙内早9点播出。
+
+
+
+特此告知🙏
+
+<img src="https://media.gettr.com/group35/origin/2022/07/18/16/8e566399-3aa4-e713-38e2-a0cbf9e80cf1/ba7b8ac91950ed74b4174aa6c17c9371.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 2:02 PM UTC  - :tv:直播](/content/gettr/p1isfywa3ab.md)
 
 7/17/2022 Miles Guo: If the CCP collapses in 2025, the economic situation in Communist China will inevitably go through a lot of ups and downs until then; no matter how terrible the Chinese society and the Chinese people's liveliho...
@@ -56,21 +74,11 @@ For English：gettr.com/post/p1iqk6lcffe
 
 ---
 
-[@miles 7/18/2022 4:35 PM UTC ](/content/gettr/p1it2f6cfe5.md)
+[@miles 7/18/2022 5:21 PM UTC  - :tv:直播](/content/gettr/p1it9zkd381.md)
 
-战友们好，飞飞秀节目时间调整如下：
+7/17/2022 Miles Guo: I believe that the Russia-Ukraine war will gradually escalate since Russia is a rogue country. Just like the CCP, it never hesitated to starve to death 300,000 people in the Siege of Changchun so that they coul...
 
-
-
-1. 自美东时间7月18日起，原美东晚6点/墙内早6点播出的《飞飞秀》，现调整为《军事大爆料》节目。
-
-2. 原《飞飞秀》，现改为美东晚9点/墙内早9点播出。
-
-
-
-特此告知🙏
-
-<img src="https://media.gettr.com/group35/origin/2022/07/18/16/8e566399-3aa4-e713-38e2-a0cbf9e80cf1/ba7b8ac91950ed74b4174aa6c17c9371.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/07/18/17/1a863816-ecbe-2511-d6c1-af443fdbce9d/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ For English：gettr.com/post/p1ipcw2bbc6
 #1MDB #DOJ #JHOLOW #腐败案
 
 <img src="https://media.gettr.com/group18/origin/2022/07/17/22/4af88d0a-5a6a-d9f0-713c-25097583e6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@kikkou 7/17/2022 4:43 AM UTC  - :tv:直播](/content/gettr/p1im5ms3af1.md)
-
-
-
-<img src="https://media.gettr.com/group47/gvision/2022/07/17/04/bc227bb0-ad91-fd93-bb49-ed4637f16bf8/out.jpg" width="506" height="284">
 
 ---
 
