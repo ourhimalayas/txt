@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 7/18/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1iq6f82502.md)
+
+7/17/2022  Miles Guo: The emergence and disappearance of Georgia Guidestones are very mysterious as no traces are left. I believe the people who built the Guidestones are the same ones who bombed them. When the worldwide vaccinatio...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/18/01/9f6e8a47-cfeb-f237-7661-d48100a8189e/out.jpg" width="506" height="284">
+
+---
+
 [@mosmultilingual 7/18/2022 12:24 AM UTC  - :tv:直播](/content/gettr/p1iq891a9b4.md)
 
 2022.07.15 NFSC Whistleblower's Movement Military in French
 
 <img src="https://media.gettr.com/group36/origin/2022/07/18/00/f981eeb2-d589-de4d-97ea-8c2fdd48b367/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@mostrans 7/18/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1iq56a3170.md)
+
+2022.07.15 NFSC Whistleblower's Movement Military
+
+<img src="https://media.gettr.com/group3/origin/2022/07/17/23/6232a5e9-00fa-411d-48d6-6ffe81b27829/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -31,14 +47,6 @@
 2022.07.15 新中国联邦 | 军情室 特别节目 《军情大爆料》
 
 <img src="https://media.gettr.com/group33/origin/2022/07/18/00/57888527-03ab-1753-72dd-f969ee5d2c77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@mostrans 7/18/2022 12:14 AM UTC  - :tv:直播](/content/gettr/p1iq56a3170.md)
-
-2022.07.15 NFSC Whistleblower's Movement Military
-
-<img src="https://media.gettr.com/group3/origin/2022/07/17/23/6232a5e9-00fa-411d-48d6-6ffe81b27829/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,18 +151,6 @@ For English：gettr.com/post/p1ipcw2bbc6
  7月17号：感谢旧金山量子农场太棒了……
 
 <img src="https://media.gettr.com/group29/getter/2022/07/17/08/eba72c12-5c24-a52d-7312-1d76af6f3d34/4e12c466247f68ed6c1a7b3d709ebf61.jpg" width="506" height="284">
-
----
-
-[@miles 7/16/2022 10:39 PM UTC  - :tv:直播](/content/gettr/p1ilqba25c8.md)
-
-7/14/2022 Miles Guo: What emboldened Cahill Gordon & Reindel LLP, Richard Frankel and O’Melveny to deceive the US court in concert? CCP promised to pay them big money!
-
-
-
-7/14/2022 文贵直播：是什么让Cahill律所、Richard Frankel和O’Melveny串谋共同欺骗法...
-
-<img src="https://media.gettr.com/group3/getter/2022/07/16/22/f129ed48-7375-f288-ffc9-547852bbcbb1/out.jpg" width="506" height="284">
 
 ---
 
