@@ -2,6 +2,34 @@
 ---
 
 
+[@newyorkrock 7/18/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1is8yx35a5.md)
+
+《时间点Time Line》第三期：以毒灭共
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007   苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+#以毒灭共
+
+
+
+<img src="https://media.gettr.com/group28/origin/2022/07/18/13/ca478565-f4bf-aba7-fe4c-d8c952825dd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 10:23 PM UTC  - :tv:直播](/content/gettr/p1iue6q8668.md)
+
+7/18/2022 Miles Guo’s GETTR: Does the disclosure of the CCP’s classified military intel have anything to do with the Chinese people? If so, what’s the relevance? If you understand the significance of those classified military docum...
+
+<img src="https://media.gettr.com/group33/getter/2022/07/18/22/2baf8900-4401-3c3c-ee53-f1f2cc9b625f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/18/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1itrgjf520.md)
 
 (4K版) 七月十八日《军事大爆料》2022-07-18
@@ -16,11 +44,11 @@ For English：gettr.com/streaming/p1iuchg81f7
 
 ---
 
-[@miles 7/18/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1ist19aadb.md)
+[@miles 7/18/2022 10:25 PM UTC  - :tv:直播](/content/gettr/p1iucsy536b.md)
 
-7/17/2022 Miles Guo: The financial collapse of Communist China was not caused by the anti-Xi Jinping forces, but by the entire CCP collectively. It is the "great achievement" of the entire Chinese Communist Party and the best gift ...
+7/13/2022 Miles Guo: Communist China is facing the collapse of real estate and banking sectors inside, and delisting of China-concept stocks and the complete failure of the “One Belt, One Road” policy outside; each of the Seven Maj...
 
-<img src="https://media.gettr.com/group46/getter/2022/07/18/17/62306192-f723-1cbf-8408-b96ea4375020/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/07/18/22/077481a3-6a01-6d1d-e29b-f0a99882f30f/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,6 +63,14 @@ For English：gettr.com/streaming/p1iuchg81f7
 #绝密文件 #项目2707 #军民融合
 
 <img src="https://media.gettr.com/group50/origin/2022/07/18/22/846ee868-26e6-816e-5aa2-1153f9c66fa7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1ist19aadb.md)
+
+7/17/2022 Miles Guo: The financial collapse of Communist China was not caused by the anti-Xi Jinping forces, but by the entire CCP collectively. It is the "great achievement" of the entire Chinese Communist Party and the best gift ...
+
+<img src="https://media.gettr.com/group46/getter/2022/07/18/17/62306192-f723-1cbf-8408-b96ea4375020/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,40 +205,6 @@ For English：gettr.com/post/p1iqk6lcffe
 7/17/2022 Miles Guo: Our Whistleblowers'  Movement is entering into a new phase of blowing the whistle on the CCP's military information. We will divide all we have collected into three bataches, which will unearth the completed in...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/18/00/465b60df-ae1f-1ef1-b3e2-49749ca9c87e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1iq2v8093b.md)
-
-郭文贵先生破产案是美国司法系统被中共渗透的典型案例
-
-
-
-Mr. Miles Guo’s bankruptcy case is a typical case of the U.S. judicial system being infiltrated by the Chinese Communist Party
-
-<img src="https://media.gettr.com/group37/getter/2022/07/18/00/bece1ba6-2a36-e6f9-7ceb-502d1975d17b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1ipujd4ddc.md)
-
-7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG. My personal bankruptcy case has received worldwide attention, and several lawyers from Zhon...
-
-<img src="https://media.gettr.com/group7/getter/2022/07/17/23/1a12e215-f726-c027-6d5c-5e13e864ae88/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/17/2022 10:14 PM UTC  - :tv:直播](/content/gettr/p1ipkz14838.md)
-
-(1080版) 飞飞秀 《第十篇·刘特佐》2022-07-17
-
-For English：gettr.com/post/p1ipcw2bbc6
-
-
-
-#1MDB #DOJ #JHOLOW #腐败案
-
-<img src="https://media.gettr.com/group18/origin/2022/07/17/22/4af88d0a-5a6a-d9f0-713c-25097583e6ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
