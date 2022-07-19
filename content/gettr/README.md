@@ -18,6 +18,28 @@ Daily AT 6:00PM New York Time
 
 ---
 
+[@miles 7/19/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1iwshb9b58.md)
+
+独家爆料：中囯人民解放军空军司令部( 请示 ) 后勤部 司通[2007]120号
+
+呈报空军一体化指挥平台向参战部队延伸配套建设工程设计任务书
+
+<img src="https://media.gettr.com/group9/getter/2022/07/19/14/2872275a-840e-12eb-8b88-225aad807a3f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/19/2022 1:58 PM UTC  - :tv:直播](/content/gettr/p1ix065f9ec.md)
+
+MILES GUO 直播 2022-07-19
+
+
+
+七哥乱聊直播❤️❤️❤️❤️❤️💪💪💪💪💪
+
+<img src="https://media.gettr.com/group46/getter/2022/07/19/13/0d5ae137-6553-9d1d-1eef-c704da7c5e19/97fef5040dea10af8ffc9ab0145f6a87.jpg" width="506" height="284">
+
+---
+
 [@miles 7/19/2022 10:15 AM UTC  - :tv:直播](/content/gettr/p1ivu5n1ee7.md)
 
 7/18/2022 Miles Guo’s GETTR: All the bunkers for the CCP leading cadres are hidden underneath schools and hospitals where people gather and are equipped with military-grade cement-built walls as thick as 1.8 meters. So, even if the...
@@ -51,18 +73,6 @@ For English：gettr.com/post/p1iv4vqece8
 #PrasMichel #JHOLOW
 
 <img src="https://media.gettr.com/group47/origin/2022/07/19/01/1ad021e7-e243-4110-6475-8b3dcc37461a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 1:58 PM UTC  - :tv:直播](/content/gettr/p1ix065f9ec.md)
-
-MILES GUO 直播 2022-07-19
-
-
-
-七哥乱聊直播❤️❤️❤️❤️❤️💪💪💪💪💪
-
-<img src="https://media.gettr.com/group46/getter/2022/07/19/13/0d5ae137-6553-9d1d-1eef-c704da7c5e19/97fef5040dea10af8ffc9ab0145f6a87.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +203,6 @@ For English：gettr.com/streaming/p1iuchg81f7
  9月18日：尊敬的战友们好，我们正在开启的前所未有的……关于共产党的军事恐怖行为爆料……向世界展示了中国共产党．不是一个合法的政权，完全以中国人民．全部的孩子．老人的身体和安全．作为战争的赌注，而且所有的设计．都是以毁灭中国人和全人类为目标所设计的……从以上的所有的军事情报当中，你们会看到比爹娘还亲的．中国共产党．是中国人最大的威胁．是14亿中国人最最大的敌人，请关注重点．每一个军事设施的周围．都有数百万人中国人被动的绑上了中共的战车，作为了战争绑票的对象...
 
 <img src="https://media.gettr.com/group40/getter/2022/07/18/13/e0b06e4f-33d9-a926-e74d-54ceda7ae67a/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 7/18/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1isbbnce00.md)
-
-0717大直播精华版
-
-<img src="https://media.gettr.com/group34/origin/2022/07/18/12/142393ba-364a-77fb-e344-dc4c0f7d9708/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
