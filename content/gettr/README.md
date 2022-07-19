@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/19/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1iyox8fc0c.md)
+
+(4K版) 七月十九日《军事大爆料》2022-07-19
+
+For English：gettr.com/streaming/p1iz59307b6
+
+
+
+#绝密文件 #空军550 #地下指挥所
+
+<img src="https://media.gettr.com/group5/origin/2022/07/19/21/09053a95-8299-d572-0cc4-a544a9cbfcd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/19/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1iygwc877e.md)
+
+7/19/2022 Miles Guo: We will make the Chinese Communist Party run naked in front of the entire world; who built nuclear-defense facilities and placed missiles underneath kindergartens, schools and senior homes? The key takeaway of ...
+
+<img src="https://media.gettr.com/group10/getter/2022/07/19/21/3a8f3138-61a3-a727-b33b-bba65125c9fb/out.jpg" width="506" height="284">
+
+---
+
 [@globalalliance 7/19/2022 2:12 PM UTC  - :tv:直播](/content/gettr/p1iwqkb8a15.md)
 
 2022.07.19 《回響》军事特别节目 东亚格局变换 军事机密大爆料 (通信篇)
@@ -20,11 +42,17 @@ Submitting the Project Design Task Plan of Extending the Air Force Integrated Co
 
 ---
 
-[@miles 7/19/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1iygwc877e.md)
+[@miles 7/19/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1iyu0l5f0a.md)
 
-7/19/2022 Miles Guo: We will make the Chinese Communist Party run naked in front of the entire world; who built nuclear-defense facilities and placed missiles underneath kindergartens, schools and senior homes? The key takeaway of ...
+(1080版) 七月十九日《军事大爆料》2022-07-19
 
-<img src="https://media.gettr.com/group10/getter/2022/07/19/21/3a8f3138-61a3-a727-b33b-bba65125c9fb/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p1iz59307b6
+
+
+
+#绝密文件 #空军550 #地下指挥所
+
+<img src="https://media.gettr.com/group40/origin/2022/07/19/21/32def10f-cd15-ea5c-deba-31f25da82df1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,22 +207,6 @@ For English：gettr.com/streaming/p1iuchg81f7
 #绝密文件 #项目2707 #军民融合
 
 <img src="https://media.gettr.com/group50/origin/2022/07/18/22/846ee868-26e6-816e-5aa2-1153f9c66fa7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p1ist19aadb.md)
-
-7/17/2022 Miles Guo: The financial collapse of Communist China was not caused by the anti-Xi Jinping forces, but by the entire CCP collectively. It is the "great achievement" of the entire Chinese Communist Party and the best gift ...
-
-<img src="https://media.gettr.com/group46/getter/2022/07/18/17/62306192-f723-1cbf-8408-b96ea4375020/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p1it8g9cc8b.md)
-
-7/17/2022 Miles Guo: The fact that Sun Lijun and Fu Zhenghua's cases were sent to northeast China for trial means they got the severest punishment from the CCP; They won't be able to die and will suffer alive. Meanwhile the CCP can...
-
-<img src="https://media.gettr.com/group12/getter/2022/07/18/17/9523628f-601b-0b55-0d7b-76becffb6a73/out.jpg" width="506" height="284">
 
 ---
 
