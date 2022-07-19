@@ -2,6 +2,40 @@
 ---
 
 
+[@miles 7/19/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1iun66545f.md)
+
+(1080版) 飞飞秀 《第十一篇·Pras Michel》2022-07-18
+
+For English：gettr.com/post/p1iv4vqece8
+
+
+
+#PrasMichel #JHOLOW
+
+<img src="https://media.gettr.com/group47/origin/2022/07/19/01/1ad021e7-e243-4110-6475-8b3dcc37461a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/19/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1iv1py4ff8.md)
+
+(4K版) 飞飞秀 《第十一篇·Pras Michel》2022-07-18
+
+For English：gettr.com/post/p1iv4vqece8
+
+
+
+#PrasMichel #JHOLOW
+
+<img src="https://media.gettr.com/group16/origin/2022/07/19/01/429c9b34-bcc0-3de7-ccde-f19184ac386f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/18/2022 11:05 PM UTC ](/content/gettr/p1iu0k5bb9e.md)
+
+飞飞，知性大气气场巨大镇得住场子．大根儿性情气场强大而且很有感染力和火来国际帅男酷酷的的小样．超技帅哥小铁．洋柯基 山姆的理性成熟，这简直是绝了。
+
+---
+
 [@newyorkrock 7/18/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1is8yx35a5.md)
 
 《时间点Time Line》第三期：以毒灭共
@@ -22,9 +56,11 @@
 
 ---
 
-[@miles 7/18/2022 11:05 PM UTC ](/content/gettr/p1iu0k5bb9e.md)
+[@miles 7/19/2022 1:44 AM UTC  - :tv:直播](/content/gettr/p1ivdw22e12.md)
 
-飞飞，知性大气气场巨大镇得住场子．大根儿性情气场强大而且很有感染力和火来国际帅男酷酷的的小样．超技帅哥小铁．洋柯基 山姆的理性成熟，这简直是绝了。
+7/18/2022 Miles Guo’s GETTR: After I said yesterday that I was going to expose the CCP military intelligence, the CCP carried out a series of actions to hack the Internet and threaten us, and they even wanted to make a deal with me...
+
+<img src="https://media.gettr.com/group38/getter/2022/07/19/01/868f1185-5c77-9414-5e8c-6f6a51c630f4/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,30 +215,6 @@ For English：gettr.com/post/p1iqk6lcffe
 #绝密文件 #代号910 #代号空军一体化
 
 <img src="https://media.gettr.com/group15/origin/2022/07/18/05/8bc7cf4d-06b0-ebb2-dcb0-cf88728571c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 3:10 AM UTC  - :tv:直播](/content/gettr/p1iqw5z708b.md)
-
-7/17/2022 Miles Guo: Both Malaysia and the US declined Jho Low's request for a settlement, and he will be extradited to the US. At that time, the dark backstage manipulator in the US DOJ will be exposed; the one who launched the in...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/18/03/0797b53c-df6b-f76c-18b9-40a2864c4083/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1iq6f82502.md)
-
-7/17/2022  Miles Guo: The emergence and disappearance of Georgia Guidestones are very mysterious as no traces are left. I believe the people who built the Guidestones are the same ones who bombed them. When the worldwide vaccinatio...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/18/01/9f6e8a47-cfeb-f237-7661-d48100a8189e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1ipmv2b25b.md)
-
-7/17/2022 Miles Guo: The New Federal State of China will disclose for the first time next week the intelligence regarding the CCP military plots to invade Taiwan and specifically target the US, Japan, and Europe to take over the wo...
-
-<img src="https://media.gettr.com/group39/getter/2022/07/18/00/6e36755a-65c1-ae8c-9c9a-be8739a07230/out.jpg" width="506" height="284">
 
 ---
 
