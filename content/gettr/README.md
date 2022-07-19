@@ -12,6 +12,14 @@ Submitting the Project Design Task Plan of Extending the Air Force Integrated Co
 
 ---
 
+[@globalalliance 7/19/2022 2:12 PM UTC  - :tv:直播](/content/gettr/p1iwqkb8a15.md)
+
+2022.07.19 《回響》军事特别节目 东亚格局变换 军事机密大爆料 (通信篇)
+
+<img src="https://media.gettr.com/group36/origin/2022/07/19/14/38205d06-6c6e-008a-95f0-a3aaec607e4b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/19/2022 2:29 PM UTC  - :tv:直播](/content/gettr/p1ixcte2b6f.md)
 
 独家爆料： 绝密计划— 中共解放军空军战场通讯设施建设
@@ -187,24 +195,6 @@ For English：gettr.com/streaming/p1iuchg81f7
 7/17/2022 Miles Guo: I believe that the Russia-Ukraine war will gradually escalate since Russia is a rogue country. Just like the CCP, it never hesitated to starve to death 300,000 people in the Siege of Changchun so that they coul...
 
 <img src="https://media.gettr.com/group12/getter/2022/07/18/17/1a863816-ecbe-2511-d6c1-af443fdbce9d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 4:35 PM UTC ](/content/gettr/p1it2f6cfe5.md)
-
-战友们好，飞飞秀节目时间调整如下：
-
-
-
-1. 自美东时间7月18日起，原美东晚6点/墙内早6点播出的《飞飞秀》，现调整为《军事大爆料》节目。
-
-2. 原《飞飞秀》，现改为美东晚9点/墙内早9点播出。
-
-
-
-特此告知🙏
-
-<img src="https://media.gettr.com/group35/origin/2022/07/18/16/8e566399-3aa4-e713-38e2-a0cbf9e80cf1/ba7b8ac91950ed74b4174aa6c17c9371.jpeg" width="506" height="284">
 
 ---
 
