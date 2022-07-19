@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/19/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1iv8i2a209.md)
+
+7/17/2022 Miles Guo: In Communist China the COVID vaccines have become a tool to rule LaoBaixing. If you dare to disobey the government, you will be tested positive and detained; it will be even worse in the future when a bracelet ...
+
+<img src="https://media.gettr.com/group45/getter/2022/07/19/01/6642ced3-e9c3-9e9f-bf8a-26b22a75a886/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/19/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1iun66545f.md)
 
 (1080版) 飞飞秀 《第十一篇·Pras Michel》2022-07-18
@@ -16,11 +24,9 @@ For English：gettr.com/post/p1iv4vqece8
 
 ---
 
-[@miles 7/19/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1iv8i2a209.md)
+[@miles 7/19/2022 4:08 AM UTC ](/content/gettr/p1ivos1386f.md)
 
-7/17/2022 Miles Guo: In Communist China the COVID vaccines have become a tool to rule LaoBaixing. If you dare to disobey the government, you will be tested positive and detained; it will be even worse in the future when a bracelet ...
-
-<img src="https://media.gettr.com/group45/getter/2022/07/19/01/6642ced3-e9c3-9e9f-bf8a-26b22a75a886/out.jpg" width="506" height="284">
+😍😍😍😍😍
 
 ---
 
@@ -49,26 +55,6 @@ For English：gettr.com/post/p1iv4vqece8
 [@miles 7/18/2022 11:05 PM UTC ](/content/gettr/p1iu0k5bb9e.md)
 
 飞飞，知性大气气场巨大镇得住场子．大根儿性情气场强大而且很有感染力和火来国际帅男酷酷的的小样．超技帅哥小铁．洋柯基 山姆的理性成熟，这简直是绝了。
-
----
-
-[@newyorkrock 7/18/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1is8yx35a5.md)
-
-《时间点Time Line》第三期：以毒灭共
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007   苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-#以毒灭共
-
-
-
-<img src="https://media.gettr.com/group28/origin/2022/07/18/13/ca478565-f4bf-aba7-fe4c-d8c952825dd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 

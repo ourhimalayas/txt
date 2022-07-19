@@ -2,13 +2,13 @@
 ---
 
 
-**:arrows_clockwise: p1is8yx35a5 已轉發**
+`@miles 7/19/2022 4:08 AM UTC`
 
-`@newyorkrock 7/18/2022 2:30 PM UTC`
+[轉發自GETTR](https://gettr.com/post/p1ivos1386f)
 
-[轉發自GETTR](https://gettr.com/post/p1is8yx35a5)
+😍😍😍😍😍
 
-《时间点Time Line》第三期：以毒灭共
+> `@newyorkrock 7/18/2022 2:30 PM UTC`<br/>《时间点Time Line》第三期：以毒灭共
 主持：青藤 @Forrest01
 嘉宾：Qmay @QMAY007   苍天饶过誰64 @furun0809
 #时间点
