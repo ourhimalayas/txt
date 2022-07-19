@@ -2,13 +2,21 @@
 ---
 
 
-[@miles 7/19/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p1ixc9tbec6.md)
+[@miles 7/19/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p1ix61k73e8.md)
 
 Exclusive：PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval) Command Communication [2007] No. 120
 
 Submitting the Project Design Task Plan of Extending the Air Force Integrated Command Platform to the...
 
-<img src="https://media.gettr.com/group23/getter/2022/07/19/14/7c0474a2-11c4-cbb7-6a7b-fd0c6dc1ec1a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/07/19/14/dcb275dd-a2b6-60f2-1cae-f822804f019c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/19/2022 2:29 PM UTC  - :tv:直播](/content/gettr/p1ixcte2b6f.md)
+
+独家爆料： 绝密计划— 中共解放军空军战场通讯设施建设
+
+<img src="https://media.gettr.com/group19/getter/2022/07/19/14/27838da6-ad2d-3634-a849-b0bf0b9430cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,14 +43,6 @@ Exclusive Whistleblowing of CCP’s Classified Military Intelligence
 Daily AT 6:00PM New York Time
 
 <img src="https://media.gettr.com/group47/getter/2022/07/19/13/ae18bc76-a829-e1bc-41a5-e68b9a46c406/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 2:29 PM UTC  - :tv:直播](/content/gettr/p1ixcte2b6f.md)
-
-独家爆料： 绝密计划— 中共解放军空军战场通讯设施建设
-
-<img src="https://media.gettr.com/group19/getter/2022/07/19/14/27838da6-ad2d-3634-a849-b0bf0b9430cd/out.jpg" width="506" height="284">
 
 ---
 
