@@ -16,6 +16,28 @@ For English：gettr.com/streaming/p1iz59307b6
 
 ---
 
+[@miles 7/19/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1iz0na0990.md)
+
+7/19/2022 Miles Guo: What we have exposed about the CCP's military is just the tip of an iceberg. Just wait and see the documents and intel being exposed regarding the CCP's submarine troops and the Rocket Force, and you will burst...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/19/22/7109f3fc-74ac-3c6e-d339-00647e16066b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/19/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1iyu0l5f0a.md)
+
+(1080版) 七月十九日《军事大爆料》2022-07-19
+
+For English：gettr.com/streaming/p1iz59307b6
+
+
+
+#绝密文件 #空军550 #地下指挥所
+
+<img src="https://media.gettr.com/group40/origin/2022/07/19/21/32def10f-cd15-ea5c-deba-31f25da82df1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/19/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1iygwc877e.md)
 
 7/19/2022 Miles Guo: We will make the Chinese Communist Party run naked in front of the entire world; who built nuclear-defense facilities and placed missiles underneath kindergartens, schools and senior homes? The key takeaway of ...
@@ -39,20 +61,6 @@ Exclusive：PLA Air Force Command & PLA Air Force Logistics Department (Request 
 Submitting the Project Design Task Plan of Extending the Air Force Integrated Command Platform to the...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/19/14/dcb275dd-a2b6-60f2-1cae-f822804f019c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1iyu0l5f0a.md)
-
-(1080版) 七月十九日《军事大爆料》2022-07-19
-
-For English：gettr.com/streaming/p1iz59307b6
-
-
-
-#绝密文件 #空军550 #地下指挥所
-
-<img src="https://media.gettr.com/group40/origin/2022/07/19/21/32def10f-cd15-ea5c-deba-31f25da82df1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,20 +187,6 @@ For English：gettr.com/post/p1iv4vqece8
 7/13/2022 Miles Guo: Communist China is facing the collapse of real estate and banking sectors inside, and delisting of China-concept stocks and the complete failure of the “One Belt, One Road” policy outside; each of the Seven Maj...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/18/22/077481a3-6a01-6d1d-e29b-f0a99882f30f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1itrgjf520.md)
-
-(4K版) 七月十八日《军事大爆料》2022-07-18
-
-For English：gettr.com/streaming/p1iuchg81f7
-
-
-
-#绝密文件 #项目2707 #军民融合
-
-<img src="https://media.gettr.com/group7/origin/2022/07/18/22/27712fc0-2830-1c62-c39b-16cda7bedfe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
