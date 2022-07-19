@@ -2,6 +2,14 @@
 ---
 
 
+[@globalalliance 7/19/2022 2:12 PM UTC  - :tv:直播](/content/gettr/p1iwqkb8a15.md)
+
+2022.07.19 《回響》军事特别节目 东亚格局变换 军事机密大爆料 (通信篇)
+
+<img src="https://media.gettr.com/group36/origin/2022/07/19/14/38205d06-6c6e-008a-95f0-a3aaec607e4b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/19/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p1ix61k73e8.md)
 
 Exclusive：PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval) Command Communication [2007] No. 120
@@ -12,11 +20,11 @@ Submitting the Project Design Task Plan of Extending the Air Force Integrated Co
 
 ---
 
-[@globalalliance 7/19/2022 2:12 PM UTC  - :tv:直播](/content/gettr/p1iwqkb8a15.md)
+[@miles 7/19/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1iygwc877e.md)
 
-2022.07.19 《回響》军事特别节目 东亚格局变换 军事机密大爆料 (通信篇)
+7/19/2022 Miles Guo: We will make the Chinese Communist Party run naked in front of the entire world; who built nuclear-defense facilities and placed missiles underneath kindergartens, schools and senior homes? The key takeaway of ...
 
-<img src="https://media.gettr.com/group36/origin/2022/07/19/14/38205d06-6c6e-008a-95f0-a3aaec607e4b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/07/19/21/3a8f3138-61a3-a727-b33b-bba65125c9fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ For English：gettr.com/streaming/p1iuchg81f7
 7/17/2022 Miles Guo: The fact that Sun Lijun and Fu Zhenghua's cases were sent to northeast China for trial means they got the severest punishment from the CCP; They won't be able to die and will suffer alive. Meanwhile the CCP can...
 
 <img src="https://media.gettr.com/group12/getter/2022/07/18/17/9523628f-601b-0b55-0d7b-76becffb6a73/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 5:21 PM UTC  - :tv:直播](/content/gettr/p1it9zkd381.md)
-
-7/17/2022 Miles Guo: I believe that the Russia-Ukraine war will gradually escalate since Russia is a rogue country. Just like the CCP, it never hesitated to starve to death 300,000 people in the Siege of Changchun so that they coul...
-
-<img src="https://media.gettr.com/group12/getter/2022/07/18/17/1a863816-ecbe-2511-d6c1-af443fdbce9d/out.jpg" width="506" height="284">
 
 ---
 
