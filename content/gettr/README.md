@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 7/19/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p1ixc9tbec6.md)
+
+Exclusive：PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval) Command Communication [2007] No. 120
+
+Submitting the Project Design Task Plan of Extending the Air Force Integrated Command Platform to the...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/19/14/7c0474a2-11c4-cbb7-6a7b-fd0c6dc1ec1a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/19/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1iwshb9b58.md)
+
+独家爆料：中囯人民解放军空军司令部( 请示 ) 后勤部 司通[2007]120号
+
+呈报空军一体化指挥平台向参战部队延伸配套建设工程设计任务书
+
+<img src="https://media.gettr.com/group9/getter/2022/07/19/14/2872275a-840e-12eb-8b88-225aad807a3f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/19/2022 1:56 PM UTC  - :tv:直播](/content/gettr/p1iww0p4d32.md)
 
 独家爆料： CCP绝密军事情报
@@ -18,13 +38,11 @@ Daily AT 6:00PM New York Time
 
 ---
 
-[@miles 7/19/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1iwshb9b58.md)
+[@miles 7/19/2022 2:29 PM UTC  - :tv:直播](/content/gettr/p1ixcte2b6f.md)
 
-独家爆料：中囯人民解放军空军司令部( 请示 ) 后勤部 司通[2007]120号
+独家爆料： 绝密计划— 中共解放军空军战场通讯设施建设
 
-呈报空军一体化指挥平台向参战部队延伸配套建设工程设计任务书
-
-<img src="https://media.gettr.com/group9/getter/2022/07/19/14/2872275a-840e-12eb-8b88-225aad807a3f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/07/19/14/27838da6-ad2d-3634-a849-b0bf0b9430cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,22 +205,6 @@ For English：gettr.com/streaming/p1iuchg81f7
 特此告知🙏
 
 <img src="https://media.gettr.com/group35/origin/2022/07/18/16/8e566399-3aa4-e713-38e2-a0cbf9e80cf1/ba7b8ac91950ed74b4174aa6c17c9371.jpeg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 2:02 PM UTC  - :tv:直播](/content/gettr/p1isfywa3ab.md)
-
-7/17/2022 Miles Guo: If the CCP collapses in 2025, the economic situation in Communist China will inevitably go through a lot of ups and downs until then; no matter how terrible the Chinese society and the Chinese people's liveliho...
-
-<img src="https://media.gettr.com/group45/getter/2022/07/18/14/a595dc4d-7ab4-675f-5bb9-4e9c45c034ac/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 1:44 PM UTC  - :tv:直播](/content/gettr/p1irx6i4804.md)
-
- 9月18日：尊敬的战友们好，我们正在开启的前所未有的……关于共产党的军事恐怖行为爆料……向世界展示了中国共产党．不是一个合法的政权，完全以中国人民．全部的孩子．老人的身体和安全．作为战争的赌注，而且所有的设计．都是以毁灭中国人和全人类为目标所设计的……从以上的所有的军事情报当中，你们会看到比爹娘还亲的．中国共产党．是中国人最大的威胁．是14亿中国人最最大的敌人，请关注重点．每一个军事设施的周围．都有数百万人中国人被动的绑上了中共的战车，作为了战争绑票的对象...
-
-<img src="https://media.gettr.com/group40/getter/2022/07/18/13/e0b06e4f-33d9-a926-e74d-54ceda7ae67a/out.jpg" width="506" height="284">
 
 ---
 
