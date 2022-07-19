@@ -16,6 +16,14 @@ For English：gettr.com/post/p1iv4vqece8
 
 ---
 
+[@miles 7/19/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1iv8i2a209.md)
+
+7/17/2022 Miles Guo: In Communist China the COVID vaccines have become a tool to rule LaoBaixing. If you dare to disobey the government, you will be tested positive and detained; it will be even worse in the future when a bracelet ...
+
+<img src="https://media.gettr.com/group45/getter/2022/07/19/01/6642ced3-e9c3-9e9f-bf8a-26b22a75a886/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/19/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1iv1py4ff8.md)
 
 (4K版) 飞飞秀 《第十一篇·Pras Michel》2022-07-18
@@ -27,6 +35,14 @@ For English：gettr.com/post/p1iv4vqece8
 #PrasMichel #JHOLOW
 
 <img src="https://media.gettr.com/group16/origin/2022/07/19/01/429c9b34-bcc0-3de7-ccde-f19184ac386f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/19/2022 1:44 AM UTC  - :tv:直播](/content/gettr/p1ivdw22e12.md)
+
+7/18/2022 Miles Guo’s GETTR: After I said yesterday that I was going to expose the CCP military intelligence, the CCP carried out a series of actions to hack the Internet and threaten us, and they even wanted to make a deal with me...
+
+<img src="https://media.gettr.com/group38/getter/2022/07/19/01/868f1185-5c77-9414-5e8c-6f6a51c630f4/out.jpg" width="506" height="284">
 
 ---
 
@@ -53,14 +69,6 @@ For English：gettr.com/post/p1iv4vqece8
 
 
 <img src="https://media.gettr.com/group28/origin/2022/07/18/13/ca478565-f4bf-aba7-fe4c-d8c952825dd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 1:44 AM UTC  - :tv:直播](/content/gettr/p1ivdw22e12.md)
-
-7/18/2022 Miles Guo’s GETTR: After I said yesterday that I was going to expose the CCP military intelligence, the CCP carried out a series of actions to hack the Internet and threaten us, and they even wanted to make a deal with me...
-
-<img src="https://media.gettr.com/group38/getter/2022/07/19/01/868f1185-5c77-9414-5e8c-6f6a51c630f4/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,20 +195,6 @@ In response to the non-compliant assignment of trustee by the U.S. Department of
 7/17/2022 Miles Guo: Biden's visit to Saudi Arabia is to stop Saudi Arabia from helping the CCP confront the U.S. by using oil and Chinese yuan.  Both Venezuela and Saudi Arabia have asked the U.S. to lift the sanctions on their le...
 
 <img src="https://media.gettr.com/group32/getter/2022/07/18/06/194addd5-ae45-87c8-5826-d4edea855409/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1iqin2e257.md)
-
-(4K版) 《717军事爆料·第一篇》2022-07-17
-
-For English：gettr.com/post/p1iqk6lcffe
-
-
-
-#717大爆料 #绝密文件 #代号910 #代号空军一体化
-
-<img src="https://media.gettr.com/group32/origin/2022/07/18/05/05908552-a36a-8cdd-fef8-29fa470b3b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
