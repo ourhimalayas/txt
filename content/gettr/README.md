@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 7/19/2022 4:08 AM UTC ](/content/gettr/p1ivos1386f.md)
+
+😍😍😍😍😍
+
+---
+
 [@miles 7/19/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1iv8i2a209.md)
 
 7/17/2022 Miles Guo: In Communist China the COVID vaccines have become a tool to rule LaoBaixing. If you dare to disobey the government, you will be tested positive and detained; it will be even worse in the future when a bracelet ...
@@ -24,9 +30,11 @@ For English：gettr.com/post/p1iv4vqece8
 
 ---
 
-[@miles 7/19/2022 4:08 AM UTC ](/content/gettr/p1ivos1386f.md)
+[@miles 7/19/2022 10:15 AM UTC  - :tv:直播](/content/gettr/p1ivu5n1ee7.md)
 
-😍😍😍😍😍
+7/18/2022 Miles Guo’s GETTR: All the bunkers for the CCP leading cadres are hidden underneath schools and hospitals where people gather and are equipped with military-grade cement-built walls as thick as 1.8 meters. So, even if the...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/19/10/b65411c4-7577-c90f-fe28-f110cde83e7c/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,20 +189,6 @@ In response to the non-compliant assignment of trustee by the U.S. Department of
 7/17/2022 Miles Guo: Biden's visit to Saudi Arabia is to stop Saudi Arabia from helping the CCP confront the U.S. by using oil and Chinese yuan.  Both Venezuela and Saudi Arabia have asked the U.S. to lift the sanctions on their le...
 
 <img src="https://media.gettr.com/group32/getter/2022/07/18/06/194addd5-ae45-87c8-5826-d4edea855409/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1iqgc01775.md)
-
-(1080版) 《717军事爆料·第一篇》2022-07-17
-
-For English：gettr.com/post/p1iqk6lcffe
-
-
-
-#绝密文件 #代号910 #代号空军一体化
-
-<img src="https://media.gettr.com/group15/origin/2022/07/18/05/8bc7cf4d-06b0-ebb2-dcb0-cf88728571c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
