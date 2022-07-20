@@ -2,6 +2,14 @@
 ---
 
 
+[@wenbin 7/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j179z0ac9.md)
+
+2022.07.20 軍事大爆料之摧毁对台通信指挥中心910
+
+<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 9:02 AM UTC  - :tv:直播](/content/gettr/p1j0etlb99f.md)
 
 独家爆料：机密 司通〔2007〕86 号 
@@ -11,6 +19,26 @@
 呈报空军第一批支线光缆建设项目
 
 <img src="https://media.gettr.com/group10/getter/2022/07/20/08/8e489545-825a-3087-7715-f93e66dff39b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p1j1gwp9b4e.md)
+
+七哥乱聊直播
+
+<img src="https://media.gettr.com/group20/origin/2022/07/20/12/f681595f-4531-6ef7-d7cc-c41eb1a93772/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 9:06 AM UTC  - :tv:直播](/content/gettr/p1j0al36584.md)
+
+Exclusive：Secret  Command Communication [2007] No. 86 
+
+Submitting the First Batch of Branch Line Optical Cable Construction Project for the PLA Air Force(Request for Approval)
+
+Submitting the First Batch of Branch Line Optical Cab...
+
+<img src="https://media.gettr.com/group50/getter/2022/07/20/08/0dd76bbe-e980-9c88-a880-f16a9daacc1a/out.jpg" width="506" height="284">
 
 ---
 
@@ -34,18 +62,6 @@ PLA Air Force Command (Notice)
 Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and Command Control System Project Construction Plan
 
 <img src="https://media.gettr.com/group15/getter/2022/07/20/03/9fbb8ec4-1b12-6da7-dcd2-2d91ce012164/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 9:06 AM UTC  - :tv:直播](/content/gettr/p1j0al36584.md)
-
-Exclusive：Secret  Command Communication [2007] No. 86 
-
-Submitting the First Batch of Branch Line Optical Cable Construction Project for the PLA Air Force(Request for Approval)
-
-Submitting the First Batch of Branch Line Optical Cab...
-
-<img src="https://media.gettr.com/group50/getter/2022/07/20/08/0dd76bbe-e980-9c88-a880-f16a9daacc1a/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,24 +208,6 @@ Exclusive：PLA Air Force Command & PLA Air Force Logistics Department (Request 
 Submitting the Project Design Task Plan of Extending the Air Force Integrated Command Platform to the...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/19/14/dcb275dd-a2b6-60f2-1cae-f822804f019c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 2:29 PM UTC  - :tv:直播](/content/gettr/p1ixcte2b6f.md)
-
-独家爆料： 绝密计划— 中共解放军空军战场通讯设施建设
-
-<img src="https://media.gettr.com/group19/getter/2022/07/19/14/27838da6-ad2d-3634-a849-b0bf0b9430cd/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1iwshb9b58.md)
-
-独家爆料：中囯人民解放军空军司令部( 请示 ) 后勤部 司通[2007]120号
-
-呈报空军一体化指挥平台向参战部队延伸配套建设工程设计任务书
-
-<img src="https://media.gettr.com/group9/getter/2022/07/19/14/2872275a-840e-12eb-8b88-225aad807a3f/out.jpg" width="506" height="284">
 
 ---
 
