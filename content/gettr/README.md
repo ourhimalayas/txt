@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 7/20/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1j00ki4712.md)
+
+(1080版) 飞飞秀 《利益冲突·第十二篇》2022-07-19
+
+For English：gettr.com/post/p1j02q030c1
+
+
+
+#SUBPOENA #PAX #普衡 #破产案
+
+<img src="https://media.gettr.com/group21/origin/2022/07/20/01/d25d4c6a-7388-be31-bb44-4346a8e754ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1izbxqd306.md)
+
+(4K版) 飞飞秀 《利益冲突·第十二篇》2022-07-19
+
+For English：gettr.com/post/p1j02q030c1
+
+
+
+#SUBPOENA #PAX #普衡 #破产案
+
+<img src="https://media.gettr.com/group4/origin/2022/07/20/01/82856ed8-8d2c-823d-a4a1-76d9a401d101/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@globalalliance 7/19/2022 4:02 PM UTC  - :tv:直播](/content/gettr/p1ixush9abe.md)
+
+2022.07.19 特别节目《軍事大爆料》之 2707中共光通信项目
+
+<img src="https://media.gettr.com/group26/origin/2022/07/19/15/063e2430-3fa7-6b05-b9e6-2eff5714419b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/19/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1iz0na0990.md)
 
 7/19/2022 Miles Guo: What we have exposed about the CCP's military is just the tip of an iceberg. Just wait and see the documents and intel being exposed regarding the CCP's submarine troops and the Rocket Force, and you will burst...
@@ -24,11 +60,9 @@ For English：gettr.com/streaming/p1iz59307b6
 
 ---
 
-[@globalalliance 7/19/2022 4:02 PM UTC  - :tv:直播](/content/gettr/p1ixush9abe.md)
+[@miles 7/20/2022 1:39 AM UTC ](/content/gettr/p1izvveec60.md)
 
-2022.07.19 特别节目《軍事大爆料》之 2707中共光通信项目
-
-<img src="https://media.gettr.com/group26/origin/2022/07/19/15/063e2430-3fa7-6b05-b9e6-2eff5714419b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+7月19号：尊敬的战友们好，一定要看🪨❤️磐石农场大家庭❤️🪨的节目做得太棒了，明天上午7月20号星期三纽约时间上午9:007哥开始乱聊直播。https://gettr.com/post/p1iznrbb7a3
 
 ---
 
@@ -173,28 +207,6 @@ For English：gettr.com/post/p1iv4vqece8
 7/18/2022 Miles Guo’s GETTR: After I said yesterday that I was going to expose the CCP military intelligence, the CCP carried out a series of actions to hack the Internet and threaten us, and they even wanted to make a deal with me...
 
 <img src="https://media.gettr.com/group38/getter/2022/07/19/01/868f1185-5c77-9414-5e8c-6f6a51c630f4/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 11:05 PM UTC ](/content/gettr/p1iu0k5bb9e.md)
-
-飞飞，知性大气气场巨大镇得住场子．大根儿性情气场强大而且很有感染力和火来国际帅男酷酷的的小样．超技帅哥小铁．洋柯基 山姆的理性成熟，这简直是绝了。
-
----
-
-[@miles 7/18/2022 10:23 PM UTC  - :tv:直播](/content/gettr/p1iue6q8668.md)
-
-7/18/2022 Miles Guo’s GETTR: Does the disclosure of the CCP’s classified military intel have anything to do with the Chinese people? If so, what’s the relevance? If you understand the significance of those classified military docum...
-
-<img src="https://media.gettr.com/group33/getter/2022/07/18/22/2baf8900-4401-3c3c-ee53-f1f2cc9b625f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/18/2022 10:25 PM UTC  - :tv:直播](/content/gettr/p1iucsy536b.md)
-
-7/13/2022 Miles Guo: Communist China is facing the collapse of real estate and banking sectors inside, and delisting of China-concept stocks and the complete failure of the “One Belt, One Road” policy outside; each of the Seven Maj...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/18/22/077481a3-6a01-6d1d-e29b-f0a99882f30f/out.jpg" width="506" height="284">
 
 ---
 
