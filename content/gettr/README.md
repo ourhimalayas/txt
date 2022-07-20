@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 7/20/2022 4:00 AM UTC  - :tv:直播](/content/gettr/p1j06j7386d.md)
+
+Exclusive：[2005] Command Communication No.36  Secret
+
+PLA Air Force Command (Notice) 
+
+Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and Command Control System Project Construction Plan
+
+<img src="https://media.gettr.com/group15/getter/2022/07/20/03/9fbb8ec4-1b12-6da7-dcd2-2d91ce012164/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 3:50 AM UTC  - :tv:直播](/content/gettr/p1j03537eed.md)
+
+7/19/2022 Miles Guo: Fellow fighters, please spread the words about the revelations of the CCP military intelligence and the truths about the trustee of my bankruptcy case. All the U.S. DOJ officials and lawyers from various law fi...
+
+<img src="https://media.gettr.com/group26/getter/2022/07/20/03/f38f97e0-93a0-e6f5-ba48-04295920e70e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 3:31 AM UTC  - :tv:直播](/content/gettr/p1izp9ze62b.md)
 
 独家爆料：【2005】司通字第36号  机密 中囯人民解放军空军司令部
@@ -14,11 +34,17 @@
 
 ---
 
-[@miles 7/20/2022 3:50 AM UTC  - :tv:直播](/content/gettr/p1j03537eed.md)
+[@miles 7/20/2022 4:13 AM UTC  - :tv:直播](/content/gettr/p1izy597423.md)
 
-7/19/2022 Miles Guo: Fellow fighters, please spread the words about the revelations of the CCP military intelligence and the truths about the trustee of my bankruptcy case. All the U.S. DOJ officials and lawyers from various law fi...
+7/17/2022 Miles Guo: If we don’t expose the CCP’s deep infiltration in the US judicial system, nobody will be safe in the US!
 
-<img src="https://media.gettr.com/group26/getter/2022/07/20/03/f38f97e0-93a0-e6f5-ba48-04295920e70e/out.jpg" width="506" height="284">
+
+
+7/17/2022文贵直播：如果不揭露出中共在美国司法系统的渗透之深，没有一个人在美国是安全的！
+
+
+
+<img src="https://media.gettr.com/group40/getter/2022/07/20/04/bd3a72c6-7369-8398-9986-c3bdceddd14b/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,20 +211,6 @@ MILES GUO 直播 2022-07-19
 7/18/2022 Miles Guo’s GETTR: All the bunkers for the CCP leading cadres are hidden underneath schools and hospitals where people gather and are equipped with military-grade cement-built walls as thick as 1.8 meters. So, even if the...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/19/10/b65411c4-7577-c90f-fe28-f110cde83e7c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 4:08 AM UTC ](/content/gettr/p1ivos1386f.md)
-
-😍😍😍😍😍
-
----
-
-[@miles 7/19/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1iv8i2a209.md)
-
-7/17/2022 Miles Guo: In Communist China the COVID vaccines have become a tool to rule LaoBaixing. If you dare to disobey the government, you will be tested positive and detained; it will be even worse in the future when a bracelet ...
-
-<img src="https://media.gettr.com/group45/getter/2022/07/19/01/6642ced3-e9c3-9e9f-bf8a-26b22a75a886/out.jpg" width="506" height="284">
 
 ---
 
