@@ -2,6 +2,29 @@
 ---
 
 
+[@miles 7/20/2022 9:02 AM UTC  - :tv:直播](/content/gettr/p1j0etlb99f.md)
+
+独家爆料：机密 司通〔2007〕86 号 
+
+中国人民解放军空军司令部(请示) 
+
+呈报空军第一批支线光缆建设项目
+
+<img src="https://media.gettr.com/group10/getter/2022/07/20/08/8e489545-825a-3087-7715-f93e66dff39b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 5:45 AM UTC  - :tv:直播](/content/gettr/p1j050lf0df.md)
+
+7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG; If Luc Despins is not removed as the trustee, the US judiciary will enter into darkness!
+
+
+...
+
+<img src="https://media.gettr.com/group42/getter/2022/07/20/05/4916c744-0752-1cdb-ad43-b6351b636482/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 4:00 AM UTC  - :tv:直播](/content/gettr/p1j06j7386d.md)
 
 Exclusive：[2005] Command Communication No.36  Secret
@@ -14,14 +37,15 @@ Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and
 
 ---
 
-[@miles 7/20/2022 5:45 AM UTC  - :tv:直播](/content/gettr/p1j050lf0df.md)
+[@miles 7/20/2022 9:06 AM UTC  - :tv:直播](/content/gettr/p1j0al36584.md)
 
-7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG; If Luc Despins is not removed as the trustee, the US judiciary will enter into darkness!
+Exclusive：Secret  Command Communication [2007] No. 86 
 
+Submitting the First Batch of Branch Line Optical Cable Construction Project for the PLA Air Force(Request for Approval)
 
-...
+Submitting the First Batch of Branch Line Optical Cab...
 
-<img src="https://media.gettr.com/group42/getter/2022/07/20/05/4916c744-0752-1cdb-ad43-b6351b636482/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/07/20/08/0dd76bbe-e980-9c88-a880-f16a9daacc1a/out.jpg" width="506" height="284">
 
 ---
 
@@ -186,34 +210,6 @@ Submitting the Project Design Task Plan of Extending the Air Force Integrated Co
 呈报空军一体化指挥平台向参战部队延伸配套建设工程设计任务书
 
 <img src="https://media.gettr.com/group9/getter/2022/07/19/14/2872275a-840e-12eb-8b88-225aad807a3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 1:56 PM UTC  - :tv:直播](/content/gettr/p1iww0p4d32.md)
-
-独家爆料： CCP绝密军事情报
-
-纽约时间每天下午6点
-
-
-
-Exclusive Whistleblowing of CCP’s Classified Military Intelligence 
-
-Daily AT 6:00PM New York Time
-
-<img src="https://media.gettr.com/group47/getter/2022/07/19/13/ae18bc76-a829-e1bc-41a5-e68b9a46c406/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 1:58 PM UTC  - :tv:直播](/content/gettr/p1ix065f9ec.md)
-
-MILES GUO 直播 2022-07-19
-
-
-
-七哥乱聊直播❤️❤️❤️❤️❤️💪💪💪💪💪
-
-<img src="https://media.gettr.com/group46/getter/2022/07/19/13/0d5ae137-6553-9d1d-1eef-c704da7c5e19/97fef5040dea10af8ffc9ab0145f6a87.jpg" width="506" height="284">
 
 ---
 
