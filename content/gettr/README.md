@@ -16,11 +16,11 @@ For English：gettr.com/streaming/p1j3nuk4237
 
 ---
 
-[@wenbin 7/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j179z0ac9.md)
+[@miles 7/20/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1j3eb72d70.md)
 
-2022.07.20 軍事大爆料之摧毁对台通信指挥中心910
+7/20/2022 Miles Guo: The Chinese Communist Party has already built countless war-time military facilities in the busiest places in Hong Kong and major waterways among others. As such, the entire Hong Kong and Hongkongers are held h...
 
-<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/07/20/22/704e2ed9-192d-2194-3a96-a598006a4979/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,6 +35,14 @@ For English：gettr.com/streaming/p1j3nuk4237
 #绝密文件 #项目2705 #宝华山
 
 <img src="https://media.gettr.com/group3/origin/2022/07/20/22/9e391e7f-d405-c363-faf6-465398b58bac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@wenbin 7/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j179z0ac9.md)
+
+2022.07.20 軍事大爆料之摧毁对台通信指挥中心910
+
+<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -210,14 +218,6 @@ For English：gettr.com/streaming/p1iz59307b6
 #绝密文件 #空军550 #地下指挥所
 
 <img src="https://media.gettr.com/group40/origin/2022/07/19/21/32def10f-cd15-ea5c-deba-31f25da82df1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 9:23 PM UTC  - :tv:直播](/content/gettr/p1iygwc877e.md)
-
-7/19/2022 Miles Guo: We will make the Chinese Communist Party run naked in front of the entire world; who built nuclear-defense facilities and placed missiles underneath kindergartens, schools and senior homes? The key takeaway of ...
-
-<img src="https://media.gettr.com/group10/getter/2022/07/19/21/3a8f3138-61a3-a727-b33b-bba65125c9fb/out.jpg" width="506" height="284">
 
 ---
 
