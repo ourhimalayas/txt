@@ -14,6 +14,31 @@ Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and
 
 ---
 
+[@miles 7/20/2022 5:45 AM UTC  - :tv:直播](/content/gettr/p1j050lf0df.md)
+
+7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG; If Luc Despins is not removed as the trustee, the US judiciary will enter into darkness!
+
+
+...
+
+<img src="https://media.gettr.com/group42/getter/2022/07/20/05/4916c744-0752-1cdb-ad43-b6351b636482/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 4:13 AM UTC  - :tv:直播](/content/gettr/p1izy597423.md)
+
+7/17/2022 Miles Guo: If we don’t expose the CCP’s deep infiltration in the US judicial system, nobody will be safe in the US!
+
+
+
+7/17/2022文贵直播：如果不揭露出中共在美国司法系统的渗透之深，没有一个人在美国是安全的！
+
+
+
+<img src="https://media.gettr.com/group40/getter/2022/07/20/04/bd3a72c6-7369-8398-9986-c3bdceddd14b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 3:50 AM UTC  - :tv:直播](/content/gettr/p1j03537eed.md)
 
 7/19/2022 Miles Guo: Fellow fighters, please spread the words about the revelations of the CCP military intelligence and the truths about the trustee of my bankruptcy case. All the U.S. DOJ officials and lawyers from various law fi...
@@ -31,20 +56,6 @@ Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and
 下达空军550等六个地下指挥所通信和指挥控制系统工程建设计划
 
 <img src="https://media.gettr.com/group42/getter/2022/07/20/03/0153cb28-5b73-618b-4e0b-ba9500f91510/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 4:13 AM UTC  - :tv:直播](/content/gettr/p1izy597423.md)
-
-7/17/2022 Miles Guo: If we don’t expose the CCP’s deep infiltration in the US judicial system, nobody will be safe in the US!
-
-
-
-7/17/2022文贵直播：如果不揭露出中共在美国司法系统的渗透之深，没有一个人在美国是安全的！
-
-
-
-<img src="https://media.gettr.com/group40/getter/2022/07/20/04/bd3a72c6-7369-8398-9986-c3bdceddd14b/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +214,6 @@ MILES GUO 直播 2022-07-19
 七哥乱聊直播❤️❤️❤️❤️❤️💪💪💪💪💪
 
 <img src="https://media.gettr.com/group46/getter/2022/07/19/13/0d5ae137-6553-9d1d-1eef-c704da7c5e19/97fef5040dea10af8ffc9ab0145f6a87.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 10:15 AM UTC  - :tv:直播](/content/gettr/p1ivu5n1ee7.md)
-
-7/18/2022 Miles Guo’s GETTR: All the bunkers for the CCP leading cadres are hidden underneath schools and hospitals where people gather and are equipped with military-grade cement-built walls as thick as 1.8 meters. So, even if the...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/19/10/b65411c4-7577-c90f-fe28-f110cde83e7c/out.jpg" width="506" height="284">
 
 ---
 
