@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/20/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1j460z57d5.md)
+
+7/20/2022 Miles Guo: Putin got Xi Jinping's approval before he met with Khamenei! It was the CCP who set up the so-called BRICS and the axis of five evil countries; the ultimate goal of the "One Belt One Road" scheme, the internati...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/20/22/acdb978f-8683-5727-c81b-acc756f3eb3a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1j3eb72d70.md)
 
 7/20/2022 Miles Guo: The Chinese Communist Party has already built countless war-time military facilities in the busiest places in Hong Kong and major waterways among others. As such, the entire Hong Kong and Hongkongers are held h...
@@ -24,11 +32,11 @@ For English：gettr.com/streaming/p1j3nuk4237
 
 ---
 
-[@miles 7/20/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1j460z57d5.md)
+[@miles 7/20/2022 11:26 PM UTC  - :tv:直播](/content/gettr/p1j46440538.md)
 
-7/20/2022 Miles Guo: Putin got Xi Jinping's approval before he met with Khamenei! It was the CCP who set up the so-called BRICS and the axis of five evil countries; the ultimate goal of the "One Belt One Road" scheme, the internati...
+7/20/2022 Miles Guo: Where did the intelligence about the CCP Navy come from? The widow of a CCP Navy submarine commander, who died from COVID vaccination, was raped by a CCP cadre. Later, she contacted me and provided all the info...
 
-<img src="https://media.gettr.com/group43/getter/2022/07/20/22/acdb978f-8683-5727-c81b-acc756f3eb3a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/getter/2022/07/20/23/b2e22f83-9420-0a33-9f2a-66081f52eb08/out.jpg" width="506" height="284">
 
 ---
 
@@ -198,20 +206,6 @@ For English：gettr.com/post/p1j02q030c1
 7/19/2022 Miles Guo: What we have exposed about the CCP's military is just the tip of an iceberg. Just wait and see the documents and intel being exposed regarding the CCP's submarine troops and the Rocket Force, and you will burst...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/19/22/7109f3fc-74ac-3c6e-d339-00647e16066b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1iyu0l5f0a.md)
-
-(1080版) 七月十九日《军事大爆料》2022-07-19
-
-For English：gettr.com/streaming/p1iz59307b6
-
-
-
-#绝密文件 #空军550 #地下指挥所
-
-<img src="https://media.gettr.com/group40/origin/2022/07/19/21/32def10f-cd15-ea5c-deba-31f25da82df1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
