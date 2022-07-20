@@ -14,15 +14,19 @@
 
 ---
 
-[@miles 7/20/2022 3:37 AM UTC  - :tv:直播](/content/gettr/p1j06rm9969.md)
+[@miles 7/20/2022 3:50 AM UTC  - :tv:直播](/content/gettr/p1j03537eed.md)
 
-Exclusive：[2005] Command Communication No.36  Secret 
+7/19/2022 Miles Guo: Fellow fighters, please spread the words about the revelations of the CCP military intelligence and the truths about the trustee of my bankruptcy case. All the U.S. DOJ officials and lawyers from various law fi...
 
-PLA Air Force Command (Notice) 
+<img src="https://media.gettr.com/group26/getter/2022/07/20/03/f38f97e0-93a0-e6f5-ba48-04295920e70e/out.jpg" width="506" height="284">
 
-Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and Command Control System Project Construction Plan
+---
 
-<img src="https://media.gettr.com/group5/getter/2022/07/20/03/2d5843b4-bee5-6acd-dde8-0d81613dbbfe/out.jpg" width="506" height="284">
+[@miles 7/20/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1j0ke1cdae.md)
+
+7/19/2022 Miles Guo: No matter whether the schedule changes, Nancy Pelosi is bound to visit Taiwan; Mr. Pompeo, a staunchly anti-communist, will run for U.S. president in 2024; the greatest asset of the NFSC citizens is that we did...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/20/03/5234a9e0-a473-6707-7869-7085699ac485/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,14 +41,6 @@ For English：gettr.com/post/p1j02q030c1
 #SUBPOENA #PAX #普衡 #破产案
 
 <img src="https://media.gettr.com/group21/origin/2022/07/20/01/d25d4c6a-7388-be31-bb44-4346a8e754ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1j0ke1cdae.md)
-
-7/19/2022 Miles Guo: No matter whether the schedule changes, Nancy Pelosi is bound to visit Taiwan; Mr. Pompeo, a staunchly anti-communist, will run for U.S. president in 2024; the greatest asset of the NFSC citizens is that we did...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/20/03/5234a9e0-a473-6707-7869-7085699ac485/out.jpg" width="506" height="284">
 
 ---
 
