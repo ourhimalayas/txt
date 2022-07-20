@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 7/20/2022 3:31 AM UTC  - :tv:直播](/content/gettr/p1izp9ze62b.md)
+
+独家爆料：【2005】司通字第36号  机密 中囯人民解放军空军司令部
+
+(通知 )  
+
+下达空军550等六个地下指挥所通信和指挥控制系统工程建设计划
+
+<img src="https://media.gettr.com/group42/getter/2022/07/20/03/0153cb28-5b73-618b-4e0b-ba9500f91510/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 3:37 AM UTC  - :tv:直播](/content/gettr/p1j06rm9969.md)
+
+Exclusive：[2005] Command Communication No.36  Secret 
+
+PLA Air Force Command (Notice) 
+
+Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and Command Control System Project Construction Plan
+
+<img src="https://media.gettr.com/group5/getter/2022/07/20/03/2d5843b4-bee5-6acd-dde8-0d81613dbbfe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1j00ki4712.md)
 
 (1080版) 飞飞秀 《利益冲突·第十二篇》2022-07-19
@@ -16,6 +40,14 @@ For English：gettr.com/post/p1j02q030c1
 
 ---
 
+[@miles 7/20/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1j0ke1cdae.md)
+
+7/19/2022 Miles Guo: No matter whether the schedule changes, Nancy Pelosi is bound to visit Taiwan; Mr. Pompeo, a staunchly anti-communist, will run for U.S. president in 2024; the greatest asset of the NFSC citizens is that we did...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/20/03/5234a9e0-a473-6707-7869-7085699ac485/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1izbxqd306.md)
 
 (4K版) 飞飞秀 《利益冲突·第十二篇》2022-07-19
@@ -27,6 +59,12 @@ For English：gettr.com/post/p1j02q030c1
 #SUBPOENA #PAX #普衡 #破产案
 
 <img src="https://media.gettr.com/group4/origin/2022/07/20/01/82856ed8-8d2c-823d-a4a1-76d9a401d101/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 1:39 AM UTC ](/content/gettr/p1izvveec60.md)
+
+7月19号：尊敬的战友们好，一定要看🪨❤️磐石农场大家庭❤️🪨的节目做得太棒了，明天上午7月20号星期三纽约时间上午9:007哥开始乱聊直播。https://gettr.com/post/p1iznrbb7a3
 
 ---
 
@@ -57,12 +95,6 @@ For English：gettr.com/streaming/p1iz59307b6
 #绝密文件 #空军550 #地下指挥所
 
 <img src="https://media.gettr.com/group5/origin/2022/07/19/21/09053a95-8299-d572-0cc4-a544a9cbfcd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 1:39 AM UTC ](/content/gettr/p1izvveec60.md)
-
-7月19号：尊敬的战友们好，一定要看🪨❤️磐石农场大家庭❤️🪨的节目做得太棒了，明天上午7月20号星期三纽约时间上午9:007哥开始乱聊直播。https://gettr.com/post/p1iznrbb7a3
 
 ---
 
@@ -171,42 +203,6 @@ MILES GUO 直播 2022-07-19
 7/17/2022 Miles Guo: In Communist China the COVID vaccines have become a tool to rule LaoBaixing. If you dare to disobey the government, you will be tested positive and detained; it will be even worse in the future when a bracelet ...
 
 <img src="https://media.gettr.com/group45/getter/2022/07/19/01/6642ced3-e9c3-9e9f-bf8a-26b22a75a886/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1iun66545f.md)
-
-(1080版) 飞飞秀 《第十一篇·Pras Michel》2022-07-18
-
-For English：gettr.com/post/p1iv4vqece8
-
-
-
-#PrasMichel #JHOLOW
-
-<img src="https://media.gettr.com/group47/origin/2022/07/19/01/1ad021e7-e243-4110-6475-8b3dcc37461a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 1:43 AM UTC  - :tv:直播](/content/gettr/p1iv1py4ff8.md)
-
-(4K版) 飞飞秀 《第十一篇·Pras Michel》2022-07-18
-
-For English：gettr.com/post/p1iv4vqece8
-
-
-
-#PrasMichel #JHOLOW
-
-<img src="https://media.gettr.com/group16/origin/2022/07/19/01/429c9b34-bcc0-3de7-ccde-f19184ac386f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 1:44 AM UTC  - :tv:直播](/content/gettr/p1ivdw22e12.md)
-
-7/18/2022 Miles Guo’s GETTR: After I said yesterday that I was going to expose the CCP military intelligence, the CCP carried out a series of actions to hack the Internet and threaten us, and they even wanted to make a deal with me...
-
-<img src="https://media.gettr.com/group38/getter/2022/07/19/01/868f1185-5c77-9414-5e8c-6f6a51c630f4/out.jpg" width="506" height="284">
 
 ---
 
