@@ -2,11 +2,47 @@
 ---
 
 
+[@miles 7/20/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j3qxk2c09.md)
+
+(4K版) 七月二十日《军事大爆料》2022-07-20
+
+For English：gettr.com/streaming/p1j3nuk4237
+
+
+
+#绝密文件 #项目2705 #宝华山
+
+<img src="https://media.gettr.com/group7/origin/2022/07/20/22/957509a9-3852-6389-89d3-008776922dbd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@wenbin 7/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j179z0ac9.md)
 
 2022.07.20 軍事大爆料之摧毁对台通信指挥中心910
 
 <img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j3dlpe9b0.md)
+
+(1080版) 七月二十日《军事大爆料》2022-07-20
+
+For English：gettr.com/streaming/p1j3nuk4237
+
+
+
+#绝密文件 #项目2705 #宝华山
+
+<img src="https://media.gettr.com/group3/origin/2022/07/20/22/9e391e7f-d405-c363-faf6-465398b58bac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/20/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p1j1gwp9b4e.md)
+
+七哥乱聊直播
+
+<img src="https://media.gettr.com/group20/origin/2022/07/20/12/f681595f-4531-6ef7-d7cc-c41eb1a93772/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -19,14 +55,6 @@
 呈报空军第一批支线光缆建设项目
 
 <img src="https://media.gettr.com/group10/getter/2022/07/20/08/8e489545-825a-3087-7715-f93e66dff39b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p1j1gwp9b4e.md)
-
-七哥乱聊直播
-
-<img src="https://media.gettr.com/group20/origin/2022/07/20/12/f681595f-4531-6ef7-d7cc-c41eb1a93772/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -190,24 +218,6 @@ For English：gettr.com/streaming/p1iz59307b6
 7/19/2022 Miles Guo: We will make the Chinese Communist Party run naked in front of the entire world; who built nuclear-defense facilities and placed missiles underneath kindergartens, schools and senior homes? The key takeaway of ...
 
 <img src="https://media.gettr.com/group10/getter/2022/07/19/21/3a8f3138-61a3-a727-b33b-bba65125c9fb/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 7/19/2022 2:12 PM UTC  - :tv:直播](/content/gettr/p1iwqkb8a15.md)
-
-2022.07.19 《回響》军事特别节目 东亚格局变换 军事机密大爆料 (通信篇)
-
-<img src="https://media.gettr.com/group36/origin/2022/07/19/14/38205d06-6c6e-008a-95f0-a3aaec607e4b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/19/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p1ix61k73e8.md)
-
-Exclusive：PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval) Command Communication [2007] No. 120
-
-Submitting the Project Design Task Plan of Extending the Air Force Integrated Command Platform to the...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/19/14/dcb275dd-a2b6-60f2-1cae-f822804f019c/out.jpg" width="506" height="284">
 
 ---
 
