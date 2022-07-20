@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/20/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1j3eb72d70.md)
+
+7/20/2022 Miles Guo: The Chinese Communist Party has already built countless war-time military facilities in the busiest places in Hong Kong and major waterways among others. As such, the entire Hong Kong and Hongkongers are held h...
+
+<img src="https://media.gettr.com/group15/getter/2022/07/20/22/704e2ed9-192d-2194-3a96-a598006a4979/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j3qxk2c09.md)
 
 (4K版) 七月二十日《军事大爆料》2022-07-20
@@ -16,11 +24,11 @@ For English：gettr.com/streaming/p1j3nuk4237
 
 ---
 
-[@miles 7/20/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1j3eb72d70.md)
+[@miles 7/20/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1j460z57d5.md)
 
-7/20/2022 Miles Guo: The Chinese Communist Party has already built countless war-time military facilities in the busiest places in Hong Kong and major waterways among others. As such, the entire Hong Kong and Hongkongers are held h...
+7/20/2022 Miles Guo: Putin got Xi Jinping's approval before he met with Khamenei! It was the CCP who set up the so-called BRICS and the axis of five evil countries; the ultimate goal of the "One Belt One Road" scheme, the internati...
 
-<img src="https://media.gettr.com/group15/getter/2022/07/20/22/704e2ed9-192d-2194-3a96-a598006a4979/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/07/20/22/acdb978f-8683-5727-c81b-acc756f3eb3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -190,20 +198,6 @@ For English：gettr.com/post/p1j02q030c1
 7/19/2022 Miles Guo: What we have exposed about the CCP's military is just the tip of an iceberg. Just wait and see the documents and intel being exposed regarding the CCP's submarine troops and the Rocket Force, and you will burst...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/19/22/7109f3fc-74ac-3c6e-d339-00647e16066b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1iyox8fc0c.md)
-
-(4K版) 七月十九日《军事大爆料》2022-07-19
-
-For English：gettr.com/streaming/p1iz59307b6
-
-
-
-#绝密文件 #空军550 #地下指挥所
-
-<img src="https://media.gettr.com/group5/origin/2022/07/19/21/09053a95-8299-d572-0cc4-a544a9cbfcd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
