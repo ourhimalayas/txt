@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/21/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p1j5a63a1c6.md)
+
+7/20/2022 Miles Guo: The evil Chinese Communist Party has already built countless war-time military facilities in the busiest places and civilian facilities in Hong Kong and Shenzhen. As such, all the people of Hong Kong and Shenzh...
+
+<img src="https://media.gettr.com/group44/getter/2022/07/21/07/3c11b706-8d3a-9bed-97a3-2f44d50d5c80/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p1j4qx60c78.md)
 
 7/20/2022 Miles Guo: The CCP's nuclear command centers located at Mountain Yuquanshan and Fenghuangling Park in Beijing. NATO's military expert concluded that the damage that CCP took is close to infinity. It's impossible for the C...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/21/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p1j5a63a1c6.md)
+[@miles 7/21/2022 1:47 PM UTC  - :tv:直播](/content/gettr/p1j6al95d13.md)
 
-7/20/2022 Miles Guo: The evil Chinese Communist Party has already built countless war-time military facilities in the busiest places and civilian facilities in Hong Kong and Shenzhen. As such, all the people of Hong Kong and Shenzh...
+2022.07.21 【战都吾悦华府，才关一天，直接34层跳楼】邪恶的中国共产党必须要消灭……必须被消灭。
 
-<img src="https://media.gettr.com/group44/getter/2022/07/21/07/3c11b706-8d3a-9bed-97a3-2f44d50d5c80/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/07/21/13/d16ea51d-f755-5874-81b3-f39fd6abc912/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,17 +203,6 @@ Submitting the First Batch of Branch Line Optical Cable Construction Project for
 Submitting the First Batch of Branch Line Optical Cab...
 
 <img src="https://media.gettr.com/group50/getter/2022/07/20/08/0dd76bbe-e980-9c88-a880-f16a9daacc1a/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 5:45 AM UTC  - :tv:直播](/content/gettr/p1j050lf0df.md)
-
-7/17/2022 Miles Guo: There are many high-ranking officials who retired from the DOJ with all sorts of political ties to the CCP in the PAG; If Luc Despins is not removed as the trustee, the US judiciary will enter into darkness!
-
-
-...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/20/05/4916c744-0752-1cdb-ad43-b6351b636482/out.jpg" width="506" height="284">
 
 ---
 
