@@ -16,6 +16,28 @@ For English：gettr.com/post/p1j4ip1b910
 
 ---
 
+[@miles 7/21/2022 4:54 AM UTC  - :tv:直播](/content/gettr/p1j57gmbc47.md)
+
+7/20/2022 Miles Guo: The slight bounce-back of the real estate market in Shanghai post the lifting of lockdowns is absolutely manipulated by the CCP, and this is probably the last chance to sell your real estate properties! Through...
+
+<img src="https://media.gettr.com/group13/getter/2022/07/21/04/d0369ef7-97f1-180f-97e3-5cb8b68e97f9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/21/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1j4b88b7c6.md)
+
+(4K版) 飞飞秀 《利益冲突·第十三篇》2022-07-20
+
+For English：gettr.com/post/p1j4ip1b910
+
+
+
+#LUC #PAX #普衡 #破产案
+
+<img src="https://media.gettr.com/group23/origin/2022/07/21/01/04f77750-0bb2-e271-bd67-4db1fcd02f77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 12:02 AM UTC ](/content/gettr/p1j42458fcd.md)
 
 《战》
@@ -41,20 +63,6 @@ For English：gettr.com/post/p1j4ip1b910
 #青藤
 
 #Nick
-
----
-
-[@miles 7/21/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1j4b88b7c6.md)
-
-(4K版) 飞飞秀 《利益冲突·第十三篇》2022-07-20
-
-For English：gettr.com/post/p1j4ip1b910
-
-
-
-#LUC #PAX #普衡 #破产案
-
-<img src="https://media.gettr.com/group23/origin/2022/07/21/01/04f77750-0bb2-e271-bd67-4db1fcd02f77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -200,18 +208,6 @@ Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and
 7/19/2022 Miles Guo: Fellow fighters, please spread the words about the revelations of the CCP military intelligence and the truths about the trustee of my bankruptcy case. All the U.S. DOJ officials and lawyers from various law fi...
 
 <img src="https://media.gettr.com/group26/getter/2022/07/20/03/f38f97e0-93a0-e6f5-ba48-04295920e70e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 3:31 AM UTC  - :tv:直播](/content/gettr/p1izp9ze62b.md)
-
-独家爆料：【2005】司通字第36号  机密 中囯人民解放军空军司令部
-
-(通知 )  
-
-下达空军550等六个地下指挥所通信和指挥控制系统工程建设计划
-
-<img src="https://media.gettr.com/group42/getter/2022/07/20/03/0153cb28-5b73-618b-4e0b-ba9500f91510/out.jpg" width="506" height="284">
 
 ---
 
