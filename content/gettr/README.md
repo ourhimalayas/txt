@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/21/2022 1:47 PM UTC  - :tv:直播](/content/gettr/p1j6al95d13.md)
+
+2022.07.21 【战都吾悦华府，才关一天，直接34层跳楼】邪恶的中国共产党必须要消灭……必须被消灭。
+
+<img src="https://media.gettr.com/group32/getter/2022/07/21/13/d16ea51d-f755-5874-81b3-f39fd6abc912/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p1j5a63a1c6.md)
 
 7/20/2022 Miles Guo: The evil Chinese Communist Party has already built countless war-time military facilities in the busiest places and civilian facilities in Hong Kong and Shenzhen. As such, all the people of Hong Kong and Shenzh...
@@ -18,11 +26,19 @@
 
 ---
 
-[@miles 7/21/2022 1:47 PM UTC  - :tv:直播](/content/gettr/p1j6al95d13.md)
+[@miles 7/21/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1j6bolb263.md)
 
-2022.07.21 【战都吾悦华府，才关一天，直接34层跳楼】邪恶的中国共产党必须要消灭……必须被消灭。
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022:
 
-<img src="https://media.gettr.com/group32/getter/2022/07/21/13/d16ea51d-f755-5874-81b3-f39fd6abc912/out.jpg" width="506" height="284">
+ I. FACTUAL AND PROCEDURAL BACKGROUND
+
+A. The Appointment of the Chapter 11 Trustee (I)
+
+
+
+2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A ...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/21/14/aaa85aed-032d-0709-ade8-7ba43b300680/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,18 +195,6 @@ For English：gettr.com/streaming/p1j3nuk4237
 七哥乱聊直播
 
 <img src="https://media.gettr.com/group20/origin/2022/07/20/12/f681595f-4531-6ef7-d7cc-c41eb1a93772/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 9:02 AM UTC  - :tv:直播](/content/gettr/p1j0etlb99f.md)
-
-独家爆料：机密 司通〔2007〕86 号 
-
-中国人民解放军空军司令部(请示) 
-
-呈报空军第一批支线光缆建设项目
-
-<img src="https://media.gettr.com/group10/getter/2022/07/20/08/8e489545-825a-3087-7715-f93e66dff39b/out.jpg" width="506" height="284">
 
 ---
 
