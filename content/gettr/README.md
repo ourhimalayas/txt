@@ -2,11 +2,17 @@
 ---
 
 
-[@wenbin 7/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j179z0ac9.md)
+[@miles 7/21/2022 3:26 PM UTC  - :tv:直播](/content/gettr/p1j6py6e12f.md)
 
-2022.07.20 軍事大爆料之摧毁对台通信指挥中心910
+独家爆料：司通〔2007〕86 号 机密
 
-<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+中国人民解放军空军司令部(请示) 
+
+呈报空军第一批支线光缆建设项目
+
+附件2：空军第一批支线光缆建设项目
+
+<img src="https://media.gettr.com/group44/getter/2022/07/21/15/60e15bf6-b732-e589-56c1-e284e72c13bc/out.jpg" width="506" height="284">
 
 ---
 
