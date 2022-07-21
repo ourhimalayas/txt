@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 7/21/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p1j4qx60c78.md)
+
+7/20/2022 Miles Guo: The CCP's nuclear command centers located at Mountain Yuquanshan and Fenghuangling Park in Beijing. NATO's military expert concluded that the damage that CCP took is close to infinity. It's impossible for the C...
+
+<img src="https://media.gettr.com/group25/getter/2022/07/21/06/5e1375c4-40c7-b065-0c97-d4a4acd59b7d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/21/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p1j5dn17d60.md)
+
+7/20/2022 Miles Guo: The U.S. intelligence agency admitted that they not only have obtained the CCP's military intelligence as exposed by our fellow fighter, but also that most of the military personnel on the list are already coop...
+
+<img src="https://media.gettr.com/group40/getter/2022/07/21/06/0333756c-7c36-dd22-75fa-1bc47d62ad3b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/21/2022 4:54 AM UTC  - :tv:直播](/content/gettr/p1j57gmbc47.md)
+
+7/20/2022 Miles Guo: The slight bounce-back of the real estate market in Shanghai post the lifting of lockdowns is absolutely manipulated by the CCP, and this is probably the last chance to sell your real estate properties! Through...
+
+<img src="https://media.gettr.com/group13/getter/2022/07/21/04/d0369ef7-97f1-180f-97e3-5cb8b68e97f9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1j4kb9dc7c.md)
 
 (1080版) 飞飞秀 《利益冲突·第十三篇》2022-07-20
@@ -16,11 +40,11 @@ For English：gettr.com/post/p1j4ip1b910
 
 ---
 
-[@miles 7/21/2022 4:54 AM UTC  - :tv:直播](/content/gettr/p1j57gmbc47.md)
+[@miles 7/21/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1j57ei1b36.md)
 
-7/20/2022 Miles Guo: The slight bounce-back of the real estate market in Shanghai post the lifting of lockdowns is absolutely manipulated by the CCP, and this is probably the last chance to sell your real estate properties! Through...
+7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public, which meanwhile was also conveyed to Taiwanese military officials. Such information would greatly r...
 
-<img src="https://media.gettr.com/group13/getter/2022/07/21/04/d0369ef7-97f1-180f-97e3-5cb8b68e97f9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/07/21/06/5a0a45e1-cf92-e319-a3b3-cbaaab43eb07/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,18 +201,6 @@ Submitting the First Batch of Branch Line Optical Cab...
 
 ---
 
-[@miles 7/20/2022 4:00 AM UTC  - :tv:直播](/content/gettr/p1j06j7386d.md)
-
-Exclusive：[2005] Command Communication No.36  Secret
-
-PLA Air Force Command (Notice) 
-
-Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and Command Control System Project Construction Plan
-
-<img src="https://media.gettr.com/group15/getter/2022/07/20/03/9fbb8ec4-1b12-6da7-dcd2-2d91ce012164/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/20/2022 4:13 AM UTC  - :tv:直播](/content/gettr/p1izy597423.md)
 
 7/17/2022 Miles Guo: If we don’t expose the CCP’s deep infiltration in the US judicial system, nobody will be safe in the US!
@@ -200,22 +212,6 @@ Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and
 
 
 <img src="https://media.gettr.com/group40/getter/2022/07/20/04/bd3a72c6-7369-8398-9986-c3bdceddd14b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 3:50 AM UTC  - :tv:直播](/content/gettr/p1j03537eed.md)
-
-7/19/2022 Miles Guo: Fellow fighters, please spread the words about the revelations of the CCP military intelligence and the truths about the trustee of my bankruptcy case. All the U.S. DOJ officials and lawyers from various law fi...
-
-<img src="https://media.gettr.com/group26/getter/2022/07/20/03/f38f97e0-93a0-e6f5-ba48-04295920e70e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 3:44 AM UTC  - :tv:直播](/content/gettr/p1j0ke1cdae.md)
-
-7/19/2022 Miles Guo: No matter whether the schedule changes, Nancy Pelosi is bound to visit Taiwan; Mr. Pompeo, a staunchly anti-communist, will run for U.S. president in 2024; the greatest asset of the NFSC citizens is that we did...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/20/03/5234a9e0-a473-6707-7869-7085699ac485/out.jpg" width="506" height="284">
 
 ---
 
