@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 7/21/2022 12:02 AM UTC ](/content/gettr/p1j42458fcd.md)
+
+《战》
+
+第一季 《空军机密文件解析》
+
+2⃣️八份文件的内在关联及司通【2007】86号解读
+
+#磐石农场
+
+威廉王 青藤 
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+#青藤
+
+#Nick
+
+---
+
+[@miles 7/20/2022 11:26 PM UTC  - :tv:直播](/content/gettr/p1j46440538.md)
+
+7/20/2022 Miles Guo: Where did the intelligence about the CCP Navy come from? The widow of a CCP Navy submarine commander, who died from COVID vaccination, was raped by a CCP cadre. Later, she contacted me and provided all the info...
+
+<img src="https://media.gettr.com/group20/getter/2022/07/20/23/b2e22f83-9420-0a33-9f2a-66081f52eb08/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1j460z57d5.md)
 
 7/20/2022 Miles Guo: Putin got Xi Jinping's approval before he met with Khamenei! It was the CCP who set up the so-called BRICS and the axis of five evil countries; the ultimate goal of the "One Belt One Road" scheme, the internati...
@@ -32,11 +68,11 @@ For English：gettr.com/streaming/p1j3nuk4237
 
 ---
 
-[@miles 7/20/2022 11:26 PM UTC  - :tv:直播](/content/gettr/p1j46440538.md)
+[@miles 7/21/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1j4ffx68d7.md)
 
-7/20/2022 Miles Guo: Where did the intelligence about the CCP Navy come from? The widow of a CCP Navy submarine commander, who died from COVID vaccination, was raped by a CCP cadre. Later, she contacted me and provided all the info...
+7/20/2022 Miles Guo: Any page of the military file we have exposed could put Laobaixing in jail for life or even on death row in Communist China. We can imagine how much risk the fellow fighter had to take when bringing out the fil...
 
-<img src="https://media.gettr.com/group20/getter/2022/07/20/23/b2e22f83-9420-0a33-9f2a-66081f52eb08/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/07/21/00/65837d67-7bd2-3403-4858-95e2afa176be/out.jpg" width="506" height="284">
 
 ---
 
@@ -190,22 +226,6 @@ For English：gettr.com/post/p1j02q030c1
 [@miles 7/20/2022 1:39 AM UTC ](/content/gettr/p1izvveec60.md)
 
 7月19号：尊敬的战友们好，一定要看🪨❤️磐石农场大家庭❤️🪨的节目做得太棒了，明天上午7月20号星期三纽约时间上午9:007哥开始乱聊直播。https://gettr.com/post/p1iznrbb7a3
-
----
-
-[@globalalliance 7/19/2022 4:02 PM UTC  - :tv:直播](/content/gettr/p1ixush9abe.md)
-
-2022.07.19 特别节目《軍事大爆料》之 2707中共光通信项目
-
-<img src="https://media.gettr.com/group26/origin/2022/07/19/15/063e2430-3fa7-6b05-b9e6-2eff5714419b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/19/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1iz0na0990.md)
-
-7/19/2022 Miles Guo: What we have exposed about the CCP's military is just the tip of an iceberg. Just wait and see the documents and intel being exposed regarding the CCP's submarine troops and the Rocket Force, and you will burst...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/19/22/7109f3fc-74ac-3c6e-d339-00647e16066b/out.jpg" width="506" height="284">
 
 ---
 
