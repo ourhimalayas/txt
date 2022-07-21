@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/21/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1j6bolb263.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022:
+
+ I. FACTUAL AND PROCEDURAL BACKGROUND
+
+A. The Appointment of the Chapter 11 Trustee (I)
+
+
+
+2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A ...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/21/14/aaa85aed-032d-0709-ade8-7ba43b300680/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 1:47 PM UTC  - :tv:直播](/content/gettr/p1j6al95d13.md)
 
 2022.07.21 【战都吾悦华府，才关一天，直接34层跳楼】邪恶的中国共产党必须要消灭……必须被消灭。
@@ -26,19 +42,19 @@
 
 ---
 
-[@miles 7/21/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1j6bolb263.md)
+[@miles 7/21/2022 2:22 PM UTC  - :tv:直播](/content/gettr/p1j6orwde62.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022:
+独家爆料：司通〔2007〕86号 机密
 
- I. FACTUAL AND PROCEDURAL BACKGROUND
+中国人民解放军空军司令部(请示) 
 
-A. The Appointment of the Chapter 11 Trustee (I)
+呈报空军第一批支线光缆建设项目
+
+附件2：空军第一批支线光缆建设项目
 
 
 
-2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A ...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/21/14/aaa85aed-032d-0709-ade8-7ba43b300680/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/07/21/14/366cce16-2332-900c-e69c-fb3ee2c26567/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,18 +211,6 @@ For English：gettr.com/streaming/p1j3nuk4237
 七哥乱聊直播
 
 <img src="https://media.gettr.com/group20/origin/2022/07/20/12/f681595f-4531-6ef7-d7cc-c41eb1a93772/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 9:06 AM UTC  - :tv:直播](/content/gettr/p1j0al36584.md)
-
-Exclusive：Secret  Command Communication [2007] No. 86 
-
-Submitting the First Batch of Branch Line Optical Cable Construction Project for the PLA Air Force(Request for Approval)
-
-Submitting the First Batch of Branch Line Optical Cab...
-
-<img src="https://media.gettr.com/group50/getter/2022/07/20/08/0dd76bbe-e980-9c88-a880-f16a9daacc1a/out.jpg" width="506" height="284">
 
 ---
 
