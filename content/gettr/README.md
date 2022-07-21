@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/21/2022 2:22 PM UTC  - :tv:直播](/content/gettr/p1j6orwde62.md)
+
+独家爆料：司通〔2007〕86号 机密
+
+中国人民解放军空军司令部(请示) 
+
+呈报空军第一批支线光缆建设项目
+
+附件2：空军第一批支线光缆建设项目
+
+
+
+<img src="https://media.gettr.com/group27/getter/2022/07/21/14/366cce16-2332-900c-e69c-fb3ee2c26567/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1j6bolb263.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022:
@@ -42,19 +58,11 @@ A. The Appointment of the Chapter 11 Trustee (I)
 
 ---
 
-[@miles 7/21/2022 2:22 PM UTC  - :tv:直播](/content/gettr/p1j6orwde62.md)
+[@miles 7/21/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1j6684bcee.md)
 
-独家爆料：司通〔2007〕86号 机密
+2022.07.21 MILES GUO 乱想直播
 
-中国人民解放军空军司令部(请示) 
-
-呈报空军第一批支线光缆建设项目
-
-附件2：空军第一批支线光缆建设项目
-
-
-
-<img src="https://media.gettr.com/group27/getter/2022/07/21/14/366cce16-2332-900c-e69c-fb3ee2c26567/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/07/21/14/2916d492-592a-9879-42be-30daa49a2918/413bfd0f50179550079907053040ff68.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ For English：gettr.com/streaming/p1j3nuk4237
 #绝密文件 #项目2705 #宝华山
 
 <img src="https://media.gettr.com/group3/origin/2022/07/20/22/9e391e7f-d405-c363-faf6-465398b58bac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@wenbin 7/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j179z0ac9.md)
-
-2022.07.20 軍事大爆料之摧毁对台通信指挥中心910
-
-<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
