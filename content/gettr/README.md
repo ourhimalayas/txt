@@ -2,19 +2,19 @@
 ---
 
 
-[@miles 7/21/2022 2:22 PM UTC  - :tv:直播](/content/gettr/p1j6orwde62.md)
+[@wenbin 7/20/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j179z0ac9.md)
 
-独家爆料：司通〔2007〕86号 机密
+2022.07.20 軍事大爆料之摧毁对台通信指挥中心910
 
-中国人民解放军空军司令部(请示) 
+<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
-呈报空军第一批支线光缆建设项目
+---
 
-附件2：空军第一批支线光缆建设项目
+[@miles 7/21/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1j6684bcee.md)
 
+2022.07.21 MILES GUO 乱想直播
 
-
-<img src="https://media.gettr.com/group27/getter/2022/07/21/14/366cce16-2332-900c-e69c-fb3ee2c26567/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/07/21/14/2916d492-592a-9879-42be-30daa49a2918/413bfd0f50179550079907053040ff68.jpg" width="506" height="284">
 
 ---
 
@@ -55,14 +55,6 @@ A. The Appointment of the Chapter 11 Trustee (I)
 7/20/2022 Miles Guo: The CCP's nuclear command centers located at Mountain Yuquanshan and Fenghuangling Park in Beijing. NATO's military expert concluded that the damage that CCP took is close to infinity. It's impossible for the C...
 
 <img src="https://media.gettr.com/group25/getter/2022/07/21/06/5e1375c4-40c7-b065-0c97-d4a4acd59b7d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1j6684bcee.md)
-
-2022.07.21 MILES GUO 乱想直播
-
-<img src="https://media.gettr.com/group22/getter/2022/07/21/14/2916d492-592a-9879-42be-30daa49a2918/413bfd0f50179550079907053040ff68.jpg" width="506" height="284">
 
 ---
 
