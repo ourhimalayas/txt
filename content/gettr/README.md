@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/21/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1j4kb9dc7c.md)
+
+(1080版) 飞飞秀 《利益冲突·第十三篇》2022-07-20
+
+For English：gettr.com/post/p1j4ip1b910
+
+
+
+#LUC #PAX #普衡 #破产案
+
+<img src="https://media.gettr.com/group43/origin/2022/07/21/01/220e4bfd-041e-754f-d4bd-d2a08d70c595/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 12:02 AM UTC ](/content/gettr/p1j42458fcd.md)
 
 《战》
@@ -27,6 +41,20 @@
 #青藤
 
 #Nick
+
+---
+
+[@miles 7/21/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1j4b88b7c6.md)
+
+(4K版) 飞飞秀 《利益冲突·第十三篇》2022-07-20
+
+For English：gettr.com/post/p1j4ip1b910
+
+
+
+#LUC #PAX #普衡 #破产案
+
+<img src="https://media.gettr.com/group23/origin/2022/07/21/01/04f77750-0bb2-e271-bd67-4db1fcd02f77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -192,26 +220,6 @@ Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and
 7/19/2022 Miles Guo: No matter whether the schedule changes, Nancy Pelosi is bound to visit Taiwan; Mr. Pompeo, a staunchly anti-communist, will run for U.S. president in 2024; the greatest asset of the NFSC citizens is that we did...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/20/03/5234a9e0-a473-6707-7869-7085699ac485/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1izbxqd306.md)
-
-(4K版) 飞飞秀 《利益冲突·第十二篇》2022-07-19
-
-For English：gettr.com/post/p1j02q030c1
-
-
-
-#SUBPOENA #PAX #普衡 #破产案
-
-<img src="https://media.gettr.com/group4/origin/2022/07/20/01/82856ed8-8d2c-823d-a4a1-76d9a401d101/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 1:39 AM UTC ](/content/gettr/p1izvveec60.md)
-
-7月19号：尊敬的战友们好，一定要看🪨❤️磐石农场大家庭❤️🪨的节目做得太棒了，明天上午7月20号星期三纽约时间上午9:007哥开始乱聊直播。https://gettr.com/post/p1iznrbb7a3
 
 ---
 
