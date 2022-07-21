@@ -16,6 +16,14 @@ For English：gettr.com/streaming/p1j8ackb82f
 
 ---
 
+[@miles 7/21/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1j7r3o9506.md)
+
+7/21/2022 Miles Guo: Our fellow fighters are so remarkable! Few of them have dumped their Himalaya Coins recently, nor are there any fellow fighters who doubt the future of the Himalaya Exchange. Here is my message to the senior ex...
+
+<img src="https://media.gettr.com/group31/getter/2022/07/21/22/1c1b77b5-6397-a5f5-a053-764b1c459a61/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j8g7d7f94.md)
 
 (1080版) 七月二十一日《军事大爆料》2022-07-21
@@ -35,6 +43,14 @@ For English：gettr.com/streaming/p1j8ackb82f
 7/20/2022 Miles Guo: The core power of PLA resides in Air Force, therefore our military intel exposure has destroyed at least half the CCP's combat capability; the CCP's military facilities and strongholds built beneath the kinderg...
 
 <img src="https://media.gettr.com/group12/getter/2022/07/21/22/cd4cce10-9cd5-27e2-fa9a-4071b8518d9c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/21/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1j8i7k5b0c.md)
+
+7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public; Sadly, the same information was smeared as disinformation by some senior Taiwanese military officia...
+
+<img src="https://media.gettr.com/group15/getter/2022/07/21/22/57cfce79-07e0-e99e-0bf3-ac1c08c45fbe/out.jpg" width="506" height="284">
 
 ---
 
@@ -65,14 +81,6 @@ For English：gettr.com/streaming/p1j8ackb82f
 附件2：空军第一批支线光缆建设项目
 
 <img src="https://media.gettr.com/group44/getter/2022/07/21/15/60e15bf6-b732-e589-56c1-e284e72c13bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1j8i7k5b0c.md)
-
-7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public; Sadly, the same information was smeared as disinformation by some senior Taiwanese military officia...
-
-<img src="https://media.gettr.com/group15/getter/2022/07/21/22/57cfce79-07e0-e99e-0bf3-ac1c08c45fbe/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,34 +181,6 @@ For English：gettr.com/post/p1j4ip1b910
 #LUC #PAX #普衡 #破产案
 
 <img src="https://media.gettr.com/group23/origin/2022/07/21/01/04f77750-0bb2-e271-bd67-4db1fcd02f77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 12:02 AM UTC ](/content/gettr/p1j42458fcd.md)
-
-《战》
-
-第一季 《空军机密文件解析》
-
-2⃣️八份文件的内在关联及司通【2007】86号解读
-
-#磐石农场
-
-威廉王 青藤 
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-#青藤
-
-#Nick
 
 ---
 
