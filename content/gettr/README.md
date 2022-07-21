@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 7/21/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p1j5a63a1c6.md)
+
+7/20/2022 Miles Guo: The evil Chinese Communist Party has already built countless war-time military facilities in the busiest places and civilian facilities in Hong Kong and Shenzhen. As such, all the people of Hong Kong and Shenzh...
+
+<img src="https://media.gettr.com/group44/getter/2022/07/21/07/3c11b706-8d3a-9bed-97a3-2f44d50d5c80/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p1j5dn17d60.md)
 
 7/20/2022 Miles Guo: The U.S. intelligence agency admitted that they not only have obtained the CCP's military intelligence as exposed by our fellow fighter, but also that most of the military personnel on the list are already coop...
 
 <img src="https://media.gettr.com/group40/getter/2022/07/21/06/0333756c-7c36-dd22-75fa-1bc47d62ad3b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/21/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1j57ei1b36.md)
+
+7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public, which meanwhile was also conveyed to Taiwanese military officials. Such information would greatly r...
+
+<img src="https://media.gettr.com/group33/getter/2022/07/21/06/5a0a45e1-cf92-e319-a3b3-cbaaab43eb07/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,14 +53,6 @@ For English：gettr.com/post/p1j4ip1b910
 #LUC #PAX #普衡 #破产案
 
 <img src="https://media.gettr.com/group43/origin/2022/07/21/01/220e4bfd-041e-754f-d4bd-d2a08d70c595/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1j57ei1b36.md)
-
-7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public, which meanwhile was also conveyed to Taiwanese military officials. Such information would greatly r...
-
-<img src="https://media.gettr.com/group33/getter/2022/07/21/06/5a0a45e1-cf92-e319-a3b3-cbaaab43eb07/out.jpg" width="506" height="284">
 
 ---
 
@@ -198,20 +206,6 @@ Submitting the First Batch of Branch Line Optical Cab...
 ...
 
 <img src="https://media.gettr.com/group42/getter/2022/07/20/05/4916c744-0752-1cdb-ad43-b6351b636482/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 4:13 AM UTC  - :tv:直播](/content/gettr/p1izy597423.md)
-
-7/17/2022 Miles Guo: If we don’t expose the CCP’s deep infiltration in the US judicial system, nobody will be safe in the US!
-
-
-
-7/17/2022文贵直播：如果不揭露出中共在美国司法系统的渗透之深，没有一个人在美国是安全的！
-
-
-
-<img src="https://media.gettr.com/group40/getter/2022/07/20/04/bd3a72c6-7369-8398-9986-c3bdceddd14b/out.jpg" width="506" height="284">
 
 ---
 
