@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguolive 7/21/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1j70iw6afd.md)
+
+2022.07.20 大直播精华版
+
+<img src="https://media.gettr.com/group43/origin/2022/07/21/16/01e8ef5a-2d69-b22a-e761-b59d5d713a6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 3:26 PM UTC  - :tv:直播](/content/gettr/p1j6py6e12f.md)
 
 独家爆料：司通〔2007〕86 号 机密
@@ -16,11 +24,11 @@
 
 ---
 
-[@milesguolive 7/21/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1j70iw6afd.md)
+[@wenbin 7/21/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j669290ce.md)
 
-2022.07.20 大直播精华版
+2022.07.21 軍事大爆料之人佛共怒2705项目
 
-<img src="https://media.gettr.com/group43/origin/2022/07/21/16/01e8ef5a-2d69-b22a-e761-b59d5d713a6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,20 +189,6 @@ For English：gettr.com/post/p1j4ip1b910
 7/20/2022 Miles Guo: The Chinese Communist Party has already built countless war-time military facilities in the busiest places in Hong Kong and major waterways among others. As such, the entire Hong Kong and Hongkongers are held h...
 
 <img src="https://media.gettr.com/group15/getter/2022/07/20/22/704e2ed9-192d-2194-3a96-a598006a4979/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j3qxk2c09.md)
-
-(4K版) 七月二十日《军事大爆料》2022-07-20
-
-For English：gettr.com/streaming/p1j3nuk4237
-
-
-
-#绝密文件 #项目2705 #宝华山
-
-<img src="https://media.gettr.com/group7/origin/2022/07/20/22/957509a9-3852-6389-89d3-008776922dbd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
