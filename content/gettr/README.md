@@ -16,6 +16,14 @@
 
 ---
 
+[@milesguolive 7/21/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1j70iw6afd.md)
+
+2022.07.20 大直播精华版
+
+<img src="https://media.gettr.com/group43/origin/2022/07/21/16/01e8ef5a-2d69-b22a-e761-b59d5d713a6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1j6684bcee.md)
 
 2022.07.21 MILES GUO 乱想直播
@@ -201,14 +209,6 @@ For English：gettr.com/streaming/p1j3nuk4237
 #绝密文件 #项目2705 #宝华山
 
 <img src="https://media.gettr.com/group3/origin/2022/07/20/22/9e391e7f-d405-c363-faf6-465398b58bac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 1:02 PM UTC  - :tv:直播](/content/gettr/p1j1gwp9b4e.md)
-
-七哥乱聊直播
-
-<img src="https://media.gettr.com/group20/origin/2022/07/20/12/f681595f-4531-6ef7-d7cc-c41eb1a93772/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
