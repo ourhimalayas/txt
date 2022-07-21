@@ -30,6 +30,14 @@
 
 ---
 
+[@miles 7/21/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1j4ffx68d7.md)
+
+7/20/2022 Miles Guo: Any page of the military file we have exposed could put Laobaixing in jail for life or even on death row in Communist China. We can imagine how much risk the fellow fighter had to take when bringing out the fil...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/21/00/65837d67-7bd2-3403-4858-95e2afa176be/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/20/2022 11:26 PM UTC  - :tv:直播](/content/gettr/p1j46440538.md)
 
 7/20/2022 Miles Guo: Where did the intelligence about the CCP Navy come from? The widow of a CCP Navy submarine commander, who died from COVID vaccination, was raped by a CCP cadre. Later, she contacted me and provided all the info...
@@ -65,14 +73,6 @@ For English：gettr.com/streaming/p1j3nuk4237
 #绝密文件 #项目2705 #宝华山
 
 <img src="https://media.gettr.com/group7/origin/2022/07/20/22/957509a9-3852-6389-89d3-008776922dbd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1j4ffx68d7.md)
-
-7/20/2022 Miles Guo: Any page of the military file we have exposed could put Laobaixing in jail for life or even on death row in Communist China. We can imagine how much risk the fellow fighter had to take when bringing out the fil...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/21/00/65837d67-7bd2-3403-4858-95e2afa176be/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,20 +192,6 @@ Issue to Air Force 550 & the Total 6 Underground Command Posts Communication and
 7/19/2022 Miles Guo: No matter whether the schedule changes, Nancy Pelosi is bound to visit Taiwan; Mr. Pompeo, a staunchly anti-communist, will run for U.S. president in 2024; the greatest asset of the NFSC citizens is that we did...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/20/03/5234a9e0-a473-6707-7869-7085699ac485/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 1:37 AM UTC  - :tv:直播](/content/gettr/p1j00ki4712.md)
-
-(1080版) 飞飞秀 《利益冲突·第十二篇》2022-07-19
-
-For English：gettr.com/post/p1j02q030c1
-
-
-
-#SUBPOENA #PAX #普衡 #破产案
-
-<img src="https://media.gettr.com/group21/origin/2022/07/20/01/d25d4c6a-7388-be31-bb44-4346a8e754ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
