@@ -2,6 +2,50 @@
 ---
 
 
+[@miles 7/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j7xbue09c.md)
+
+(4K版) 七月二十一日《军事大爆料》2022-07-21
+
+For English：gettr.com/streaming/p1j8ackb82f
+
+
+
+#绝密文件 #项目2706 #上海指挥所
+
+<img src="https://media.gettr.com/group4/origin/2022/07/21/21/28e9f83c-1cf5-6ec4-8e0f-b7a9720688fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j8g7d7f94.md)
+
+(1080版) 七月二十一日《军事大爆料》2022-07-21
+
+For English：gettr.com/streaming/p1j8ackb82f
+
+
+
+#绝密文件 #项目2706 #上海指挥所
+
+<img src="https://media.gettr.com/group18/origin/2022/07/21/21/73eb6080-67f0-1856-1689-5dfc60eee790/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/21/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1j89cp7435.md)
+
+7/20/2022 Miles Guo: The core power of PLA resides in Air Force, therefore our military intel exposure has destroyed at least half the CCP's combat capability; the CCP's military facilities and strongholds built beneath the kinderg...
+
+<img src="https://media.gettr.com/group12/getter/2022/07/21/22/cd4cce10-9cd5-27e2-fa9a-4071b8518d9c/out.jpg" width="506" height="284">
+
+---
+
+[@wenbin 7/21/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j669290ce.md)
+
+2022.07.21 軍事大爆料之人佛共怒2705项目
+
+<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguolive 7/21/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1j70iw6afd.md)
 
 2022.07.20 大直播精华版
@@ -24,11 +68,11 @@
 
 ---
 
-[@wenbin 7/21/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j669290ce.md)
+[@miles 7/21/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1j8i7k5b0c.md)
 
-2022.07.21 軍事大爆料之人佛共怒2705项目
+7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public; Sadly, the same information was smeared as disinformation by some senior Taiwanese military officia...
 
-<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/07/21/22/57cfce79-07e0-e99e-0bf3-ac1c08c45fbe/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,30 +209,6 @@ For English：gettr.com/post/p1j4ip1b910
 7/20/2022 Miles Guo: Any page of the military file we have exposed could put Laobaixing in jail for life or even on death row in Communist China. We can imagine how much risk the fellow fighter had to take when bringing out the fil...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/21/00/65837d67-7bd2-3403-4858-95e2afa176be/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 11:26 PM UTC  - :tv:直播](/content/gettr/p1j46440538.md)
-
-7/20/2022 Miles Guo: Where did the intelligence about the CCP Navy come from? The widow of a CCP Navy submarine commander, who died from COVID vaccination, was raped by a CCP cadre. Later, she contacted me and provided all the info...
-
-<img src="https://media.gettr.com/group20/getter/2022/07/20/23/b2e22f83-9420-0a33-9f2a-66081f52eb08/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p1j460z57d5.md)
-
-7/20/2022 Miles Guo: Putin got Xi Jinping's approval before he met with Khamenei! It was the CCP who set up the so-called BRICS and the axis of five evil countries; the ultimate goal of the "One Belt One Road" scheme, the internati...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/20/22/acdb978f-8683-5727-c81b-acc756f3eb3a/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 10:51 PM UTC  - :tv:直播](/content/gettr/p1j3eb72d70.md)
-
-7/20/2022 Miles Guo: The Chinese Communist Party has already built countless war-time military facilities in the busiest places in Hong Kong and major waterways among others. As such, the entire Hong Kong and Hongkongers are held h...
-
-<img src="https://media.gettr.com/group15/getter/2022/07/20/22/704e2ed9-192d-2194-3a96-a598006a4979/out.jpg" width="506" height="284">
 
 ---
 
