@@ -2,9 +2,11 @@
 ---
 
 
-[@miles 7/22/2022 1:16 AM UTC ](/content/gettr/p1j8vfif8ee.md)
+[@miles 7/21/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p1j5dn17d60.md)
 
-2022.07.21 太棒了…战友们快来看吧……
+7/20/2022 Miles Guo: The U.S. intelligence agency admitted that they not only have obtained the CCP's military intelligence as exposed by our fellow fighter, but also that most of the military personnel on the list are already coop...
+
+<img src="https://media.gettr.com/group40/getter/2022/07/21/06/0333756c-7c36-dd22-75fa-1bc47d62ad3b/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,12 @@
 对于 喜币 Hcoin 是无限的利好，鸡血王 一语成谶 “Hcoin on the Moon ! ” 喜币飞上月亮🌜正式 绑定了 安全座椅，准备 离开 Earth 了。坐好啦，各位小可爱 大神 宝宝们，需要给咱们的七哥抱抱 ，他让我们远离了贫穷的恐惧 和 无苗，无限感恩文贵先生😄😄😄
 
 @...
+
+---
+
+[@miles 7/22/2022 1:16 AM UTC ](/content/gettr/p1j8vfif8ee.md)
+
+2022.07.21 太棒了…战友们快来看吧……
 
 ---
 
@@ -65,34 +73,6 @@ III. 	LEGAL BASIS FOR RELIEF
 C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon N...
 
 <img src="https://media.gettr.com/group27/getter/2022/07/22/00/e1b956b0-778a-78fd-9c1d-895857c03024/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 12:02 AM UTC ](/content/gettr/p1j8d2o67db.md)
-
-《战》
-
-第一季 《空军机密文件解析》
-
-（3）司通【2007】86号附件解读
-
-#磐石农场
-
-威廉王 Nick 
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-#青藤
-
-#Nick
 
 ---
 
