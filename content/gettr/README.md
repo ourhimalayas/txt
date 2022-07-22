@@ -14,6 +14,14 @@ Attachment 2: The First Batch of Branch Line Optical...
 
 ---
 
+[@miles 7/22/2022 12:20 PM UTC  - :tv:直播](/content/gettr/p1jauni2335.md)
+
+2022.07.22 这闺女啊，不简单……将是德国．和欧洲未来的政治新星……对中国共产党的邪恶有着不同的看法……我相信她未来会．为我们新中国联邦做出很多很多的事情。
+
+<img src="https://media.gettr.com/group50/getter/2022/07/22/12/f3a55a15-e892-28a0-8e69-2bf077ca3b8a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/22/2022 4:50 AM UTC ](/content/gettr/p1j976h2935.md)
 
 2022.07.22 罕见突发！⚠️⚠️⚠️🔊🔊🔊🔊🔊☯️美国证监会将9种加密货币列为证券 皆涉Coinbase内幕交易与电汇诈欺  . 信息量巨大！
@@ -199,14 +207,6 @@ A. The Appointment of the Chapter 11 Trustee (I)
 7/20/2022 Miles Guo: The evil Chinese Communist Party has already built countless war-time military facilities in the busiest places and civilian facilities in Hong Kong and Shenzhen. As such, all the people of Hong Kong and Shenzh...
 
 <img src="https://media.gettr.com/group44/getter/2022/07/21/07/3c11b706-8d3a-9bed-97a3-2f44d50d5c80/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1j57ei1b36.md)
-
-7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public, which meanwhile was also conveyed to Taiwanese military officials. Such information would greatly r...
-
-<img src="https://media.gettr.com/group33/getter/2022/07/21/06/5a0a45e1-cf92-e319-a3b3-cbaaab43eb07/out.jpg" width="506" height="284">
 
 ---
 
