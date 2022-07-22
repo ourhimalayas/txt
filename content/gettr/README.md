@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/22/2022 12:20 PM UTC  - :tv:直播](/content/gettr/p1jauni2335.md)
+
+2022.07.22 这闺女啊，不简单……将是德国．和欧洲未来的政治新星……对中国共产党的邪恶有着不同的看法……我相信她未来会．为我们新中国联邦做出很多很多的事情。
+
+<img src="https://media.gettr.com/group50/getter/2022/07/22/12/f3a55a15-e892-28a0-8e69-2bf077ca3b8a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/22/2022 10:09 AM UTC  - :tv:直播](/content/gettr/p1jasx2edf5.md)
 
 Exclusive: Command Communication [2007] No. 86, Secret 
@@ -14,11 +22,15 @@ Attachment 2: The First Batch of Branch Line Optical...
 
 ---
 
-[@miles 7/22/2022 12:20 PM UTC  - :tv:直播](/content/gettr/p1jauni2335.md)
+[@miles 7/22/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1jax2be6ae.md)
 
-2022.07.22 这闺女啊，不简单……将是德国．和欧洲未来的政治新星……对中国共产党的邪恶有着不同的看法……我相信她未来会．为我们新中国联邦做出很多很多的事情。
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (III) 
 
-<img src="https://media.gettr.com/group50/getter/2022/07/22/12/f3a55a15-e892-28a0-8e69-2bf077ca3b8a/out.jpg" width="506" height="284">
+
+
+2022年7...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/22/13/d4dab11c-9977-2b7f-7a6c-5f54c0ffb36a/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +211,6 @@ A. The Appointment of the Chapter 11 Trustee (I)
 2022.07.21 【战都吾悦华府，才关一天，直接34层跳楼】邪恶的中国共产党必须要消灭……必须被消灭。
 
 <img src="https://media.gettr.com/group32/getter/2022/07/21/13/d16ea51d-f755-5874-81b3-f39fd6abc912/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p1j5a63a1c6.md)
-
-7/20/2022 Miles Guo: The evil Chinese Communist Party has already built countless war-time military facilities in the busiest places and civilian facilities in Hong Kong and Shenzhen. As such, all the people of Hong Kong and Shenzh...
-
-<img src="https://media.gettr.com/group44/getter/2022/07/21/07/3c11b706-8d3a-9bed-97a3-2f44d50d5c80/out.jpg" width="506" height="284">
 
 ---
 
