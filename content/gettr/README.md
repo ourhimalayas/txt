@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/21/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1j7r3o9506.md)
+
+7/21/2022 Miles Guo: Our fellow fighters are so remarkable! Few of them have dumped their Himalaya Coins recently, nor are there any fellow fighters who doubt the future of the Himalaya Exchange. Here is my message to the senior ex...
+
+<img src="https://media.gettr.com/group31/getter/2022/07/21/22/1c1b77b5-6397-a5f5-a053-764b1c459a61/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j7xbue09c.md)
 
 (4K版) 七月二十一日《军事大爆料》2022-07-21
@@ -16,11 +24,31 @@ For English：gettr.com/streaming/p1j8ackb82f
 
 ---
 
-[@miles 7/21/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1j7r3o9506.md)
+[@miles 7/22/2022 12:02 AM UTC ](/content/gettr/p1j8d2o67db.md)
 
-7/21/2022 Miles Guo: Our fellow fighters are so remarkable! Few of them have dumped their Himalaya Coins recently, nor are there any fellow fighters who doubt the future of the Himalaya Exchange. Here is my message to the senior ex...
+《战》
 
-<img src="https://media.gettr.com/group31/getter/2022/07/21/22/1c1b77b5-6397-a5f5-a053-764b1c459a61/out.jpg" width="506" height="284">
+第一季 《空军机密文件解析》
+
+（3）司通【2007】86号附件解读
+
+#磐石农场
+
+威廉王 Nick 
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+#青藤
+
+#Nick
 
 ---
 
@@ -181,14 +209,6 @@ For English：gettr.com/post/p1j4ip1b910
 #LUC #PAX #普衡 #破产案
 
 <img src="https://media.gettr.com/group23/origin/2022/07/21/01/04f77750-0bb2-e271-bd67-4db1fcd02f77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 12:03 AM UTC  - :tv:直播](/content/gettr/p1j4ffx68d7.md)
-
-7/20/2022 Miles Guo: Any page of the military file we have exposed could put Laobaixing in jail for life or even on death row in Communist China. We can imagine how much risk the fellow fighter had to take when bringing out the fil...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/21/00/65837d67-7bd2-3403-4858-95e2afa176be/out.jpg" width="506" height="284">
 
 ---
 
