@@ -2,11 +2,59 @@
 ---
 
 
+[@miles 7/22/2022 1:16 AM UTC ](/content/gettr/p1j8vfif8ee.md)
+
+2022.07.21 太棒了…战友们快来看吧……
+
+---
+
+[@miles 7/22/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1j8ytnca11.md)
+
+(1080版) 飞飞秀 《利益冲突·第十四篇》2022-07-21
+
+For English：gettr.com/post/p1j9525139b
+
+
+
+#LUC #PAX #普衡 #破产案
+
+<img src="https://media.gettr.com/group12/origin/2022/07/22/01/06504b53-a1fa-20ae-3888-b0936ba478d5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/22/2022 12:15 AM UTC  - :tv:直播](/content/gettr/p1j8456a654.md)
 
 7/21/2022 Miles Guo: The lawyer told me that the seller who dumped coins these two days was from Australia and is not a fellow fighter, and the coins he sold were purchased from the secondary market. None of our fellow fighters wer...
 
 <img src="https://media.gettr.com/group26/getter/2022/07/22/00/e827bc24-c5a1-7119-45cd-8c1867bf11e1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/22/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1j911vb7b3.md)
+
+(4K版) 飞飞秀 《利益冲突·第十四篇》2022-07-21
+
+For English：gettr.com/post/p1j9525139b
+
+
+
+#LUC #PAX #普衡 #破产案
+
+
+
+<img src="https://media.gettr.com/group25/origin/2022/07/22/01/91ac18c6-9013-8ad1-9623-62bf32a5ba41/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/22/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1j91125560.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: 
+
+III. 	LEGAL BASIS FOR RELIEF 
+
+C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon N...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/22/00/e1b956b0-778a-78fd-9c1d-895857c03024/out.jpg" width="506" height="284">
 
 ---
 
@@ -57,18 +105,6 @@ For English：gettr.com/streaming/p1j8ackb82f
 #绝密文件 #项目2706 #上海指挥所
 
 <img src="https://media.gettr.com/group4/origin/2022/07/21/21/28e9f83c-1cf5-6ec4-8e0f-b7a9720688fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1j91125560.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: 
-
-III. 	LEGAL BASIS FOR RELIEF 
-
-C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon N...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/22/00/e1b956b0-778a-78fd-9c1d-895857c03024/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,14 +208,6 @@ A. The Appointment of the Chapter 11 Trustee (I)
 
 ---
 
-[@miles 7/21/2022 6:53 AM UTC  - :tv:直播](/content/gettr/p1j4qx60c78.md)
-
-7/20/2022 Miles Guo: The CCP's nuclear command centers located at Mountain Yuquanshan and Fenghuangling Park in Beijing. NATO's military expert concluded that the damage that CCP took is close to infinity. It's impossible for the C...
-
-<img src="https://media.gettr.com/group25/getter/2022/07/21/06/5e1375c4-40c7-b065-0c97-d4a4acd59b7d/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/21/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p1j5dn17d60.md)
 
 7/20/2022 Miles Guo: The U.S. intelligence agency admitted that they not only have obtained the CCP's military intelligence as exposed by our fellow fighter, but also that most of the military personnel on the list are already coop...
@@ -193,28 +221,6 @@ A. The Appointment of the Chapter 11 Trustee (I)
 7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public, which meanwhile was also conveyed to Taiwanese military officials. Such information would greatly r...
 
 <img src="https://media.gettr.com/group33/getter/2022/07/21/06/5a0a45e1-cf92-e319-a3b3-cbaaab43eb07/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 4:54 AM UTC  - :tv:直播](/content/gettr/p1j57gmbc47.md)
-
-7/20/2022 Miles Guo: The slight bounce-back of the real estate market in Shanghai post the lifting of lockdowns is absolutely manipulated by the CCP, and this is probably the last chance to sell your real estate properties! Through...
-
-<img src="https://media.gettr.com/group13/getter/2022/07/21/04/d0369ef7-97f1-180f-97e3-5cb8b68e97f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1j4b88b7c6.md)
-
-(4K版) 飞飞秀 《利益冲突·第十三篇》2022-07-20
-
-For English：gettr.com/post/p1j4ip1b910
-
-
-
-#LUC #PAX #普衡 #破产案
-
-<img src="https://media.gettr.com/group23/origin/2022/07/21/01/04f77750-0bb2-e271-bd67-4db1fcd02f77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
