@@ -8,19 +8,11 @@
 
 ---
 
-[@miles 7/21/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1j6bolb263.md)
+[@miles 7/22/2022 9:19 PM UTC  - :tv:直播](/content/gettr/p1jd0o8d228.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022:
+2022.07.22 第一期 全球首播 分享战友眼中的七哥
 
- I. FACTUAL AND PROCEDURAL BACKGROUND
-
-A. The Appointment of the Chapter 11 Trustee (I)
-
-
-
-2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A ...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/21/14/aaa85aed-032d-0709-ade8-7ba43b300680/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/07/22/21/933c991a-87c5-dbae-ba24-0fb34f8b7823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
