@@ -2,11 +2,15 @@
 ---
 
 
-[@miles 7/21/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p1j5dn17d60.md)
+[@miles 7/22/2022 10:09 AM UTC  - :tv:直播](/content/gettr/p1jasx2edf5.md)
 
-7/20/2022 Miles Guo: The U.S. intelligence agency admitted that they not only have obtained the CCP's military intelligence as exposed by our fellow fighter, but also that most of the military personnel on the list are already coop...
+Exclusive: Command Communication [2007] No. 86, Secret 
 
-<img src="https://media.gettr.com/group40/getter/2022/07/21/06/0333756c-7c36-dd22-75fa-1bc47d62ad3b/out.jpg" width="506" height="284">
+Submitting the First Batch of Branch Line Optical Cable Construction Project for the PLA Air Force(Request for Approval)
+
+Attachment 2: The First Batch of Branch Line Optical...
+
+<img src="https://media.gettr.com/group48/getter/2022/07/22/10/bb765f1d-64c3-b908-d419-7ffd085c147b/out.jpg" width="506" height="284">
 
 ---
 
