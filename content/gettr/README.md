@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/22/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p1jb0jf81e6.md)
+
+如何从共产党的超限战中学法，用法
+
+<img src="https://media.gettr.com/group16/origin/2022/07/22/13/3a645217-0b0e-d0f4-0704-2a705fec3c59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/22/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1jax2be6ae.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (III) 
@@ -34,11 +42,11 @@ Attachment 2: The First Batch of Branch Line Optical...
 
 ---
 
-[@miles 7/22/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p1jb0jf81e6.md)
+[@miles 7/22/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p1jbrc2f896.md)
 
-如何从共产党的超限战中学法，用法
+2022.07.22 万分感谢战友制作的精美的视频。【七哥这是京剧《正道魂》请指教一下。】
 
-<img src="https://media.gettr.com/group16/origin/2022/07/22/13/3a645217-0b0e-d0f4-0704-2a705fec3c59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group20/getter/2022/07/22/14/0c17c34f-5d82-b92c-ad07-936d372c3e97/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,22 +203,6 @@ For English：gettr.com/streaming/p1j8ackb82f
 2022.07.21 MILES GUO 乱想直播
 
 <img src="https://media.gettr.com/group22/getter/2022/07/21/14/2916d492-592a-9879-42be-30daa49a2918/413bfd0f50179550079907053040ff68.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 2:10 PM UTC  - :tv:直播](/content/gettr/p1j6bolb263.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022:
-
- I. FACTUAL AND PROCEDURAL BACKGROUND
-
-A. The Appointment of the Chapter 11 Trustee (I)
-
-
-
-2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A ...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/21/14/aaa85aed-032d-0709-ade8-7ba43b300680/out.jpg" width="506" height="284">
 
 ---
 
