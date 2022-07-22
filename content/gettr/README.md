@@ -2,9 +2,37 @@
 ---
 
 
+[@miles 7/22/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1jdr0me069.md)
+
+7/20/2022 Miles Guo: Putin got Xi’s approval before he met with Khamenei! The ultimate goal of the “One Belt One Road” scheme, the internationalization and digitalization of RMB is to control the global energy supply and take down ...
+
+<img src="https://media.gettr.com/group7/getter/2022/07/22/22/151a1897-acf0-b0c9-6979-c3be573dbd1e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/22/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1jdq2w4e95.md)
 
 (4K版) 七月二十二日《军事大爆料》2022-07-22
+
+
+
+#绝密文件 #项目2708 #短波 #油库
+
+<img src="https://media.gettr.com/group15/origin/2022/07/22/22/9dccab51-469d-ba15-5940-40d03e083bcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/22/2022 10:34 PM UTC  - :tv:直播](/content/gettr/p1jdquu2932.md)
+
+7/22/2022 Miles Guo: For the first time in the US, the judge considered the trustee and his law firm separately in terms of whether the trustee has conflicts of interest at yesterday's court hearing. The judge will decide whether o...
+
+<img src="https://media.gettr.com/group16/getter/2022/07/22/22/a3aff874-88ee-aa97-1361-e256f740624a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/22/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1jd5xi93ee.md)
+
+(1080版) 七月二十二日《军事大爆料》2022-07-22
 
 
 
@@ -25,18 +53,6 @@
 [@miles 7/22/2022 2:50 PM UTC ](/content/gettr/p1jccuq6d4b.md)
 
 2022.07.22 ❤️❤️❤️❤️
-
----
-
-[@miles 7/22/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1jd5xi93ee.md)
-
-(1080版) 七月二十二日《军事大爆料》2022-07-22
-
-
-
-#绝密文件 #项目2708 #短波 #油库
-
-<img src="https://media.gettr.com/group15/origin/2022/07/22/22/9dccab51-469d-ba15-5940-40d03e083bcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,22 +189,6 @@ For English：gettr.com/streaming/p1j8ackb82f
 7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public; Sadly, the same information was smeared as disinformation by some senior Taiwanese military officia...
 
 <img src="https://media.gettr.com/group15/getter/2022/07/21/22/57cfce79-07e0-e99e-0bf3-ac1c08c45fbe/out.jpg" width="506" height="284">
-
----
-
-[@wenbin 7/21/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1j669290ce.md)
-
-2022.07.21 軍事大爆料之人佛共怒2705项目
-
-<img src="https://media.gettr.com/group9/origin/2022/07/20/11/32f73b47-d82d-2877-7ea3-31a57ca99fdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguolive 7/21/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1j70iw6afd.md)
-
-2022.07.20 大直播精华版
-
-<img src="https://media.gettr.com/group43/origin/2022/07/21/16/01e8ef5a-2d69-b22a-e761-b59d5d713a6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
