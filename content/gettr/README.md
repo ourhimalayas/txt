@@ -2,9 +2,15 @@
 ---
 
 
-[@miles 7/22/2022 2:50 PM UTC ](/content/gettr/p1jccuq6d4b.md)
+[@miles 7/22/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1jdq2w4e95.md)
 
-2022.07.22 ❤️❤️❤️❤️
+(4K版) 七月二十二日《军事大爆料》2022-07-22
+
+
+
+#绝密文件 #项目2708 #短波 #油库
+
+<img src="https://media.gettr.com/group15/origin/2022/07/22/22/9dccab51-469d-ba15-5940-40d03e083bcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -13,6 +19,24 @@
 2022.07.22 第一期 全球首播 分享战友眼中的七哥
 
 <img src="https://media.gettr.com/group18/origin/2022/07/22/21/933c991a-87c5-dbae-ba24-0fb34f8b7823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/22/2022 2:50 PM UTC ](/content/gettr/p1jccuq6d4b.md)
+
+2022.07.22 ❤️❤️❤️❤️
+
+---
+
+[@miles 7/22/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1jd5xi93ee.md)
+
+(1080版) 七月二十二日《军事大爆料》2022-07-22
+
+
+
+#绝密文件 #项目2708 #短波 #油库
+
+<img src="https://media.gettr.com/group15/origin/2022/07/22/22/9dccab51-469d-ba15-5940-40d03e083bcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,28 +189,6 @@ For English：gettr.com/streaming/p1j8ackb82f
 2022.07.20 大直播精华版
 
 <img src="https://media.gettr.com/group43/origin/2022/07/21/16/01e8ef5a-2d69-b22a-e761-b59d5d713a6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 3:26 PM UTC  - :tv:直播](/content/gettr/p1j6py6e12f.md)
-
-独家爆料：司通〔2007〕86 号 机密
-
-中国人民解放军空军司令部(请示) 
-
-呈报空军第一批支线光缆建设项目
-
-附件2：空军第一批支线光缆建设项目
-
-<img src="https://media.gettr.com/group44/getter/2022/07/21/15/60e15bf6-b732-e589-56c1-e284e72c13bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1j6684bcee.md)
-
-2022.07.21 MILES GUO 乱想直播
-
-<img src="https://media.gettr.com/group22/getter/2022/07/21/14/2916d492-592a-9879-42be-30daa49a2918/413bfd0f50179550079907053040ff68.jpg" width="506" height="284">
 
 ---
 
