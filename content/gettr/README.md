@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/22/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1jax2be6ae.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (III) 
+
+
+
+2022年7...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/22/13/d4dab11c-9977-2b7f-7a6c-5f54c0ffb36a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/22/2022 12:20 PM UTC  - :tv:直播](/content/gettr/p1jauni2335.md)
 
 2022.07.22 这闺女啊，不简单……将是德国．和欧洲未来的政治新星……对中国共产党的邪恶有着不同的看法……我相信她未来会．为我们新中国联邦做出很多很多的事情。
@@ -22,15 +34,11 @@ Attachment 2: The First Batch of Branch Line Optical...
 
 ---
 
-[@miles 7/22/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1jax2be6ae.md)
+[@miles 7/22/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p1jb0jf81e6.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (III) 
+如何从共产党的超限战中学法，用法
 
-
-
-2022年7...
-
-<img src="https://media.gettr.com/group3/getter/2022/07/22/13/d4dab11c-9977-2b7f-7a6c-5f54c0ffb36a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/07/22/13/3a645217-0b0e-d0f4-0704-2a705fec3c59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ A. The Appointment of the Chapter 11 Trustee (I)
 2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A ...
 
 <img src="https://media.gettr.com/group36/getter/2022/07/21/14/aaa85aed-032d-0709-ade8-7ba43b300680/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 1:47 PM UTC  - :tv:直播](/content/gettr/p1j6al95d13.md)
-
-2022.07.21 【战都吾悦华府，才关一天，直接34层跳楼】邪恶的中国共产党必须要消灭……必须被消灭。
-
-<img src="https://media.gettr.com/group32/getter/2022/07/21/13/d16ea51d-f755-5874-81b3-f39fd6abc912/out.jpg" width="506" height="284">
 
 ---
 
