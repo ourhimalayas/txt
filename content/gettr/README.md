@@ -2,25 +2,11 @@
 ---
 
 
-[@miles 7/21/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1j7r3o9506.md)
+[@miles 7/22/2022 12:15 AM UTC  - :tv:直播](/content/gettr/p1j8456a654.md)
 
-7/21/2022 Miles Guo: Our fellow fighters are so remarkable! Few of them have dumped their Himalaya Coins recently, nor are there any fellow fighters who doubt the future of the Himalaya Exchange. Here is my message to the senior ex...
+7/21/2022 Miles Guo: The lawyer told me that the seller who dumped coins these two days was from Australia and is not a fellow fighter, and the coins he sold were purchased from the secondary market. None of our fellow fighters wer...
 
-<img src="https://media.gettr.com/group31/getter/2022/07/21/22/1c1b77b5-6397-a5f5-a053-764b1c459a61/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j7xbue09c.md)
-
-(4K版) 七月二十一日《军事大爆料》2022-07-21
-
-For English：gettr.com/streaming/p1j8ackb82f
-
-
-
-#绝密文件 #项目2706 #上海指挥所
-
-<img src="https://media.gettr.com/group4/origin/2022/07/21/21/28e9f83c-1cf5-6ec4-8e0f-b7a9720688fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/07/22/00/e827bc24-c5a1-7119-45cd-8c1867bf11e1/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,6 +35,40 @@ For English：gettr.com/streaming/p1j8ackb82f
 #青藤
 
 #Nick
+
+---
+
+[@miles 7/21/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1j7r3o9506.md)
+
+7/21/2022 Miles Guo: Our fellow fighters are so remarkable! Few of them have dumped their Himalaya Coins recently, nor are there any fellow fighters who doubt the future of the Himalaya Exchange. Here is my message to the senior ex...
+
+<img src="https://media.gettr.com/group31/getter/2022/07/21/22/1c1b77b5-6397-a5f5-a053-764b1c459a61/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j7xbue09c.md)
+
+(4K版) 七月二十一日《军事大爆料》2022-07-21
+
+For English：gettr.com/streaming/p1j8ackb82f
+
+
+
+#绝密文件 #项目2706 #上海指挥所
+
+<img src="https://media.gettr.com/group4/origin/2022/07/21/21/28e9f83c-1cf5-6ec4-8e0f-b7a9720688fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/22/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1j91125560.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: 
+
+III. 	LEGAL BASIS FOR RELIEF 
+
+C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon N...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/22/00/e1b956b0-778a-78fd-9c1d-895857c03024/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,20 +204,6 @@ A. The Appointment of the Chapter 11 Trustee (I)
 
 ---
 
-[@miles 7/21/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1j4kb9dc7c.md)
-
-(1080版) 飞飞秀 《利益冲突·第十三篇》2022-07-20
-
-For English：gettr.com/post/p1j4ip1b910
-
-
-
-#LUC #PAX #普衡 #破产案
-
-<img src="https://media.gettr.com/group43/origin/2022/07/21/01/220e4bfd-041e-754f-d4bd-d2a08d70c595/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/21/2022 1:22 AM UTC  - :tv:直播](/content/gettr/p1j4b88b7c6.md)
 
 (4K版) 飞飞秀 《利益冲突·第十三篇》2022-07-20
@@ -209,20 +215,6 @@ For English：gettr.com/post/p1j4ip1b910
 #LUC #PAX #普衡 #破产案
 
 <img src="https://media.gettr.com/group23/origin/2022/07/21/01/04f77750-0bb2-e271-bd67-4db1fcd02f77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/20/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j3dlpe9b0.md)
-
-(1080版) 七月二十日《军事大爆料》2022-07-20
-
-For English：gettr.com/streaming/p1j3nuk4237
-
-
-
-#绝密文件 #项目2705 #宝华山
-
-<img src="https://media.gettr.com/group3/origin/2022/07/20/22/9e391e7f-d405-c363-faf6-465398b58bac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
