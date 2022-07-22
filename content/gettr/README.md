@@ -8,6 +8,16 @@
 
 ---
 
+[@miles 7/22/2022 4:50 AM UTC ](/content/gettr/p1j976h2935.md)
+
+2022.07.22 罕见突发！⚠️⚠️⚠️🔊🔊🔊🔊🔊☯️美国证监会将9种加密货币列为证券 皆涉Coinbase内幕交易与电汇诈欺  . 信息量巨大！
+
+对于 喜币 Hcoin 是无限的利好，鸡血王 一语成谶 “Hcoin on the Moon ! ” 喜币飞上月亮🌜正式 绑定了 安全座椅，准备 离开 Earth 了。坐好啦，各位小可爱 大神 宝宝们，需要给咱们的七哥抱抱 ，他让我们远离了贫穷的恐惧 和 无苗，无限感恩文贵先生😄😄😄
+
+@...
+
+---
+
 [@miles 7/22/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1j8ytnca11.md)
 
 (1080版) 飞飞秀 《利益冲突·第十四篇》2022-07-21
@@ -19,14 +29,6 @@ For English：gettr.com/post/p1j9525139b
 #LUC #PAX #普衡 #破产案
 
 <img src="https://media.gettr.com/group12/origin/2022/07/22/01/06504b53-a1fa-20ae-3888-b0936ba478d5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 12:15 AM UTC  - :tv:直播](/content/gettr/p1j8456a654.md)
-
-7/21/2022 Miles Guo: The lawyer told me that the seller who dumped coins these two days was from Australia and is not a fellow fighter, and the coins he sold were purchased from the secondary market. None of our fellow fighters wer...
-
-<img src="https://media.gettr.com/group26/getter/2022/07/22/00/e827bc24-c5a1-7119-45cd-8c1867bf11e1/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,6 +45,14 @@ For English：gettr.com/post/p1j9525139b
 
 
 <img src="https://media.gettr.com/group25/origin/2022/07/22/01/91ac18c6-9013-8ad1-9623-62bf32a5ba41/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/22/2022 12:15 AM UTC  - :tv:直播](/content/gettr/p1j8456a654.md)
+
+7/21/2022 Miles Guo: The lawyer told me that the seller who dumped coins these two days was from Australia and is not a fellow fighter, and the coins he sold were purchased from the secondary market. None of our fellow fighters wer...
+
+<img src="https://media.gettr.com/group26/getter/2022/07/22/00/e827bc24-c5a1-7119-45cd-8c1867bf11e1/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,14 +215,6 @@ A. The Appointment of the Chapter 11 Trustee (I)
 7/20/2022 Miles Guo: The evil Chinese Communist Party has already built countless war-time military facilities in the busiest places and civilian facilities in Hong Kong and Shenzhen. As such, all the people of Hong Kong and Shenzh...
 
 <img src="https://media.gettr.com/group44/getter/2022/07/21/07/3c11b706-8d3a-9bed-97a3-2f44d50d5c80/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 6:55 AM UTC  - :tv:直播](/content/gettr/p1j5dn17d60.md)
-
-7/20/2022 Miles Guo: The U.S. intelligence agency admitted that they not only have obtained the CCP's military intelligence as exposed by our fellow fighter, but also that most of the military personnel on the list are already coop...
-
-<img src="https://media.gettr.com/group40/getter/2022/07/21/06/0333756c-7c36-dd22-75fa-1bc47d62ad3b/out.jpg" width="506" height="284">
 
 ---
 
