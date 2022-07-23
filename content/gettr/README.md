@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 7/23/2022 1:02 PM UTC ](/content/gettr/p1jfr8vf66c.md)
+
+2022.07.23．尊敬的战友们好！德国纽伦堡农场，这个视频做得太好了，太好了。
+
+---
+
 [@miles 7/23/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1jfqbq5437.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: JURISDICTION AND VENUE III. LEGAL BASIS FOR RELIEF A. Standard for Relief from Order under Fed. R. Civ. P. 60(b) （12-8）
@@ -70,9 +76,11 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 1:02 PM UTC ](/content/gettr/p1jfr8vf66c.md)
+[@miles 7/23/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p1jg44a7e37.md)
 
-2022.07.23．尊敬的战友们好！德国纽伦堡农场，这个视频做得太好了，太好了。
+2022.07.23 ：共产党你完了［为解决短期瓶颈和长期的供应链挑战，由美国国务卿布林肯和商务部长雷蒙多共同主持的“2022年供应链部长级论坛”于7月20日闭幕。参加此次视频会议的美国、欧盟、英国、法国、德国、日本、韩国、澳大利亚、加拿大、印度等共18个经济体，会后发表联合声明，明确供应链合作原则并承诺加以遵循。它们包括：透明度、多样化、安全性和可持续性。声明还特别提到了防止强迫劳动，坚持高环境和劳工标准。声明最后称：“我们欢迎所有经济体以及其他利益相关者...
+
+<img src="https://media.gettr.com/group13/getter/2022/07/23/13/4e815540-dde1-b63f-bd75-990f7c433f89/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ For English：gettr.com/post/p1je0x00d2d
 [@miles 7/23/2022 12:03 AM UTC ](/content/gettr/p1jdi3i3a35.md)
 
 观《战》
-
----
-
-[@miles 7/22/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1jdr0me069.md)
-
-7/20/2022 Miles Guo: Putin got Xi’s approval before he met with Khamenei! The ultimate goal of the “One Belt One Road” scheme, the internationalization and digitalization of RMB is to control the global energy supply and take down ...
-
-<img src="https://media.gettr.com/group7/getter/2022/07/22/22/151a1897-acf0-b0c9-6979-c3be573dbd1e/out.jpg" width="506" height="284">
 
 ---
 
