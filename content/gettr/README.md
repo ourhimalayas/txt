@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/23/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1jhkzy3008.md)
+
+(1080版) 七月二十三日《军事大爆料》2022-07-23
+
+For English：gettr.com/post/p1jhqavaa0b
+
+
+
+#绝密文件 #项目2709 #电子对抗兵 #军民融合
+
+<img src="https://media.gettr.com/group43/origin/2022/07/23/22/003dc9c8-0c0a-6884-b4c5-0c2246a9231c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 8:57 PM UTC  - :tv:直播](/content/gettr/p1jhrdd9f75.md)
+
+2022. 07.23 Nicole 看七哥 第二期 谈七哥对战友的包容
+
+<img src="https://media.gettr.com/group21/origin/2022/07/23/20/2ffd687e-685c-ef87-b5a4-7d629106b75a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 8:33 PM UTC ](/content/gettr/p1jhgqd8c06.md)
 
 🥰
@@ -116,11 +138,17 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 8:57 PM UTC  - :tv:直播](/content/gettr/p1jhrdd9f75.md)
+[@miles 7/23/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1jhju29991.md)
 
-2022. 07.23 Nicole 看七哥 第二期 谈七哥对战友的包容
+(4K版) 七月二十三日《军事大爆料》2022-07-23
 
-<img src="https://media.gettr.com/group21/origin/2022/07/23/20/2ffd687e-685c-ef87-b5a4-7d629106b75a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/post/p1jhqavaa0b
+
+
+
+#绝密文件 #项目2709 #电子对抗兵 #军民融合
+
+<img src="https://media.gettr.com/group43/origin/2022/07/23/22/003dc9c8-0c0a-6884-b4c5-0c2246a9231c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,34 +189,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 [@miles 7/23/2022 3:37 AM UTC ](/content/gettr/p1jehkaf50f.md)
 
 2022.07.22 https://gettr.com/post/p1je4bx18b5
-
----
-
-[@miles 7/23/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p1jeax22d4f.md)
-
-(4K版) 飞飞秀 《利益冲突·第十五篇》2022-07-22
-
-For English：gettr.com/post/p1je0x00d2d
-
-
-
-#PrasMichel #刘特佐 #遣返案 #破产案
-
-<img src="https://media.gettr.com/group18/origin/2022/07/23/01/85a04716-c604-8ef6-0fcf-c541673fa10c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p1jdy5540e8.md)
-
-(1080版) 飞飞秀 《利益冲突·第十五篇》2022-07-22
-
-For English：gettr.com/post/p1je0x00d2d
-
-
-
-#PrasMichel #刘特佐 #遣返案 #破产案
-
-<img src="https://media.gettr.com/group30/origin/2022/07/23/01/a7016b1d-2f4f-f252-c436-5fe249d71b00/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
