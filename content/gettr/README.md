@@ -2,11 +2,53 @@
 ---
 
 
+[@qmay007 7/23/2022 12:08 AM UTC  - :tv:直播](/content/gettr/p1jdssxcbf8.md)
+
+Super-May线上直播音乐会 第十七期：迪士尼电影歌曲特辑
+
+歌手：Superman @supermanwang
+
+钢琴、歌手：Qmay
+
+嘉宾：Bunny @LeisureBunny 
+
+<img src="https://media.gettr.com/group27/origin/2022/07/23/00/6861ea2c-30f6-3cf0-2b06-7e7af3465f8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p1jeax22d4f.md)
+
+(4K版) 飞飞秀 《利益冲突·第十五篇》2022-07-22
+
+For English：gettr.com/post/p1je0x00d2d
+
+
+
+#PrasMichel #刘特佐 #遣返案 #破产案
+
+<img src="https://media.gettr.com/group18/origin/2022/07/23/01/85a04716-c604-8ef6-0fcf-c541673fa10c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jdfbpd3b5.md)
 
 7/22/2022  Miles Guo: The lawyer representing us at yesterday's court hearing is a professional attorney with over 30 years experience, and he is the most qualified person who can determine whether or not there is a conflict of int...
 
 <img src="https://media.gettr.com/group35/getter/2022/07/23/00/ee9057c5-8a74-7e52-1431-a4bd63c92ff9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p1jdy5540e8.md)
+
+(1080版) 飞飞秀 《利益冲突·第十五篇》2022-07-22
+
+For English：gettr.com/post/p1je0x00d2d
+
+
+
+#PrasMichel #刘特佐 #遣返案 #破产案
+
+<img src="https://media.gettr.com/group30/origin/2022/07/23/01/a7016b1d-2f4f-f252-c436-5fe249d71b00/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -134,14 +176,6 @@ Attachment 2: The First Batch of Branch Line Optical...
 
 ---
 
-[@miles 7/22/2022 12:15 AM UTC  - :tv:直播](/content/gettr/p1j8456a654.md)
-
-7/21/2022 Miles Guo: The lawyer told me that the seller who dumped coins these two days was from Australia and is not a fellow fighter, and the coins he sold were purchased from the secondary market. None of our fellow fighters wer...
-
-<img src="https://media.gettr.com/group26/getter/2022/07/22/00/e827bc24-c5a1-7119-45cd-8c1867bf11e1/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/22/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1j91125560.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: 
@@ -151,22 +185,6 @@ III. 	LEGAL BASIS FOR RELIEF
 C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon N...
 
 <img src="https://media.gettr.com/group27/getter/2022/07/22/00/e1b956b0-778a-78fd-9c1d-895857c03024/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1j7r3o9506.md)
-
-7/21/2022 Miles Guo: Our fellow fighters are so remarkable! Few of them have dumped their Himalaya Coins recently, nor are there any fellow fighters who doubt the future of the Himalaya Exchange. Here is my message to the senior ex...
-
-<img src="https://media.gettr.com/group31/getter/2022/07/21/22/1c1b77b5-6397-a5f5-a053-764b1c459a61/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1j8i7k5b0c.md)
-
-7/20/2022 Miles Guo: We got the U.S. intelligence official’s approval to make the CCP’s top classified military information public; Sadly, the same information was smeared as disinformation by some senior Taiwanese military officia...
-
-<img src="https://media.gettr.com/group15/getter/2022/07/21/22/57cfce79-07e0-e99e-0bf3-ac1c08c45fbe/out.jpg" width="506" height="284">
 
 ---
 
