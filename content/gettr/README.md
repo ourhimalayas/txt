@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/23/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p1jg75458cf.md)
+
+2022年7月23号：，
+
+尊敬的战友们好……共产党的假．骗．偷．正在毁掉所有中国人……在世界上的信用和我们孩子的未来——醒来吧，不要再为了一点本应有的吃穿……而毁掉我们所有的未来……只有消灭中国共产党，我们才能体面快乐的做一个尊严的人类……看看这个世界每时每刻都发生什么？对中国人的仇恨……对中国人的愤怒……限制．攻击中国人的政策……时时刻刻都在发生，而这不是中国人的错，只是共产党这个流氓集团……为要统治中国人民．对中国人洗脑对世界上的侵略政策……和那几个大...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/23/14/26e0604f-493c-95c1-7504-e7a6d834c640/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1jfeet7b7d.md)
 
 7/22/2022 Miles Guo: Bruno Wu has paid the legal fees for Rui Ma's case and provided hundreds of thousands of dollars to Boxun to fund its intelligence operations in the US. Boxun colluded with Bruno Wu to extort tens of millions o...
@@ -100,13 +110,9 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p1jg75458cf.md)
+[@miles 7/23/2022 8:33 PM UTC ](/content/gettr/p1jhgqd8c06.md)
 
-2022年7月23号：，
-
-尊敬的战友们好……共产党的假．骗．偷．正在毁掉所有中国人……在世界上的信用和我们孩子的未来——醒来吧，不要再为了一点本应有的吃穿……而毁掉我们所有的未来……只有消灭中国共产党，我们才能体面快乐的做一个尊严的人类……看看这个世界每时每刻都发生什么？对中国人的仇恨……对中国人的愤怒……限制．攻击中国人的政策……时时刻刻都在发生，而这不是中国人的错，只是共产党这个流氓集团……为要统治中国人民．对中国人洗脑对世界上的侵略政策……和那几个大...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/23/14/26e0604f-493c-95c1-7504-e7a6d834c640/out.jpg" width="506" height="284">
+🥰
 
 ---
 
@@ -189,14 +195,6 @@ For English：gettr.com/post/p1je0x00d2d
 #PrasMichel #刘特佐 #遣返案 #破产案
 
 <img src="https://media.gettr.com/group30/origin/2022/07/23/01/a7016b1d-2f4f-f252-c436-5fe249d71b00/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 9:19 PM UTC  - :tv:直播](/content/gettr/p1jd0o8d228.md)
-
-2022.07.22 第一期 全球首播 分享战友眼中的七哥
-
-<img src="https://media.gettr.com/group18/origin/2022/07/22/21/933c991a-87c5-dbae-ba24-0fb34f8b7823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
