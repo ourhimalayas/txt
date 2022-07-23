@@ -16,6 +16,12 @@ Super-May线上直播音乐会 第十七期：迪士尼电影歌曲特辑
 
 ---
 
+[@miles 7/23/2022 3:37 AM UTC ](/content/gettr/p1jehkaf50f.md)
+
+2022.07.22 https://gettr.com/post/p1je4bx18b5
+
+---
+
 [@miles 7/23/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p1jeax22d4f.md)
 
 (4K版) 飞飞秀 《利益冲突·第十五篇》2022-07-22
@@ -30,14 +36,6 @@ For English：gettr.com/post/p1je0x00d2d
 
 ---
 
-[@miles 7/23/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jdfbpd3b5.md)
-
-7/22/2022  Miles Guo: The lawyer representing us at yesterday's court hearing is a professional attorney with over 30 years experience, and he is the most qualified person who can determine whether or not there is a conflict of int...
-
-<img src="https://media.gettr.com/group35/getter/2022/07/23/00/ee9057c5-8a74-7e52-1431-a4bd63c92ff9/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/23/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p1jdy5540e8.md)
 
 (1080版) 飞飞秀 《利益冲突·第十五篇》2022-07-22
@@ -49,6 +47,14 @@ For English：gettr.com/post/p1je0x00d2d
 #PrasMichel #刘特佐 #遣返案 #破产案
 
 <img src="https://media.gettr.com/group30/origin/2022/07/23/01/a7016b1d-2f4f-f252-c436-5fe249d71b00/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jdfbpd3b5.md)
+
+7/22/2022  Miles Guo: The lawyer representing us at yesterday's court hearing is a professional attorney with over 30 years experience, and he is the most qualified person who can determine whether or not there is a conflict of int...
+
+<img src="https://media.gettr.com/group35/getter/2022/07/23/00/ee9057c5-8a74-7e52-1431-a4bd63c92ff9/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,18 +179,6 @@ Attachment 2: The First Batch of Branch Line Optical...
 [@miles 7/22/2022 1:16 AM UTC ](/content/gettr/p1j8vfif8ee.md)
 
 2022.07.21 太棒了…战友们快来看吧……
-
----
-
-[@miles 7/22/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1j91125560.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: 
-
-III. 	LEGAL BASIS FOR RELIEF 
-
-C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon N...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/22/00/e1b956b0-778a-78fd-9c1d-895857c03024/out.jpg" width="506" height="284">
 
 ---
 
