@@ -10,6 +10,18 @@
 
 ---
 
+[@miles 7/23/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1jejlu1023.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: THE DEBTOR’S MOTION FOR RELIEF FROM ORDER APPOINTING LUC A. DESPINS AS CHAPTER 11 TRUSTEE （12-1)
+
+
+
+2022年7月15日，郭文贵先生的律师向法院提出...
+
+<img src="https://media.gettr.com/group42/getter/2022/07/23/07/da346659-73a2-9a13-4c9f-f9deeba4abf9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 6:51 AM UTC  - :tv:直播](/content/gettr/p1jerjf4269.md)
 
 7/22/2022 Miles Guo: Communist China listed me as a dissident in 2017 and bribed the US DOJ with big money in order to extradite me; on the contrary, over half of Paul Hastings' clients are from Communist China, and most of them ar...
@@ -18,19 +30,19 @@
 
 ---
 
-[@wanfowanshen 7/22/2022 6:50 PM UTC  - :tv:直播](/content/gettr/p1jd0xs6049.md)
-
-
-
-<img src="https://media.gettr.com/group35/gvision/2022/07/22/18/c9012acc-0829-585d-9ded-ac18cd1a8441/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/23/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p1jes07ce6d.md)
 
 7/22/2022 Miles Guo: The procedural justice speaks in the U.S. , that is why I believe that those who collude with the CCP and sue me in the U.S. will eventually lose as they are involved extensive procedural injustice. Yesterday's...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/23/06/a782fbe7-5d6d-4269-4be3-ec4f1f66ebc6/out.jpg" width="506" height="284">
+
+---
+
+[@wanfowanshen 7/22/2022 6:50 PM UTC  - :tv:直播](/content/gettr/p1jd0xs6049.md)
+
+
+
+<img src="https://media.gettr.com/group35/gvision/2022/07/22/18/c9012acc-0829-585d-9ded-ac18cd1a8441/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ For English：gettr.com/post/p1je0x00d2d
 2022.07.22 万分感谢战友制作的精美的视频。【七哥这是京剧《正道魂》请指教一下。】
 
 <img src="https://media.gettr.com/group20/getter/2022/07/22/14/0c17c34f-5d82-b92c-ad07-936d372c3e97/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 1:36 PM UTC  - :tv:直播](/content/gettr/p1jb0jf81e6.md)
-
-如何从共产党的超限战中学法，用法
-
-<img src="https://media.gettr.com/group16/origin/2022/07/22/13/3a645217-0b0e-d0f4-0704-2a705fec3c59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
