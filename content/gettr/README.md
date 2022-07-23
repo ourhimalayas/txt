@@ -16,6 +16,28 @@ For English：gettr.com/post/p1jhqavaa0b
 
 ---
 
+[@miles 7/23/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1jhc7y8620.md)
+
+7/20/2022 Miles Guo: The CCP has nuclear command centers at Yuquan Mountain and Fenghuangling Park near Beijing. The damage to the CCP brought by this military intel exposure is endless, since there is no way for the CCP to rebuild...
+
+<img src="https://media.gettr.com/group7/getter/2022/07/23/22/95459c48-8b7c-d077-ba52-eb2615a346d4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1jhju29991.md)
+
+(4K版) 七月二十三日《军事大爆料》2022-07-23
+
+For English：gettr.com/post/p1jhqavaa0b
+
+
+
+#绝密文件 #项目2709 #电子对抗兵 #军民融合
+
+<img src="https://media.gettr.com/group43/origin/2022/07/23/22/003dc9c8-0c0a-6884-b4c5-0c2246a9231c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 8:57 PM UTC  - :tv:直播](/content/gettr/p1jhrdd9f75.md)
 
 2022. 07.23 Nicole 看七哥 第二期 谈七哥对战友的包容
@@ -138,20 +160,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1jhju29991.md)
-
-(4K版) 七月二十三日《军事大爆料》2022-07-23
-
-For English：gettr.com/post/p1jhqavaa0b
-
-
-
-#绝密文件 #项目2709 #电子对抗兵 #军民融合
-
-<img src="https://media.gettr.com/group43/origin/2022/07/23/22/003dc9c8-0c0a-6884-b4c5-0c2246a9231c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/23/2022 6:51 AM UTC  - :tv:直播](/content/gettr/p1jerjf4269.md)
 
 7/22/2022 Miles Guo: Communist China listed me as a dissident in 2017 and bribed the US DOJ with big money in order to extradite me; on the contrary, over half of Paul Hastings' clients are from Communist China, and most of them ar...
@@ -183,12 +191,6 @@ For English：gettr.com/post/p1jhqavaa0b
 #郭文贵 #爆料革命 #吴征 #杨澜 #钥匙澜 #捡钥匙 #川普 #Truth #共产党 #ccp 
 
 <img src="https://media.gettr.com/group40/gvision/2022/07/04/09/2ffdda73-b907-9a59-e4c5-2ed128b07cdb/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 3:37 AM UTC ](/content/gettr/p1jehkaf50f.md)
-
-2022.07.22 https://gettr.com/post/p1je4bx18b5
 
 ---
 
