@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/23/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p1jg44a7e37.md)
+
+2022.07.23 ：共产党你完了［为解决短期瓶颈和长期的供应链挑战，由美国国务卿布林肯和商务部长雷蒙多共同主持的“2022年供应链部长级论坛”于7月20日闭幕。参加此次视频会议的美国、欧盟、英国、法国、德国、日本、韩国、澳大利亚、加拿大、印度等共18个经济体，会后发表联合声明，明确供应链合作原则并承诺加以遵循。它们包括：透明度、多样化、安全性和可持续性。声明还特别提到了防止强迫劳动，坚持高环境和劳工标准。声明最后称：“我们欢迎所有经济体以及其他利益相关者...
+
+<img src="https://media.gettr.com/group13/getter/2022/07/23/13/4e815540-dde1-b63f-bd75-990f7c433f89/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 1:02 PM UTC ](/content/gettr/p1jfr8vf66c.md)
 
 2022.07.23．尊敬的战友们好！德国纽伦堡农场，这个视频做得太好了，太好了。
@@ -76,11 +84,11 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p1jg44a7e37.md)
+[@miles 7/23/2022 2:28 PM UTC  - :tv:直播](/content/gettr/p1jfw1sbafb.md)
 
-2022.07.23 ：共产党你完了［为解决短期瓶颈和长期的供应链挑战，由美国国务卿布林肯和商务部长雷蒙多共同主持的“2022年供应链部长级论坛”于7月20日闭幕。参加此次视频会议的美国、欧盟、英国、法国、德国、日本、韩国、澳大利亚、加拿大、印度等共18个经济体，会后发表联合声明，明确供应链合作原则并承诺加以遵循。它们包括：透明度、多样化、安全性和可持续性。声明还特别提到了防止强迫劳动，坚持高环境和劳工标准。声明最后称：“我们欢迎所有经济体以及其他利益相关者...
+2022.07.23 新中国联邦｜真人真事 第59期 🔥英国牛津梦想农场 Frank理工男文峰🔥
 
-<img src="https://media.gettr.com/group13/getter/2022/07/23/13/4e815540-dde1-b63f-bd75-990f7c433f89/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/07/23/14/021b279f-424b-b70a-3de6-39e2227e391b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ For English：gettr.com/post/p1je0x00d2d
 [@miles 7/23/2022 12:03 AM UTC ](/content/gettr/p1jdi3i3a35.md)
 
 观《战》
-
----
-
-[@miles 7/22/2022 10:34 PM UTC  - :tv:直播](/content/gettr/p1jdquu2932.md)
-
-7/22/2022 Miles Guo: For the first time in the US, the judge considered the trustee and his law firm separately in terms of whether the trustee has conflicts of interest at yesterday's court hearing. The judge will decide whether o...
-
-<img src="https://media.gettr.com/group16/getter/2022/07/22/22/a3aff874-88ee-aa97-1361-e256f740624a/out.jpg" width="506" height="284">
 
 ---
 
