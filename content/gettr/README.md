@@ -2,11 +2,33 @@
 ---
 
 
+[@miles 7/23/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jdfbpd3b5.md)
+
+7/22/2022  Miles Guo: The lawyer representing us at yesterday's court hearing is a professional attorney with over 30 years experience, and he is the most qualified person who can determine whether or not there is a conflict of int...
+
+<img src="https://media.gettr.com/group35/getter/2022/07/23/00/ee9057c5-8a74-7e52-1431-a4bd63c92ff9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 12:03 AM UTC ](/content/gettr/p1jdi3i3a35.md)
+
+观《战》
+
+---
+
 [@miles 7/22/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1jdr0me069.md)
 
 7/20/2022 Miles Guo: Putin got Xi’s approval before he met with Khamenei! The ultimate goal of the “One Belt One Road” scheme, the internationalization and digitalization of RMB is to control the global energy supply and take down ...
 
 <img src="https://media.gettr.com/group7/getter/2022/07/22/22/151a1897-acf0-b0c9-6979-c3be573dbd1e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/22/2022 10:34 PM UTC  - :tv:直播](/content/gettr/p1jdquu2932.md)
+
+7/22/2022 Miles Guo: For the first time in the US, the judge considered the trustee and his law firm separately in terms of whether the trustee has conflicts of interest at yesterday's court hearing. The judge will decide whether o...
+
+<img src="https://media.gettr.com/group16/getter/2022/07/22/22/a3aff874-88ee-aa97-1361-e256f740624a/out.jpg" width="506" height="284">
 
 ---
 
@@ -22,11 +44,11 @@
 
 ---
 
-[@miles 7/22/2022 10:34 PM UTC  - :tv:直播](/content/gettr/p1jdquu2932.md)
+[@miles 7/22/2022 9:19 PM UTC  - :tv:直播](/content/gettr/p1jd0o8d228.md)
 
-7/22/2022 Miles Guo: For the first time in the US, the judge considered the trustee and his law firm separately in terms of whether the trustee has conflicts of interest at yesterday's court hearing. The judge will decide whether o...
+2022.07.22 第一期 全球首播 分享战友眼中的七哥
 
-<img src="https://media.gettr.com/group16/getter/2022/07/22/22/a3aff874-88ee-aa97-1361-e256f740624a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/07/22/21/933c991a-87c5-dbae-ba24-0fb34f8b7823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -39,14 +61,6 @@
 #绝密文件 #项目2708 #短波 #油库
 
 <img src="https://media.gettr.com/group15/origin/2022/07/22/22/9dccab51-469d-ba15-5940-40d03e083bcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 9:19 PM UTC  - :tv:直播](/content/gettr/p1jd0o8d228.md)
-
-2022.07.22 第一期 全球首播 分享战友眼中的七哥
-
-<img src="https://media.gettr.com/group18/origin/2022/07/22/21/933c991a-87c5-dbae-ba24-0fb34f8b7823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,42 +159,6 @@ C. The Court Should Grant the Debtor Relief from the Despins Appointment Order B
 7/21/2022 Miles Guo: Our fellow fighters are so remarkable! Few of them have dumped their Himalaya Coins recently, nor are there any fellow fighters who doubt the future of the Himalaya Exchange. Here is my message to the senior ex...
 
 <img src="https://media.gettr.com/group31/getter/2022/07/21/22/1c1b77b5-6397-a5f5-a053-764b1c459a61/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j7xbue09c.md)
-
-(4K版) 七月二十一日《军事大爆料》2022-07-21
-
-For English：gettr.com/streaming/p1j8ackb82f
-
-
-
-#绝密文件 #项目2706 #上海指挥所
-
-<img src="https://media.gettr.com/group4/origin/2022/07/21/21/28e9f83c-1cf5-6ec4-8e0f-b7a9720688fe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p1j8g7d7f94.md)
-
-(1080版) 七月二十一日《军事大爆料》2022-07-21
-
-For English：gettr.com/streaming/p1j8ackb82f
-
-
-
-#绝密文件 #项目2706 #上海指挥所
-
-<img src="https://media.gettr.com/group18/origin/2022/07/21/21/73eb6080-67f0-1856-1689-5dfc60eee790/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/21/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1j89cp7435.md)
-
-7/20/2022 Miles Guo: The core power of PLA resides in Air Force, therefore our military intel exposure has destroyed at least half the CCP's combat capability; the CCP's military facilities and strongholds built beneath the kinderg...
-
-<img src="https://media.gettr.com/group12/getter/2022/07/21/22/cd4cce10-9cd5-27e2-fa9a-4071b8518d9c/out.jpg" width="506" height="284">
 
 ---
 
