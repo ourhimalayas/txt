@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/23/2022 2:28 PM UTC  - :tv:直播](/content/gettr/p1jfw1sbafb.md)
+
+2022.07.23 新中国联邦｜真人真事 第59期 🔥英国牛津梦想农场 Frank理工男文峰🔥
+
+<img src="https://media.gettr.com/group38/origin/2022/07/23/14/021b279f-424b-b70a-3de6-39e2227e391b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p1jg44a7e37.md)
 
 2022.07.23 ：共产党你完了［为解决短期瓶颈和长期的供应链挑战，由美国国务卿布林肯和商务部长雷蒙多共同主持的“2022年供应链部长级论坛”于7月20日闭幕。参加此次视频会议的美国、欧盟、英国、法国、德国、日本、韩国、澳大利亚、加拿大、印度等共18个经济体，会后发表联合声明，明确供应链合作原则并承诺加以遵循。它们包括：透明度、多样化、安全性和可持续性。声明还特别提到了防止强迫劳动，坚持高环境和劳工标准。声明最后称：“我们欢迎所有经济体以及其他利益相关者...
@@ -84,11 +92,11 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 2:28 PM UTC  - :tv:直播](/content/gettr/p1jfw1sbafb.md)
+[@miles 7/23/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1jfeet7b7d.md)
 
-2022.07.23 新中国联邦｜真人真事 第59期 🔥英国牛津梦想农场 Frank理工男文峰🔥
+7/22/2022 Miles Guo: Bruno Wu has paid the legal fees for Rui Ma's case and provided hundreds of thousands of dollars to Boxun to fund its intelligence operations in the US. Boxun colluded with Bruno Wu to extort tens of millions o...
 
-<img src="https://media.gettr.com/group38/origin/2022/07/23/14/021b279f-424b-b70a-3de6-39e2227e391b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/07/23/14/eacd8d81-843f-6979-1513-e2773188ab50/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ For English：gettr.com/post/p1je0x00d2d
 #PrasMichel #刘特佐 #遣返案 #破产案
 
 <img src="https://media.gettr.com/group30/origin/2022/07/23/01/a7016b1d-2f4f-f252-c436-5fe249d71b00/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jdfbpd3b5.md)
-
-7/22/2022  Miles Guo: The lawyer representing us at yesterday's court hearing is a professional attorney with over 30 years experience, and he is the most qualified person who can determine whether or not there is a conflict of int...
-
-<img src="https://media.gettr.com/group35/getter/2022/07/23/00/ee9057c5-8a74-7e52-1431-a4bd63c92ff9/out.jpg" width="506" height="284">
 
 ---
 
