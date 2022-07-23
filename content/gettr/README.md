@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/23/2022 8:02 AM UTC  - :tv:直播](/content/gettr/p1jelaw38a3.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (IV) (12-7)
+
+
+
+2...
+
+<img src="https://media.gettr.com/group24/getter/2022/07/23/07/8eca10bb-483d-b1ac-f8f6-8ea366d5bab2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1jehj56a4b.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (II) (12-5)
@@ -46,15 +58,15 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 8:02 AM UTC  - :tv:直播](/content/gettr/p1jelaw38a3.md)
+[@miles 7/23/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1jfqbq5437.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (IV) (12-7)
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: JURISDICTION AND VENUE III. LEGAL BASIS FOR RELIEF A. Standard for Relief from Order under Fed. R. Civ. P. 60(b) （12-8）
 
 
 
 2...
 
-<img src="https://media.gettr.com/group24/getter/2022/07/23/07/8eca10bb-483d-b1ac-f8f6-8ea366d5bab2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/07/23/12/e412fb86-7f4a-ee34-1b32-3fdf5a1cac03/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,18 +179,6 @@ For English：gettr.com/post/p1je0x00d2d
 7/22/2022 Miles Guo: For the first time in the US, the judge considered the trustee and his law firm separately in terms of whether the trustee has conflicts of interest at yesterday's court hearing. The judge will decide whether o...
 
 <img src="https://media.gettr.com/group16/getter/2022/07/22/22/a3aff874-88ee-aa97-1361-e256f740624a/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1jdq2w4e95.md)
-
-(4K版) 七月二十二日《军事大爆料》2022-07-22
-
-
-
-#绝密文件 #项目2708 #短波 #油库
-
-<img src="https://media.gettr.com/group15/origin/2022/07/22/22/9dccab51-469d-ba15-5940-40d03e083bcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
