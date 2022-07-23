@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/23/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1jhc7y8620.md)
+
+7/20/2022 Miles Guo: The CCP has nuclear command centers at Yuquan Mountain and Fenghuangling Park near Beijing. The damage to the CCP brought by this military intel exposure is endless, since there is no way for the CCP to rebuild...
+
+<img src="https://media.gettr.com/group7/getter/2022/07/23/22/95459c48-8b7c-d077-ba52-eb2615a346d4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1jhkzy3008.md)
 
 (1080版) 七月二十三日《军事大爆料》2022-07-23
@@ -16,11 +24,11 @@ For English：gettr.com/post/p1jhqavaa0b
 
 ---
 
-[@miles 7/23/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1jhc7y8620.md)
+[@miles 7/23/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1jhar2d29b.md)
 
-7/20/2022 Miles Guo: The CCP has nuclear command centers at Yuquan Mountain and Fenghuangling Park near Beijing. The damage to the CCP brought by this military intel exposure is endless, since there is no way for the CCP to rebuild...
+7/20/2022 Miles Guo: Any page of the military file we have exposed could put Lao Baixing in jail for life or even on death row in Communist China. You can imagine how much risk the fellow fighter had to take when bringing out the f...
 
-<img src="https://media.gettr.com/group7/getter/2022/07/23/22/95459c48-8b7c-d077-ba52-eb2615a346d4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/07/23/22/495022a8-4626-5c2a-9866-b1e303d7e8cc/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 7/22/2022 Miles Guo: The procedural justice speaks in the U.S. , that is why I believe that those who collude with the CCP and sue me in the U.S. will eventually lose as they are involved extensive procedural injustice. Yesterday's...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/23/06/a782fbe7-5d6d-4269-4be3-ec4f1f66ebc6/out.jpg" width="506" height="284">
-
----
-
-[@wanfowanshen 7/22/2022 6:50 PM UTC  - :tv:直播](/content/gettr/p1jd0xs6049.md)
-
-
-
-<img src="https://media.gettr.com/group35/gvision/2022/07/22/18/c9012acc-0829-585d-9ded-ac18cd1a8441/out.jpg" width="506" height="284">
 
 ---
 
