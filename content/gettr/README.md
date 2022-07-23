@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 7/23/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1jf6c0cb52.md)
-
-7/22/2022 Miles Guo: Yesterday in the court hearing, Luc Despins claimed what I said was contradictory because I said I trust the US judicial system, which is corrupted by the CCP though. Such a narrative is the same as those of th...
-
-<img src="https://media.gettr.com/group37/getter/2022/07/23/06/45752450-c453-9a7e-79b0-59cb3038fdce/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/23/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1jejlu1023.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: THE DEBTOR’S MOTION FOR RELIEF FROM ORDER APPOINTING LUC A. DESPINS AS CHAPTER 11 TRUSTEE （12-1)
@@ -19,6 +11,26 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 2022年7月15日，郭文贵先生的律师向法院提出...
 
 <img src="https://media.gettr.com/group42/getter/2022/07/23/07/da346659-73a2-9a13-4c9f-f9deeba4abf9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1jf6c0cb52.md)
+
+7/22/2022 Miles Guo: Yesterday in the court hearing, Luc Despins claimed what I said was contradictory because I said I trust the US judicial system, which is corrupted by the CCP though. Such a narrative is the same as those of th...
+
+<img src="https://media.gettr.com/group37/getter/2022/07/23/06/45752450-c453-9a7e-79b0-59cb3038fdce/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 7:38 AM UTC  - :tv:直播](/content/gettr/p1jev5z0a88.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (I) (12-4)
+
+
+
+20...
+
+<img src="https://media.gettr.com/group18/getter/2022/07/23/07/5a5d0046-30e6-8b63-5d88-22a1e8fd84dd/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +181,6 @@ For English：gettr.com/post/p1je0x00d2d
 [@miles 7/22/2022 2:50 PM UTC ](/content/gettr/p1jccuq6d4b.md)
 
 2022.07.22 ❤️❤️❤️❤️
-
----
-
-[@miles 7/22/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p1jbrc2f896.md)
-
-2022.07.22 万分感谢战友制作的精美的视频。【七哥这是京剧《正道魂》请指教一下。】
-
-<img src="https://media.gettr.com/group20/getter/2022/07/22/14/0c17c34f-5d82-b92c-ad07-936d372c3e97/out.jpg" width="506" height="284">
 
 ---
 
