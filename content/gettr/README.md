@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/23/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1jehj56a4b.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (II) (12-5)
+
+
+
+2...
+
+<img src="https://media.gettr.com/group17/getter/2022/07/23/07/373efdf4-569b-289e-c020-c51b339bb944/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 7:38 AM UTC  - :tv:直播](/content/gettr/p1jev5z0a88.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (I) (12-4)
@@ -34,15 +46,15 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1jehj56a4b.md)
+[@miles 7/23/2022 8:02 AM UTC  - :tv:直播](/content/gettr/p1jelaw38a3.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (II) (12-5)
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (IV) (12-7)
 
 
 
 2...
 
-<img src="https://media.gettr.com/group17/getter/2022/07/23/07/373efdf4-569b-289e-c020-c51b339bb944/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/07/23/07/8eca10bb-483d-b1ac-f8f6-8ea366d5bab2/out.jpg" width="506" height="284">
 
 ---
 
