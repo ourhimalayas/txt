@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/23/2022 7:38 AM UTC  - :tv:直播](/content/gettr/p1jev5z0a88.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (I) (12-4)
+
+
+
+20...
+
+<img src="https://media.gettr.com/group18/getter/2022/07/23/07/5a5d0046-30e6-8b63-5d88-22a1e8fd84dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1jejlu1023.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: THE DEBTOR’S MOTION FOR RELIEF FROM ORDER APPOINTING LUC A. DESPINS AS CHAPTER 11 TRUSTEE （12-1)
@@ -22,15 +34,15 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 
 ---
 
-[@miles 7/23/2022 7:38 AM UTC  - :tv:直播](/content/gettr/p1jev5z0a88.md)
+[@miles 7/23/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1jehj56a4b.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (I) (12-4)
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (II) (12-5)
 
 
 
-20...
+2...
 
-<img src="https://media.gettr.com/group18/getter/2022/07/23/07/5a5d0046-30e6-8b63-5d88-22a1e8fd84dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/07/23/07/373efdf4-569b-289e-c020-c51b339bb944/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,12 +187,6 @@ For English：gettr.com/post/p1je0x00d2d
 #绝密文件 #项目2708 #短波 #油库
 
 <img src="https://media.gettr.com/group15/origin/2022/07/22/22/9dccab51-469d-ba15-5940-40d03e083bcd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 2:50 PM UTC ](/content/gettr/p1jccuq6d4b.md)
-
-2022.07.22 ❤️❤️❤️❤️
 
 ---
 
