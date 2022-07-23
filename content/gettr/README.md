@@ -2,11 +2,45 @@
 ---
 
 
+[@miles 7/23/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1jf6c0cb52.md)
+
+7/22/2022 Miles Guo: Yesterday in the court hearing, Luc Despins claimed what I said was contradictory because I said I trust the US judicial system, which is corrupted by the CCP though. Such a narrative is the same as those of th...
+
+<img src="https://media.gettr.com/group37/getter/2022/07/23/06/45752450-c453-9a7e-79b0-59cb3038fdce/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 6:51 AM UTC  - :tv:直播](/content/gettr/p1jerjf4269.md)
+
+7/22/2022 Miles Guo: Communist China listed me as a dissident in 2017 and bribed the US DOJ with big money in order to extradite me; on the contrary, over half of Paul Hastings' clients are from Communist China, and most of them ar...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/23/06/c402495a-6b61-3ddc-8ad1-d45625d38637/out.jpg" width="506" height="284">
+
+---
+
 [@wanfowanshen 7/22/2022 6:50 PM UTC  - :tv:直播](/content/gettr/p1jd0xs6049.md)
 
 
 
 <img src="https://media.gettr.com/group35/gvision/2022/07/22/18/c9012acc-0829-585d-9ded-ac18cd1a8441/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/23/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p1jes07ce6d.md)
+
+7/22/2022 Miles Guo: The procedural justice speaks in the U.S. , that is why I believe that those who collude with the CCP and sue me in the U.S. will eventually lose as they are involved extensive procedural injustice. Yesterday's...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/23/06/a782fbe7-5d6d-4269-4be3-ec4f1f66ebc6/out.jpg" width="506" height="284">
+
+---
+
+[@blue_lotus 7/4/2022 9:33 AM UTC  - :tv:直播](/content/gettr/p1gzo853081.md)
+
+吴征为代表的共产党、撒谎是祖传级的   
+
+#郭文贵 #爆料革命 #吴征 #杨澜 #钥匙澜 #捡钥匙 #川普 #Truth #共产党 #ccp 
+
+<img src="https://media.gettr.com/group40/gvision/2022/07/04/09/2ffdda73-b907-9a59-e4c5-2ed128b07cdb/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,16 +61,6 @@ Super-May线上直播音乐会 第十七期：迪士尼电影歌曲特辑
 嘉宾：Bunny @LeisureBunny 
 
 <img src="https://media.gettr.com/group27/origin/2022/07/23/00/6861ea2c-30f6-3cf0-2b06-7e7af3465f8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@blue_lotus 7/4/2022 9:33 AM UTC  - :tv:直播](/content/gettr/p1gzo853081.md)
-
-吴征为代表的共产党、撒谎是祖传级的   
-
-#郭文贵 #爆料革命 #吴征 #杨澜 #钥匙澜 #捡钥匙 #川普 #Truth #共产党 #ccp 
-
-<img src="https://media.gettr.com/group40/gvision/2022/07/04/09/2ffdda73-b907-9a59-e4c5-2ed128b07cdb/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,38 +173,6 @@ For English：gettr.com/post/p1je0x00d2d
 如何从共产党的超限战中学法，用法
 
 <img src="https://media.gettr.com/group16/origin/2022/07/22/13/3a645217-0b0e-d0f4-0704-2a705fec3c59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 1:15 PM UTC  - :tv:直播](/content/gettr/p1jax2be6ae.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (III) 
-
-
-
-2022年7...
-
-<img src="https://media.gettr.com/group3/getter/2022/07/22/13/d4dab11c-9977-2b7f-7a6c-5f54c0ffb36a/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 12:20 PM UTC  - :tv:直播](/content/gettr/p1jauni2335.md)
-
-2022.07.22 这闺女啊，不简单……将是德国．和欧洲未来的政治新星……对中国共产党的邪恶有着不同的看法……我相信她未来会．为我们新中国联邦做出很多很多的事情。
-
-<img src="https://media.gettr.com/group50/getter/2022/07/22/12/f3a55a15-e892-28a0-8e69-2bf077ca3b8a/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/22/2022 10:09 AM UTC  - :tv:直播](/content/gettr/p1jasx2edf5.md)
-
-Exclusive: Command Communication [2007] No. 86, Secret 
-
-Submitting the First Batch of Branch Line Optical Cable Construction Project for the PLA Air Force(Request for Approval)
-
-Attachment 2: The First Batch of Branch Line Optical...
-
-<img src="https://media.gettr.com/group48/getter/2022/07/22/10/bb765f1d-64c3-b908-d419-7ffd085c147b/out.jpg" width="506" height="284">
 
 ---
 
