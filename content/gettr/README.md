@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/24/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1jlqu0c454.md)
+
+(1080版) 七月二十四日《军事大爆料》2022-07-24
+
+For English：gettr.com/streaming/p1jlqal30b2
+
+
+
+#绝密文件 #项目参与和实施人员
+
+<img src="https://media.gettr.com/group37/origin/2022/07/24/22/235b9053-1bd6-7cb7-417f-7bd3631f6bd1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@gtvrealpeople 7/24/2022 9:25 PM UTC  - :tv:直播](/content/gettr/p1jlvdbbc44.md)
+
+2022.07.24 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group25/origin/2022/07/24/19/e67324c2-7bf8-f6ad-587d-0cb6b30fbd42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@pistachiomygosh 7/18/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1itu8yd625.md)
 
 Day 19: Check out my post for the full workout breakdown! (Somehow my videos keep getting cropped awkwardly no matter what resolution I download the mash-up with - any suggestions @support?) #你健身了吗？
@@ -34,11 +56,17 @@ Day 19: Check out my post for the full workout breakdown! (Somehow my videos kee
 
 ---
 
-[@gtvrealpeople 7/24/2022 9:25 PM UTC  - :tv:直播](/content/gettr/p1jlvdbbc44.md)
+[@miles 7/24/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1jlcaq587b.md)
 
-2022.07.24 G | Clubs 会员游船活动
+(4K版) 七月二十四日《军事大爆料》2022-07-24
 
-<img src="https://media.gettr.com/group25/origin/2022/07/24/19/e67324c2-7bf8-f6ad-587d-0cb6b30fbd42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1jlqal30b2
+
+
+
+#绝密文件 #项目参与和实施人员
+
+<img src="https://media.gettr.com/group31/origin/2022/07/24/22/e1e373f9-25df-f1df-41a9-a57a432a3158/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -186,20 +214,6 @@ For English：gettr.com/post/p1jifan0f51
 
 ---
 
-[@miles 7/23/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1jhkzy3008.md)
-
-(1080版) 七月二十三日《军事大爆料》2022-07-23
-
-For English：gettr.com/post/p1jhqavaa0b
-
-
-
-#绝密文件 #项目2709 #电子对抗兵 #军民融合
-
-<img src="https://media.gettr.com/group43/origin/2022/07/23/22/003dc9c8-0c0a-6884-b4c5-0c2246a9231c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/23/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1jhju29991.md)
 
 (4K版) 七月二十三日《军事大爆料》2022-07-23
@@ -211,14 +225,6 @@ For English：gettr.com/post/p1jhqavaa0b
 #绝密文件 #项目2709 #电子对抗兵 #军民融合
 
 <img src="https://media.gettr.com/group43/origin/2022/07/23/22/003dc9c8-0c0a-6884-b4c5-0c2246a9231c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 8:57 PM UTC  - :tv:直播](/content/gettr/p1jhrdd9f75.md)
-
-2022. 07.23 Nicole 看七哥 第二期 谈七哥对战友的包容
-
-<img src="https://media.gettr.com/group21/origin/2022/07/23/20/2ffd687e-685c-ef87-b5a4-7d629106b75a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
