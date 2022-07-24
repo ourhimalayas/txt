@@ -16,6 +16,32 @@ For English：gettr.com/post/p1jifan0f51
 
 ---
 
+[@miles 7/24/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1jimei4cd6.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF B. The Trustee Must Be a “Disinterested Person“（12-9）
+
+
+
+2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A Despin...
+
+<img src="https://media.gettr.com/group35/getter/2022/07/24/03/08284dde-ec23-0770-50b0-6948bc451d7f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/24/2022 1:32 AM UTC  - :tv:直播](/content/gettr/p1jhvz6ed17.md)
+
+(4K版) 飞飞秀 《第十六篇·中共绑架世界》2022-07-23
+
+For English：gettr.com/post/p1jifan0f51
+
+
+
+#guomedia #苹果商店 #破产案
+
+<img src="https://media.gettr.com/group22/origin/2022/07/24/01/fc49f717-a7c1-6181-1c39-6a6c1a8683d7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 7/24/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1ji11oae8f.md)
 
 《战》
@@ -71,20 +97,6 @@ For English：gettr.com/post/p1jhqavaa0b
 #绝密文件 #项目2709 #电子对抗兵 #军民融合
 
 <img src="https://media.gettr.com/group43/origin/2022/07/23/22/003dc9c8-0c0a-6884-b4c5-0c2246a9231c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 1:32 AM UTC  - :tv:直播](/content/gettr/p1jhvz6ed17.md)
-
-(4K版) 飞飞秀 《第十六篇·中共绑架世界》2022-07-23
-
-For English：gettr.com/post/p1jifan0f51
-
-
-
-#guomedia #苹果商店 #破产案
-
-<img src="https://media.gettr.com/group22/origin/2022/07/24/01/fc49f717-a7c1-6181-1c39-6a6c1a8683d7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -213,14 +225,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 2022年7月15日，郭文贵先生的律师向法院提出...
 
 <img src="https://media.gettr.com/group42/getter/2022/07/23/07/da346659-73a2-9a13-4c9f-f9deeba4abf9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p1jes07ce6d.md)
-
-7/22/2022 Miles Guo: The procedural justice speaks in the U.S. , that is why I believe that those who collude with the CCP and sue me in the U.S. will eventually lose as they are involved extensive procedural injustice. Yesterday's...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/23/06/a782fbe7-5d6d-4269-4be3-ec4f1f66ebc6/out.jpg" width="506" height="284">
 
 ---
 
