@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/24/2022 11:48 AM UTC  - :tv:直播](/content/gettr/p1jjat9a2ce.md)
+
+2022.07.24 衷心地感谢日本🇯🇵银河农场．所做的这些精美的专业的视频，一切尽在不言中。
+
+<img src="https://media.gettr.com/group32/getter/2022/07/24/11/5cea92cf-90c2-74ff-3e06-5c9adfe804a6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/24/2022 8:19 AM UTC  - :tv:直播](/content/gettr/p1jj9310cb2.md)
+
+7/23/2022 Miles Guo: The CCP kleptocrats have spent the hard-earned money of the Chinese Lao Baixing purchasing properties in Manhattan, which is the most expensive place in the world. The average monthly property management fees f...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/24/08/f9c8b4c0-76f7-4835-3cae-b9f21ecb94b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1ji8bnce70.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
@@ -61,14 +77,6 @@ For English：gettr.com/post/p1jifan0f51
 #guomedia #苹果商店 #破产案
 
 <img src="https://media.gettr.com/group24/origin/2022/07/24/01/bed69b3b-2184-3f99-2365-9e596b30c7ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 8:19 AM UTC  - :tv:直播](/content/gettr/p1jj9310cb2.md)
-
-7/23/2022 Miles Guo: The CCP kleptocrats have spent the hard-earned money of the Chinese Lao Baixing purchasing properties in Manhattan, which is the most expensive place in the world. The average monthly property management fees f...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/24/08/f9c8b4c0-76f7-4835-3cae-b9f21ecb94b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,12 +211,6 @@ For English：gettr.com/post/p1jhqavaa0b
 2022.07.23 ：共产党你完了［为解决短期瓶颈和长期的供应链挑战，由美国国务卿布林肯和商务部长雷蒙多共同主持的“2022年供应链部长级论坛”于7月20日闭幕。参加此次视频会议的美国、欧盟、英国、法国、德国、日本、韩国、澳大利亚、加拿大、印度等共18个经济体，会后发表联合声明，明确供应链合作原则并承诺加以遵循。它们包括：透明度、多样化、安全性和可持续性。声明还特别提到了防止强迫劳动，坚持高环境和劳工标准。声明最后称：“我们欢迎所有经济体以及其他利益相关者...
 
 <img src="https://media.gettr.com/group13/getter/2022/07/23/13/4e815540-dde1-b63f-bd75-990f7c433f89/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 1:02 PM UTC ](/content/gettr/p1jfr8vf66c.md)
-
-2022.07.23．尊敬的战友们好！德国纽伦堡农场，这个视频做得太好了，太好了。
 
 ---
 
