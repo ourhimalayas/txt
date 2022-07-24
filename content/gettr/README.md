@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/23/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1jhar2d29b.md)
+
+7/20/2022 Miles Guo: Any page of the military file we have exposed could put Lao Baixing in jail for life or even on death row in Communist China. You can imagine how much risk the fellow fighter had to take when bringing out the f...
+
+<img src="https://media.gettr.com/group40/getter/2022/07/23/22/495022a8-4626-5c2a-9866-b1e303d7e8cc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1jhc7y8620.md)
 
 7/20/2022 Miles Guo: The CCP has nuclear command centers at Yuquan Mountain and Fenghuangling Park near Beijing. The damage to the CCP brought by this military intel exposure is endless, since there is no way for the CCP to rebuild...
@@ -24,11 +32,31 @@ For English：gettr.com/post/p1jhqavaa0b
 
 ---
 
-[@miles 7/23/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1jhar2d29b.md)
+[@newyorkrock 7/24/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1ji11oae8f.md)
 
-7/20/2022 Miles Guo: Any page of the military file we have exposed could put Lao Baixing in jail for life or even on death row in Communist China. You can imagine how much risk the fellow fighter had to take when bringing out the f...
+《战》
 
-<img src="https://media.gettr.com/group40/getter/2022/07/23/22/495022a8-4626-5c2a-9866-b1e303d7e8cc/out.jpg" width="506" height="284">
+第一季《空军机密文件解析》
+
+（5）2707项目中的“和田”阴谋以及2706项目浅析
+
+#磐石农场
+
+威廉王 NICK 
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+
+
+<img src="https://media.gettr.com/group37/origin/2022/07/23/19/0d59f301-5f78-cde6-b006-0311b0a6b8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,16 +209,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 7/22/2022 Miles Guo: The procedural justice speaks in the U.S. , that is why I believe that those who collude with the CCP and sue me in the U.S. will eventually lose as they are involved extensive procedural injustice. Yesterday's...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/23/06/a782fbe7-5d6d-4269-4be3-ec4f1f66ebc6/out.jpg" width="506" height="284">
-
----
-
-[@blue_lotus 7/4/2022 9:33 AM UTC  - :tv:直播](/content/gettr/p1gzo853081.md)
-
-吴征为代表的共产党、撒谎是祖传级的   
-
-#郭文贵 #爆料革命 #吴征 #杨澜 #钥匙澜 #捡钥匙 #川普 #Truth #共产党 #ccp 
-
-<img src="https://media.gettr.com/group40/gvision/2022/07/04/09/2ffdda73-b907-9a59-e4c5-2ed128b07cdb/out.jpg" width="506" height="284">
 
 ---
 
