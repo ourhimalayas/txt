@@ -2,6 +2,48 @@
 ---
 
 
+[@miles 7/24/2022 1:32 AM UTC  - :tv:直播](/content/gettr/p1jhsdbfec6.md)
+
+(1080版) 飞飞秀 《第十六篇·中共绑架世界》2022-07-23
+
+For English：gettr.com/post/p1jifan0f51
+
+
+
+#guomedia #苹果商店 #破产案
+
+<img src="https://media.gettr.com/group24/origin/2022/07/24/01/bed69b3b-2184-3f99-2365-9e596b30c7ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 7/24/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1ji11oae8f.md)
+
+《战》
+
+第一季《空军机密文件解析》
+
+（5）2707项目中的“和田”阴谋以及2706项目浅析
+
+#磐石农场
+
+威廉王 NICK 
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+
+
+<img src="https://media.gettr.com/group37/origin/2022/07/23/19/0d59f301-5f78-cde6-b006-0311b0a6b8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/23/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1jhar2d29b.md)
 
 7/20/2022 Miles Guo: Any page of the military file we have exposed could put Lao Baixing in jail for life or even on death row in Communist China. You can imagine how much risk the fellow fighter had to take when bringing out the f...
@@ -32,31 +74,17 @@ For English：gettr.com/post/p1jhqavaa0b
 
 ---
 
-[@newyorkrock 7/24/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1ji11oae8f.md)
+[@miles 7/24/2022 1:32 AM UTC  - :tv:直播](/content/gettr/p1jhvz6ed17.md)
 
-《战》
+(4K版) 飞飞秀 《第十六篇·中共绑架世界》2022-07-23
 
-第一季《空军机密文件解析》
-
-（5）2707项目中的“和田”阴谋以及2706项目浅析
-
-#磐石农场
-
-威廉王 NICK 
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
+For English：gettr.com/post/p1jifan0f51
 
 
 
-<img src="https://media.gettr.com/group37/origin/2022/07/23/19/0d59f301-5f78-cde6-b006-0311b0a6b8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#guomedia #苹果商店 #破产案
+
+<img src="https://media.gettr.com/group22/origin/2022/07/24/01/fc49f717-a7c1-6181-1c39-6a6c1a8683d7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,22 +213,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 2022年7月15日，郭文贵先生的律师向法院提出...
 
 <img src="https://media.gettr.com/group42/getter/2022/07/23/07/da346659-73a2-9a13-4c9f-f9deeba4abf9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1jf6c0cb52.md)
-
-7/22/2022 Miles Guo: Yesterday in the court hearing, Luc Despins claimed what I said was contradictory because I said I trust the US judicial system, which is corrupted by the CCP though. Such a narrative is the same as those of th...
-
-<img src="https://media.gettr.com/group37/getter/2022/07/23/06/45752450-c453-9a7e-79b0-59cb3038fdce/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 6:51 AM UTC  - :tv:直播](/content/gettr/p1jerjf4269.md)
-
-7/22/2022 Miles Guo: Communist China listed me as a dissident in 2017 and bribed the US DOJ with big money in order to extradite me; on the contrary, over half of Paul Hastings' clients are from Communist China, and most of them ar...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/23/06/c402495a-6b61-3ddc-8ad1-d45625d38637/out.jpg" width="506" height="284">
 
 ---
 
