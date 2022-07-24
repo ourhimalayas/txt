@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/24/2022 8:15 AM UTC  - :tv:直播](/content/gettr/p1jiwji1879.md)
+
+7/23/2022 Miles Guo: 18 Western countries have discussed kicking Communist China out of their future supply chains, and this would be an absolute tragedy for the Chinese and the CCP if it came true. All the Tier 1 and Tier 2 countr...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/24/08/32bf980f-18b5-7971-f0ea-197bfb7ae6c1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/24/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1ji8bnce70.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
+
+D. Alternatively, the Court Should Grant the Debtor Relief from the Despins Appointment Order...
+
+<img src="https://media.gettr.com/group10/getter/2022/07/24/04/df0e19ea-b61f-c03f-a067-9904f42f1356/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 3:52 AM UTC  - :tv:直播](/content/gettr/p1ji78t3b2b.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon Newly...
@@ -46,13 +64,11 @@ For English：gettr.com/post/p1jifan0f51
 
 ---
 
-[@miles 7/24/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1ji8bnce70.md)
+[@miles 7/24/2022 8:19 AM UTC  - :tv:直播](/content/gettr/p1jj9310cb2.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
+7/23/2022 Miles Guo: The CCP kleptocrats have spent the hard-earned money of the Chinese Lao Baixing purchasing properties in Manhattan, which is the most expensive place in the world. The average monthly property management fees f...
 
-D. Alternatively, the Court Should Grant the Debtor Relief from the Despins Appointment Order...
-
-<img src="https://media.gettr.com/group10/getter/2022/07/24/04/df0e19ea-b61f-c03f-a067-9904f42f1356/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/07/24/08/f9c8b4c0-76f7-4835-3cae-b9f21ecb94b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,30 +209,6 @@ For English：gettr.com/post/p1jhqavaa0b
 [@miles 7/23/2022 1:02 PM UTC ](/content/gettr/p1jfr8vf66c.md)
 
 2022.07.23．尊敬的战友们好！德国纽伦堡农场，这个视频做得太好了，太好了。
-
----
-
-[@miles 7/23/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p1jfqbq5437.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: JURISDICTION AND VENUE III. LEGAL BASIS FOR RELIEF A. Standard for Relief from Order under Fed. R. Civ. P. 60(b) （12-8）
-
-
-
-2...
-
-<img src="https://media.gettr.com/group31/getter/2022/07/23/12/e412fb86-7f4a-ee34-1b32-3fdf5a1cac03/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 8:02 AM UTC  - :tv:直播](/content/gettr/p1jelaw38a3.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (IV) (12-7)
-
-
-
-2...
-
-<img src="https://media.gettr.com/group24/getter/2022/07/23/07/8eca10bb-483d-b1ac-f8f6-8ea366d5bab2/out.jpg" width="506" height="284">
 
 ---
 
