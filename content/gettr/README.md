@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/24/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1jimei4cd6.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF B. The Trustee Must Be a “Disinterested Person“（12-9）
+
+
+
+2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A Despin...
+
+<img src="https://media.gettr.com/group35/getter/2022/07/24/03/08284dde-ec23-0770-50b0-6948bc451d7f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 1:32 AM UTC  - :tv:直播](/content/gettr/p1jhsdbfec6.md)
 
 (1080版) 飞飞秀 《第十六篇·中共绑架世界》2022-07-23
@@ -16,15 +28,13 @@ For English：gettr.com/post/p1jifan0f51
 
 ---
 
-[@miles 7/24/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1jimei4cd6.md)
+[@miles 7/24/2022 3:41 AM UTC  - :tv:直播](/content/gettr/p1jiqyg213e.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF B. The Trustee Must Be a “Disinterested Person“（12-9）
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
 
+C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon New...
 
-
-2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A Despin...
-
-<img src="https://media.gettr.com/group35/getter/2022/07/24/03/08284dde-ec23-0770-50b0-6948bc451d7f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/07/24/03/0f2abbce-a457-c0cc-d3ac-e935bfe7eac5/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,18 +223,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 20...
 
 <img src="https://media.gettr.com/group18/getter/2022/07/23/07/5a5d0046-30e6-8b63-5d88-22a1e8fd84dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 7:26 AM UTC  - :tv:直播](/content/gettr/p1jejlu1023.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: THE DEBTOR’S MOTION FOR RELIEF FROM ORDER APPOINTING LUC A. DESPINS AS CHAPTER 11 TRUSTEE （12-1)
-
-
-
-2022年7月15日，郭文贵先生的律师向法院提出...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/23/07/da346659-73a2-9a13-4c9f-f9deeba4abf9/out.jpg" width="506" height="284">
 
 ---
 
