@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/24/2022 11:20 PM UTC ](/content/gettr/p1jlw656f74.md)
+
+2022.07.24 欢迎全球战友广泛传播和宣传 👏👏👏🥳🥳🥳🙏🙏🙏 量子农场网站的内容，全球都有镜像，包括中共国。PLA厉害我的国，你快来攻击啊！🧨🧨🧨☄️☄️☄️💥💥💥 请大家点击，收藏，转发量子农场网站上的CCP解放军绝密军事机密文件链接 1. https://himalayaquantum.org/important-files/pla-classified/ 2. https://himalayaquantum.org...
+
+---
+
+[@miles 7/24/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1jm05u48b4.md)
+
+7/24/2022 Miles Guo: 5th, 6th and 7th significant points of the trustee case - (5) CCP China is a totalitarian regime, i.e., the Communist Party rules everything, including its so-called judicial and legal system, and therefore all...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/24/22/52d1cca1-6fd6-254b-1dcc-7f3fda7dfb5c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1jlqu0c454.md)
 
 (1080版) 七月二十四日《军事大爆料》2022-07-24
@@ -13,14 +27,6 @@ For English：gettr.com/streaming/p1jlqal30b2
 #绝密文件 #项目参与和实施人员
 
 <img src="https://media.gettr.com/group37/origin/2022/07/24/22/235b9053-1bd6-7cb7-417f-7bd3631f6bd1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1jm05u48b4.md)
-
-7/24/2022 Miles Guo: 5th, 6th and 7th significant points of the trustee case - (5) CCP China is a totalitarian regime, i.e., the Communist Party rules everything, including its so-called judicial and legal system, and therefore all...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/24/22/52d1cca1-6fd6-254b-1dcc-7f3fda7dfb5c/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,22 +209,6 @@ For English：gettr.com/post/p1jifan0f51
 
 
 <img src="https://media.gettr.com/group37/origin/2022/07/23/19/0d59f301-5f78-cde6-b006-0311b0a6b8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 10:50 PM UTC  - :tv:直播](/content/gettr/p1jhar2d29b.md)
-
-7/20/2022 Miles Guo: Any page of the military file we have exposed could put Lao Baixing in jail for life or even on death row in Communist China. You can imagine how much risk the fellow fighter had to take when bringing out the f...
-
-<img src="https://media.gettr.com/group40/getter/2022/07/23/22/495022a8-4626-5c2a-9866-b1e303d7e8cc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 10:44 PM UTC  - :tv:直播](/content/gettr/p1jhc7y8620.md)
-
-7/20/2022 Miles Guo: The CCP has nuclear command centers at Yuquan Mountain and Fenghuangling Park near Beijing. The damage to the CCP brought by this military intel exposure is endless, since there is no way for the CCP to rebuild...
-
-<img src="https://media.gettr.com/group7/getter/2022/07/23/22/95459c48-8b7c-d077-ba52-eb2615a346d4/out.jpg" width="506" height="284">
 
 ---
 
