@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/24/2022 11:48 AM UTC  - :tv:直播](/content/gettr/p1jjat9a2ce.md)
+
+2022.07.24 衷心地感谢日本🇯🇵银河农场．所做的这些精美的专业的视频，一切尽在不言中。
+
+<img src="https://media.gettr.com/group32/getter/2022/07/24/11/5cea92cf-90c2-74ff-3e06-5c9adfe804a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 8:15 AM UTC  - :tv:直播](/content/gettr/p1jiwji1879.md)
 
 7/23/2022 Miles Guo: 18 Western countries have discussed kicking Communist China out of their future supply chains, and this would be an absolute tragedy for the Chinese and the CCP if it came true. All the Tier 1 and Tier 2 countr...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/24/2022 11:48 AM UTC  - :tv:直播](/content/gettr/p1jjat9a2ce.md)
+[@miles 7/24/2022 12:50 PM UTC  - :tv:直播](/content/gettr/p1jjdarf8e7.md)
 
-2022.07.24 衷心地感谢日本🇯🇵银河农场．所做的这些精美的专业的视频，一切尽在不言中。
+7月24号：回答战友问题，谈数字货币和佩洛西防台。
 
-<img src="https://media.gettr.com/group32/getter/2022/07/24/11/5cea92cf-90c2-74ff-3e06-5c9adfe804a6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/07/24/12/63081a43-87cd-fd5b-81b8-8527bda04441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ For English：gettr.com/post/p1jhqavaa0b
 2022.07.23 新中国联邦｜真人真事 第59期 🔥英国牛津梦想农场 Frank理工男文峰🔥
 
 <img src="https://media.gettr.com/group38/origin/2022/07/23/14/021b279f-424b-b70a-3de6-39e2227e391b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 1:40 PM UTC  - :tv:直播](/content/gettr/p1jg44a7e37.md)
-
-2022.07.23 ：共产党你完了［为解决短期瓶颈和长期的供应链挑战，由美国国务卿布林肯和商务部长雷蒙多共同主持的“2022年供应链部长级论坛”于7月20日闭幕。参加此次视频会议的美国、欧盟、英国、法国、德国、日本、韩国、澳大利亚、加拿大、印度等共18个经济体，会后发表联合声明，明确供应链合作原则并承诺加以遵循。它们包括：透明度、多样化、安全性和可持续性。声明还特别提到了防止强迫劳动，坚持高环境和劳工标准。声明最后称：“我们欢迎所有经济体以及其他利益相关者...
-
-<img src="https://media.gettr.com/group13/getter/2022/07/23/13/4e815540-dde1-b63f-bd75-990f7c433f89/out.jpg" width="506" height="284">
 
 ---
 
