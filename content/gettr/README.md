@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 7/23/2022 2:28 PM UTC  - :tv:直播](/content/gettr/p1jfw1sbafb.md)
+[@miles 7/24/2022 4:23 PM UTC  - :tv:直播](/content/gettr/p1jk2xe1302.md)
 
-2022.07.23 新中国联邦｜真人真事 第59期 🔥英国牛津梦想农场 Frank理工男文峰🔥
+独家爆料：01 机密 司通〔2007〕115号 
 
-<img src="https://media.gettr.com/group38/origin/2022/07/23/14/021b279f-424b-b70a-3de6-39e2227e391b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+中国人民解放军空军司令部、后勤部（请示）
+
+
+
+呈报空军南空地下指挥所通信与指控系统建设工程设计任务书
+
+<img src="https://media.gettr.com/group44/getter/2022/07/24/16/edacf78c-3a17-95af-72d0-e17db8546c4c/out.jpg" width="506" height="284">
 
 ---
 
