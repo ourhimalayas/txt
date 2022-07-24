@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/24/2022 3:41 AM UTC  - :tv:直播](/content/gettr/p1jiqyg213e.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
+
+C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon New...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/24/03/0f2abbce-a457-c0cc-d3ac-e935bfe7eac5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1jimei4cd6.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF B. The Trustee Must Be a “Disinterested Person“（12-9）
@@ -28,13 +38,11 @@ For English：gettr.com/post/p1jifan0f51
 
 ---
 
-[@miles 7/24/2022 3:41 AM UTC  - :tv:直播](/content/gettr/p1jiqyg213e.md)
+[@miles 7/24/2022 3:52 AM UTC  - :tv:直播](/content/gettr/p1ji78t3b2b.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon Newly...
 
-C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon New...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/24/03/0f2abbce-a457-c0cc-d3ac-e935bfe7eac5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/07/24/03/80c63c73-1250-9251-0c18-97562008f58b/out.jpg" width="506" height="284">
 
 ---
 
@@ -211,18 +219,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 2...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/23/07/373efdf4-569b-289e-c020-c51b339bb944/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 7:38 AM UTC  - :tv:直播](/content/gettr/p1jev5z0a88.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (I) (12-4)
-
-
-
-20...
-
-<img src="https://media.gettr.com/group18/getter/2022/07/23/07/5a5d0046-30e6-8b63-5d88-22a1e8fd84dd/out.jpg" width="506" height="284">
 
 ---
 
