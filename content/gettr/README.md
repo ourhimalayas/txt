@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/24/2022 3:52 AM UTC  - :tv:直播](/content/gettr/p1ji78t3b2b.md)
+
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon Newly...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/24/03/80c63c73-1250-9251-0c18-97562008f58b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 3:41 AM UTC  - :tv:直播](/content/gettr/p1jiqyg213e.md)
 
 Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
@@ -38,11 +46,13 @@ For English：gettr.com/post/p1jifan0f51
 
 ---
 
-[@miles 7/24/2022 3:52 AM UTC  - :tv:直播](/content/gettr/p1ji78t3b2b.md)
+[@miles 7/24/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1ji8bnce70.md)
 
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon Newly...
+Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
 
-<img src="https://media.gettr.com/group41/getter/2022/07/24/03/80c63c73-1250-9251-0c18-97562008f58b/out.jpg" width="506" height="284">
+D. Alternatively, the Court Should Grant the Debtor Relief from the Despins Appointment Order...
+
+<img src="https://media.gettr.com/group10/getter/2022/07/24/04/df0e19ea-b61f-c03f-a067-9904f42f1356/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,18 +217,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 2...
 
 <img src="https://media.gettr.com/group24/getter/2022/07/23/07/8eca10bb-483d-b1ac-f8f6-8ea366d5bab2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1jehj56a4b.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: The Interest of the Chinese Government in This Case and the Trustee’s Failure to Disclose Chinese Interests (II) (12-5)
-
-
-
-2...
-
-<img src="https://media.gettr.com/group17/getter/2022/07/23/07/373efdf4-569b-289e-c020-c51b339bb944/out.jpg" width="506" height="284">
 
 ---
 
