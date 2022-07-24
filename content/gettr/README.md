@@ -16,6 +16,28 @@ For English：gettr.com/streaming/p1jlqal30b2
 
 ---
 
+[@miles 7/24/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1jm05u48b4.md)
+
+7/24/2022 Miles Guo: 5th, 6th and 7th significant points of the trustee case - (5) CCP China is a totalitarian regime, i.e., the Communist Party rules everything, including its so-called judicial and legal system, and therefore all...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/24/22/52d1cca1-6fd6-254b-1dcc-7f3fda7dfb5c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/24/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1jlcaq587b.md)
+
+(4K版) 七月二十四日《军事大爆料》2022-07-24
+
+For English：gettr.com/streaming/p1jlqal30b2
+
+
+
+#绝密文件 #项目参与和实施人员
+
+<img src="https://media.gettr.com/group31/origin/2022/07/24/22/e1e373f9-25df-f1df-41a9-a57a432a3158/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gtvrealpeople 7/24/2022 9:25 PM UTC  - :tv:直播](/content/gettr/p1jlvdbbc44.md)
 
 2022.07.24 G | Clubs 会员游船活动
@@ -53,20 +75,6 @@ Day 19: Check out my post for the full workout breakdown! (Somehow my videos kee
 呈报空军南空地下指挥所通信与指控系统建设工程设计任务书
 
 <img src="https://media.gettr.com/group44/getter/2022/07/24/16/edacf78c-3a17-95af-72d0-e17db8546c4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1jlcaq587b.md)
-
-(4K版) 七月二十四日《军事大爆料》2022-07-24
-
-For English：gettr.com/streaming/p1jlqal30b2
-
-
-
-#绝密文件 #项目参与和实施人员
-
-<img src="https://media.gettr.com/group31/origin/2022/07/24/22/e1e373f9-25df-f1df-41a9-a57a432a3158/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -211,20 +219,6 @@ For English：gettr.com/post/p1jifan0f51
 7/20/2022 Miles Guo: The CCP has nuclear command centers at Yuquan Mountain and Fenghuangling Park near Beijing. The damage to the CCP brought by this military intel exposure is endless, since there is no way for the CCP to rebuild...
 
 <img src="https://media.gettr.com/group7/getter/2022/07/23/22/95459c48-8b7c-d077-ba52-eb2615a346d4/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1jhju29991.md)
-
-(4K版) 七月二十三日《军事大爆料》2022-07-23
-
-For English：gettr.com/post/p1jhqavaa0b
-
-
-
-#绝密文件 #项目2709 #电子对抗兵 #军民融合
-
-<img src="https://media.gettr.com/group43/origin/2022/07/23/22/003dc9c8-0c0a-6884-b4c5-0c2246a9231c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
