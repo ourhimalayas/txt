@@ -18,6 +18,14 @@
 
 ---
 
+[@miles 7/24/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1jldss4ce6.md)
+
+7/24/2022 Miles Guo: Why is this trustee issue so significant? (1) Chinese Communist Party has its so-called SOE (State-owned Enterprises), but there is no such concept in the West; (2) its stipulated expressly in the CCP China's l...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/24/20/3b0dcbe0-dd80-d1b7-26f8-165b5b451118/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 12:50 PM UTC  - :tv:直播](/content/gettr/p1jjdarf8e7.md)
 
 7月24号：回答战友问题，谈数字货币和佩洛西防台。
@@ -211,14 +219,6 @@ For English：gettr.com/post/p1jhqavaa0b
 尊敬的战友们好……共产党的假．骗．偷．正在毁掉所有中国人……在世界上的信用和我们孩子的未来——醒来吧，不要再为了一点本应有的吃穿……而毁掉我们所有的未来……只有消灭中国共产党，我们才能体面快乐的做一个尊严的人类……看看这个世界每时每刻都发生什么？对中国人的仇恨……对中国人的愤怒……限制．攻击中国人的政策……时时刻刻都在发生，而这不是中国人的错，只是共产党这个流氓集团……为要统治中国人民．对中国人洗脑对世界上的侵略政策……和那几个大...
 
 <img src="https://media.gettr.com/group11/getter/2022/07/23/14/26e0604f-493c-95c1-7504-e7a6d834c640/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 2:35 PM UTC  - :tv:直播](/content/gettr/p1jfeet7b7d.md)
-
-7/22/2022 Miles Guo: Bruno Wu has paid the legal fees for Rui Ma's case and provided hundreds of thousands of dollars to Boxun to fund its intelligence operations in the US. Boxun colluded with Bruno Wu to extort tens of millions o...
-
-<img src="https://media.gettr.com/group13/getter/2022/07/23/14/eacd8d81-843f-6979-1513-e2773188ab50/out.jpg" width="506" height="284">
 
 ---
 
