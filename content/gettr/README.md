@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/24/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1jldss4ce6.md)
+
+7/24/2022 Miles Guo: Why is this trustee issue so significant? (1) Chinese Communist Party has its so-called SOE (State-owned Enterprises), but there is no such concept in the West; (2) its stipulated expressly in the CCP China's l...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/24/20/3b0dcbe0-dd80-d1b7-26f8-165b5b451118/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 4:23 PM UTC  - :tv:直播](/content/gettr/p1jk2xe1302.md)
 
 独家爆料：01 机密 司通〔2007〕115号 
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 7/24/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1jldss4ce6.md)
+[@pistachiomygosh 7/18/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1itu8yd625.md)
 
-7/24/2022 Miles Guo: Why is this trustee issue so significant? (1) Chinese Communist Party has its so-called SOE (State-owned Enterprises), but there is no such concept in the West; (2) its stipulated expressly in the CCP China's l...
+Day 19: Check out my post for the full workout breakdown! (Somehow my videos keep getting cropped awkwardly no matter what resolution I download the mash-up with - any suggestions @support?) #你健身了吗？
 
-<img src="https://media.gettr.com/group27/getter/2022/07/24/20/3b0dcbe0-dd80-d1b7-26f8-165b5b451118/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/07/18/23/5881624a-2d04-ec75-260d-a91aa4dee18d/03edb65e37ab8499d41addadae110d6c.jpg" width="506" height="284">
 
 ---
 
@@ -209,16 +217,6 @@ For English：gettr.com/post/p1jhqavaa0b
 [@miles 7/23/2022 8:33 PM UTC ](/content/gettr/p1jhgqd8c06.md)
 
 🥰
-
----
-
-[@miles 7/23/2022 2:48 PM UTC  - :tv:直播](/content/gettr/p1jg75458cf.md)
-
-2022年7月23号：，
-
-尊敬的战友们好……共产党的假．骗．偷．正在毁掉所有中国人……在世界上的信用和我们孩子的未来——醒来吧，不要再为了一点本应有的吃穿……而毁掉我们所有的未来……只有消灭中国共产党，我们才能体面快乐的做一个尊严的人类……看看这个世界每时每刻都发生什么？对中国人的仇恨……对中国人的愤怒……限制．攻击中国人的政策……时时刻刻都在发生，而这不是中国人的错，只是共产党这个流氓集团……为要统治中国人民．对中国人洗脑对世界上的侵略政策……和那几个大...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/23/14/26e0604f-493c-95c1-7504-e7a6d834c640/out.jpg" width="506" height="284">
 
 ---
 
