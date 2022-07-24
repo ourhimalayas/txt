@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/24/2022 12:50 PM UTC  - :tv:直播](/content/gettr/p1jjdarf8e7.md)
+
+7月24号：回答战友问题，谈数字货币和佩洛西防台。
+
+<img src="https://media.gettr.com/group41/origin/2022/07/24/12/63081a43-87cd-fd5b-81b8-8527bda04441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 11:48 AM UTC  - :tv:直播](/content/gettr/p1jjat9a2ce.md)
 
 2022.07.24 衷心地感谢日本🇯🇵银河农场．所做的这些精美的专业的视频，一切尽在不言中。
@@ -18,11 +26,19 @@
 
 ---
 
-[@miles 7/24/2022 12:50 PM UTC  - :tv:直播](/content/gettr/p1jjdarf8e7.md)
+[@miles 7/24/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p1jkezr126e.md)
 
-7月24号：回答战友问题，谈数字货币和佩洛西防台。
+独家爆料：01 机密 司通〔2007〕115号 
 
-<img src="https://media.gettr.com/group41/origin/2022/07/24/12/63081a43-87cd-fd5b-81b8-8527bda04441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+中国人民解放军空军司令部、后勤部（请示）
+
+
+
+呈报空军南空地下指挥所通信与指控系统建设工程设计任务书
+
+<img src="https://media.gettr.com/group14/getter/2022/07/24/15/6f7a111f-2bc1-0c58-ae61-15121ac88509/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +219,6 @@ For English：gettr.com/post/p1jhqavaa0b
 7/22/2022 Miles Guo: Bruno Wu has paid the legal fees for Rui Ma's case and provided hundreds of thousands of dollars to Boxun to fund its intelligence operations in the US. Boxun colluded with Bruno Wu to extort tens of millions o...
 
 <img src="https://media.gettr.com/group13/getter/2022/07/23/14/eacd8d81-843f-6979-1513-e2773188ab50/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/23/2022 2:28 PM UTC  - :tv:直播](/content/gettr/p1jfw1sbafb.md)
-
-2022.07.23 新中国联邦｜真人真事 第59期 🔥英国牛津梦想农场 Frank理工男文峰🔥
-
-<img src="https://media.gettr.com/group38/origin/2022/07/23/14/021b279f-424b-b70a-3de6-39e2227e391b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
