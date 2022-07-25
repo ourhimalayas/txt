@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/25/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1jqd7t4a98.md)
+
+2022. 07.25 Nicole 看七哥 第三期 七哥视战友如家人
+
+<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 4:57 PM UTC ](/content/gettr/p1jplxn85b8.md)
 
 ❤️❤️❤️👍👍👍👍
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 7/25/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1jqd7t4a98.md)
+[@miles 7/25/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1jqmgkecab.md)
 
-2022. 07.25 Nicole 看七哥 第三期 七哥视战友如家人
+7/24/2022 Miles Guo: The CCP built military facilities beneath hospitals, subways, gas and power supply centers of a city. Even Hitler wouldn't have done that! Several years ago when the CCP learned that information of its military...
 
-<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/07/25/23/51f4fc95-b522-0c8e-6fc2-5c5ad279d845/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,36 +197,6 @@ For English：gettr.com/post/p1jlzta3e90
 我已等待了千年 为何城门还不开
 
 我已等待了千年 为何良人不回来
-
----
-
-[@newyorkrock 7/25/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jlmhc647b.md)
-
-《战》
-
-第一季 《空军机密文件解析》
-
-（6）空军一体化项目及日本对共策略分析
-
-#磐石农场
-
-威廉王 青藤 
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-#青藤
-
-#Nick
-
-<img src="https://media.gettr.com/group37/origin/2022/07/23/19/0d59f301-5f78-cde6-b006-0311b0a6b8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
