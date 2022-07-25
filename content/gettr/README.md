@@ -2,17 +2,47 @@
 ---
 
 
+[@xiaofuli 7/24/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1jlirm663f.md)
+
+曝光小sevev日常打发小福利的方式😩
+
+<img src="https://media.gettr.com/group31/getter/2022/07/24/22/b6be3582-40fe-fb3c-b560-b0c4d65b3bb7/53a5f8e4b9b944259e2e586c4e488fd3.jpg" width="506" height="284">
+
+---
+
 [@miles 7/24/2022 11:20 PM UTC ](/content/gettr/p1jlw656f74.md)
 
 2022.07.24 欢迎全球战友广泛传播和宣传 👏👏👏🥳🥳🥳🙏🙏🙏 量子农场网站的内容，全球都有镜像，包括中共国。PLA厉害我的国，你快来攻击啊！🧨🧨🧨☄️☄️☄️💥💥💥 请大家点击，收藏，转发量子农场网站上的CCP解放军绝密军事机密文件链接 1. https://himalayaquantum.org/important-files/pla-classified/ 2. https://himalayaquantum.org...
 
 ---
 
-[@xiaofuli 7/24/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1jlirm663f.md)
+[@newyorkrock 7/25/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jlmhc647b.md)
 
-曝光小sevev日常打发小福利的方式😩
+《战》
 
-<img src="https://media.gettr.com/group31/getter/2022/07/24/22/b6be3582-40fe-fb3c-b560-b0c4d65b3bb7/53a5f8e4b9b944259e2e586c4e488fd3.jpg" width="506" height="284">
+第一季 《空军机密文件解析》
+
+（6）空军一体化项目及日本对共策略分析
+
+#磐石农场
+
+威廉王 青藤 
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+#青藤
+
+#Nick
+
+<img src="https://media.gettr.com/group37/origin/2022/07/23/19/0d59f301-5f78-cde6-b006-0311b0a6b8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,20 +191,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A Despin...
 
 <img src="https://media.gettr.com/group35/getter/2022/07/24/03/08284dde-ec23-0770-50b0-6948bc451d7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 1:32 AM UTC  - :tv:直播](/content/gettr/p1jhsdbfec6.md)
-
-(1080版) 飞飞秀 《第十六篇·中共绑架世界》2022-07-23
-
-For English：gettr.com/post/p1jifan0f51
-
-
-
-#guomedia #苹果商店 #破产案
-
-<img src="https://media.gettr.com/group24/origin/2022/07/24/01/bed69b3b-2184-3f99-2365-9e596b30c7ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
