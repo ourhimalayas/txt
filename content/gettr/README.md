@@ -10,6 +10,12 @@
 
 ---
 
+[@miles 7/25/2022 4:57 PM UTC ](/content/gettr/p1jplxn85b8.md)
+
+❤️❤️❤️👍👍👍👍
+
+---
+
 [@miles 7/25/2022 3:50 PM UTC  - :tv:直播](/content/gettr/p1joz5jce02.md)
 
 2022.07.25 尊敬的战友们好……近两天来全球的病毒感染大面积爆发，请大家务必小心，保护好家人，全球灭共的时代已经全面到来，不可逆转……一切都已经开始！
@@ -18,19 +24,19 @@
 
 ---
 
-[@milesguolive 7/25/2022 3:28 PM UTC  - :tv:直播](/content/gettr/p1jp900829f.md)
-
-2022.07.24  大直播精华版
-
-<img src="https://media.gettr.com/group30/origin/2022/07/25/15/567f5f5e-d0b0-7376-e9b2-ab9416d3e818/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/25/2022 3:54 PM UTC  - :tv:直播](/content/gettr/p1jpd6cdd98.md)
 
 7/24/2022 Miles Guo: The CCP's fear of our military intel exposure is comparable to that of the 419 VOA broadcast cut-off, the 717 exposure of Wang Qishan and HNA, and the 1120 exposure of Wang Jian's death! Why didn't the US and J...
 
 <img src="https://media.gettr.com/group27/getter/2022/07/25/15/1550f157-1364-14d9-b6cb-4cf41a4e9498/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 7/25/2022 3:28 PM UTC  - :tv:直播](/content/gettr/p1jp900829f.md)
+
+2022.07.24  大直播精华版
+
+<img src="https://media.gettr.com/group30/origin/2022/07/25/15/567f5f5e-d0b0-7376-e9b2-ab9416d3e818/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -213,20 +219,6 @@ For English：gettr.com/post/p1jlzta3e90
 曝光小sevev日常打发小福利的方式😩
 
 <img src="https://media.gettr.com/group31/getter/2022/07/24/22/b6be3582-40fe-fb3c-b560-b0c4d65b3bb7/53a5f8e4b9b944259e2e586c4e488fd3.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1jlcaq587b.md)
-
-(4K版) 七月二十四日《军事大爆料》2022-07-24
-
-For English：gettr.com/streaming/p1jlqal30b2
-
-
-
-#绝密文件 #项目参与和实施人员
-
-<img src="https://media.gettr.com/group31/origin/2022/07/24/22/e1e373f9-25df-f1df-41a9-a57a432a3158/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
