@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/25/2022 3:47 AM UTC  - :tv:直播](/content/gettr/p1jme8u8b04.md)
+
+7/24/2022 Miles Guo: Nancy Pelosi's visit to Taiwan will be of great significance if it comes true. Her visit will imply that the U.S. recognizes Taiwan as a sovereign state, and it will set a good example for other U.S. politician...
+
+<img src="https://media.gettr.com/group14/getter/2022/07/25/03/36072008-6aa8-0557-a070-17e63d1e80a0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1jm3l1b384.md)
 
 (4K版) 飞飞秀 《第十七篇·中共绑架的律所》2022-07-24
@@ -16,6 +24,14 @@ For English：gettr.com/post/p1jlzta3e90
 
 ---
 
+[@miles 7/25/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p1jmlhd4ba4.md)
+
+7/24/2022 Miles Guo: The fact that the SEC regulates Coinbase and has categorized 9 crypto assets as securities is great news for the Himalaya Exchange, which serves as the reference for the world's regulatory authorities. Unlike o...
+
+<img src="https://media.gettr.com/group31/getter/2022/07/25/03/967781e1-4dc2-d3ed-4c77-b8b61df83081/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1jmhdb43dd.md)
 
 (1080版) 飞飞秀 《第十七篇·中共绑架的律所》2022-07-24
@@ -27,6 +43,14 @@ For English：gettr.com/post/p1jlzta3e90
 #普衡 #利益冲突 #破产案
 
 <img src="https://media.gettr.com/group50/origin/2022/07/25/01/113ea074-153d-02eb-0f8a-8e7b7e77af4b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1jlxi7db53.md)
+
+7/24/2022 Miles Guo: China's real death toll in 2022 far exceeds that of 2019! The COVID vaccine disaster will possibly cause 200-400 million deaths in China in the next 3-5 years. The vast majority of CCP cadres at the Bureau-Dire...
+
+<img src="https://media.gettr.com/group42/getter/2022/07/25/01/aee46006-5690-19ad-9572-6f925b8a9763/out.jpg" width="506" height="284">
 
 ---
 
@@ -91,14 +115,6 @@ For English：gettr.com/post/p1jlzta3e90
 [@miles 7/24/2022 11:20 PM UTC ](/content/gettr/p1jlw656f74.md)
 
 2022.07.24 欢迎全球战友广泛传播和宣传 👏👏👏🥳🥳🥳🙏🙏🙏 量子农场网站的内容，全球都有镜像，包括中共国。PLA厉害我的国，你快来攻击啊！🧨🧨🧨☄️☄️☄️💥💥💥 请大家点击，收藏，转发量子农场网站上的CCP解放军绝密军事机密文件链接 1. https://himalayaquantum.org/important-files/pla-classified/ 2. https://himalayaquantum.org...
-
----
-
-[@miles 7/25/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1jlxi7db53.md)
-
-7/24/2022 Miles Guo: China's real death toll in 2022 far exceeds that of 2019! The COVID vaccine disaster will possibly cause 200-400 million deaths in China in the next 3-5 years. The vast majority of CCP cadres at the Bureau-Dire...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/25/01/aee46006-5690-19ad-9572-6f925b8a9763/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,22 +207,6 @@ Day 19: Check out my post for the full workout breakdown! (Somehow my videos kee
 2022.07.24 衷心地感谢日本🇯🇵银河农场．所做的这些精美的专业的视频，一切尽在不言中。
 
 <img src="https://media.gettr.com/group32/getter/2022/07/24/11/5cea92cf-90c2-74ff-3e06-5c9adfe804a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 8:15 AM UTC  - :tv:直播](/content/gettr/p1jiwji1879.md)
-
-7/23/2022 Miles Guo: 18 Western countries have discussed kicking Communist China out of their future supply chains, and this would be an absolute tragedy for the Chinese and the CCP if it came true. All the Tier 1 and Tier 2 countr...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/24/08/32bf980f-18b5-7971-f0ea-197bfb7ae6c1/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 8:19 AM UTC  - :tv:直播](/content/gettr/p1jj9310cb2.md)
-
-7/23/2022 Miles Guo: The CCP kleptocrats have spent the hard-earned money of the Chinese Lao Baixing purchasing properties in Manhattan, which is the most expensive place in the world. The average monthly property management fees f...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/24/08/f9c8b4c0-76f7-4835-3cae-b9f21ecb94b9/out.jpg" width="506" height="284">
 
 ---
 
