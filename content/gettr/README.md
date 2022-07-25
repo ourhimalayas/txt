@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/25/2022 10:22 AM UTC  - :tv:直播](/content/gettr/p1jnpwg45e6.md)
+
+独家爆料：07  机密 司通〔2007〕107号
+
+
+
+中国人民解放军空军司令部（请示）
+
+
+
+呈报空军第一批短波综合接入网建设项目
+
+<img src="https://media.gettr.com/group41/getter/2022/07/25/10/4f1f2411-8e11-e3ad-2a50-d5c2e62a26ca/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 8:25 AM UTC  - :tv:直播](/content/gettr/p1jnua3937b.md)
 
 独家爆料：01  机密 司通〔2007〕116号
@@ -26,19 +42,11 @@
 
 ---
 
-[@miles 7/25/2022 10:22 AM UTC  - :tv:直播](/content/gettr/p1jnpwg45e6.md)
+[@miles 7/25/2022 11:14 AM UTC  - 3圖](/content/gettr/p1jobqo7c09.md)
 
-独家爆料：07  机密 司通〔2007〕107号
+2022.07.25 共产党你完了……【大连副市长 国药集团副总经理：曾兵去世 52岁】
 
-
-
-中国人民解放军空军司令部（请示）
-
-
-
-呈报空军第一批短波综合接入网建设项目
-
-<img src="https://media.gettr.com/group41/getter/2022/07/25/10/4f1f2411-8e11-e3ad-2a50-d5c2e62a26ca/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/07/25/11/25fcd0b7-0c3a-9158-caca-80cd38a2adb7/4fa1c7f4835d5a409a351c636787536e.jpg" width="506" height="284">
 
 ---
 
@@ -207,22 +215,6 @@ Day 19: Check out my post for the full workout breakdown! (Somehow my videos kee
 7/24/2022 Miles Guo: Why is this trustee issue so significant? (1) Chinese Communist Party has its so-called SOE (State-owned Enterprises), but there is no such concept in the West; (2) its stipulated expressly in the CCP China's l...
 
 <img src="https://media.gettr.com/group27/getter/2022/07/24/20/3b0dcbe0-dd80-d1b7-26f8-165b5b451118/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 4:23 PM UTC  - :tv:直播](/content/gettr/p1jk2xe1302.md)
-
-独家爆料：01 机密 司通〔2007〕115号 
-
-
-
-中国人民解放军空军司令部、后勤部（请示）
-
-
-
-呈报空军南空地下指挥所通信与指控系统建设工程设计任务书
-
-<img src="https://media.gettr.com/group44/getter/2022/07/24/16/edacf78c-3a17-95af-72d0-e17db8546c4c/out.jpg" width="506" height="284">
 
 ---
 
