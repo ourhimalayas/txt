@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 7/25/2022 3:47 AM UTC  - :tv:直播](/content/gettr/p1jme8u8b04.md)
-
-7/24/2022 Miles Guo: Nancy Pelosi's visit to Taiwan will be of great significance if it comes true. Her visit will imply that the U.S. recognizes Taiwan as a sovereign state, and it will set a good example for other U.S. politician...
-
-<img src="https://media.gettr.com/group14/getter/2022/07/25/03/36072008-6aa8-0557-a070-17e63d1e80a0/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/25/2022 8:25 AM UTC  - :tv:直播](/content/gettr/p1jnua3937b.md)
 
 独家爆料：01  机密 司通〔2007〕116号
@@ -23,6 +15,30 @@
 呈报空军上海基地地下指挥所通信与指控系统建设工程设计任务书
 
 <img src="https://media.gettr.com/group45/getter/2022/07/25/08/d69f08f4-7f5c-1be6-5701-20ffad820f3d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 3:47 AM UTC  - :tv:直播](/content/gettr/p1jme8u8b04.md)
+
+7/24/2022 Miles Guo: Nancy Pelosi's visit to Taiwan will be of great significance if it comes true. Her visit will imply that the U.S. recognizes Taiwan as a sovereign state, and it will set a good example for other U.S. politician...
+
+<img src="https://media.gettr.com/group14/getter/2022/07/25/03/36072008-6aa8-0557-a070-17e63d1e80a0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 10:22 AM UTC  - :tv:直播](/content/gettr/p1jnpwg45e6.md)
+
+独家爆料：07  机密 司通〔2007〕107号
+
+
+
+中国人民解放军空军司令部（请示）
+
+
+
+呈报空军第一批短波综合接入网建设项目
+
+<img src="https://media.gettr.com/group41/getter/2022/07/25/10/4f1f2411-8e11-e3ad-2a50-d5c2e62a26ca/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +223,6 @@ Day 19: Check out my post for the full workout breakdown! (Somehow my videos kee
 呈报空军南空地下指挥所通信与指控系统建设工程设计任务书
 
 <img src="https://media.gettr.com/group44/getter/2022/07/24/16/edacf78c-3a17-95af-72d0-e17db8546c4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 12:50 PM UTC  - :tv:直播](/content/gettr/p1jjdarf8e7.md)
-
-7月24号：回答战友问题，谈数字货币和佩洛西防台。
-
-<img src="https://media.gettr.com/group41/origin/2022/07/24/12/63081a43-87cd-fd5b-81b8-8527bda04441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
