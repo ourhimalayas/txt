@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 7/25/2022 4:57 PM UTC ](/content/gettr/p1jplxn85b8.md)
+
+❤️❤️❤️👍👍👍👍
+
+---
+
 [@miles 7/25/2022 3:48 PM UTC  - :tv:直播](/content/gettr/p1jotfj5c4a.md)
 
 7/24/2022 Miles Guo: "The government you elect is the government you deserve"; the more evil a government is, the more difficult it is to overthrow its dictatorship; the cooperation of Russia, Iran and Turkey offered the CCP an opp...
@@ -10,9 +16,11 @@
 
 ---
 
-[@miles 7/25/2022 4:57 PM UTC ](/content/gettr/p1jplxn85b8.md)
+[@miles 7/25/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1jqd7t4a98.md)
 
-❤️❤️❤️👍👍👍👍
+2022. 07.25 Nicole 看七哥 第三期 七哥视战友如家人
+
+<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -211,14 +219,6 @@ For English：gettr.com/post/p1jlzta3e90
 #Nick
 
 <img src="https://media.gettr.com/group37/origin/2022/07/23/19/0d59f301-5f78-cde6-b006-0311b0a6b8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@xiaofuli 7/24/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1jlirm663f.md)
-
-曝光小sevev日常打发小福利的方式😩
-
-<img src="https://media.gettr.com/group31/getter/2022/07/24/22/b6be3582-40fe-fb3c-b560-b0c4d65b3bb7/53a5f8e4b9b944259e2e586c4e488fd3.jpg" width="506" height="284">
 
 ---
 
