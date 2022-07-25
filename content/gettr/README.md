@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/25/2022 12:54 AM UTC ](/content/gettr/p1jlv9r889a.md)
+
+孤独的孩子 提着易碎的灯笼
+
+
+
+我已等待了千年 为何城门还不开
+
+我已等待了千年 为何良人不回来
+
+---
+
 [@newyorkrock 7/25/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jlmhc647b.md)
 
 《战》
@@ -46,15 +58,11 @@
 
 ---
 
-[@miles 7/25/2022 12:54 AM UTC ](/content/gettr/p1jlv9r889a.md)
+[@miles 7/25/2022 1:12 AM UTC  - :tv:直播](/content/gettr/p1jmjdp6722.md)
 
-孤独的孩子 提着易碎的灯笼
+7/24/2022 Miles Guo: 8th significant points of the trustee case: All the lawsuits I have been involved these years and the SEC's rejection of refunding our fellow fighters, as well as other incidents we have experienced indicate th...
 
-
-
-我已等待了千年 为何城门还不开
-
-我已等待了千年 为何良人不回来
+<img src="https://media.gettr.com/group7/getter/2022/07/25/01/5eaedfca-26cc-5fd9-8fe6-86db9a30d93e/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,18 +199,6 @@ Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 1
 C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon New...
 
 <img src="https://media.gettr.com/group43/getter/2022/07/24/03/0f2abbce-a457-c0cc-d3ac-e935bfe7eac5/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 3:24 AM UTC  - :tv:直播](/content/gettr/p1jimei4cd6.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF B. The Trustee Must Be a “Disinterested Person“（12-9）
-
-
-
-2022年7月15日，郭文贵先生的律师向法院提出撤销Luc A Despin...
-
-<img src="https://media.gettr.com/group35/getter/2022/07/24/03/08284dde-ec23-0770-50b0-6948bc451d7f/out.jpg" width="506" height="284">
 
 ---
 
