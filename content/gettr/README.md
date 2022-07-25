@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 7/25/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1jm3l1b384.md)
+
+(4K版) 飞飞秀 《第十七篇·中共绑架的律所》2022-07-24
+
+For English：gettr.com/post/p1jlzta3e90
+
+
+
+#普衡 #利益冲突 #破产案
+
+<img src="https://media.gettr.com/group14/origin/2022/07/25/01/6bcfe22d-ec0f-af75-db26-f0b14d99d158/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1jmhdb43dd.md)
+
+(1080版) 飞飞秀 《第十七篇·中共绑架的律所》2022-07-24
+
+For English：gettr.com/post/p1jlzta3e90
+
+
+
+#普衡 #利益冲突 #破产案
+
+<img src="https://media.gettr.com/group50/origin/2022/07/25/01/113ea074-153d-02eb-0f8a-8e7b7e77af4b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 1:12 AM UTC  - :tv:直播](/content/gettr/p1jmjdp6722.md)
+
+7/24/2022 Miles Guo: 8th significant points of the trustee case: All the lawsuits I have been involved these years and the SEC's rejection of refunding our fellow fighters, as well as other incidents we have experienced indicate th...
+
+<img src="https://media.gettr.com/group7/getter/2022/07/25/01/5eaedfca-26cc-5fd9-8fe6-86db9a30d93e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 12:54 AM UTC ](/content/gettr/p1jlv9r889a.md)
 
 孤独的孩子 提着易碎的灯笼
@@ -58,11 +94,11 @@
 
 ---
 
-[@miles 7/25/2022 1:12 AM UTC  - :tv:直播](/content/gettr/p1jmjdp6722.md)
+[@miles 7/25/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1jlxi7db53.md)
 
-7/24/2022 Miles Guo: 8th significant points of the trustee case: All the lawsuits I have been involved these years and the SEC's rejection of refunding our fellow fighters, as well as other incidents we have experienced indicate th...
+7/24/2022 Miles Guo: China's real death toll in 2022 far exceeds that of 2019! The COVID vaccine disaster will possibly cause 200-400 million deaths in China in the next 3-5 years. The vast majority of CCP cadres at the Bureau-Dire...
 
-<img src="https://media.gettr.com/group7/getter/2022/07/25/01/5eaedfca-26cc-5fd9-8fe6-86db9a30d93e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/07/25/01/aee46006-5690-19ad-9572-6f925b8a9763/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,34 +207,6 @@ Day 19: Check out my post for the full workout breakdown! (Somehow my videos kee
 7/23/2022 Miles Guo: The CCP kleptocrats have spent the hard-earned money of the Chinese Lao Baixing purchasing properties in Manhattan, which is the most expensive place in the world. The average monthly property management fees f...
 
 <img src="https://media.gettr.com/group27/getter/2022/07/24/08/f9c8b4c0-76f7-4835-3cae-b9f21ecb94b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 4:09 AM UTC  - :tv:直播](/content/gettr/p1ji8bnce70.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
-
-D. Alternatively, the Court Should Grant the Debtor Relief from the Despins Appointment Order...
-
-<img src="https://media.gettr.com/group10/getter/2022/07/24/04/df0e19ea-b61f-c03f-a067-9904f42f1356/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 3:52 AM UTC  - :tv:直播](/content/gettr/p1ji78t3b2b.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon Newly...
-
-<img src="https://media.gettr.com/group41/getter/2022/07/24/03/80c63c73-1250-9251-0c18-97562008f58b/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 3:41 AM UTC  - :tv:直播](/content/gettr/p1jiqyg213e.md)
-
-Mr. Miles Guo’s Legal Team Filed a Motion To Dismiss Luc Despins  As Chapter 11 Trustee on July, 15, 2022: III. 	LEGAL BASIS FOR RELIEF 
-
-C. The Court Should Grant the Debtor Relief from the Despins Appointment Order Based upon New...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/24/03/0f2abbce-a457-c0cc-d3ac-e935bfe7eac5/out.jpg" width="506" height="284">
 
 ---
 
