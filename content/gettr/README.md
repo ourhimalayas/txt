@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/25/2022 11:14 AM UTC  - 3圖](/content/gettr/p1jobqo7c09.md)
+
+2022.07.25 共产党你完了……【大连副市长 国药集团副总经理：曾兵去世 52岁】
+
+<img src="https://media.gettr.com/group37/getter/2022/07/25/11/25fcd0b7-0c3a-9158-caca-80cd38a2adb7/4fa1c7f4835d5a409a351c636787536e.jpg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 10:22 AM UTC  - :tv:直播](/content/gettr/p1jnpwg45e6.md)
 
 独家爆料：07  机密 司通〔2007〕107号
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 7/25/2022 11:14 AM UTC  - 3圖](/content/gettr/p1jobqo7c09.md)
+[@realfayfay 7/25/2022 1:44 PM UTC ](/content/gettr/p1jp8npbb2f.md)
 
-2022.07.25 共产党你完了……【大连副市长 国药集团副总经理：曾兵去世 52岁】
+战友们早上好，中午好，晚上好🙏。 今天因为要腾一天时间为抓坏蛋做准备。所以今天节目停更一天。但是抓坏蛋没有停，一切都在进行中🙏🤗💪
 
-<img src="https://media.gettr.com/group37/getter/2022/07/25/11/25fcd0b7-0c3a-9158-caca-80cd38a2adb7/4fa1c7f4835d5a409a351c636787536e.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/07/25/13/91e4c824-40f5-5a25-2285-cb5552805099/115edd35c3490931f5fd710a6a0a8cfb.png" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ For English：gettr.com/streaming/p1jlqal30b2
 Day 19: Check out my post for the full workout breakdown! (Somehow my videos keep getting cropped awkwardly no matter what resolution I download the mash-up with - any suggestions @support?) #你健身了吗？
 
 <img src="https://media.gettr.com/group16/getter/2022/07/18/23/5881624a-2d04-ec75-260d-a91aa4dee18d/03edb65e37ab8499d41addadae110d6c.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 8:29 PM UTC  - :tv:直播](/content/gettr/p1jldss4ce6.md)
-
-7/24/2022 Miles Guo: Why is this trustee issue so significant? (1) Chinese Communist Party has its so-called SOE (State-owned Enterprises), but there is no such concept in the West; (2) its stipulated expressly in the CCP China's l...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/24/20/3b0dcbe0-dd80-d1b7-26f8-165b5b451118/out.jpg" width="506" height="284">
 
 ---
 
