@@ -2,6 +2,38 @@
 ---
 
 
+[@milesguolive 7/25/2022 3:28 PM UTC  - :tv:直播](/content/gettr/p1jp900829f.md)
+
+2022.07.24  大直播精华版
+
+<img src="https://media.gettr.com/group30/origin/2022/07/25/15/567f5f5e-d0b0-7376-e9b2-ab9416d3e818/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 3:32 PM UTC  - :tv:直播](/content/gettr/p1jotid6444.md)
+
+独家爆料：08 机密 司通〔2007〕118号
+
+
+
+中国人民解放军空军司令部、后勤部（请示）
+
+
+
+呈报空军第一批反“台独”作战指挥专网建设工程设计任务书
+
+<img src="https://media.gettr.com/group11/getter/2022/07/25/15/ff744cd2-5688-1230-e421-e3f609133ed4/out.jpg" width="506" height="284">
+
+---
+
+[@realfayfay 7/25/2022 1:44 PM UTC ](/content/gettr/p1jp8npbb2f.md)
+
+战友们早上好，中午好，晚上好🙏。 今天因为要腾一天时间为抓坏蛋做准备。所以今天节目停更一天。但是抓坏蛋没有停，一切都在进行中🙏🤗💪
+
+<img src="https://media.gettr.com/group22/origin/2022/07/25/13/91e4c824-40f5-5a25-2285-cb5552805099/115edd35c3490931f5fd710a6a0a8cfb.png" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 11:14 AM UTC  - 3圖](/content/gettr/p1jobqo7c09.md)
 
 2022.07.25 共产党你完了……【大连副市长 国药集团副总经理：曾兵去世 52岁】
@@ -50,11 +82,11 @@
 
 ---
 
-[@realfayfay 7/25/2022 1:44 PM UTC ](/content/gettr/p1jp8npbb2f.md)
+[@miles 7/25/2022 3:41 PM UTC  - :tv:直播](/content/gettr/p1jp8rxff4d.md)
 
-战友们早上好，中午好，晚上好🙏。 今天因为要腾一天时间为抓坏蛋做准备。所以今天节目停更一天。但是抓坏蛋没有停，一切都在进行中🙏🤗💪
+7/24/2022 Miles Guo: Putin wants to increase their bargaining counters in confronting Europe and the US by winning the support from Iran. If the CCP and Russia team up with Iran, Turkey, and North Korea, this will be a huge check a...
 
-<img src="https://media.gettr.com/group22/origin/2022/07/25/13/91e4c824-40f5-5a25-2285-cb5552805099/115edd35c3490931f5fd710a6a0a8cfb.png" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/07/25/15/24520049-7953-dcfe-5d36-97a1dce16c81/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,20 +206,6 @@ For English：gettr.com/post/p1jlzta3e90
 
 ---
 
-[@miles 7/24/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p1jlqu0c454.md)
-
-(1080版) 七月二十四日《军事大爆料》2022-07-24
-
-For English：gettr.com/streaming/p1jlqal30b2
-
-
-
-#绝密文件 #项目参与和实施人员
-
-<img src="https://media.gettr.com/group37/origin/2022/07/24/22/235b9053-1bd6-7cb7-417f-7bd3631f6bd1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/24/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1jlcaq587b.md)
 
 (4K版) 七月二十四日《军事大爆料》2022-07-24
@@ -199,22 +217,6 @@ For English：gettr.com/streaming/p1jlqal30b2
 #绝密文件 #项目参与和实施人员
 
 <img src="https://media.gettr.com/group31/origin/2022/07/24/22/e1e373f9-25df-f1df-41a9-a57a432a3158/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtvrealpeople 7/24/2022 9:25 PM UTC  - :tv:直播](/content/gettr/p1jlvdbbc44.md)
-
-2022.07.24 G | Clubs 会员游船活动
-
-<img src="https://media.gettr.com/group25/origin/2022/07/24/19/e67324c2-7bf8-f6ad-587d-0cb6b30fbd42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@pistachiomygosh 7/18/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p1itu8yd625.md)
-
-Day 19: Check out my post for the full workout breakdown! (Somehow my videos keep getting cropped awkwardly no matter what resolution I download the mash-up with - any suggestions @support?) #你健身了吗？
-
-<img src="https://media.gettr.com/group16/getter/2022/07/18/23/5881624a-2d04-ec75-260d-a91aa4dee18d/03edb65e37ab8499d41addadae110d6c.jpg" width="506" height="284">
 
 ---
 
