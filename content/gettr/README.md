@@ -10,6 +10,30 @@
 
 ---
 
+[@miles 7/25/2022 8:25 AM UTC  - :tv:直播](/content/gettr/p1jnua3937b.md)
+
+独家爆料：01  机密 司通〔2007〕116号
+
+
+
+中国人民解放军空军司令部、后勤部（请示）
+
+ 
+
+呈报空军上海基地地下指挥所通信与指控系统建设工程设计任务书
+
+<img src="https://media.gettr.com/group45/getter/2022/07/25/08/d69f08f4-7f5c-1be6-5701-20ffad820f3d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p1jmlhd4ba4.md)
+
+7/24/2022 Miles Guo: The fact that the SEC regulates Coinbase and has categorized 9 crypto assets as securities is great news for the Himalaya Exchange, which serves as the reference for the world's regulatory authorities. Unlike o...
+
+<img src="https://media.gettr.com/group31/getter/2022/07/25/03/967781e1-4dc2-d3ed-4c77-b8b61df83081/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1jm3l1b384.md)
 
 (4K版) 飞飞秀 《第十七篇·中共绑架的律所》2022-07-24
@@ -21,14 +45,6 @@ For English：gettr.com/post/p1jlzta3e90
 #普衡 #利益冲突 #破产案
 
 <img src="https://media.gettr.com/group14/origin/2022/07/25/01/6bcfe22d-ec0f-af75-db26-f0b14d99d158/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p1jmlhd4ba4.md)
-
-7/24/2022 Miles Guo: The fact that the SEC regulates Coinbase and has categorized 9 crypto assets as securities is great news for the Himalaya Exchange, which serves as the reference for the world's regulatory authorities. Unlike o...
-
-<img src="https://media.gettr.com/group31/getter/2022/07/25/03/967781e1-4dc2-d3ed-4c77-b8b61df83081/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +215,6 @@ Day 19: Check out my post for the full workout breakdown! (Somehow my videos kee
 7月24号：回答战友问题，谈数字货币和佩洛西防台。
 
 <img src="https://media.gettr.com/group41/origin/2022/07/24/12/63081a43-87cd-fd5b-81b8-8527bda04441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 11:48 AM UTC  - :tv:直播](/content/gettr/p1jjat9a2ce.md)
-
-2022.07.24 衷心地感谢日本🇯🇵银河农场．所做的这些精美的专业的视频，一切尽在不言中。
-
-<img src="https://media.gettr.com/group32/getter/2022/07/24/11/5cea92cf-90c2-74ff-3e06-5c9adfe804a6/out.jpg" width="506" height="284">
 
 ---
 
