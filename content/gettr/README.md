@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/25/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1jqh5n98d3.md)
+
+7/24/2022 Miles Guo: The lawsuits I have experienced in the US, the SEC’s rejection of refunding our fellow fighters, and many other incidents indicate that we are the victims of racial discrimination! We are going to take action a...
+
+<img src="https://media.gettr.com/group37/getter/2022/07/25/23/e6118242-1e11-6811-7666-4a21f4dce38f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1jqmgkecab.md)
+
+7/24/2022 Miles Guo: The CCP built military facilities beneath hospitals, subways, gas and power supply centers of a city. Even Hitler wouldn't have done that! Several years ago when the CCP learned that information of its military...
+
+<img src="https://media.gettr.com/group12/getter/2022/07/25/23/51f4fc95-b522-0c8e-6fc2-5c5ad279d845/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1jqd7t4a98.md)
 
 2022. 07.25 Nicole 看七哥 第三期 七哥视战友如家人
@@ -24,11 +40,11 @@
 
 ---
 
-[@miles 7/25/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1jqmgkecab.md)
+[@miles 7/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1jqxsn440b.md)
 
-7/24/2022 Miles Guo: The CCP built military facilities beneath hospitals, subways, gas and power supply centers of a city. Even Hitler wouldn't have done that! Several years ago when the CCP learned that information of its military...
+7/25/2022 Miles Guo’s GETTR: Only the Whistleblowers’ Movement and I are able to say in advance that Nancy Pelosi was going to visit Taiwan. When faced with the evil CCP, the world has almost fallen entirely. Many people are discus...
 
-<img src="https://media.gettr.com/group12/getter/2022/07/25/23/51f4fc95-b522-0c8e-6fc2-5c5ad279d845/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/07/25/23/ee6e44b4-479a-993e-03af-4b123096a0e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,26 +193,6 @@ For English：gettr.com/post/p1jlzta3e90
 7/24/2022 Miles Guo: China's real death toll in 2022 far exceeds that of 2019! The COVID vaccine disaster will possibly cause 200-400 million deaths in China in the next 3-5 years. The vast majority of CCP cadres at the Bureau-Dire...
 
 <img src="https://media.gettr.com/group42/getter/2022/07/25/01/aee46006-5690-19ad-9572-6f925b8a9763/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 1:12 AM UTC  - :tv:直播](/content/gettr/p1jmjdp6722.md)
-
-7/24/2022 Miles Guo: 8th significant points of the trustee case: All the lawsuits I have been involved these years and the SEC's rejection of refunding our fellow fighters, as well as other incidents we have experienced indicate th...
-
-<img src="https://media.gettr.com/group7/getter/2022/07/25/01/5eaedfca-26cc-5fd9-8fe6-86db9a30d93e/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 12:54 AM UTC ](/content/gettr/p1jlv9r889a.md)
-
-孤独的孩子 提着易碎的灯笼
-
-
-
-我已等待了千年 为何城门还不开
-
-我已等待了千年 为何良人不回来
 
 ---
 
