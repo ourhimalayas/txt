@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 7/25/2022 3:48 PM UTC  - :tv:直播](/content/gettr/p1jotfj5c4a.md)
+
+7/24/2022 Miles Guo: "The government you elect is the government you deserve"; the more evil a government is, the more difficult it is to overthrow its dictatorship; the cooperation of Russia, Iran and Turkey offered the CCP an opp...
+
+<img src="https://media.gettr.com/group24/getter/2022/07/25/15/3bdc31ee-b259-7feb-e649-63f837bd5ab3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 3:50 PM UTC  - :tv:直播](/content/gettr/p1joz5jce02.md)
+
+2022.07.25 尊敬的战友们好……近两天来全球的病毒感染大面积爆发，请大家务必小心，保护好家人，全球灭共的时代已经全面到来，不可逆转……一切都已经开始！
+
+<img src="https://media.gettr.com/group16/getter/2022/07/25/15/3c9e7141-b45e-18a6-eff1-855ee2d52043/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 7/25/2022 3:28 PM UTC  - :tv:直播](/content/gettr/p1jp900829f.md)
 
 2022.07.24  大直播精华版
 
 <img src="https://media.gettr.com/group30/origin/2022/07/25/15/567f5f5e-d0b0-7376-e9b2-ab9416d3e818/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 3:54 PM UTC  - :tv:直播](/content/gettr/p1jpd6cdd98.md)
+
+7/24/2022 Miles Guo: The CCP's fear of our military intel exposure is comparable to that of the 419 VOA broadcast cut-off, the 717 exposure of Wang Qishan and HNA, and the 1120 exposure of Wang Jian's death! Why didn't the US and J...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/25/15/1550f157-1364-14d9-b6cb-4cf41a4e9498/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +47,14 @@
 呈报空军第一批反“台独”作战指挥专网建设工程设计任务书
 
 <img src="https://media.gettr.com/group11/getter/2022/07/25/15/ff744cd2-5688-1230-e421-e3f609133ed4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 3:41 PM UTC  - :tv:直播](/content/gettr/p1jp8rxff4d.md)
+
+7/24/2022 Miles Guo: Putin wants to increase their bargaining counters in confronting Europe and the US by winning the support from Iran. If the CCP and Russia team up with Iran, Turkey, and North Korea, this will be a huge check a...
+
+<img src="https://media.gettr.com/group11/getter/2022/07/25/15/24520049-7953-dcfe-5d36-97a1dce16c81/out.jpg" width="506" height="284">
 
 ---
 
@@ -79,14 +111,6 @@
 7/24/2022 Miles Guo: Nancy Pelosi's visit to Taiwan will be of great significance if it comes true. Her visit will imply that the U.S. recognizes Taiwan as a sovereign state, and it will set a good example for other U.S. politician...
 
 <img src="https://media.gettr.com/group14/getter/2022/07/25/03/36072008-6aa8-0557-a070-17e63d1e80a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 3:41 PM UTC  - :tv:直播](/content/gettr/p1jp8rxff4d.md)
-
-7/24/2022 Miles Guo: Putin wants to increase their bargaining counters in confronting Europe and the US by winning the support from Iran. If the CCP and Russia team up with Iran, Turkey, and North Korea, this will be a huge check a...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/25/15/24520049-7953-dcfe-5d36-97a1dce16c81/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,20 +213,6 @@ For English：gettr.com/post/p1jlzta3e90
 曝光小sevev日常打发小福利的方式😩
 
 <img src="https://media.gettr.com/group31/getter/2022/07/24/22/b6be3582-40fe-fb3c-b560-b0c4d65b3bb7/53a5f8e4b9b944259e2e586c4e488fd3.jpg" width="506" height="284">
-
----
-
-[@miles 7/24/2022 11:20 PM UTC ](/content/gettr/p1jlw656f74.md)
-
-2022.07.24 欢迎全球战友广泛传播和宣传 👏👏👏🥳🥳🥳🙏🙏🙏 量子农场网站的内容，全球都有镜像，包括中共国。PLA厉害我的国，你快来攻击啊！🧨🧨🧨☄️☄️☄️💥💥💥 请大家点击，收藏，转发量子农场网站上的CCP解放军绝密军事机密文件链接 1. https://himalayaquantum.org/important-files/pla-classified/ 2. https://himalayaquantum.org...
-
----
-
-[@miles 7/24/2022 10:52 PM UTC  - :tv:直播](/content/gettr/p1jm05u48b4.md)
-
-7/24/2022 Miles Guo: 5th, 6th and 7th significant points of the trustee case - (5) CCP China is a totalitarian regime, i.e., the Communist Party rules everything, including its so-called judicial and legal system, and therefore all...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/24/22/52d1cca1-6fd6-254b-1dcc-7f3fda7dfb5c/out.jpg" width="506" height="284">
 
 ---
 
