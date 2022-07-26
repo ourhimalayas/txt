@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 7/25/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1jqirx42bb.md)
-
-7/25/2022 Miles Guo’s GETTR: The CCP is the culprit behind the political and economic turmoil in many countries across the world. The 1.4 billion Chinese people have been kidnapped by the CCP, but sadly they are unaware of the dang...
-
-<img src="https://media.gettr.com/group8/getter/2022/07/25/23/6fb60cb2-6eb9-1bbe-f37a-9889985d4298/out.jpg" width="506" height="284">
-
----
-
 [@newyorkrock 7/26/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1jqsy4aae4.md)
 
 《战》
@@ -35,6 +27,22 @@
 #青藤
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1jqirx42bb.md)
+
+7/25/2022 Miles Guo’s GETTR: The CCP is the culprit behind the political and economic turmoil in many countries across the world. The 1.4 billion Chinese people have been kidnapped by the CCP, but sadly they are unaware of the dang...
+
+<img src="https://media.gettr.com/group8/getter/2022/07/25/23/6fb60cb2-6eb9-1bbe-f37a-9889985d4298/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/26/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1jr92df123.md)
+
+7/25/2022 Miles Guo’s GETTR: The last 48 hours in the past year seem to have the most COVID infection cases among our fellow fighters and their families. Our scientist suggests that our fellow fighters avoid going out or being in c...
+
+<img src="https://media.gettr.com/group4/getter/2022/07/26/00/5a5b1341-2039-bd3a-6851-5447e33544ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@
 呈报空军上海基地地下指挥所通信与指控系统建设工程设计任务书
 
 <img src="https://media.gettr.com/group45/getter/2022/07/25/08/d69f08f4-7f5c-1be6-5701-20ffad820f3d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 3:47 AM UTC  - :tv:直播](/content/gettr/p1jme8u8b04.md)
-
-7/24/2022 Miles Guo: Nancy Pelosi's visit to Taiwan will be of great significance if it comes true. Her visit will imply that the U.S. recognizes Taiwan as a sovereign state, and it will set a good example for other U.S. politician...
-
-<img src="https://media.gettr.com/group14/getter/2022/07/25/03/36072008-6aa8-0557-a070-17e63d1e80a0/out.jpg" width="506" height="284">
 
 ---
 
