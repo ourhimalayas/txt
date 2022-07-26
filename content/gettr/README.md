@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/26/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1jsugw6526.md)
+
+2022.07.26 尊敬的战友们好……欢迎来到……中共病毒疫苗灾难的时代😀😀😀😀😀
+
+<img src="https://media.gettr.com/group31/getter/2022/07/26/11/8cb598ff-8aae-4517-a5ef-aeed77cf0449/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/26/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p1js4005987.md)
 
 7/24/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan will imply that the U.S. recognizes Taiwan as a sovereign state, but chance is little for her to make it
@@ -73,11 +81,11 @@
 
 ---
 
-[@miles 7/26/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1jsugw6526.md)
+[@miles 7/26/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1jt1prd5b9.md)
 
-2022.07.26 尊敬的战友们好……欢迎来到……中共病毒疫苗灾难的时代😀😀😀😀😀
+2022.07.26 欢迎来到比爹娘还亲的中国共产党的最好时代！
 
-<img src="https://media.gettr.com/group31/getter/2022/07/26/11/8cb598ff-8aae-4517-a5ef-aeed77cf0449/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/07/26/11/e619f905-7778-b618-9238-c218dfb0347f/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,14 +200,6 @@
 战友们早上好，中午好，晚上好🙏。 今天因为要腾一天时间为抓坏蛋做准备。所以今天节目停更一天。但是抓坏蛋没有停，一切都在进行中🙏🤗💪
 
 <img src="https://media.gettr.com/group22/origin/2022/07/25/13/91e4c824-40f5-5a25-2285-cb5552805099/115edd35c3490931f5fd710a6a0a8cfb.png" width="506" height="284">
-
----
-
-[@miles 7/25/2022 11:14 AM UTC  - 3圖](/content/gettr/p1jobqo7c09.md)
-
-2022.07.25 共产党你完了……【大连副市长 国药集团副总经理：曾兵去世 52岁】
-
-<img src="https://media.gettr.com/group37/getter/2022/07/25/11/25fcd0b7-0c3a-9158-caca-80cd38a2adb7/4fa1c7f4835d5a409a351c636787536e.jpg" width="506" height="284">
 
 ---
 
