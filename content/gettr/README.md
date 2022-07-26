@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/26/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1jr92df123.md)
+
+7/25/2022 Miles Guo’s GETTR: The last 48 hours in the past year seem to have the most COVID infection cases among our fellow fighters and their families. Our scientist suggests that our fellow fighters avoid going out or being in c...
+
+<img src="https://media.gettr.com/group4/getter/2022/07/26/00/5a5b1341-2039-bd3a-6851-5447e33544ff/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 7/26/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1jqsy4aae4.md)
 
 《战》
@@ -38,11 +46,16 @@
 
 ---
 
-[@miles 7/26/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1jr92df123.md)
+[@miles 7/26/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1js9jk9f23.md)
 
-7/25/2022 Miles Guo’s GETTR: The last 48 hours in the past year seem to have the most COVID infection cases among our fellow fighters and their families. Our scientist suggests that our fellow fighters avoid going out or being in c...
+7/24/2022 Miles Guo: The trustee issue will make the West realize that as long as there is cooperation between their law firms and the CCP, there will be conflicts of interest
 
-<img src="https://media.gettr.com/group4/getter/2022/07/26/00/5a5b1341-2039-bd3a-6851-5447e33544ff/out.jpg" width="506" height="284">
+
+
+7/24/2022 文贵直播：信托人事件会让西方意识到，只要西方的律师事务所和中共有合作就会有利益冲突
+...
+
+<img src="https://media.gettr.com/group23/getter/2022/07/26/04/08a79c29-b2ad-4d8b-4077-44bd9d6a89d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +210,6 @@
 呈报空军上海基地地下指挥所通信与指控系统建设工程设计任务书
 
 <img src="https://media.gettr.com/group45/getter/2022/07/25/08/d69f08f4-7f5c-1be6-5701-20ffad820f3d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p1jmlhd4ba4.md)
-
-7/24/2022 Miles Guo: The fact that the SEC regulates Coinbase and has categorized 9 crypto assets as securities is great news for the Himalaya Exchange, which serves as the reference for the world's regulatory authorities. Unlike o...
-
-<img src="https://media.gettr.com/group31/getter/2022/07/25/03/967781e1-4dc2-d3ed-4c77-b8b61df83081/out.jpg" width="506" height="284">
 
 ---
 
