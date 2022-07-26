@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 7/26/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1ju1vv0e72.md)
+
+ 7月26日，尊敬的战友们好……共产党的一带一路会让很多国家破产……也会让共产党成为必须被世界消灭的邪恶组织……中国人不应该为此付出代价，共产党惹得祸应该让共产党背……一切都已经开始。 
+
+
+
+
+
+<img src="https://media.gettr.com/group50/getter/2022/07/26/15/567127d9-49ab-a36f-5c94-88e11f350f4d/out.jpg" width="506" height="284">
+
+---
+
+[@witchpeace 7/26/2022 2:54 PM UTC  - :tv:直播](/content/gettr/p1jtcua6018.md)
+
+七哥的破产案，步步惊心，关注📣📣📣
+
+<img src="https://media.gettr.com/group8/getter/2022/07/26/14/73f26088-1a4b-0c75-19c7-efbfdd107003/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/26/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1jsugw6526.md)
 
 2022.07.26 尊敬的战友们好……欢迎来到……中共病毒疫苗灾难的时代😀😀😀😀😀
@@ -81,11 +101,11 @@
 
 ---
 
-[@miles 7/26/2022 11:30 AM UTC  - :tv:直播](/content/gettr/p1jt1prd5b9.md)
+[@miles 7/26/2022 3:09 PM UTC  - :tv:直播](/content/gettr/p1jty9sb2c2.md)
 
-2022.07.26 欢迎来到比爹娘还亲的中国共产党的最好时代！
+2022.07.26 WOW 😎😎😎😎
 
-<img src="https://media.gettr.com/group42/getter/2022/07/26/11/e619f905-7778-b618-9238-c218dfb0347f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/07/26/15/42a34133-51bd-46ef-9a81-c56103805c60/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +183,6 @@
 
 ---
 
-[@milesguolive 7/25/2022 3:28 PM UTC  - :tv:直播](/content/gettr/p1jp900829f.md)
-
-2022.07.24  大直播精华版
-
-<img src="https://media.gettr.com/group30/origin/2022/07/25/15/567f5f5e-d0b0-7376-e9b2-ab9416d3e818/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/25/2022 3:32 PM UTC  - :tv:直播](/content/gettr/p1jotid6444.md)
 
 独家爆料：08 机密 司通〔2007〕118号
@@ -192,14 +204,6 @@
 7/24/2022 Miles Guo: Putin wants to increase their bargaining counters in confronting Europe and the US by winning the support from Iran. If the CCP and Russia team up with Iran, Turkey, and North Korea, this will be a huge check a...
 
 <img src="https://media.gettr.com/group11/getter/2022/07/25/15/24520049-7953-dcfe-5d36-97a1dce16c81/out.jpg" width="506" height="284">
-
----
-
-[@realfayfay 7/25/2022 1:44 PM UTC ](/content/gettr/p1jp8npbb2f.md)
-
-战友们早上好，中午好，晚上好🙏。 今天因为要腾一天时间为抓坏蛋做准备。所以今天节目停更一天。但是抓坏蛋没有停，一切都在进行中🙏🤗💪
-
-<img src="https://media.gettr.com/group22/origin/2022/07/25/13/91e4c824-40f5-5a25-2285-cb5552805099/115edd35c3490931f5fd710a6a0a8cfb.png" width="506" height="284">
 
 ---
 
