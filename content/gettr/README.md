@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 7/26/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p1js4005987.md)
+
+7/24/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan will imply that the U.S. recognizes Taiwan as a sovereign state, but chance is little for her to make it
+
+
+
+7/24/2022 文贵直播：佩罗西若成功访问台湾就意味着美国事实承认台湾独立，但她成功出访的机率不大
+
+
+
+<img src="https://media.gettr.com/group45/getter/2022/07/26/05/42973de9-96fc-5d9e-d418-1c65a45c4c3d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/26/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1js9jk9f23.md)
 
 7/24/2022 Miles Guo: The trustee issue will make the West realize that as long as there is cooperation between their law firms and the CCP, there will be conflicts of interest
@@ -59,17 +73,11 @@
 
 ---
 
-[@miles 7/26/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p1js4005987.md)
+[@miles 7/26/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1jsugw6526.md)
 
-7/24/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan will imply that the U.S. recognizes Taiwan as a sovereign state, but chance is little for her to make it
+2022.07.26 尊敬的战友们好……欢迎来到……中共病毒疫苗灾难的时代😀😀😀😀😀
 
-
-
-7/24/2022 文贵直播：佩罗西若成功访问台湾就意味着美国事实承认台湾独立，但她成功出访的机率不大
-
-
-
-<img src="https://media.gettr.com/group45/getter/2022/07/26/05/42973de9-96fc-5d9e-d418-1c65a45c4c3d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/07/26/11/8cb598ff-8aae-4517-a5ef-aeed77cf0449/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,22 +200,6 @@
 2022.07.25 共产党你完了……【大连副市长 国药集团副总经理：曾兵去世 52岁】
 
 <img src="https://media.gettr.com/group37/getter/2022/07/25/11/25fcd0b7-0c3a-9158-caca-80cd38a2adb7/4fa1c7f4835d5a409a351c636787536e.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 10:22 AM UTC  - :tv:直播](/content/gettr/p1jnpwg45e6.md)
-
-独家爆料：07  机密 司通〔2007〕107号
-
-
-
-中国人民解放军空军司令部（请示）
-
-
-
-呈报空军第一批短波综合接入网建设项目
-
-<img src="https://media.gettr.com/group41/getter/2022/07/25/10/4f1f2411-8e11-e3ad-2a50-d5c2e62a26ca/out.jpg" width="506" height="284">
 
 ---
 
