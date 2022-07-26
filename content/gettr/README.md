@@ -10,11 +10,31 @@
 
 ---
 
-[@miles 7/25/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1jqh5n98d3.md)
+[@newyorkrock 7/26/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1jqsy4aae4.md)
 
-7/24/2022 Miles Guo: The lawsuits I have experienced in the US, the SEC’s rejection of refunding our fellow fighters, and many other incidents indicate that we are the victims of racial discrimination! We are going to take action a...
+《战》
 
-<img src="https://media.gettr.com/group37/getter/2022/07/25/23/e6118242-1e11-6811-7666-4a21f4dce38f/out.jpg" width="506" height="284">
+第一季《空军机密文件解析》
+
+（7）人员信息中透露的惊天阴谋、美日对共军了如指掌
+
+#磐石农场
+
+威廉王 Nick
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+#青藤
+
+<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -27,6 +47,14 @@
 7/24/2022 文贵直播：受托人案会让西方看到，中...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/25/23/7bf1761a-2310-aeb7-4215-435196e8c412/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1jqh5n98d3.md)
+
+7/24/2022 Miles Guo: The lawsuits I have experienced in the US, the SEC’s rejection of refunding our fellow fighters, and many other incidents indicate that we are the victims of racial discrimination! We are going to take action a...
+
+<img src="https://media.gettr.com/group37/getter/2022/07/25/23/e6118242-1e11-6811-7666-4a21f4dce38f/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +205,6 @@
 7/24/2022 Miles Guo: The fact that the SEC regulates Coinbase and has categorized 9 crypto assets as securities is great news for the Himalaya Exchange, which serves as the reference for the world's regulatory authorities. Unlike o...
 
 <img src="https://media.gettr.com/group31/getter/2022/07/25/03/967781e1-4dc2-d3ed-4c77-b8b61df83081/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 1:29 AM UTC  - :tv:直播](/content/gettr/p1jlxi7db53.md)
-
-7/24/2022 Miles Guo: China's real death toll in 2022 far exceeds that of 2019! The COVID vaccine disaster will possibly cause 200-400 million deaths in China in the next 3-5 years. The vast majority of CCP cadres at the Bureau-Dire...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/25/01/aee46006-5690-19ad-9572-6f925b8a9763/out.jpg" width="506" height="284">
 
 ---
 
