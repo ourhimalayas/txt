@@ -2,11 +2,39 @@
 ---
 
 
+[@miles 7/25/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1jqirx42bb.md)
+
+7/25/2022 Miles Guo’s GETTR: The CCP is the culprit behind the political and economic turmoil in many countries across the world. The 1.4 billion Chinese people have been kidnapped by the CCP, but sadly they are unaware of the dang...
+
+<img src="https://media.gettr.com/group8/getter/2022/07/25/23/6fb60cb2-6eb9-1bbe-f37a-9889985d4298/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/25/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1jqh5n98d3.md)
 
 7/24/2022 Miles Guo: The lawsuits I have experienced in the US, the SEC’s rejection of refunding our fellow fighters, and many other incidents indicate that we are the victims of racial discrimination! We are going to take action a...
 
 <img src="https://media.gettr.com/group37/getter/2022/07/25/23/e6118242-1e11-6811-7666-4a21f4dce38f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 11:54 PM UTC  - :tv:直播](/content/gettr/p1jqxyj3362.md)
+
+7/24/2022 Miles Guo: The trustee case will show the West that it is the CCP that rules the Chinese judicial system. Therefore the western judicial system will eventually decouple from Communist China!
+
+
+
+7/24/2022 文贵直播：受托人案会让西方看到，中...
+
+<img src="https://media.gettr.com/group17/getter/2022/07/25/23/7bf1761a-2310-aeb7-4215-435196e8c412/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1jqxsn440b.md)
+
+7/25/2022 Miles Guo’s GETTR: Only the Whistleblowers’ Movement and I are able to say in advance that Nancy Pelosi was going to visit Taiwan. When faced with the evil CCP, the world has almost fallen entirely. Many people are discus...
+
+<img src="https://media.gettr.com/group27/getter/2022/07/25/23/ee6e44b4-479a-993e-03af-4b123096a0e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,14 +65,6 @@
 7/24/2022 Miles Guo: "The government you elect is the government you deserve"; the more evil a government is, the more difficult it is to overthrow its dictatorship; the cooperation of Russia, Iran and Turkey offered the CCP an opp...
 
 <img src="https://media.gettr.com/group24/getter/2022/07/25/15/3bdc31ee-b259-7feb-e649-63f837bd5ab3/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1jqxsn440b.md)
-
-7/25/2022 Miles Guo’s GETTR: Only the Whistleblowers’ Movement and I are able to say in advance that Nancy Pelosi was going to visit Taiwan. When faced with the evil CCP, the world has almost fallen entirely. Many people are discus...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/25/23/ee6e44b4-479a-993e-03af-4b123096a0e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,34 +177,6 @@
 7/24/2022 Miles Guo: The fact that the SEC regulates Coinbase and has categorized 9 crypto assets as securities is great news for the Himalaya Exchange, which serves as the reference for the world's regulatory authorities. Unlike o...
 
 <img src="https://media.gettr.com/group31/getter/2022/07/25/03/967781e1-4dc2-d3ed-4c77-b8b61df83081/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1jm3l1b384.md)
-
-(4K版) 飞飞秀 《第十七篇·中共绑架的律所》2022-07-24
-
-For English：gettr.com/post/p1jlzta3e90
-
-
-
-#普衡 #利益冲突 #破产案
-
-<img src="https://media.gettr.com/group14/origin/2022/07/25/01/6bcfe22d-ec0f-af75-db26-f0b14d99d158/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 1:18 AM UTC  - :tv:直播](/content/gettr/p1jmhdb43dd.md)
-
-(1080版) 飞飞秀 《第十七篇·中共绑架的律所》2022-07-24
-
-For English：gettr.com/post/p1jlzta3e90
-
-
-
-#普衡 #利益冲突 #破产案
-
-<img src="https://media.gettr.com/group50/origin/2022/07/25/01/113ea074-153d-02eb-0f8a-8e7b7e77af4b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
