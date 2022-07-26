@@ -14,11 +14,27 @@
 
 ---
 
+[@miles 7/26/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1jvk4q194c.md)
+
+2022.07.26 Nicole 看七哥 第四期 年轻战友眼中的七哥
+
+<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@witchpeace 7/26/2022 2:54 PM UTC  - :tv:直播](/content/gettr/p1jtcua6018.md)
 
 七哥的破产案，步步惊心，关注📣📣📣
 
 <img src="https://media.gettr.com/group8/getter/2022/07/26/14/73f26088-1a4b-0c75-19c7-efbfdd107003/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/26/2022 3:09 PM UTC  - :tv:直播](/content/gettr/p1jty9sb2c2.md)
+
+2022.07.26 WOW 😎😎😎😎
+
+<img src="https://media.gettr.com/group34/getter/2022/07/26/15/42a34133-51bd-46ef-9a81-c56103805c60/out.jpg" width="506" height="284">
 
 ---
 
@@ -101,14 +117,6 @@
 
 ---
 
-[@miles 7/26/2022 3:09 PM UTC  - :tv:直播](/content/gettr/p1jty9sb2c2.md)
-
-2022.07.26 WOW 😎😎😎😎
-
-<img src="https://media.gettr.com/group34/getter/2022/07/26/15/42a34133-51bd-46ef-9a81-c56103805c60/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/25/2022 11:54 PM UTC  - :tv:直播](/content/gettr/p1jqxyj3362.md)
 
 7/24/2022 Miles Guo: The trustee case will show the West that it is the CCP that rules the Chinese judicial system. Therefore the western judicial system will eventually decouple from Communist China!
@@ -180,22 +188,6 @@
 7/24/2022 Miles Guo: The CCP's fear of our military intel exposure is comparable to that of the 419 VOA broadcast cut-off, the 717 exposure of Wang Qishan and HNA, and the 1120 exposure of Wang Jian's death! Why didn't the US and J...
 
 <img src="https://media.gettr.com/group27/getter/2022/07/25/15/1550f157-1364-14d9-b6cb-4cf41a4e9498/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 3:32 PM UTC  - :tv:直播](/content/gettr/p1jotid6444.md)
-
-独家爆料：08 机密 司通〔2007〕118号
-
-
-
-中国人民解放军空军司令部、后勤部（请示）
-
-
-
-呈报空军第一批反“台独”作战指挥专网建设工程设计任务书
-
-<img src="https://media.gettr.com/group11/getter/2022/07/25/15/ff744cd2-5688-1230-e421-e3f609133ed4/out.jpg" width="506" height="284">
 
 ---
 
