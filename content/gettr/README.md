@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/26/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1jvk4q194c.md)
+
+2022.07.26 Nicole 看七哥 第四期 年轻战友眼中的七哥
+
+<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/26/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1ju1vv0e72.md)
 
  7月26日，尊敬的战友们好……共产党的一带一路会让很多国家破产……也会让共产党成为必须被世界消灭的邪恶组织……中国人不应该为此付出代价，共产党惹得祸应该让共产党背……一切都已经开始。 
@@ -14,11 +22,27 @@
 
 ---
 
-[@miles 7/26/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1jvk4q194c.md)
+[@newyorkrock 7/27/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jvyzr1ae4.md)
 
-2022.07.26 Nicole 看七哥 第四期 年轻战友眼中的七哥
+《战》
 
-<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+第一季《空军机密文件解析》
+
+（8）司通【2007】107号、日本2022年国防白皮书透露的中共阴谋
+
+#磐石农场
+
+威廉王 青藤
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#战友威廉王
+
+<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -188,14 +212,6 @@
 7/24/2022 Miles Guo: The CCP's fear of our military intel exposure is comparable to that of the 419 VOA broadcast cut-off, the 717 exposure of Wang Qishan and HNA, and the 1120 exposure of Wang Jian's death! Why didn't the US and J...
 
 <img src="https://media.gettr.com/group27/getter/2022/07/25/15/1550f157-1364-14d9-b6cb-4cf41a4e9498/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 3:41 PM UTC  - :tv:直播](/content/gettr/p1jp8rxff4d.md)
-
-7/24/2022 Miles Guo: Putin wants to increase their bargaining counters in confronting Europe and the US by winning the support from Iran. If the CCP and Russia team up with Iran, Turkey, and North Korea, this will be a huge check a...
-
-<img src="https://media.gettr.com/group11/getter/2022/07/25/15/24520049-7953-dcfe-5d36-97a1dce16c81/out.jpg" width="506" height="284">
 
 ---
 
