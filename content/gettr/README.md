@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/27/2022 1:17 PM UTC  - :tv:直播](/content/gettr/p1jxqw39341.md)
+
+Exclusive: 07 Secret 
+
+Command Communication [2007] No. 107
+
+
+
+PLA Air Force Command (Request for Approval)
+
+
+
+Submitting the Air Force's First Batch of Shortwave Comprehensive Network Connection Construction Project
+
+<img src="https://media.gettr.com/group28/getter/2022/07/27/13/cef1d0ab-1fa6-0531-3797-6e108c26f3fc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/27/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p1jxrsuba53.md)
 
 2022年7月27日文贵大直播：谈共产党面临的三场战争
@@ -34,21 +52,29 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 
 ---
 
-[@miles 7/27/2022 1:17 PM UTC  - :tv:直播](/content/gettr/p1jxqw39341.md)
+[@miles 7/27/2022 7:22 PM UTC ](/content/gettr/p1jziu30573.md)
 
-Exclusive: 07 Secret 
+2022.07.27 GClubs《会员专享 乘风破浪》——豪华游艇巡航纽约曼哈顿正在进行时！
 
-Command Communication [2007] No. 107
+        请有意向参与游艇活动的GClubs会员填写以下的表格。
 
-
-
-PLA Air Force Command (Request for Approval)
+https://forms.gle/nP2SkXVDjZhkk9gt6
 
 
 
-Submitting the Air Force's First Batch of Shortwave Comprehensive Network Connection Construction Project
+请注意：
 
-<img src="https://media.gettr.com/group28/getter/2022/07/27/13/cef1d0ab-1fa6-0531-3797-6e108c26f3fc/out.jpg" width="506" height="284">
+1. 此表仅限GClubs会员填写；
+
+2. 每位GClubs会员每年将享受限定次数登船机会；
+
+3. 游船工作组会尽量按照会员期望的日期安排游船。如有特殊情况需调整时间，会提前告知。
+
+
+
+🙏🙏...
+
+<img src="https://media.gettr.com/group21/origin/2022/07/27/19/81f42d29-f013-52d1-03d8-5c0ec726ae6d/e5bea2e34e608ada279558aed3c1b18b.jpg" width="506" height="284">
 
 ---
 
@@ -216,14 +242,6 @@ Submitting the Air Force's First Batch of Shortwave Comprehensive Network Connec
 7/24/2022 文贵直播：受托人案会让西方看到，中...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/25/23/7bf1761a-2310-aeb7-4215-435196e8c412/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1jqh5n98d3.md)
-
-7/24/2022 Miles Guo: The lawsuits I have experienced in the US, the SEC’s rejection of refunding our fellow fighters, and many other incidents indicate that we are the victims of racial discrimination! We are going to take action a...
-
-<img src="https://media.gettr.com/group37/getter/2022/07/25/23/e6118242-1e11-6811-7666-4a21f4dce38f/out.jpg" width="506" height="284">
 
 ---
 
