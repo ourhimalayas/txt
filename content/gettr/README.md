@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 7/27/2022 7:22 PM UTC ](/content/gettr/p1jziu30573.md)
+
+2022.07.27 GClubs《会员专享 乘风破浪》——豪华游艇巡航纽约曼哈顿正在进行时！
+
+        请有意向参与游艇活动的GClubs会员填写以下的表格。
+
+https://forms.gle/nP2SkXVDjZhkk9gt6
+
+
+
+请注意：
+
+1. 此表仅限GClubs会员填写；
+
+2. 每位GClubs会员每年将享受限定次数登船机会；
+
+3. 游船工作组会尽量按照会员期望的日期安排游船。如有特殊情况需调整时间，会提前告知。
+
+
+
+🙏🙏...
+
+<img src="https://media.gettr.com/group21/origin/2022/07/27/19/81f42d29-f013-52d1-03d8-5c0ec726ae6d/e5bea2e34e608ada279558aed3c1b18b.jpg" width="506" height="284">
+
+---
+
 [@miles 7/27/2022 1:17 PM UTC  - :tv:直播](/content/gettr/p1jxqw39341.md)
 
 Exclusive: 07 Secret 
@@ -52,29 +78,11 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 
 ---
 
-[@miles 7/27/2022 7:22 PM UTC ](/content/gettr/p1jziu30573.md)
+[@miles 7/27/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p1k02c5b1ba.md)
 
-2022.07.27 GClubs《会员专享 乘风破浪》——豪华游艇巡航纽约曼哈顿正在进行时！
+2022.07.27 Nicole 看七哥 第五期 音乐小达人眼中的摇滚巨星
 
-        请有意向参与游艇活动的GClubs会员填写以下的表格。
-
-https://forms.gle/nP2SkXVDjZhkk9gt6
-
-
-
-请注意：
-
-1. 此表仅限GClubs会员填写；
-
-2. 每位GClubs会员每年将享受限定次数登船机会；
-
-3. 游船工作组会尽量按照会员期望的日期安排游船。如有特殊情况需调整时间，会提前告知。
-
-
-
-🙏🙏...
-
-<img src="https://media.gettr.com/group21/origin/2022/07/27/19/81f42d29-f013-52d1-03d8-5c0ec726ae6d/e5bea2e34e608ada279558aed3c1b18b.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -242,14 +250,6 @@ https://forms.gle/nP2SkXVDjZhkk9gt6
 7/24/2022 文贵直播：受托人案会让西方看到，中...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/25/23/7bf1761a-2310-aeb7-4215-435196e8c412/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1jqxsn440b.md)
-
-7/25/2022 Miles Guo’s GETTR: Only the Whistleblowers’ Movement and I are able to say in advance that Nancy Pelosi was going to visit Taiwan. When faced with the evil CCP, the world has almost fallen entirely. Many people are discus...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/25/23/ee6e44b4-479a-993e-03af-4b123096a0e8/out.jpg" width="506" height="284">
 
 ---
 
