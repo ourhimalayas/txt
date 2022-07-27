@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1jzv7p1800.md)
+
+(4K版) 七月二十七日《军事大爆料》2022-07-27
+
+For English：gettr.com/streaming/p1k09cycc9b
+
+
+
+#绝密文件 #项目2323 #粤东地指
+
+<img src="https://media.gettr.com/group12/origin/2022/07/27/22/415107eb-3a9d-9652-37f7-ec337590bdee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1k047aa94a.md)
+
+7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. The Cultural Revolution launched by Mao Zedong resulted in the dea...
+
+<img src="https://media.gettr.com/group35/getter/2022/07/27/21/a6ded525-bcfa-eea5-d607-7a713d62ebef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/27/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p1k02c5b1ba.md)
 
 2022.07.27 Nicole 看七哥 第五期 音乐小达人眼中的摇滚巨星
@@ -86,11 +108,17 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 
 ---
 
-[@miles 7/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1k047aa94a.md)
+[@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1k08tgf0aa.md)
 
-7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. The Cultural Revolution launched by Mao Zedong resulted in the dea...
+(1080版) 七月二十七日《军事大爆料》2022-07-27
 
-<img src="https://media.gettr.com/group35/getter/2022/07/27/21/a6ded525-bcfa-eea5-d607-7a713d62ebef/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p1k09cycc9b
+
+
+
+#绝密文件 #项目2323 #粤东地指
+
+<img src="https://media.gettr.com/group33/origin/2022/07/27/22/a7748c28-bcc4-d27e-b6f3-85c5d63400be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -210,46 +238,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 7/25/2022 Miles Guo’s GETTR: The last 48 hours in the past year seem to have the most COVID infection cases among our fellow fighters and their families. Our scientist suggests that our fellow fighters avoid going out or being in c...
 
 <img src="https://media.gettr.com/group4/getter/2022/07/26/00/5a5b1341-2039-bd3a-6851-5447e33544ff/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 7/26/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1jqsy4aae4.md)
-
-《战》
-
-第一季《空军机密文件解析》
-
-（7）人员信息中透露的惊天阴谋、美日对共军了如指掌
-
-#磐石农场
-
-威廉王 Nick
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-#青藤
-
-<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 11:54 PM UTC  - :tv:直播](/content/gettr/p1jqxyj3362.md)
-
-7/24/2022 Miles Guo: The trustee case will show the West that it is the CCP that rules the Chinese judicial system. Therefore the western judicial system will eventually decouple from Communist China!
-
-
-
-7/24/2022 文贵直播：受托人案会让西方看到，中...
-
-<img src="https://media.gettr.com/group17/getter/2022/07/25/23/7bf1761a-2310-aeb7-4215-435196e8c412/out.jpg" width="506" height="284">
 
 ---
 
