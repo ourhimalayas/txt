@@ -16,6 +16,28 @@ For English：gettr.com/streaming/p1k09cycc9b
 
 ---
 
+[@miles 7/27/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1k06jida31.md)
+
+7/27/2022 Miles Guo: It took the CCP almost 30 years to recruit 1 million members. In Communist China, more than 1 million fellow fighters attempted to purchase GCLUBS membership but the transaction was canceled by the CCP. Behind ...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/27/23/2bbcc08f-21e8-b8e0-d7ec-5e74beb3b391/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1k08tgf0aa.md)
+
+(1080版) 七月二十七日《军事大爆料》2022-07-27
+
+For English：gettr.com/streaming/p1k09cycc9b
+
+
+
+#绝密文件 #项目2323 #粤东地指
+
+<img src="https://media.gettr.com/group33/origin/2022/07/27/22/a7748c28-bcc4-d27e-b6f3-85c5d63400be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1k047aa94a.md)
 
 7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. The Cultural Revolution launched by Mao Zedong resulted in the dea...
@@ -105,20 +127,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 7/26/2022 Miles Guo’s GETTR: Many countries have reached the consensus that the CCP’s “One Belt One Road” scheme is the root cause of Sri Lanka’s bankruptcy. If the “One Belt One Road” scheme is not halted soon, more countries will...
 
 <img src="https://media.gettr.com/group21/getter/2022/07/27/05/f6b78893-3154-2bb1-789c-5ae990c5c464/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1k08tgf0aa.md)
-
-(1080版) 七月二十七日《军事大爆料》2022-07-27
-
-For English：gettr.com/streaming/p1k09cycc9b
-
-
-
-#绝密文件 #项目2323 #粤东地指
-
-<img src="https://media.gettr.com/group33/origin/2022/07/27/22/a7748c28-bcc4-d27e-b6f3-85c5d63400be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -230,14 +238,6 @@ For English：gettr.com/streaming/p1k09cycc9b
 ...
 
 <img src="https://media.gettr.com/group23/getter/2022/07/26/04/08a79c29-b2ad-4d8b-4077-44bd9d6a89d0/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/26/2022 12:23 AM UTC  - :tv:直播](/content/gettr/p1jr92df123.md)
-
-7/25/2022 Miles Guo’s GETTR: The last 48 hours in the past year seem to have the most COVID infection cases among our fellow fighters and their families. Our scientist suggests that our fellow fighters avoid going out or being in c...
-
-<img src="https://media.gettr.com/group4/getter/2022/07/26/00/5a5b1341-2039-bd3a-6851-5447e33544ff/out.jpg" width="506" height="284">
 
 ---
 
