@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 7/27/2022 5:48 AM UTC  - :tv:直播](/content/gettr/p1jw7nj6c67.md)
-
-7/26/2022 Miles Guo’s GETTR: Many countries have reached the consensus that the CCP’s “One Belt One Road” scheme is the root cause of Sri Lanka’s bankruptcy. If the “One Belt One Road” scheme is not halted soon, more countries will...
-
-<img src="https://media.gettr.com/group21/getter/2022/07/27/05/f6b78893-3154-2bb1-789c-5ae990c5c464/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/27/2022 9:54 AM UTC  - :tv:直播](/content/gettr/p1jxlj2a818.md)
 
 Exclusive: 08 Secret Command Communication [2007] No. 118
@@ -23,6 +15,22 @@ PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval
 Submitted the Design Task Plan for the Construction of the Air Force's First anti-"Ta...
 
 <img src="https://media.gettr.com/group37/getter/2022/07/27/09/e62fccdb-f0b4-c14e-7cbb-8045c65def39/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/27/2022 5:48 AM UTC  - :tv:直播](/content/gettr/p1jw7nj6c67.md)
+
+7/26/2022 Miles Guo’s GETTR: Many countries have reached the consensus that the CCP’s “One Belt One Road” scheme is the root cause of Sri Lanka’s bankruptcy. If the “One Belt One Road” scheme is not halted soon, more countries will...
+
+<img src="https://media.gettr.com/group21/getter/2022/07/27/05/f6b78893-3154-2bb1-789c-5ae990c5c464/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/27/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p1jxrsuba53.md)
+
+2022年7月27日文贵大直播：谈共产党面临的三场战争
+
+<img src="https://media.gettr.com/group33/origin/2022/07/27/12/0b82ee36-f9bd-b4e1-99e5-8e1f39126ba8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -214,14 +222,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 7/24/2022 Miles Guo: The CCP built military facilities beneath hospitals, subways, gas and power supply centers of a city. Even Hitler wouldn't have done that! Several years ago when the CCP learned that information of its military...
 
 <img src="https://media.gettr.com/group12/getter/2022/07/25/23/51f4fc95-b522-0c8e-6fc2-5c5ad279d845/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1jqd7t4a98.md)
-
-2022. 07.25 Nicole 看七哥 第三期 七哥视战友如家人
-
-<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
