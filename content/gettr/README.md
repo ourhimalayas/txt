@@ -2,23 +2,19 @@
 ---
 
 
-[@miles 7/26/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1jvk4q194c.md)
+[@miles 7/27/2022 5:48 AM UTC  - :tv:直播](/content/gettr/p1jw7nj6c67.md)
 
-2022.07.26 Nicole 看七哥 第四期 年轻战友眼中的七哥
+7/26/2022 Miles Guo’s GETTR: Many countries have reached the consensus that the CCP’s “One Belt One Road” scheme is the root cause of Sri Lanka’s bankruptcy. If the “One Belt One Road” scheme is not halted soon, more countries will...
 
-<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/07/27/05/f6b78893-3154-2bb1-789c-5ae990c5c464/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 7/26/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1ju1vv0e72.md)
+[@miles 7/27/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1jwqmn6b69.md)
 
- 7月26日，尊敬的战友们好……共产党的一带一路会让很多国家破产……也会让共产党成为必须被世界消灭的邪恶组织……中国人不应该为此付出代价，共产党惹得祸应该让共产党背……一切都已经开始。 
+7/26/2022 Miles Guo’s GETTR: Our teams working with GCLUBS, Himalaya Exchange and those in Europe and Canada have received positive feedback for their professionalism, decency and dedication; more and more fellow fighters will come...
 
-
-
-
-
-<img src="https://media.gettr.com/group50/getter/2022/07/26/15/567127d9-49ab-a36f-5c94-88e11f350f4d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/07/27/05/6daa7eed-85bc-a2df-9053-516c84769247/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,6 +39,34 @@
 #战友威廉王
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/26/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1jvk4q194c.md)
+
+2022.07.26 Nicole 看七哥 第四期 年轻战友眼中的七哥
+
+<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/26/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1ju1vv0e72.md)
+
+ 7月26日，尊敬的战友们好……共产党的一带一路会让很多国家破产……也会让共产党成为必须被世界消灭的邪恶组织……中国人不应该为此付出代价，共产党惹得祸应该让共产党背……一切都已经开始。 
+
+
+
+
+
+<img src="https://media.gettr.com/group50/getter/2022/07/26/15/567127d9-49ab-a36f-5c94-88e11f350f4d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/27/2022 5:55 AM UTC  - :tv:直播](/content/gettr/p1jx3x6c6bb.md)
+
+7/26/2022 Miles Guo GETTR: When the Americans find out the CCP’ attempt to influence and infiltrate the Federal Reserve, Himalaya Reserve will become the biggest winner! Himalaya Reserve, Himalaya Dollar and Himalaya Coin will beco...
+
+<img src="https://media.gettr.com/group16/getter/2022/07/27/05/81d2df70-125c-d372-c4d6-19e74be5457f/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,30 +212,6 @@
 [@miles 7/25/2022 4:57 PM UTC ](/content/gettr/p1jplxn85b8.md)
 
 ❤️❤️❤️👍👍👍👍
-
----
-
-[@miles 7/25/2022 3:48 PM UTC  - :tv:直播](/content/gettr/p1jotfj5c4a.md)
-
-7/24/2022 Miles Guo: "The government you elect is the government you deserve"; the more evil a government is, the more difficult it is to overthrow its dictatorship; the cooperation of Russia, Iran and Turkey offered the CCP an opp...
-
-<img src="https://media.gettr.com/group24/getter/2022/07/25/15/3bdc31ee-b259-7feb-e649-63f837bd5ab3/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 3:50 PM UTC  - :tv:直播](/content/gettr/p1joz5jce02.md)
-
-2022.07.25 尊敬的战友们好……近两天来全球的病毒感染大面积爆发，请大家务必小心，保护好家人，全球灭共的时代已经全面到来，不可逆转……一切都已经开始！
-
-<img src="https://media.gettr.com/group16/getter/2022/07/25/15/3c9e7141-b45e-18a6-eff1-855ee2d52043/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 3:54 PM UTC  - :tv:直播](/content/gettr/p1jpd6cdd98.md)
-
-7/24/2022 Miles Guo: The CCP's fear of our military intel exposure is comparable to that of the 419 VOA broadcast cut-off, the 717 exposure of Wang Qishan and HNA, and the 1120 exposure of Wang Jian's death! Why didn't the US and J...
-
-<img src="https://media.gettr.com/group27/getter/2022/07/25/15/1550f157-1364-14d9-b6cb-4cf41a4e9498/out.jpg" width="506" height="284">
 
 ---
 
