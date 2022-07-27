@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/27/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p1jxrsuba53.md)
+
+2022年7月27日文贵大直播：谈共产党面临的三场战争
+
+<img src="https://media.gettr.com/group33/origin/2022/07/27/12/0b82ee36-f9bd-b4e1-99e5-8e1f39126ba8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/27/2022 9:54 AM UTC  - :tv:直播](/content/gettr/p1jxlj2a818.md)
 
 Exclusive: 08 Secret Command Communication [2007] No. 118
@@ -26,11 +34,21 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 
 ---
 
-[@miles 7/27/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p1jxrsuba53.md)
+[@miles 7/27/2022 1:17 PM UTC  - :tv:直播](/content/gettr/p1jxqw39341.md)
 
-2022年7月27日文贵大直播：谈共产党面临的三场战争
+Exclusive: 07 Secret 
 
-<img src="https://media.gettr.com/group33/origin/2022/07/27/12/0b82ee36-f9bd-b4e1-99e5-8e1f39126ba8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+Command Communication [2007] No. 107
+
+
+
+PLA Air Force Command (Request for Approval)
+
+
+
+Submitting the Air Force's First Batch of Shortwave Comprehensive Network Connection Construction Project
+
+<img src="https://media.gettr.com/group28/getter/2022/07/27/13/cef1d0ab-1fa6-0531-3797-6e108c26f3fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -214,14 +232,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 7/25/2022 Miles Guo’s GETTR: Only the Whistleblowers’ Movement and I are able to say in advance that Nancy Pelosi was going to visit Taiwan. When faced with the evil CCP, the world has almost fallen entirely. Many people are discus...
 
 <img src="https://media.gettr.com/group27/getter/2022/07/25/23/ee6e44b4-479a-993e-03af-4b123096a0e8/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p1jqmgkecab.md)
-
-7/24/2022 Miles Guo: The CCP built military facilities beneath hospitals, subways, gas and power supply centers of a city. Even Hitler wouldn't have done that! Several years ago when the CCP learned that information of its military...
-
-<img src="https://media.gettr.com/group12/getter/2022/07/25/23/51f4fc95-b522-0c8e-6fc2-5c5ad279d845/out.jpg" width="506" height="284">
 
 ---
 
