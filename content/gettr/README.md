@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/27/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p1k02c5b1ba.md)
+
+2022.07.27 Nicole 看七哥 第五期 音乐小达人眼中的摇滚巨星
+
+<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/27/2022 7:22 PM UTC ](/content/gettr/p1jziu30573.md)
 
 2022.07.27 GClubs《会员专享 乘风破浪》——豪华游艇巡航纽约曼哈顿正在进行时！
@@ -78,11 +86,11 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 
 ---
 
-[@miles 7/27/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p1k02c5b1ba.md)
+[@miles 7/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1k047aa94a.md)
 
-2022.07.27 Nicole 看七哥 第五期 音乐小达人眼中的摇滚巨星
+7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. The Cultural Revolution launched by Mao Zedong resulted in the dea...
 
-<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/07/27/21/a6ded525-bcfa-eea5-d607-7a713d62ebef/out.jpg" width="506" height="284">
 
 ---
 
@@ -230,14 +238,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 #青藤
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1jqirx42bb.md)
-
-7/25/2022 Miles Guo’s GETTR: The CCP is the culprit behind the political and economic turmoil in many countries across the world. The 1.4 billion Chinese people have been kidnapped by the CCP, but sadly they are unaware of the dang...
-
-<img src="https://media.gettr.com/group8/getter/2022/07/25/23/6fb60cb2-6eb9-1bbe-f37a-9889985d4298/out.jpg" width="506" height="284">
 
 ---
 
