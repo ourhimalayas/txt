@@ -10,11 +10,35 @@
 
 ---
 
+[@miles 7/27/2022 9:54 AM UTC  - :tv:直播](/content/gettr/p1jxlj2a818.md)
+
+Exclusive: 08 Secret Command Communication [2007] No. 118
+
+
+
+PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval)
+
+
+
+Submitted the Design Task Plan for the Construction of the Air Force's First anti-"Ta...
+
+<img src="https://media.gettr.com/group37/getter/2022/07/27/09/e62fccdb-f0b4-c14e-7cbb-8045c65def39/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/27/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1jwqmn6b69.md)
 
 7/26/2022 Miles Guo’s GETTR: Our teams working with GCLUBS, Himalaya Exchange and those in Europe and Canada have received positive feedback for their professionalism, decency and dedication; more and more fellow fighters will come...
 
 <img src="https://media.gettr.com/group16/getter/2022/07/27/05/6daa7eed-85bc-a2df-9053-516c84769247/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/27/2022 5:55 AM UTC  - :tv:直播](/content/gettr/p1jx3x6c6bb.md)
+
+7/26/2022 Miles Guo GETTR: When the Americans find out the CCP’ attempt to influence and infiltrate the Federal Reserve, Himalaya Reserve will become the biggest winner! Himalaya Reserve, Himalaya Dollar and Himalaya Coin will beco...
+
+<img src="https://media.gettr.com/group16/getter/2022/07/27/05/81d2df70-125c-d372-c4d6-19e74be5457f/out.jpg" width="506" height="284">
 
 ---
 
@@ -59,14 +83,6 @@
 
 
 <img src="https://media.gettr.com/group50/getter/2022/07/26/15/567127d9-49ab-a36f-5c94-88e11f350f4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 5:55 AM UTC  - :tv:直播](/content/gettr/p1jx3x6c6bb.md)
-
-7/26/2022 Miles Guo GETTR: When the Americans find out the CCP’ attempt to influence and infiltrate the Federal Reserve, Himalaya Reserve will become the biggest winner! Himalaya Reserve, Himalaya Dollar and Himalaya Coin will beco...
-
-<img src="https://media.gettr.com/group16/getter/2022/07/27/05/81d2df70-125c-d372-c4d6-19e74be5457f/out.jpg" width="506" height="284">
 
 ---
 
@@ -206,12 +222,6 @@
 2022. 07.25 Nicole 看七哥 第三期 七哥视战友如家人
 
 <img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/25/2022 4:57 PM UTC ](/content/gettr/p1jplxn85b8.md)
-
-❤️❤️❤️👍👍👍👍
 
 ---
 
