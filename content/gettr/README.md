@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/28/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1k3l984cd4.md)
+
+2022.07.28 尊敬的战友们好……从8月1号到8月7号．将是世界大事．大局的重大变化的一周．从中国内部傅政华案子的开庭．能看出共产党内部的政治斗争……正在加剧……共产党的黑暗远远超出我们的想象，一切都已经开始！
+
+<img src="https://media.gettr.com/group10/getter/2022/07/28/15/b269be1c-23b3-5182-4803-7ab54b64eea2/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 7/28/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p1k3aou9afc.md)
+
+0727大直播精华版
+
+
+
+<img src="https://media.gettr.com/group41/origin/2022/07/28/14/4bd4c400-a069-5587-ec84-a52f4c727007/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 10:39 AM UTC  - :tv:直播](/content/gettr/p1k1si11910.md)
 
 独家爆料：01 机密 司通〔2007〕105号
@@ -64,13 +82,11 @@ For English：gettr.com/post/p1k16aj61b8
 
 ---
 
-[@milesguolive 7/28/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p1k3aou9afc.md)
+[@miles 7/28/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1k3b6ea3af.md)
 
-0727大直播精华版
+7/27/2022 Miles Guo: The USS Ronald Reagan's visit to Singapore has delivered the message to the CCP that the US has the will, capability, and readiness to fight, and that the CCP should come to negotiate ASAP! A war could break ou...
 
-
-
-<img src="https://media.gettr.com/group41/origin/2022/07/28/14/4bd4c400-a069-5587-ec84-a52f4c727007/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/07/28/14/ef4788fc-146b-21dc-266f-cdd3d3ae9a56/out.jpg" width="506" height="284">
 
 ---
 
@@ -229,22 +245,6 @@ PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval
 Submitted the Design Task Plan for the Construction of the Air Force's First anti-"Ta...
 
 <img src="https://media.gettr.com/group37/getter/2022/07/27/09/e62fccdb-f0b4-c14e-7cbb-8045c65def39/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 5:51 AM UTC  - :tv:直播](/content/gettr/p1jwqmn6b69.md)
-
-7/26/2022 Miles Guo’s GETTR: Our teams working with GCLUBS, Himalaya Exchange and those in Europe and Canada have received positive feedback for their professionalism, decency and dedication; more and more fellow fighters will come...
-
-<img src="https://media.gettr.com/group16/getter/2022/07/27/05/6daa7eed-85bc-a2df-9053-516c84769247/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 5:55 AM UTC  - :tv:直播](/content/gettr/p1jx3x6c6bb.md)
-
-7/26/2022 Miles Guo GETTR: When the Americans find out the CCP’ attempt to influence and infiltrate the Federal Reserve, Himalaya Reserve will become the biggest winner! Himalaya Reserve, Himalaya Dollar and Himalaya Coin will beco...
-
-<img src="https://media.gettr.com/group16/getter/2022/07/27/05/81d2df70-125c-d372-c4d6-19e74be5457f/out.jpg" width="506" height="284">
 
 ---
 
