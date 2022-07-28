@@ -16,6 +16,28 @@ For English：gettr.com/post/p1k16aj61b8
 
 ---
 
+[@miles 7/28/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1k0cf65c2a.md)
+
+2022.07.27 China's state-owned enterprises are one of China's real powers
+
+<img src="https://media.gettr.com/group13/getter/2022/07/28/01/3d73333c-e0a8-f487-e1cc-3ae1e1ec1737/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p1k17oefa2c.md)
+
+(4K版) 飞飞秀 《利益冲突·第十八篇》2022-07-27
+
+For English：gettr.com/post/p1k16aj61b8
+
+
+
+#LUC #PAX #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group3/origin/2022/07/28/01/11939769-3b9b-53ad-c91d-20e3a4053266/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 7/28/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1k01do25c2.md)
 
 《战》
@@ -59,20 +81,6 @@ For English：gettr.com/streaming/p1k09cycc9b
 #绝密文件 #项目2323 #粤东地指
 
 <img src="https://media.gettr.com/group12/origin/2022/07/27/22/415107eb-3a9d-9652-37f7-ec337590bdee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p1k17oefa2c.md)
-
-(4K版) 飞飞秀 《利益冲突·第十八篇》2022-07-27
-
-For English：gettr.com/post/p1k16aj61b8
-
-
-
-#LUC #PAX #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group3/origin/2022/07/28/01/11939769-3b9b-53ad-c91d-20e3a4053266/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -227,18 +235,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 2022.07.26 Nicole 看七哥 第四期 年轻战友眼中的七哥
 
 <img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/26/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1ju1vv0e72.md)
-
- 7月26日，尊敬的战友们好……共产党的一带一路会让很多国家破产……也会让共产党成为必须被世界消灭的邪恶组织……中国人不应该为此付出代价，共产党惹得祸应该让共产党背……一切都已经开始。 
-
-
-
-
-
-<img src="https://media.gettr.com/group50/getter/2022/07/26/15/567127d9-49ab-a36f-5c94-88e11f350f4d/out.jpg" width="506" height="284">
 
 ---
 
