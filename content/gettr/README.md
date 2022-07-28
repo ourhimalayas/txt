@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/28/2022 6:22 AM UTC  - :tv:直播](/content/gettr/p1k1mrn3e4d.md)
+
+7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP and will change the course of history in Communist China just like how Yuan Shikai did back then. Zeng Qinghong, Meng Jianzhu,...
+
+<img src="https://media.gettr.com/group13/getter/2022/07/28/06/82fbac73-38ec-5afc-98c6-7f29ee52ff03/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 6:14 AM UTC  - :tv:直播](/content/gettr/p1k1h22416e.md)
 
 7/27/2022 Miles Guo: The second war faced by the CCP is the diplomatic war. The CCP is always an expert in internal conflicts, but a layman in external conflicts. The current external conflict that Xi Jinping has been involved is t...
@@ -40,11 +48,19 @@ For English：gettr.com/post/p1k16aj61b8
 
 ---
 
-[@miles 7/28/2022 6:22 AM UTC  - :tv:直播](/content/gettr/p1k1mrn3e4d.md)
+[@miles 7/28/2022 10:39 AM UTC  - :tv:直播](/content/gettr/p1k1si11910.md)
 
-7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP and will change the course of history in Communist China just like how Yuan Shikai did back then. Zeng Qinghong, Meng Jianzhu,...
+独家爆料：01 机密 司通〔2007〕105号
 
-<img src="https://media.gettr.com/group13/getter/2022/07/28/06/82fbac73-38ec-5afc-98c6-7f29ee52ff03/out.jpg" width="506" height="284">
+
+
+中国人民解放军空军司令部（请示）
+
+
+
+呈报粤东方向空中作战集群地下指挥所通信与指控系统建设项目
+
+<img src="https://media.gettr.com/group9/getter/2022/07/28/10/6b0ff499-b805-503a-9ac0-0cc2f4a7b4f0/out.jpg" width="506" height="284">
 
 ---
 
@@ -227,30 +243,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 7/26/2022 Miles Guo GETTR: When the Americans find out the CCP’ attempt to influence and infiltrate the Federal Reserve, Himalaya Reserve will become the biggest winner! Himalaya Reserve, Himalaya Dollar and Himalaya Coin will beco...
 
 <img src="https://media.gettr.com/group16/getter/2022/07/27/05/81d2df70-125c-d372-c4d6-19e74be5457f/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 7/27/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1jvyzr1ae4.md)
-
-《战》
-
-第一季《空军机密文件解析》
-
-（8）司通【2007】107号、日本2022年国防白皮书透露的中共阴谋
-
-#磐石农场
-
-威廉王 青藤
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#战友威廉王
-
-<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
