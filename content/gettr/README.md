@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/28/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1k3lf818f0.md)
+
+7/27/2022 Miles Guo: The Federal Reserve will coexist with digital currencies. The Himalaya Exchange, which runs on a private blockchain, is centralized, and has strict KYC requirements and the Himalaya Dollar, the world's only gen...
+
+<img src="https://media.gettr.com/group9/getter/2022/07/28/15/b56f95be-6084-cf40-1328-505dd35baa0c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1k3b6ea3af.md)
+
+7/27/2022 Miles Guo: The USS Ronald Reagan's visit to Singapore has delivered the message to the CCP that the US has the will, capability, and readiness to fight, and that the CCP should come to negotiate ASAP! A war could break ou...
+
+<img src="https://media.gettr.com/group43/getter/2022/07/28/14/ef4788fc-146b-21dc-266f-cdd3d3ae9a56/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 7/28/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p1k3aou9afc.md)
 
 0727大直播精华版
@@ -79,14 +95,6 @@ For English：gettr.com/post/p1k16aj61b8
 #LUC #普衡 #破产案 #Trustee
 
 <img src="https://media.gettr.com/group19/origin/2022/07/28/01/ea9d111b-cf86-2f63-72e7-dca95f4a5698/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1k3b6ea3af.md)
-
-7/27/2022 Miles Guo: The USS Ronald Reagan's visit to Singapore has delivered the message to the CCP that the US has the will, capability, and readiness to fight, and that the CCP should come to negotiate ASAP! A war could break ou...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/28/14/ef4788fc-146b-21dc-266f-cdd3d3ae9a56/out.jpg" width="506" height="284">
 
 ---
 
@@ -229,22 +237,6 @@ Submitting the Air Force's First Batch of Shortwave Comprehensive Network Connec
 2022年7月27日文贵大直播：谈共产党面临的三场战争
 
 <img src="https://media.gettr.com/group33/origin/2022/07/27/12/0b82ee36-f9bd-b4e1-99e5-8e1f39126ba8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 9:54 AM UTC  - :tv:直播](/content/gettr/p1jxlj2a818.md)
-
-Exclusive: 08 Secret Command Communication [2007] No. 118
-
-
-
-PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval)
-
-
-
-Submitted the Design Task Plan for the Construction of the Air Force's First anti-"Ta...
-
-<img src="https://media.gettr.com/group37/getter/2022/07/27/09/e62fccdb-f0b4-c14e-7cbb-8045c65def39/out.jpg" width="506" height="284">
 
 ---
 
