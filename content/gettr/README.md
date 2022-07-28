@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/28/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1k584458a4.md)
+
+7/27/2022 Miles Guo: The goal of the Xi-Biden call is to make deals: Chinese people will continue working as slaves to keep the cheap supply chain going, and the CCP will continue purchasing the US National debt. As a trade off, Na...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/28/23/97031917-c70e-3923-18e8-285726b2d1e9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1k5ltr9572.md)
 
 (1080版) 飞飞秀 《利益冲突·第十九篇》2022-07-28
@@ -13,6 +21,32 @@ For English：gettr.com/post/p1k5qme1a74
 #LUC #PAX #破产案 #Trustee
 
 <img src="https://media.gettr.com/group6/origin/2022/07/28/22/f94734c4-1b3e-3a83-60d8-b610ae59c710/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1k55ez1bc2.md)
+
+7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. Communist China will become another North Korea！
+
+
+
+7/27/2022 文贵直播...
+
+<img src="https://media.gettr.com/group47/getter/2022/07/28/23/f361fd39-4b9f-b6a3-1ab0-53a7834197c4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1k5gth9a8e.md)
+
+(4K版) 飞飞秀 《利益冲突·第十九篇》2022-07-28
+
+For English：gettr.com/streaming/p1k5qme1a74
+
+
+
+#LUC #PAX #破产案 #Trustee
+
+<img src="https://media.gettr.com/group39/origin/2022/07/28/22/f9fcb793-5395-54c6-1746-a907a7cb1176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -51,20 +85,6 @@ For English：gettr.com/post/p1k5qme1a74
 2022.07.28 尊敬的战友们好……从8月1号到8月7号．将是世界大事．大局的重大变化的一周．从中国内部傅政华案子的开庭．能看出共产党内部的政治斗争……正在加剧……共产党的黑暗远远超出我们的想象，一切都已经开始！
 
 <img src="https://media.gettr.com/group10/getter/2022/07/28/15/b269be1c-23b3-5182-4803-7ab54b64eea2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1k5gth9a8e.md)
-
-(4K版) 飞飞秀 《利益冲突·第十九篇》2022-07-28
-
-For English：gettr.com/streaming/p1k5qme1a74
-
-
-
-#LUC #PAX #破产案 #Trustee
-
-<img src="https://media.gettr.com/group39/origin/2022/07/28/22/f9fcb793-5395-54c6-1746-a907a7cb1176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,34 +211,6 @@ For English：gettr.com/post/p1k16aj61b8
 7/27/2022 Miles Guo: It took the CCP almost 30 years to recruit 1 million members. In Communist China, more than 1 million fellow fighters attempted to purchase GCLUBS membership but the transaction was canceled by the CCP. Behind ...
 
 <img src="https://media.gettr.com/group41/getter/2022/07/27/23/2bbcc08f-21e8-b8e0-d7ec-5e74beb3b391/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1jzv7p1800.md)
-
-(4K版) 七月二十七日《军事大爆料》2022-07-27
-
-For English：gettr.com/streaming/p1k09cycc9b
-
-
-
-#绝密文件 #项目2323 #粤东地指
-
-<img src="https://media.gettr.com/group12/origin/2022/07/27/22/415107eb-3a9d-9652-37f7-ec337590bdee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1k08tgf0aa.md)
-
-(1080版) 七月二十七日《军事大爆料》2022-07-27
-
-For English：gettr.com/streaming/p1k09cycc9b
-
-
-
-#绝密文件 #项目2323 #粤东地指
-
-<img src="https://media.gettr.com/group33/origin/2022/07/27/22/a7748c28-bcc4-d27e-b6f3-85c5d63400be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
