@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/28/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1k3lf818f0.md)
+
+7/27/2022 Miles Guo: The Federal Reserve will coexist with digital currencies. The Himalaya Exchange, which runs on a private blockchain, is centralized, and has strict KYC requirements and the Himalaya Dollar, the world's only gen...
+
+<img src="https://media.gettr.com/group9/getter/2022/07/28/15/b56f95be-6084-cf40-1328-505dd35baa0c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1k3l984cd4.md)
 
 2022.07.28 尊敬的战友们好……从8月1号到8月7号．将是世界大事．大局的重大变化的一周．从中国内部傅政华案子的开庭．能看出共产党内部的政治斗争……正在加剧……共产党的黑暗远远超出我们的想象，一切都已经开始！
@@ -10,11 +18,9 @@
 
 ---
 
-[@miles 7/28/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1k3lf818f0.md)
+[@miles 7/28/2022 3:51 PM UTC ](/content/gettr/p1k3qw77eb2.md)
 
-7/27/2022 Miles Guo: The Federal Reserve will coexist with digital currencies. The Himalaya Exchange, which runs on a private blockchain, is centralized, and has strict KYC requirements and the Himalaya Dollar, the world's only gen...
-
-<img src="https://media.gettr.com/group9/getter/2022/07/28/15/b56f95be-6084-cf40-1328-505dd35baa0c/out.jpg" width="506" height="284">
+2022.07.28 中国到了真正的阴盛阳衰的时代😀😀😀😀
 
 ---
 
@@ -229,14 +235,6 @@ PLA Air Force Command (Request for Approval)
 Submitting the Air Force's First Batch of Shortwave Comprehensive Network Connection Construction Project
 
 <img src="https://media.gettr.com/group28/getter/2022/07/27/13/cef1d0ab-1fa6-0531-3797-6e108c26f3fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 12:26 PM UTC  - :tv:直播](/content/gettr/p1jxrsuba53.md)
-
-2022年7月27日文贵大直播：谈共产党面临的三场战争
-
-<img src="https://media.gettr.com/group33/origin/2022/07/27/12/0b82ee36-f9bd-b4e1-99e5-8e1f39126ba8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
