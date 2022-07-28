@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/28/2022 6:14 AM UTC  - :tv:直播](/content/gettr/p1k1h22416e.md)
+
+7/27/2022 Miles Guo: The second war faced by the CCP is the diplomatic war. The CCP is always an expert in internal conflicts, but a layman in external conflicts. The current external conflict that Xi Jinping has been involved is t...
+
+<img src="https://media.gettr.com/group28/getter/2022/07/28/06/eae00b74-44b1-db44-d284-fee0c993261d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 2:58 AM UTC  - :tv:直播](/content/gettr/p1k0tmca46d.md)
 
 7/27/2022 Miles Guo:  The third war faced by the CCP is the investigation into the development of the COVID vaccines and the origination of the CCP virus. The aftermath of this war will be a sharp decline in world population. The i...
@@ -32,11 +40,11 @@ For English：gettr.com/post/p1k16aj61b8
 
 ---
 
-[@miles 7/28/2022 6:14 AM UTC  - :tv:直播](/content/gettr/p1k1h22416e.md)
+[@miles 7/28/2022 6:22 AM UTC  - :tv:直播](/content/gettr/p1k1mrn3e4d.md)
 
-7/27/2022 Miles Guo: The second war faced by the CCP is the diplomatic war. The CCP is always an expert in internal conflicts, but a layman in external conflicts. The current external conflict that Xi Jinping has been involved is t...
+7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP and will change the course of history in Communist China just like how Yuan Shikai did back then. Zeng Qinghong, Meng Jianzhu,...
 
-<img src="https://media.gettr.com/group28/getter/2022/07/28/06/eae00b74-44b1-db44-d284-fee0c993261d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/07/28/06/82fbac73-38ec-5afc-98c6-7f29ee52ff03/out.jpg" width="506" height="284">
 
 ---
 
@@ -243,14 +251,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 #战友威廉王
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/26/2022 8:59 PM UTC  - :tv:直播](/content/gettr/p1jvk4q194c.md)
-
-2022.07.26 Nicole 看七哥 第四期 年轻战友眼中的七哥
-
-<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
