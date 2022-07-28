@@ -2,25 +2,17 @@
 ---
 
 
-[@miles 7/27/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1k06jida31.md)
+[@miles 7/28/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p1k0e1i0ead.md)
 
-7/27/2022 Miles Guo: It took the CCP almost 30 years to recruit 1 million members. In Communist China, more than 1 million fellow fighters attempted to purchase GCLUBS membership but the transaction was canceled by the CCP. Behind ...
+(1080版) 飞飞秀 《利益冲突·第十八篇》2022-07-27
 
-<img src="https://media.gettr.com/group41/getter/2022/07/27/23/2bbcc08f-21e8-b8e0-d7ec-5e74beb3b391/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1jzv7p1800.md)
-
-(4K版) 七月二十七日《军事大爆料》2022-07-27
-
-For English：gettr.com/streaming/p1k09cycc9b
+For English：gettr.com/post/p1k16aj61b8
 
 
 
-#绝密文件 #项目2323 #粤东地指
+#LUC #普衡 #破产案 #Trustee
 
-<img src="https://media.gettr.com/group12/origin/2022/07/27/22/415107eb-3a9d-9652-37f7-ec337590bdee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/07/28/01/ea9d111b-cf86-2f63-72e7-dca95f4a5698/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -45,6 +37,42 @@ For English：gettr.com/streaming/p1k09cycc9b
 #新中国联邦
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/27/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1k06jida31.md)
+
+7/27/2022 Miles Guo: It took the CCP almost 30 years to recruit 1 million members. In Communist China, more than 1 million fellow fighters attempted to purchase GCLUBS membership but the transaction was canceled by the CCP. Behind ...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/27/23/2bbcc08f-21e8-b8e0-d7ec-5e74beb3b391/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1jzv7p1800.md)
+
+(4K版) 七月二十七日《军事大爆料》2022-07-27
+
+For English：gettr.com/streaming/p1k09cycc9b
+
+
+
+#绝密文件 #项目2323 #粤东地指
+
+<img src="https://media.gettr.com/group12/origin/2022/07/27/22/415107eb-3a9d-9652-37f7-ec337590bdee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p1k17oefa2c.md)
+
+(4K版) 飞飞秀 《利益冲突·第十八篇》2022-07-27
+
+For English：gettr.com/post/p1k16aj61b8
+
+
+
+#LUC #PAX #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group3/origin/2022/07/28/01/11939769-3b9b-53ad-c91d-20e3a4053266/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -227,28 +255,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 2022.07.26 WOW 😎😎😎😎
 
 <img src="https://media.gettr.com/group34/getter/2022/07/26/15/42a34133-51bd-46ef-9a81-c56103805c60/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/26/2022 11:28 AM UTC  - :tv:直播](/content/gettr/p1jsugw6526.md)
-
-2022.07.26 尊敬的战友们好……欢迎来到……中共病毒疫苗灾难的时代😀😀😀😀😀
-
-<img src="https://media.gettr.com/group31/getter/2022/07/26/11/8cb598ff-8aae-4517-a5ef-aeed77cf0449/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/26/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p1js4005987.md)
-
-7/24/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan will imply that the U.S. recognizes Taiwan as a sovereign state, but chance is little for her to make it
-
-
-
-7/24/2022 文贵直播：佩罗西若成功访问台湾就意味着美国事实承认台湾独立，但她成功出访的机率不大
-
-
-
-<img src="https://media.gettr.com/group45/getter/2022/07/26/05/42973de9-96fc-5d9e-d418-1c65a45c4c3d/out.jpg" width="506" height="284">
 
 ---
 
