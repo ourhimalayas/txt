@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 7/28/2022 3:51 PM UTC ](/content/gettr/p1k3qw77eb2.md)
+
+2022.07.28 中国到了真正的阴盛阳衰的时代😀😀😀😀
+
+---
+
 [@miles 7/28/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1k3lf818f0.md)
 
 7/27/2022 Miles Guo: The Federal Reserve will coexist with digital currencies. The Himalaya Exchange, which runs on a private blockchain, is centralized, and has strict KYC requirements and the Himalaya Dollar, the world's only gen...
@@ -18,9 +24,11 @@
 
 ---
 
-[@miles 7/28/2022 3:51 PM UTC ](/content/gettr/p1k3qw77eb2.md)
+[@miles 7/28/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1k3uoh6d22.md)
 
-2022.07.28 中国到了真正的阴盛阳衰的时代😀😀😀😀
+2022.07.28 What will happen to American companies in China?
+
+<img src="https://media.gettr.com/group46/getter/2022/07/28/16/d78e6544-0b11-e99c-c386-b1e89bfa18b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -217,24 +225,6 @@ https://forms.gle/nP2SkXVDjZhkk9gt6
 🙏🙏...
 
 <img src="https://media.gettr.com/group21/origin/2022/07/27/19/81f42d29-f013-52d1-03d8-5c0ec726ae6d/e5bea2e34e608ada279558aed3c1b18b.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 1:17 PM UTC  - :tv:直播](/content/gettr/p1jxqw39341.md)
-
-Exclusive: 07 Secret 
-
-Command Communication [2007] No. 107
-
-
-
-PLA Air Force Command (Request for Approval)
-
-
-
-Submitting the Air Force's First Batch of Shortwave Comprehensive Network Connection Construction Project
-
-<img src="https://media.gettr.com/group28/getter/2022/07/27/13/cef1d0ab-1fa6-0531-3797-6e108c26f3fc/out.jpg" width="506" height="284">
 
 ---
 
