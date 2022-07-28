@@ -2,11 +2,48 @@
 ---
 
 
+[@miles 7/28/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1k632g85ab.md)
+
+7/27/2022 Miles Guo: The second war faced by the CCP is the diplomatic war. Xi Jinping completely failed in all the external conflicts provoked by him. Meanwhile it made clear to the entire world what the CCP is really capable of!
+...
+
+<img src="https://media.gettr.com/group5/getter/2022/07/28/23/32fbfcef-f41a-d71c-2b43-a547b22a0363/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p1k5xcg7a0a.md)
+
+7/27/2022 Miles Guo: The vaccine business in Communist China is in the hands of three factions: the Shanghai Gang, the Xi family and Wang Qishan. The death of Zeng Bing was due to his deep involvement in the vaccine business; those...
+
+<img src="https://media.gettr.com/group4/getter/2022/07/28/23/b35a3015-28a0-7a62-ce06-d854ac436be2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1k584458a4.md)
 
 7/27/2022 Miles Guo: The goal of the Xi-Biden call is to make deals: Chinese people will continue working as slaves to keep the cheap supply chain going, and the CCP will continue purchasing the US National debt. As a trade off, Na...
 
 <img src="https://media.gettr.com/group3/getter/2022/07/28/23/97031917-c70e-3923-18e8-285726b2d1e9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1k56hy8714.md)
+
+7/28/2022 Miles Guo's GETTR: Let's get ready for the grand live broadcasts on August 7, 8 and 9, 2022; regardless of the CCP’s bluffing, its actual military power vs that of the U.S. is like a plastic knife vs a real patriot missil...
+
+<img src="https://media.gettr.com/group12/getter/2022/07/28/23/ec1da1ab-0ac7-b567-bd26-290d46c64bb7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1k55ez1bc2.md)
+
+7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. Communist China will become another North Korea！
+
+
+
+7/27/2022 文贵直播...
+
+<img src="https://media.gettr.com/group47/getter/2022/07/28/23/f361fd39-4b9f-b6a3-1ab0-53a7834197c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -21,18 +58,6 @@ For English：gettr.com/post/p1k5qme1a74
 #LUC #PAX #破产案 #Trustee
 
 <img src="https://media.gettr.com/group6/origin/2022/07/28/22/f94734c4-1b3e-3a83-60d8-b610ae59c710/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1k55ez1bc2.md)
-
-7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. Communist China will become another North Korea！
-
-
-
-7/27/2022 文贵直播...
-
-<img src="https://media.gettr.com/group47/getter/2022/07/28/23/f361fd39-4b9f-b6a3-1ab0-53a7834197c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,20 +179,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 
 ---
 
-[@miles 7/28/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p1k0e1i0ead.md)
-
-(1080版) 飞飞秀 《利益冲突·第十八篇》2022-07-27
-
-For English：gettr.com/post/p1k16aj61b8
-
-
-
-#LUC #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group19/origin/2022/07/28/01/ea9d111b-cf86-2f63-72e7-dca95f4a5698/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/28/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p1k17oefa2c.md)
 
 (4K版) 飞飞秀 《利益冲突·第十八篇》2022-07-27
@@ -179,38 +190,6 @@ For English：gettr.com/post/p1k16aj61b8
 #LUC #PAX #普衡 #破产案 #Trustee
 
 <img src="https://media.gettr.com/group3/origin/2022/07/28/01/11939769-3b9b-53ad-c91d-20e3a4053266/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 7/28/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1k01do25c2.md)
-
-《战》
-
-第一季 《空军机密文件解析》
-
-（9）司通【2007】105号及日本2022年国防白皮书透露的中共阴谋
-
-#磐石农场
-
-威廉王 NICK
-
-@NewYorkRock
-
-#战
-
-#军情大爆料 
-
-#新中国联邦
-
-<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1k06jida31.md)
-
-7/27/2022 Miles Guo: It took the CCP almost 30 years to recruit 1 million members. In Communist China, more than 1 million fellow fighters attempted to purchase GCLUBS membership but the transaction was canceled by the CCP. Behind ...
-
-<img src="https://media.gettr.com/group41/getter/2022/07/27/23/2bbcc08f-21e8-b8e0-d7ec-5e74beb3b391/out.jpg" width="506" height="284">
 
 ---
 
