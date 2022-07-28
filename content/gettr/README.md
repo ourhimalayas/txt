@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/27/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1k06jida31.md)
+
+7/27/2022 Miles Guo: It took the CCP almost 30 years to recruit 1 million members. In Communist China, more than 1 million fellow fighters attempted to purchase GCLUBS membership but the transaction was canceled by the CCP. Behind ...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/27/23/2bbcc08f-21e8-b8e0-d7ec-5e74beb3b391/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/27/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1jzv7p1800.md)
 
 (4K版) 七月二十七日《军事大爆料》2022-07-27
@@ -16,11 +24,27 @@ For English：gettr.com/streaming/p1k09cycc9b
 
 ---
 
-[@miles 7/27/2022 11:36 PM UTC  - :tv:直播](/content/gettr/p1k06jida31.md)
+[@newyorkrock 7/28/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1k01do25c2.md)
 
-7/27/2022 Miles Guo: It took the CCP almost 30 years to recruit 1 million members. In Communist China, more than 1 million fellow fighters attempted to purchase GCLUBS membership but the transaction was canceled by the CCP. Behind ...
+《战》
 
-<img src="https://media.gettr.com/group41/getter/2022/07/27/23/2bbcc08f-21e8-b8e0-d7ec-5e74beb3b391/out.jpg" width="506" height="284">
+第一季 《空军机密文件解析》
+
+（9）司通【2007】105号及日本2022年国防白皮书透露的中共阴谋
+
+#磐石农场
+
+威廉王 NICK
+
+@NewYorkRock
+
+#战
+
+#军情大爆料 
+
+#新中国联邦
+
+<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -225,19 +249,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 
 
 <img src="https://media.gettr.com/group45/getter/2022/07/26/05/42973de9-96fc-5d9e-d418-1c65a45c4c3d/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/26/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1js9jk9f23.md)
-
-7/24/2022 Miles Guo: The trustee issue will make the West realize that as long as there is cooperation between their law firms and the CCP, there will be conflicts of interest
-
-
-
-7/24/2022 文贵直播：信托人事件会让西方意识到，只要西方的律师事务所和中共有合作就会有利益冲突
-...
-
-<img src="https://media.gettr.com/group23/getter/2022/07/26/04/08a79c29-b2ad-4d8b-4077-44bd9d6a89d0/out.jpg" width="506" height="284">
 
 ---
 
