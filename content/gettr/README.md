@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/28/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1k5ltr9572.md)
+
+(1080版) 飞飞秀 《利益冲突·第十九篇》2022-07-28
+
+For English：gettr.com/post/p1k5qme1a74
+
+
+
+#LUC #PAX #破产案 #Trustee
+
+<img src="https://media.gettr.com/group6/origin/2022/07/28/22/f94734c4-1b3e-3a83-60d8-b610ae59c710/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1k55luf3e8.md)
+
+2022.07.28 Nicole 看七哥 第六期  温柔的战神
+
+<img src="https://media.gettr.com/group11/origin/2022/07/28/21/4c08a133-5ca3-2834-ba61-e6b23bca7fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1k3uoh6d22.md)
 
 2022.07.28 What will happen to American companies in China?
@@ -32,11 +54,17 @@
 
 ---
 
-[@miles 7/28/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1k55luf3e8.md)
+[@miles 7/28/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1k5gth9a8e.md)
 
-2022.07.28 Nicole 看七哥 第六期  温柔的战神
+(4K版) 飞飞秀 《利益冲突·第十九篇》2022-07-28
 
-<img src="https://media.gettr.com/group11/origin/2022/07/28/21/4c08a133-5ca3-2834-ba61-e6b23bca7fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1k5qme1a74
+
+
+
+#LUC #PAX #破产案 #Trustee
+
+<img src="https://media.gettr.com/group39/origin/2022/07/28/22/f9fcb793-5395-54c6-1746-a907a7cb1176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,22 +219,6 @@ For English：gettr.com/streaming/p1k09cycc9b
 #绝密文件 #项目2323 #粤东地指
 
 <img src="https://media.gettr.com/group33/origin/2022/07/27/22/a7748c28-bcc4-d27e-b6f3-85c5d63400be/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 9:54 PM UTC  - :tv:直播](/content/gettr/p1k047aa94a.md)
-
-7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. The Cultural Revolution launched by Mao Zedong resulted in the dea...
-
-<img src="https://media.gettr.com/group35/getter/2022/07/27/21/a6ded525-bcfa-eea5-d607-7a713d62ebef/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p1k02c5b1ba.md)
-
-2022.07.27 Nicole 看七哥 第五期 音乐小达人眼中的摇滚巨星
-
-<img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
