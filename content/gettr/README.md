@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/28/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1k0cf65c2a.md)
+
+2022.07.27 China's state-owned enterprises are one of China's real powers
+
+<img src="https://media.gettr.com/group13/getter/2022/07/28/01/3d73333c-e0a8-f487-e1cc-3ae1e1ec1737/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p1k0e1i0ead.md)
 
 (1080版) 飞飞秀 《利益冲突·第十八篇》2022-07-27
@@ -16,11 +24,11 @@ For English：gettr.com/post/p1k16aj61b8
 
 ---
 
-[@miles 7/28/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1k0cf65c2a.md)
+[@miles 7/28/2022 2:58 AM UTC  - :tv:直播](/content/gettr/p1k0tmca46d.md)
 
-2022.07.27 China's state-owned enterprises are one of China's real powers
+7/27/2022 Miles Guo:  The third war faced by the CCP is the investigation into the development of the COVID vaccines and the origination of the CCP virus. The aftermath of this war will be a sharp decline in world population. The i...
 
-<img src="https://media.gettr.com/group13/getter/2022/07/28/01/3d73333c-e0a8-f487-e1cc-3ae1e1ec1737/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/07/28/02/8a235868-a62f-2eca-8f0e-501665a334fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -235,14 +243,6 @@ Submitted the Design Task Plan for the Construction of the Air Force's First ant
 2022.07.26 Nicole 看七哥 第四期 年轻战友眼中的七哥
 
 <img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@witchpeace 7/26/2022 2:54 PM UTC  - :tv:直播](/content/gettr/p1jtcua6018.md)
-
-七哥的破产案，步步惊心，关注📣📣📣
-
-<img src="https://media.gettr.com/group8/getter/2022/07/26/14/73f26088-1a4b-0c75-19c7-efbfdd107003/out.jpg" width="506" height="284">
 
 ---
 
