@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/28/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1k3uoh6d22.md)
+
+2022.07.28 What will happen to American companies in China?
+
+<img src="https://media.gettr.com/group46/getter/2022/07/28/16/d78e6544-0b11-e99c-c386-b1e89bfa18b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 3:51 PM UTC ](/content/gettr/p1k3qw77eb2.md)
 
 2022.07.28 中国到了真正的阴盛阳衰的时代😀😀😀😀
@@ -24,11 +32,11 @@
 
 ---
 
-[@miles 7/28/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1k3uoh6d22.md)
+[@miles 7/28/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1k55luf3e8.md)
 
-2022.07.28 What will happen to American companies in China?
+2022.07.28 Nicole 看七哥 第六期  温柔的战神
 
-<img src="https://media.gettr.com/group46/getter/2022/07/28/16/d78e6544-0b11-e99c-c386-b1e89bfa18b9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/07/28/21/4c08a133-5ca3-2834-ba61-e6b23bca7fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,32 +207,6 @@ For English：gettr.com/streaming/p1k09cycc9b
 2022.07.27 Nicole 看七哥 第五期 音乐小达人眼中的摇滚巨星
 
 <img src="https://media.gettr.com/group34/origin/2022/07/25/20/50f18f0f-d98e-0b90-0429-bdff377da3ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 7:22 PM UTC ](/content/gettr/p1jziu30573.md)
-
-2022.07.27 GClubs《会员专享 乘风破浪》——豪华游艇巡航纽约曼哈顿正在进行时！
-
-        请有意向参与游艇活动的GClubs会员填写以下的表格。
-
-https://forms.gle/nP2SkXVDjZhkk9gt6
-
-
-
-请注意：
-
-1. 此表仅限GClubs会员填写；
-
-2. 每位GClubs会员每年将享受限定次数登船机会；
-
-3. 游船工作组会尽量按照会员期望的日期安排游船。如有特殊情况需调整时间，会提前告知。
-
-
-
-🙏🙏...
-
-<img src="https://media.gettr.com/group21/origin/2022/07/27/19/81f42d29-f013-52d1-03d8-5c0ec726ae6d/e5bea2e34e608ada279558aed3c1b18b.jpg" width="506" height="284">
 
 ---
 
