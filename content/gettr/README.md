@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/28/2022 10:39 AM UTC  - :tv:直播](/content/gettr/p1k1si11910.md)
+
+独家爆料：01 机密 司通〔2007〕105号
+
+
+
+中国人民解放军空军司令部（请示）
+
+
+
+呈报粤东方向空中作战集群地下指挥所通信与指控系统建设项目
+
+<img src="https://media.gettr.com/group9/getter/2022/07/28/10/6b0ff499-b805-503a-9ac0-0cc2f4a7b4f0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 6:22 AM UTC  - :tv:直播](/content/gettr/p1k1mrn3e4d.md)
 
 7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP and will change the course of history in Communist China just like how Yuan Shikai did back then. Zeng Qinghong, Meng Jianzhu,...
@@ -48,19 +64,13 @@ For English：gettr.com/post/p1k16aj61b8
 
 ---
 
-[@miles 7/28/2022 10:39 AM UTC  - :tv:直播](/content/gettr/p1k1si11910.md)
+[@milesguolive 7/28/2022 2:21 PM UTC  - :tv:直播](/content/gettr/p1k3aou9afc.md)
 
-独家爆料：01 机密 司通〔2007〕105号
-
-
-
-中国人民解放军空军司令部（请示）
+0727大直播精华版
 
 
 
-呈报粤东方向空中作战集群地下指挥所通信与指控系统建设项目
-
-<img src="https://media.gettr.com/group9/getter/2022/07/28/10/6b0ff499-b805-503a-9ac0-0cc2f4a7b4f0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/07/28/14/4bd4c400-a069-5587-ec84-a52f4c727007/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -219,14 +229,6 @@ PLA Air Force Command & PLA Air Force Logistics Department (Request for Approval
 Submitted the Design Task Plan for the Construction of the Air Force's First anti-"Ta...
 
 <img src="https://media.gettr.com/group37/getter/2022/07/27/09/e62fccdb-f0b4-c14e-7cbb-8045c65def39/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/27/2022 5:48 AM UTC  - :tv:直播](/content/gettr/p1jw7nj6c67.md)
-
-7/26/2022 Miles Guo’s GETTR: Many countries have reached the consensus that the CCP’s “One Belt One Road” scheme is the root cause of Sri Lanka’s bankruptcy. If the “One Belt One Road” scheme is not halted soon, more countries will...
-
-<img src="https://media.gettr.com/group21/getter/2022/07/27/05/f6b78893-3154-2bb1-789c-5ae990c5c464/out.jpg" width="506" height="284">
 
 ---
 
