@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 7/29/2022 1:37 AM UTC ](/content/gettr/p1k62q3d34d.md)
+
+2022.07.28 ❤️❤️❤️❤️
+
+---
+
 [@miles 7/29/2022 1:08 AM UTC  - :tv:直播](/content/gettr/p1k6gwb6479.md)
 
 2022.07.28 衷心的感谢……正义的战友．制作，让人快乐和愉悦的两情相通的这个好视频……我最大的快乐之一……就是看到．听到．感觉到．与战友们在一神交．一起战斗的快乐！
@@ -53,9 +59,11 @@
 
 ---
 
-[@miles 7/29/2022 1:37 AM UTC ](/content/gettr/p1k62q3d34d.md)
+[@miles 7/29/2022 2:35 AM UTC  - :tv:直播](/content/gettr/p1k6dwzea40.md)
 
-2022.07.28 ❤️❤️❤️❤️
+7/28/2022 Miles Guo's GETTR: Fu Zhenghua stands trial in a court in Northeast China, but the trial is not open to the public. Why is that? Fu Zhenghua was so arrogant back then, he wanted to destroy me and my whole family. Even now...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/29/02/e4a43433-d121-f39e-8d69-e442de260dea/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,14 +200,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 呈报粤东方向空中作战集群地下指挥所通信与指控系统建设项目
 
 <img src="https://media.gettr.com/group9/getter/2022/07/28/10/6b0ff499-b805-503a-9ac0-0cc2f4a7b4f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 6:22 AM UTC  - :tv:直播](/content/gettr/p1k1mrn3e4d.md)
-
-7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP and will change the course of history in Communist China just like how Yuan Shikai did back then. Zeng Qinghong, Meng Jianzhu,...
-
-<img src="https://media.gettr.com/group13/getter/2022/07/28/06/82fbac73-38ec-5afc-98c6-7f29ee52ff03/out.jpg" width="506" height="284">
 
 ---
 
