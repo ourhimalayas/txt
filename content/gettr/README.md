@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 7/29/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1k9eua42b6.md)
+
+7/27/2022 Miles Guo: Alibaba is now under the full control of the CCP, and its stock will surely plummet after being listed in Hong Kong! So, the CCP's desire to plunder money in a different disguise can only be a daydream. The CCP...
+
+<img src="https://media.gettr.com/group7/getter/2022/07/29/14/8563004d-8e45-9b61-50f7-3187e76725da/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/29/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1k941831d3.md)
+
+7/27/2022 Miles Guo: In 2021, I said that Trump had to avoid being convicted of a crime if he wanted to win the presidential election in 2024, but I already had a feeling at that time that he would most likely be convicted of a cri...
+
+<img src="https://media.gettr.com/group17/getter/2022/07/29/14/7cbda903-3ec7-55ea-7ce4-181d4584c871/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1k841ab985.md)
 
 2022.07.29 Communist Party you are finished...😹😹😹😹😹😹😹😹😹
@@ -83,11 +99,9 @@
 
 ---
 
-[@miles 7/29/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1k941831d3.md)
+[@miles 7/29/2022 2:33 PM UTC ](/content/gettr/p1k9cise4f1.md)
 
-7/27/2022 Miles Guo: In 2021, I said that Trump had to avoid being convicted of a crime if he wanted to win the presidential election in 2024, but I already had a feeling at that time that he would most likely be convicted of a cri...
-
-<img src="https://media.gettr.com/group17/getter/2022/07/29/14/7cbda903-3ec7-55ea-7ce4-181d4584c871/out.jpg" width="506" height="284">
+2022.07.29 一切都是刚刚刚．刚刚刚．刚刚……开始……莘县阳谷县搭县咱走看……
 
 ---
 
@@ -174,22 +188,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 [@miles 7/28/2022 3:51 PM UTC ](/content/gettr/p1k3qw77eb2.md)
 
 2022.07.28 中国到了真正的阴盛阳衰的时代😀😀😀😀
-
----
-
-[@miles 7/28/2022 3:29 PM UTC  - :tv:直播](/content/gettr/p1k3lf818f0.md)
-
-7/27/2022 Miles Guo: The Federal Reserve will coexist with digital currencies. The Himalaya Exchange, which runs on a private blockchain, is centralized, and has strict KYC requirements and the Himalaya Dollar, the world's only gen...
-
-<img src="https://media.gettr.com/group9/getter/2022/07/28/15/b56f95be-6084-cf40-1328-505dd35baa0c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1k3b6ea3af.md)
-
-7/27/2022 Miles Guo: The USS Ronald Reagan's visit to Singapore has delivered the message to the CCP that the US has the will, capability, and readiness to fight, and that the CCP should come to negotiate ASAP! A war could break ou...
-
-<img src="https://media.gettr.com/group43/getter/2022/07/28/14/ef4788fc-146b-21dc-266f-cdd3d3ae9a56/out.jpg" width="506" height="284">
 
 ---
 
