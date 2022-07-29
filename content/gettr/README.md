@@ -2,15 +2,6 @@
 ---
 
 
-[@miles 7/28/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1k632g85ab.md)
-
-7/27/2022 Miles Guo: The second war faced by the CCP is the diplomatic war. Xi Jinping completely failed in all the external conflicts provoked by him. Meanwhile it made clear to the entire world what the CCP is really capable of!
-...
-
-<img src="https://media.gettr.com/group5/getter/2022/07/28/23/32fbfcef-f41a-d71c-2b43-a547b22a0363/out.jpg" width="506" height="284">
-
----
-
 [@newyorkrock 7/29/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1k69ph739d.md)
 
 《战》
@@ -34,6 +25,23 @@
 #青藤
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1k632g85ab.md)
+
+7/27/2022 Miles Guo: The second war faced by the CCP is the diplomatic war. Xi Jinping completely failed in all the external conflicts provoked by him. Meanwhile it made clear to the entire world what the CCP is really capable of!
+...
+
+<img src="https://media.gettr.com/group5/getter/2022/07/28/23/32fbfcef-f41a-d71c-2b43-a547b22a0363/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/29/2022 12:17 AM UTC  - :tv:直播](/content/gettr/p1k6d3uea92.md)
+
+7/28/2022 Miles Guo's GETTR: Do you really believe Fu Zhenghua only took away 200 millions? One of his antiques, a  jade seal, alone worths 300 millions; the Whistleblowers Movement will expose the darkness of the CCP for you, with...
+
+<img src="https://media.gettr.com/group40/getter/2022/07/29/00/279cef4d-ca43-90f6-5a66-0837e760b482/out.jpg" width="506" height="284">
 
 ---
 
@@ -194,14 +202,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 7/27/2022 Miles Guo:  The third war faced by the CCP is the investigation into the development of the COVID vaccines and the origination of the CCP virus. The aftermath of this war will be a sharp decline in world population. The i...
 
 <img src="https://media.gettr.com/group10/getter/2022/07/28/02/8a235868-a62f-2eca-8f0e-501665a334fb/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 1:51 AM UTC  - :tv:直播](/content/gettr/p1k0cf65c2a.md)
-
-2022.07.27 China's state-owned enterprises are one of China's real powers
-
-<img src="https://media.gettr.com/group13/getter/2022/07/28/01/3d73333c-e0a8-f487-e1cc-3ae1e1ec1737/out.jpg" width="506" height="284">
 
 ---
 
