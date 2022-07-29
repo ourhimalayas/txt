@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/29/2022 1:08 AM UTC  - :tv:直播](/content/gettr/p1k6gwb6479.md)
+
+2022.07.28 衷心的感谢……正义的战友．制作，让人快乐和愉悦的两情相通的这个好视频……我最大的快乐之一……就是看到．听到．感觉到．与战友们在一神交．一起战斗的快乐！
+
+<img src="https://media.gettr.com/group18/getter/2022/07/29/01/c4f0eace-9dc5-b1c2-5804-a0a0d06569e5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/29/2022 12:17 AM UTC  - :tv:直播](/content/gettr/p1k6d3uea92.md)
 
 7/28/2022 Miles Guo's GETTR: Do you really believe Fu Zhenghua only took away 200 millions? One of his antiques, a  jade seal, alone worths 300 millions; the Whistleblowers Movement will expose the darkness of the CCP for you, with...
@@ -45,11 +53,9 @@
 
 ---
 
-[@miles 7/29/2022 1:08 AM UTC  - :tv:直播](/content/gettr/p1k6gwb6479.md)
+[@miles 7/29/2022 1:37 AM UTC ](/content/gettr/p1k62q3d34d.md)
 
-2022.07.28 衷心的感谢……正义的战友．制作，让人快乐和愉悦的两情相通的这个好视频……我最大的快乐之一……就是看到．听到．感觉到．与战友们在一神交．一起战斗的快乐！
-
-<img src="https://media.gettr.com/group18/getter/2022/07/29/01/c4f0eace-9dc5-b1c2-5804-a0a0d06569e5/out.jpg" width="506" height="284">
+2022.07.28 ❤️❤️❤️❤️
 
 ---
 
@@ -194,14 +200,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP and will change the course of history in Communist China just like how Yuan Shikai did back then. Zeng Qinghong, Meng Jianzhu,...
 
 <img src="https://media.gettr.com/group13/getter/2022/07/28/06/82fbac73-38ec-5afc-98c6-7f29ee52ff03/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 6:14 AM UTC  - :tv:直播](/content/gettr/p1k1h22416e.md)
-
-7/27/2022 Miles Guo: The second war faced by the CCP is the diplomatic war. The CCP is always an expert in internal conflicts, but a layman in external conflicts. The current external conflict that Xi Jinping has been involved is t...
-
-<img src="https://media.gettr.com/group28/getter/2022/07/28/06/eae00b74-44b1-db44-d284-fee0c993261d/out.jpg" width="506" height="284">
 
 ---
 
