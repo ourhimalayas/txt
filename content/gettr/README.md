@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 7/29/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1kb5h89b3f.md)
+
+(1080版) 飞飞秀《起飞了》2022-07-29
+
+For English：gettr.com/streaming/p1kauvj85f6
+
+
+
+#台湾 #佩罗西访台 #空军一体化
+
+
+
+<img src="https://media.gettr.com/group23/origin/2022/07/29/22/b62ce504-693e-efe3-d72b-3558947a3904/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/29/2022 5:35 PM UTC  - :tv:直播](/content/gettr/p1kajhh008b.md)
+
+Miles's livestream 2022-06-27七哥直播
+
+<img src="https://media.gettr.com/group5/origin/2022/07/13/12/05586032-0eda-2539-6787-a38b4d272478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/29/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1k9uoa1735.md)
 
 2022.07.29 MILES GUO 直播
@@ -18,11 +42,17 @@
 
 ---
 
-[@miles 7/29/2022 5:35 PM UTC  - :tv:直播](/content/gettr/p1kajhh008b.md)
+[@miles 7/29/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1kaxus0f18.md)
 
-Miles's livestream 2022-06-27七哥直播
+(4K版) 飞飞秀《起飞了》2022-07-29
 
-<img src="https://media.gettr.com/group5/origin/2022/07/13/12/05586032-0eda-2539-6787-a38b4d272478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1kauvj85f6
+
+
+
+#台湾 #佩罗西访台 #空军一体化
+
+<img src="https://media.gettr.com/group3/origin/2022/07/29/22/95fe60ba-c4c0-b014-8ef6-62d0aa462af5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,20 +187,6 @@ Miles's livestream 2022-06-27七哥直播
 
 ---
 
-[@miles 7/28/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1k5ltr9572.md)
-
-(1080版) 飞飞秀 《利益冲突·第十九篇》2022-07-28
-
-For English：gettr.com/post/p1k5qme1a74
-
-
-
-#LUC #PAX #破产案 #Trustee
-
-<img src="https://media.gettr.com/group6/origin/2022/07/28/22/f94734c4-1b3e-3a83-60d8-b610ae59c710/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 7/28/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1k5gth9a8e.md)
 
 (4K版) 飞飞秀 《利益冲突·第十九篇》2022-07-28
@@ -182,14 +198,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 #LUC #PAX #破产案 #Trustee
 
 <img src="https://media.gettr.com/group39/origin/2022/07/28/22/f9fcb793-5395-54c6-1746-a907a7cb1176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 9:16 PM UTC  - :tv:直播](/content/gettr/p1k55luf3e8.md)
-
-2022.07.28 Nicole 看七哥 第六期  温柔的战神
-
-<img src="https://media.gettr.com/group11/origin/2022/07/28/21/4c08a133-5ca3-2834-ba61-e6b23bca7fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
