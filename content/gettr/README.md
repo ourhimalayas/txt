@@ -11,6 +11,32 @@
 
 ---
 
+[@newyorkrock 7/29/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1k69ph739d.md)
+
+《战》
+
+第一季 《空军机密文件解析》
+
+（10）第一季终章：中共2001年后才开始图谋控制全人类的吗？
+
+#磐石农场
+
+威廉王 青藤
+
+@NewYorkRock
+
+#战
+
+#军情大爆料 
+
+#新中国联邦
+
+#青藤
+
+<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/28/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p1k5xcg7a0a.md)
 
 7/27/2022 Miles Guo: The vaccine business in Communist China is in the hands of three factions: the Shanghai Gang, the Xi family and Wang Qishan. The death of Zeng Bing was due to his deep involvement in the vaccine business; those...
@@ -19,19 +45,19 @@
 
 ---
 
-[@miles 7/28/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1k584458a4.md)
-
-7/27/2022 Miles Guo: The goal of the Xi-Biden call is to make deals: Chinese people will continue working as slaves to keep the cheap supply chain going, and the CCP will continue purchasing the US National debt. As a trade off, Na...
-
-<img src="https://media.gettr.com/group3/getter/2022/07/28/23/97031917-c70e-3923-18e8-285726b2d1e9/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/28/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1k56hy8714.md)
 
 7/28/2022 Miles Guo's GETTR: Let's get ready for the grand live broadcasts on August 7, 8 and 9, 2022; regardless of the CCP’s bluffing, its actual military power vs that of the U.S. is like a plastic knife vs a real patriot missil...
 
 <img src="https://media.gettr.com/group12/getter/2022/07/28/23/ec1da1ab-0ac7-b567-bd26-290d46c64bb7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/28/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1k584458a4.md)
+
+7/27/2022 Miles Guo: The goal of the Xi-Biden call is to make deals: Chinese people will continue working as slaves to keep the cheap supply chain going, and the CCP will continue purchasing the US National debt. As a trade off, Na...
+
+<img src="https://media.gettr.com/group3/getter/2022/07/28/23/97031917-c70e-3923-18e8-285726b2d1e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,20 +202,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 2022.07.27 China's state-owned enterprises are one of China's real powers
 
 <img src="https://media.gettr.com/group13/getter/2022/07/28/01/3d73333c-e0a8-f487-e1cc-3ae1e1ec1737/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p1k17oefa2c.md)
-
-(4K版) 飞飞秀 《利益冲突·第十八篇》2022-07-27
-
-For English：gettr.com/post/p1k16aj61b8
-
-
-
-#LUC #PAX #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group3/origin/2022/07/28/01/11939769-3b9b-53ad-c91d-20e3a4053266/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
