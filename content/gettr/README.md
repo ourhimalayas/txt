@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/29/2022 2:35 AM UTC  - :tv:直播](/content/gettr/p1k6dwzea40.md)
+
+7/28/2022 Miles Guo's GETTR: Fu Zhenghua stands trial in a court in Northeast China, but the trial is not open to the public. Why is that? Fu Zhenghua was so arrogant back then, he wanted to destroy me and my whole family. Even now...
+
+<img src="https://media.gettr.com/group36/getter/2022/07/29/02/e4a43433-d121-f39e-8d69-e442de260dea/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/29/2022 1:37 AM UTC ](/content/gettr/p1k62q3d34d.md)
 
 2022.07.28 ❤️❤️❤️❤️
@@ -59,11 +67,11 @@
 
 ---
 
-[@miles 7/29/2022 2:35 AM UTC  - :tv:直播](/content/gettr/p1k6dwzea40.md)
+[@miles 7/29/2022 7:33 AM UTC  - :tv:直播](/content/gettr/p1k7s6x14f6.md)
 
-7/28/2022 Miles Guo's GETTR: Fu Zhenghua stands trial in a court in Northeast China, but the trial is not open to the public. Why is that? Fu Zhenghua was so arrogant back then, he wanted to destroy me and my whole family. Even now...
+7/28/2022 Miles Guo: I informed the US officials as early as in 2015 that the CCP's infiltration has reached almost every governmental department and financial institution in the US. In addition, the CCP has obtained various inform...
 
-<img src="https://media.gettr.com/group36/getter/2022/07/29/02/e4a43433-d121-f39e-8d69-e442de260dea/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/07/29/07/e864b07a-07a0-0da4-2ca2-ad713ba55bb4/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,22 +192,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 
 
 <img src="https://media.gettr.com/group41/origin/2022/07/28/14/4bd4c400-a069-5587-ec84-a52f4c727007/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 10:39 AM UTC  - :tv:直播](/content/gettr/p1k1si11910.md)
-
-独家爆料：01 机密 司通〔2007〕105号
-
-
-
-中国人民解放军空军司令部（请示）
-
-
-
-呈报粤东方向空中作战集群地下指挥所通信与指控系统建设项目
-
-<img src="https://media.gettr.com/group9/getter/2022/07/28/10/6b0ff499-b805-503a-9ac0-0cc2f4a7b4f0/out.jpg" width="506" height="284">
 
 ---
 
