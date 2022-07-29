@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1k841ab985.md)
+
+2022.07.29 Communist Party you are finished...😹😹😹😹😹😹😹😹😹
+
+<img src="https://media.gettr.com/group36/getter/2022/07/29/12/7bbae430-d1c1-893f-5597-ea9a461aca58/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/29/2022 7:33 AM UTC  - :tv:直播](/content/gettr/p1k7s6x14f6.md)
 
 7/28/2022 Miles Guo: I informed the US officials as early as in 2015 that the CCP's infiltration has reached almost every governmental department and financial institution in the US. In addition, the CCP has obtained various inform...
@@ -75,11 +83,11 @@
 
 ---
 
-[@miles 7/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1k841ab985.md)
+[@miles 7/29/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1k941831d3.md)
 
-2022.07.29 Communist Party you are finished...😹😹😹😹😹😹😹😹😹
+7/27/2022 Miles Guo: In 2021, I said that Trump had to avoid being convicted of a crime if he wanted to win the presidential election in 2024, but I already had a feeling at that time that he would most likely be convicted of a cri...
 
-<img src="https://media.gettr.com/group36/getter/2022/07/29/12/7bbae430-d1c1-893f-5597-ea9a461aca58/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/07/29/14/7cbda903-3ec7-55ea-7ce4-181d4584c871/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,14 +182,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 7/27/2022 Miles Guo: The Federal Reserve will coexist with digital currencies. The Himalaya Exchange, which runs on a private blockchain, is centralized, and has strict KYC requirements and the Himalaya Dollar, the world's only gen...
 
 <img src="https://media.gettr.com/group9/getter/2022/07/28/15/b56f95be-6084-cf40-1328-505dd35baa0c/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 3:01 PM UTC  - :tv:直播](/content/gettr/p1k3l984cd4.md)
-
-2022.07.28 尊敬的战友们好……从8月1号到8月7号．将是世界大事．大局的重大变化的一周．从中国内部傅政华案子的开庭．能看出共产党内部的政治斗争……正在加剧……共产党的黑暗远远超出我们的想象，一切都已经开始！
-
-<img src="https://media.gettr.com/group10/getter/2022/07/28/15/b269be1c-23b3-5182-4803-7ab54b64eea2/out.jpg" width="506" height="284">
 
 ---
 
