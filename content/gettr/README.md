@@ -10,6 +10,20 @@
 
 ---
 
+[@miles 7/29/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1k9uoa1735.md)
+
+2022.07.29 MILES GUO 直播
+
+<img src="https://media.gettr.com/group12/getter/2022/07/29/15/57a8a3a7-ee11-488d-f14f-d9c687dad80a/8de9811337130e7e49cc01d1e066decd.jpg" width="506" height="284">
+
+---
+
+[@miles 7/29/2022 2:33 PM UTC ](/content/gettr/p1k9cise4f1.md)
+
+2022.07.29 一切都是刚刚刚．刚刚刚．刚刚……开始……莘县阳谷县搭县咱走看……
+
+---
+
 [@miles 7/29/2022 2:14 PM UTC  - :tv:直播](/content/gettr/p1k941831d3.md)
 
 7/27/2022 Miles Guo: In 2021, I said that Trump had to avoid being convicted of a crime if he wanted to win the presidential election in 2024, but I already had a feeling at that time that he would most likely be convicted of a cri...
@@ -99,12 +113,6 @@
 
 ---
 
-[@miles 7/29/2022 2:33 PM UTC ](/content/gettr/p1k9cise4f1.md)
-
-2022.07.29 一切都是刚刚刚．刚刚刚．刚刚……开始……莘县阳谷县搭县咱走看……
-
----
-
 [@miles 7/28/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p1k5xcg7a0a.md)
 
 7/27/2022 Miles Guo: The vaccine business in Communist China is in the hands of three factions: the Shanghai Gang, the Xi family and Wang Qishan. The death of Zeng Bing was due to his deep involvement in the vaccine business; those...
@@ -182,12 +190,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 2022.07.28 What will happen to American companies in China?
 
 <img src="https://media.gettr.com/group46/getter/2022/07/28/16/d78e6544-0b11-e99c-c386-b1e89bfa18b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 3:51 PM UTC ](/content/gettr/p1k3qw77eb2.md)
-
-2022.07.28 中国到了真正的阴盛阳衰的时代😀😀😀😀
 
 ---
 
