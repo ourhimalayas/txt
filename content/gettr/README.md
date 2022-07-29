@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/29/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1k9uoa1735.md)
+
+2022.07.29 MILES GUO 直播
+
+<img src="https://media.gettr.com/group12/getter/2022/07/29/15/57a8a3a7-ee11-488d-f14f-d9c687dad80a/8de9811337130e7e49cc01d1e066decd.jpg" width="506" height="284">
+
+---
+
 [@miles 7/29/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1k9eua42b6.md)
 
 7/27/2022 Miles Guo: Alibaba is now under the full control of the CCP, and its stock will surely plummet after being listed in Hong Kong! So, the CCP's desire to plunder money in a different disguise can only be a daydream. The CCP...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/29/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1k9uoa1735.md)
+[@miles 7/29/2022 5:35 PM UTC  - :tv:直播](/content/gettr/p1kajhh008b.md)
 
-2022.07.29 MILES GUO 直播
+Miles's livestream 2022-06-27七哥直播
 
-<img src="https://media.gettr.com/group12/getter/2022/07/29/15/57a8a3a7-ee11-488d-f14f-d9c687dad80a/8de9811337130e7e49cc01d1e066decd.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/07/13/12/05586032-0eda-2539-6787-a38b4d272478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ For English：gettr.com/streaming/p1k5qme1a74
 2022.07.28 Nicole 看七哥 第六期  温柔的战神
 
 <img src="https://media.gettr.com/group11/origin/2022/07/28/21/4c08a133-5ca3-2834-ba61-e6b23bca7fe2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1k3uoh6d22.md)
-
-2022.07.28 What will happen to American companies in China?
-
-<img src="https://media.gettr.com/group46/getter/2022/07/28/16/d78e6544-0b11-e99c-c386-b1e89bfa18b9/out.jpg" width="506" height="284">
 
 ---
 
