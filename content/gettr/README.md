@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 7/29/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1kbfaxf9b7.md)
+
+7/27/2022 Miles Guo: The third war faced by the CCP is the investigation into the origin of the CCP virus and the truth about the COVID vaccines, both of which will be found out as early as the end of this year!
+
+
+
+7/27/2022  文贵直播：...
+
+<img src="https://media.gettr.com/group42/getter/2022/07/29/23/29410b61-b7aa-8bca-0ba6-5580cdb45498/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/29/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1kb5h89b3f.md)
 
 (1080版) 飞飞秀《起飞了》2022-07-29
@@ -15,6 +27,32 @@ For English：gettr.com/streaming/p1kauvj85f6
 
 
 <img src="https://media.gettr.com/group23/origin/2022/07/29/22/b62ce504-693e-efe3-d72b-3558947a3904/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/29/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1kb7w36098.md)
+
+7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP.  Something big will happen in the CCP military, and the Lao Baixing will certainly rebel!
+
+
+
+7/27/2022 文贵直播：中共三场战争的最后赢家一定是曾庆红...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/29/23/edd7b249-28c0-46b7-d1ef-7745cf0976e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/29/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1kaxus0f18.md)
+
+(4K版) 飞飞秀《起飞了》2022-07-29
+
+For English：gettr.com/streaming/p1kauvj85f6
+
+
+
+#台湾 #佩罗西访台 #空军一体化
+
+<img src="https://media.gettr.com/group3/origin/2022/07/29/22/95fe60ba-c4c0-b014-8ef6-62d0aa462af5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -39,20 +77,6 @@ Miles's livestream 2022-06-27七哥直播
 7/27/2022 Miles Guo: Alibaba is now under the full control of the CCP, and its stock will surely plummet after being listed in Hong Kong! So, the CCP's desire to plunder money in a different disguise can only be a daydream. The CCP...
 
 <img src="https://media.gettr.com/group7/getter/2022/07/29/14/8563004d-8e45-9b61-50f7-3187e76725da/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1kaxus0f18.md)
-
-(4K版) 飞飞秀《起飞了》2022-07-29
-
-For English：gettr.com/streaming/p1kauvj85f6
-
-
-
-#台湾 #佩罗西访台 #空军一体化
-
-<img src="https://media.gettr.com/group3/origin/2022/07/29/22/95fe60ba-c4c0-b014-8ef6-62d0aa462af5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +191,6 @@ For English：gettr.com/streaming/p1kauvj85f6
 
 ---
 
-[@miles 7/28/2022 11:06 PM UTC  - :tv:直播](/content/gettr/p1k584458a4.md)
-
-7/27/2022 Miles Guo: The goal of the Xi-Biden call is to make deals: Chinese people will continue working as slaves to keep the cheap supply chain going, and the CCP will continue purchasing the US National debt. As a trade off, Na...
-
-<img src="https://media.gettr.com/group3/getter/2022/07/28/23/97031917-c70e-3923-18e8-285726b2d1e9/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/28/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1k55ez1bc2.md)
 
 7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. Communist China will become another North Korea！
@@ -184,20 +200,6 @@ For English：gettr.com/streaming/p1kauvj85f6
 7/27/2022 文贵直播...
 
 <img src="https://media.gettr.com/group47/getter/2022/07/28/23/f361fd39-4b9f-b6a3-1ab0-53a7834197c4/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 10:16 PM UTC  - :tv:直播](/content/gettr/p1k5gth9a8e.md)
-
-(4K版) 飞飞秀 《利益冲突·第十九篇》2022-07-28
-
-For English：gettr.com/streaming/p1k5qme1a74
-
-
-
-#LUC #PAX #破产案 #Trustee
-
-<img src="https://media.gettr.com/group39/origin/2022/07/28/22/f9fcb793-5395-54c6-1746-a907a7cb1176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
