@@ -8,15 +8,13 @@
 
 ---
 
-[@miles 7/29/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1kbfaxf9b7.md)
+[@miles 7/30/2022 12:42 AM UTC  - :tv:直播](/content/gettr/p1kb8dv9a5c.md)
 
-7/27/2022 Miles Guo: The third war faced by the CCP is the investigation into the origin of the CCP virus and the truth about the COVID vaccines, both of which will be found out as early as the end of this year!
+2022.07.29 
 
+全世界人民全世界人民啊。千万千万记住这个视频呀……看看👉全宇宙伟大的中国共产党👈，能干什么？会干什么？
 
-
-7/27/2022  文贵直播：...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/29/23/29410b61-b7aa-8bca-0ba6-5580cdb45498/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/07/30/00/b25d4e2b-06fa-4758-16ef-700ca71c4756/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +25,18 @@
 
 
 <img src="https://media.gettr.com/group3/origin/2022/07/30/00/25733a31-5d97-6a77-4461-fda36117bc68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/29/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1kbfaxf9b7.md)
+
+7/27/2022 Miles Guo: The third war faced by the CCP is the investigation into the origin of the CCP virus and the truth about the COVID vaccines, both of which will be found out as early as the end of this year!
+
+
+
+7/27/2022  文贵直播：...
+
+<img src="https://media.gettr.com/group42/getter/2022/07/29/23/29410b61-b7aa-8bca-0ba6-5580cdb45498/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +189,6 @@ Miles's livestream 2022-06-27七哥直播
 #青藤
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p1k5xcg7a0a.md)
-
-7/27/2022 Miles Guo: The vaccine business in Communist China is in the hands of three factions: the Shanghai Gang, the Xi family and Wang Qishan. The death of Zeng Bing was due to his deep involvement in the vaccine business; those...
-
-<img src="https://media.gettr.com/group4/getter/2022/07/28/23/b35a3015-28a0-7a62-ce06-d854ac436be2/out.jpg" width="506" height="284">
 
 ---
 
