@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 7/30/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1kehbf17bf.md)
+
+新中国联邦｜真人真事 第60期  纽约香草山农场 霹雳姐姐
+
+
+
+<img src="https://media.gettr.com/group10/origin/2022/07/30/14/49d18086-5057-3eec-3514-7aebf7353075/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/30/2022 8:12 AM UTC  - :tv:直播](/content/gettr/p1kd9ec7814.md)
 
 Exclusive: 01 Secret 
@@ -30,13 +40,11 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 
 ---
 
-[@miles 7/30/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1kehbf17bf.md)
+[@miles 7/30/2022 3:46 PM UTC ](/content/gettr/p1ke568b684.md)
 
-新中国联邦｜真人真事 第60期  纽约香草山农场 霹雳姐姐
+2022.07.30 Pelosi don't challenge our bottom line or we'll have to adjust our bottom line佩洛西不要挑战我们的底线 要不然我们又要调整底线
 
-
-
-<img src="https://media.gettr.com/group10/origin/2022/07/30/14/49d18086-5057-3eec-3514-7aebf7353075/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/07/30/15/11f9d713-0b1f-cd60-75ee-efbc3c48a588/588705568794426f636b1e54b18bc363.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Miles's livestream 2022-06-27七哥直播
 7/28/2022 Miles Guo: I informed the US officials as early as in 2015 that the CCP's infiltration has reached almost every governmental department and financial institution in the US. In addition, the CCP has obtained various inform...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/29/07/e864b07a-07a0-0da4-2ca2-ad713ba55bb4/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 2:35 AM UTC  - :tv:直播](/content/gettr/p1k6dwzea40.md)
-
-7/28/2022 Miles Guo's GETTR: Fu Zhenghua stands trial in a court in Northeast China, but the trial is not open to the public. Why is that? Fu Zhenghua was so arrogant back then, he wanted to destroy me and my whole family. Even now...
-
-<img src="https://media.gettr.com/group36/getter/2022/07/29/02/e4a43433-d121-f39e-8d69-e442de260dea/out.jpg" width="506" height="284">
 
 ---
 
