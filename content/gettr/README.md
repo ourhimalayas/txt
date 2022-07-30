@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/30/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1kc4pxada0.md)
+
+7/27/2022 Miles Guo: Through Sinopharm, Zeng Bing was deeply involved in the vaccine business and irritated some CCP powers who fully control the vaccine business in Communist China, as a consequence, he was taken out in the end.
+
+...
+
+<img src="https://media.gettr.com/group34/getter/2022/07/30/07/25bf324f-875b-85a5-534a-47f169fd88ff/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/30/2022 4:36 AM UTC  - :tv:直播](/content/gettr/p1kcgiadb5d.md)
+
+7/27/2022 Miles Guo: The CCP’s bargaining chip to get the U.S. to agree to cancel Pelosi’s visit to Taiwan is to keep sending money to the U.S. by continuing enslaving the Chinese people
+
+
+
+7/27/2022 文贵直播：中共会以继续奴役中国人从而为美国输送金钱为筹码来换取...
+
+<img src="https://media.gettr.com/group40/getter/2022/07/30/04/2b77b069-79cc-4528-8642-d9b039c6b60d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/30/2022 12:42 AM UTC  - :tv:直播](/content/gettr/p1kb8dv9a5c.md)
 
 2022.07.29 
@@ -18,15 +40,11 @@
 
 ---
 
-[@miles 7/30/2022 4:36 AM UTC  - :tv:直播](/content/gettr/p1kcgiadb5d.md)
+[@miles 7/30/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p1kci5lf538.md)
 
-7/27/2022 Miles Guo: The CCP’s bargaining chip to get the U.S. to agree to cancel Pelosi’s visit to Taiwan is to keep sending money to the U.S. by continuing enslaving the Chinese people
+7/27/2022 Miles Guo: The CCP believes COVID vaccination is the best tool for them to control Lao Baixing; those forcing the COVID vaccination on elders are not the same group of people forcing it on children, and there is a great d...
 
-
-
-7/27/2022 文贵直播：中共会以继续奴役中国人从而为美国输送金钱为筹码来换取...
-
-<img src="https://media.gettr.com/group40/getter/2022/07/30/04/2b77b069-79cc-4528-8642-d9b039c6b60d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/07/30/07/0d6d6f53-b824-cdfc-292d-28deb26cafd4/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,40 +185,6 @@ Miles's livestream 2022-06-27七哥直播
 2022.07.28 衷心的感谢……正义的战友．制作，让人快乐和愉悦的两情相通的这个好视频……我最大的快乐之一……就是看到．听到．感觉到．与战友们在一神交．一起战斗的快乐！
 
 <img src="https://media.gettr.com/group18/getter/2022/07/29/01/c4f0eace-9dc5-b1c2-5804-a0a0d06569e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 12:17 AM UTC  - :tv:直播](/content/gettr/p1k6d3uea92.md)
-
-7/28/2022 Miles Guo's GETTR: Do you really believe Fu Zhenghua only took away 200 millions? One of his antiques, a  jade seal, alone worths 300 millions; the Whistleblowers Movement will expose the darkness of the CCP for you, with...
-
-<img src="https://media.gettr.com/group40/getter/2022/07/29/00/279cef4d-ca43-90f6-5a66-0837e760b482/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 7/29/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1k69ph739d.md)
-
-《战》
-
-第一季 《空军机密文件解析》
-
-（10）第一季终章：中共2001年后才开始图谋控制全人类的吗？
-
-#磐石农场
-
-威廉王 青藤
-
-@NewYorkRock
-
-#战
-
-#军情大爆料 
-
-#新中国联邦
-
-#青藤
-
-<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
