@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/30/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1kdxgae9e9.md)
+
+2022.07.30 尊敬的战友们好，8月1号到8月8号．是有关台湾及中国人民和世界和平的大日子……也是爆料革命几个重大事件的分水岭，一切都已经开始！
+
+<img src="https://media.gettr.com/group50/getter/2022/07/30/16/8821d962-5691-9c79-9edc-69435a9e3266/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/30/2022 3:46 PM UTC ](/content/gettr/p1ke568b684.md)
 
 2022.07.30 Pelosi don't challenge our bottom line or we'll have to adjust our bottom line佩洛西不要挑战我们的底线 要不然我们又要调整底线
@@ -48,11 +56,11 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 
 ---
 
-[@miles 7/30/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1kdxgae9e9.md)
+[@miles 7/30/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1kfuxr117f.md)
 
-2022.07.30 尊敬的战友们好，8月1号到8月8号．是有关台湾及中国人民和世界和平的大日子……也是爆料革命几个重大事件的分水岭，一切都已经开始！
+7/30/2022 Miles Guo’s GETTR: The CCP is urging Iran, Syria, North Korea and Russia to make some trouble; Luc and his law firm Paul Hastings LLP will definitely get punished by US laws. No matter how long it takes, with adequate pat...
 
-<img src="https://media.gettr.com/group50/getter/2022/07/30/16/8821d962-5691-9c79-9edc-69435a9e3266/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/getter/2022/07/30/22/c58ebb5b-071a-2e68-d17f-732824aec2dc/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Miles's livestream 2022-06-27七哥直播
 7/27/2022 Miles Guo: In 2021, I said that Trump had to avoid being convicted of a crime if he wanted to win the presidential election in 2024, but I already had a feeling at that time that he would most likely be convicted of a cri...
 
 <img src="https://media.gettr.com/group17/getter/2022/07/29/14/7cbda903-3ec7-55ea-7ce4-181d4584c871/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 12:30 PM UTC  - :tv:直播](/content/gettr/p1k841ab985.md)
-
-2022.07.29 Communist Party you are finished...😹😹😹😹😹😹😹😹😹
-
-<img src="https://media.gettr.com/group36/getter/2022/07/29/12/7bbae430-d1c1-893f-5597-ea9a461aca58/out.jpg" width="506" height="284">
 
 ---
 
