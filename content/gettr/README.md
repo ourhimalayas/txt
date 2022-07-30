@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 7/30/2022 12:04 AM UTC ](/content/gettr/p1kb2t296f3.md)
+
+❤️❤️❤️❤️周末音乐时间
+
+---
+
 [@miles 7/29/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1kbfaxf9b7.md)
 
 7/27/2022 Miles Guo: The third war faced by the CCP is the investigation into the origin of the CCP virus and the truth about the COVID vaccines, both of which will be found out as early as the end of this year!
@@ -11,6 +17,28 @@
 7/27/2022  文贵直播：...
 
 <img src="https://media.gettr.com/group42/getter/2022/07/29/23/29410b61-b7aa-8bca-0ba6-5580cdb45498/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/30/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1kbd7u7824.md)
+
+2022. 07.29 Nicole 看七哥 第七期  小福利夫妻眼中幽默的七哥
+
+
+
+<img src="https://media.gettr.com/group3/origin/2022/07/30/00/25733a31-5d97-6a77-4461-fda36117bc68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/29/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1kb7w36098.md)
+
+7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP.  Something big will happen in the CCP military, and the Lao Baixing will certainly rebel!
+
+
+
+7/27/2022 文贵直播：中共三场战争的最后赢家一定是曾庆红...
+
+<img src="https://media.gettr.com/group41/getter/2022/07/29/23/edd7b249-28c0-46b7-d1ef-7745cf0976e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,18 +55,6 @@ For English：gettr.com/streaming/p1kauvj85f6
 
 
 <img src="https://media.gettr.com/group23/origin/2022/07/29/22/b62ce504-693e-efe3-d72b-3558947a3904/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1kb7w36098.md)
-
-7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP.  Something big will happen in the CCP military, and the Lao Baixing will certainly rebel!
-
-
-
-7/27/2022 文贵直播：中共三场战争的最后赢家一定是曾庆红...
-
-<img src="https://media.gettr.com/group41/getter/2022/07/29/23/edd7b249-28c0-46b7-d1ef-7745cf0976e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,15 +182,6 @@ Miles's livestream 2022-06-27七哥直播
 
 ---
 
-[@miles 7/28/2022 11:15 PM UTC  - :tv:直播](/content/gettr/p1k632g85ab.md)
-
-7/27/2022 Miles Guo: The second war faced by the CCP is the diplomatic war. Xi Jinping completely failed in all the external conflicts provoked by him. Meanwhile it made clear to the entire world what the CCP is really capable of!
-...
-
-<img src="https://media.gettr.com/group5/getter/2022/07/28/23/32fbfcef-f41a-d71c-2b43-a547b22a0363/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/28/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p1k5xcg7a0a.md)
 
 7/27/2022 Miles Guo: The vaccine business in Communist China is in the hands of three factions: the Shanghai Gang, the Xi family and Wang Qishan. The death of Zeng Bing was due to his deep involvement in the vaccine business; those...
@@ -188,18 +195,6 @@ Miles's livestream 2022-06-27七哥直播
 7/28/2022 Miles Guo's GETTR: Let's get ready for the grand live broadcasts on August 7, 8 and 9, 2022; regardless of the CCP’s bluffing, its actual military power vs that of the U.S. is like a plastic knife vs a real patriot missil...
 
 <img src="https://media.gettr.com/group12/getter/2022/07/28/23/ec1da1ab-0ac7-b567-bd26-290d46c64bb7/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p1k55ez1bc2.md)
-
-7/27/2022 Miles Guo: Here is the first war faced by the CCP: political infighting and economic disasters will definitely lead to food crisis and social catastrophe. Communist China will become another North Korea！
-
-
-
-7/27/2022 文贵直播...
-
-<img src="https://media.gettr.com/group47/getter/2022/07/28/23/f361fd39-4b9f-b6a3-1ab0-53a7834197c4/out.jpg" width="506" height="284">
 
 ---
 
