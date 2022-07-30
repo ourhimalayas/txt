@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/30/2022 3:46 PM UTC ](/content/gettr/p1ke568b684.md)
+
+2022.07.30 Pelosi don't challenge our bottom line or we'll have to adjust our bottom line佩洛西不要挑战我们的底线 要不然我们又要调整底线
+
+<img src="https://media.gettr.com/group44/getter/2022/07/30/15/11f9d713-0b1f-cd60-75ee-efbc3c48a588/588705568794426f636b1e54b18bc363.jpg" width="506" height="284">
+
+---
+
 [@miles 7/30/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1kehbf17bf.md)
 
 新中国联邦｜真人真事 第60期  纽约香草山农场 霹雳姐姐
@@ -40,11 +48,11 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 
 ---
 
-[@miles 7/30/2022 3:46 PM UTC ](/content/gettr/p1ke568b684.md)
+[@miles 7/30/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1kdxgae9e9.md)
 
-2022.07.30 Pelosi don't challenge our bottom line or we'll have to adjust our bottom line佩洛西不要挑战我们的底线 要不然我们又要调整底线
+2022.07.30 尊敬的战友们好，8月1号到8月8号．是有关台湾及中国人民和世界和平的大日子……也是爆料革命几个重大事件的分水岭，一切都已经开始！
 
-<img src="https://media.gettr.com/group44/getter/2022/07/30/15/11f9d713-0b1f-cd60-75ee-efbc3c48a588/588705568794426f636b1e54b18bc363.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/07/30/16/8821d962-5691-9c79-9edc-69435a9e3266/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Miles's livestream 2022-06-27七哥直播
 2022.07.29 Communist Party you are finished...😹😹😹😹😹😹😹😹😹
 
 <img src="https://media.gettr.com/group36/getter/2022/07/29/12/7bbae430-d1c1-893f-5597-ea9a461aca58/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 7:33 AM UTC  - :tv:直播](/content/gettr/p1k7s6x14f6.md)
-
-7/28/2022 Miles Guo: I informed the US officials as early as in 2015 that the CCP's infiltration has reached almost every governmental department and financial institution in the US. In addition, the CCP has obtained various inform...
-
-<img src="https://media.gettr.com/group17/getter/2022/07/29/07/e864b07a-07a0-0da4-2ca2-ad713ba55bb4/out.jpg" width="506" height="284">
 
 ---
 
