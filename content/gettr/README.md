@@ -12,6 +12,32 @@
 
 ---
 
+[@miles 7/30/2022 8:12 AM UTC  - :tv:直播](/content/gettr/p1kd9ec7814.md)
+
+Exclusive: 01 Secret 
+
+Command Communication [2007] No. 105 
+
+
+
+PLA Air Force Command(Request for Approval)
+
+
+
+Submitted the Construction Project of the Communication and Command-and-Control System of the Underground Command Post o...
+
+<img src="https://media.gettr.com/group22/getter/2022/07/30/08/eb48c4ec-9a9a-8957-ff7b-8fbd91190332/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/30/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p1kci5lf538.md)
+
+7/27/2022 Miles Guo: The CCP believes COVID vaccination is the best tool for them to control Lao Baixing; those forcing the COVID vaccination on elders are not the same group of people forcing it on children, and there is a great d...
+
+<img src="https://media.gettr.com/group31/getter/2022/07/30/07/0d6d6f53-b824-cdfc-292d-28deb26cafd4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/30/2022 4:36 AM UTC  - :tv:直播](/content/gettr/p1kcgiadb5d.md)
 
 7/27/2022 Miles Guo: The CCP’s bargaining chip to get the U.S. to agree to cancel Pelosi’s visit to Taiwan is to keep sending money to the U.S. by continuing enslaving the Chinese people
@@ -37,14 +63,6 @@
 [@miles 7/30/2022 12:04 AM UTC ](/content/gettr/p1kb2t296f3.md)
 
 ❤️❤️❤️❤️周末音乐时间
-
----
-
-[@miles 7/30/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p1kci5lf538.md)
-
-7/27/2022 Miles Guo: The CCP believes COVID vaccination is the best tool for them to control Lao Baixing; those forcing the COVID vaccination on elders are not the same group of people forcing it on children, and there is a great d...
-
-<img src="https://media.gettr.com/group31/getter/2022/07/30/07/0d6d6f53-b824-cdfc-292d-28deb26cafd4/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +195,6 @@ Miles's livestream 2022-06-27七哥直播
 [@miles 7/29/2022 1:37 AM UTC ](/content/gettr/p1k62q3d34d.md)
 
 2022.07.28 ❤️❤️❤️❤️
-
----
-
-[@miles 7/29/2022 1:08 AM UTC  - :tv:直播](/content/gettr/p1k6gwb6479.md)
-
-2022.07.28 衷心的感谢……正义的战友．制作，让人快乐和愉悦的两情相通的这个好视频……我最大的快乐之一……就是看到．听到．感觉到．与战友们在一神交．一起战斗的快乐！
-
-<img src="https://media.gettr.com/group18/getter/2022/07/29/01/c4f0eace-9dc5-b1c2-5804-a0a0d06569e5/out.jpg" width="506" height="284">
 
 ---
 
