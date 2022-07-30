@@ -2,12 +2,6 @@
 ---
 
 
-[@miles 7/30/2022 12:04 AM UTC ](/content/gettr/p1kb2t296f3.md)
-
-❤️❤️❤️❤️周末音乐时间
-
----
-
 [@miles 7/30/2022 12:42 AM UTC  - :tv:直播](/content/gettr/p1kb8dv9a5c.md)
 
 2022.07.29 
@@ -15,6 +9,24 @@
 全世界人民全世界人民啊。千万千万记住这个视频呀……看看👉全宇宙伟大的中国共产党👈，能干什么？会干什么？
 
 <img src="https://media.gettr.com/group24/getter/2022/07/30/00/b25d4e2b-06fa-4758-16ef-700ca71c4756/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/30/2022 12:04 AM UTC ](/content/gettr/p1kb2t296f3.md)
+
+❤️❤️❤️❤️周末音乐时间
+
+---
+
+[@miles 7/30/2022 4:36 AM UTC  - :tv:直播](/content/gettr/p1kcgiadb5d.md)
+
+7/27/2022 Miles Guo: The CCP’s bargaining chip to get the U.S. to agree to cancel Pelosi’s visit to Taiwan is to keep sending money to the U.S. by continuing enslaving the Chinese people
+
+
+
+7/27/2022 文贵直播：中共会以继续奴役中国人从而为美国输送金钱为筹码来换取...
+
+<img src="https://media.gettr.com/group40/getter/2022/07/30/04/2b77b069-79cc-4528-8642-d9b039c6b60d/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +201,6 @@ Miles's livestream 2022-06-27七哥直播
 #青藤
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/28/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p1k56hy8714.md)
-
-7/28/2022 Miles Guo's GETTR: Let's get ready for the grand live broadcasts on August 7, 8 and 9, 2022; regardless of the CCP’s bluffing, its actual military power vs that of the U.S. is like a plastic knife vs a real patriot missil...
-
-<img src="https://media.gettr.com/group12/getter/2022/07/28/23/ec1da1ab-0ac7-b567-bd26-290d46c64bb7/out.jpg" width="506" height="284">
 
 ---
 
