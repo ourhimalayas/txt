@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 7/31/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1kjzqo5e37.md)
+
+(1080版) 飞飞秀 《利益冲突·第二十一篇》 2022-07-31
+
+For English：gettr.com/post/p1kkqubc9d8
+
+
+
+#LUC #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group18/origin/2022/07/31/22/b914363f-5c67-ab71-8d72-293894829843/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/31/2022 9:20 PM UTC  - :tv:直播](/content/gettr/p1kkk4p0e02.md)
+
+7/31/2022 Miles Guo: Nancy Pelosi's visit to Taiwan is incomparable to a statement made by Switzerland in terms of dealing a blow to the CCP. After Switzerland, the next country that will sanction the CCP may be Liechtenstein. Even...
+
+<img src="https://media.gettr.com/group14/getter/2022/07/31/21/43cdb618-7d71-067e-caac-92be61725b78/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/31/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1kjy3yf519.md)
 
 7/31/2022: Miles Guo: The CCP and the U.S. may sign an agreement similar to the Plaza Accord, so that the CCP could survive a bit longer. Such an agreement would lead to further deterioration of the domestic economy, and the fallin...
@@ -34,11 +56,17 @@
 
 ---
 
-[@miles 7/31/2022 9:20 PM UTC  - :tv:直播](/content/gettr/p1kkk4p0e02.md)
+[@miles 7/31/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1kkc7g6e8c.md)
 
-7/31/2022 Miles Guo: Nancy Pelosi's visit to Taiwan is incomparable to a statement made by Switzerland in terms of dealing a blow to the CCP. After Switzerland, the next country that will sanction the CCP may be Liechtenstein. Even...
+(4K版) 飞飞秀 《利益冲突·第二十一篇》 2022-07-31
 
-<img src="https://media.gettr.com/group14/getter/2022/07/31/21/43cdb618-7d71-067e-caac-92be61725b78/out.jpg" width="506" height="284">
+For English：gettr.com/post/p1kkqubc9d8
+
+
+
+#LUC #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group39/origin/2022/07/31/22/d40976d1-fefc-4d54-0751-12f1ba7b8348/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -184,33 +212,11 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 
 ---
 
-[@miles 7/30/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1kc4pxada0.md)
-
-7/27/2022 Miles Guo: Through Sinopharm, Zeng Bing was deeply involved in the vaccine business and irritated some CCP powers who fully control the vaccine business in Communist China, as a consequence, he was taken out in the end.
-
-...
-
-<img src="https://media.gettr.com/group34/getter/2022/07/30/07/25bf324f-875b-85a5-534a-47f169fd88ff/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/30/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p1kci5lf538.md)
 
 7/27/2022 Miles Guo: The CCP believes COVID vaccination is the best tool for them to control Lao Baixing; those forcing the COVID vaccination on elders are not the same group of people forcing it on children, and there is a great d...
 
 <img src="https://media.gettr.com/group31/getter/2022/07/30/07/0d6d6f53-b824-cdfc-292d-28deb26cafd4/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 4:36 AM UTC  - :tv:直播](/content/gettr/p1kcgiadb5d.md)
-
-7/27/2022 Miles Guo: The CCP’s bargaining chip to get the U.S. to agree to cancel Pelosi’s visit to Taiwan is to keep sending money to the U.S. by continuing enslaving the Chinese people
-
-
-
-7/27/2022 文贵直播：中共会以继续奴役中国人从而为美国输送金钱为筹码来换取...
-
-<img src="https://media.gettr.com/group40/getter/2022/07/30/04/2b77b069-79cc-4528-8642-d9b039c6b60d/out.jpg" width="506" height="284">
 
 ---
 
