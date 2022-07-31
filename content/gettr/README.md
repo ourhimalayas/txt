@@ -2,6 +2,14 @@
 ---
 
 
+[@gmusic 7/31/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1kjdo749b6.md)
+
+2022-7-31「诚实」——唯真不破🎯，#小小尼莫音乐会 🎼第二十二期，宫崎骏经典之《千与千寻》，勇敢面对真实，哪怕需要付出代价⛈，诚实的心不可战胜🌟
+
+<img src="https://media.gettr.com/group8/origin/2022/07/31/17/bf27d79d-55ab-c20b-a7d7-6b03f04c16e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/31/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1khwz17559.md)
 
 2022.07.31:文贵大直播如期而至信息多，台湾将降佩洛西，喜币日本下一个…
@@ -18,11 +26,11 @@
 
 ---
 
-[@gmusic 7/31/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1kjdo749b6.md)
+[@miles 7/31/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p1kjy3yf519.md)
 
-2022-7-31「诚实」——唯真不破🎯，#小小尼莫音乐会 🎼第二十二期，宫崎骏经典之《千与千寻》，勇敢面对真实，哪怕需要付出代价⛈，诚实的心不可战胜🌟
+7/31/2022: Miles Guo: The CCP and the U.S. may sign an agreement similar to the Plaza Accord, so that the CCP could survive a bit longer. Such an agreement would lead to further deterioration of the domestic economy, and the fallin...
 
-<img src="https://media.gettr.com/group8/origin/2022/07/31/17/bf27d79d-55ab-c20b-a7d7-6b03f04c16e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/07/31/20/bdfd1480-f889-ea3e-e18b-fa61bd04047e/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,16 +213,6 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 全世界人民全世界人民啊。千万千万记住这个视频呀……看看👉全宇宙伟大的中国共产党👈，能干什么？会干什么？
 
 <img src="https://media.gettr.com/group24/getter/2022/07/30/00/b25d4e2b-06fa-4758-16ef-700ca71c4756/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 12:05 AM UTC  - :tv:直播](/content/gettr/p1kbd7u7824.md)
-
-2022. 07.29 Nicole 看七哥 第七期  小福利夫妻眼中幽默的七哥
-
-
-
-<img src="https://media.gettr.com/group3/origin/2022/07/30/00/25733a31-5d97-6a77-4461-fda36117bc68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
