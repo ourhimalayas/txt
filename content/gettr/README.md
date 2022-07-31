@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 7/31/2022 12:16 AM UTC ](/content/gettr/p1kgkbi3a69.md)
+
+😏
+
+---
+
 [@newyorkrock 7/31/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1kghuw4591.md)
 
 《战》
@@ -44,9 +50,13 @@ For English：gettr.com/post/p1kfnpb66b9
 
 ---
 
-[@miles 7/31/2022 12:16 AM UTC ](/content/gettr/p1kgkbi3a69.md)
+[@gtranslators_2 7/30/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1kg14z0798.md)
 
-😏
+07/31/2022 秘翻拼图   郭文贵先生破产案详解--- 解读第11章受托人报告  #秘密翻译组   
+
+
+
+<img src="https://media.gettr.com/group28/origin/2022/07/30/23/576d954c-ba2c-bd28-b97e-fafce9f285e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -203,22 +213,6 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 7/27/2022 文贵直播：中共三场战争的最后赢家一定是曾庆红...
 
 <img src="https://media.gettr.com/group41/getter/2022/07/29/23/edd7b249-28c0-46b7-d1ef-7745cf0976e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1kb5h89b3f.md)
-
-(1080版) 飞飞秀《起飞了》2022-07-29
-
-For English：gettr.com/streaming/p1kauvj85f6
-
-
-
-#台湾 #佩罗西访台 #空军一体化
-
-
-
-<img src="https://media.gettr.com/group23/origin/2022/07/29/22/b62ce504-693e-efe3-d72b-3558947a3904/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
