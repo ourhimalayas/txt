@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/31/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1khwz17559.md)
+
+2022.07.31:文贵大直播如期而至信息多，台湾将降佩洛西，喜币日本下一个…
+
+<img src="https://media.gettr.com/group19/origin/2022/07/31/13/7f4aba31-b870-4c20-b676-ee2efb7b760a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/31/2022 1:51 AM UTC  - 6圖](/content/gettr/p1kgcqcbdc9.md)
 
 2022.07.30 共产党的这副德行，大家会越来看得清清楚的．14亿中国人的悲哀……悲剧啊，这个只会欺软怕硬．假．骗．偷．黑．的一群垃圾和狗屎，只会欺负手无寸铁的新疆西藏人……香港人．那些真正的被他们洗脑的那些中国的穷困的老百姓而已……我R你八百祖宗👉中国共产党。你们将成为人类最大的笑话……吹呀．你们的战狼呢？，你们的全宇宙无敌的党呢？你们很快会在世界上消失，一切都已经开始！
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 7/31/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1khwz17559.md)
+[@gmusic 7/31/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1kjdo749b6.md)
 
-2022.07.31:文贵大直播如期而至信息多，台湾将降佩洛西，喜币日本下一个…
+2022-7-31「诚实」——唯真不破🎯，#小小尼莫音乐会 🎼第二十二期，宫崎骏经典之《千与千寻》，勇敢面对真实，哪怕需要付出代价⛈，诚实的心不可战胜🌟
 
-<img src="https://media.gettr.com/group19/origin/2022/07/31/13/7f4aba31-b870-4c20-b676-ee2efb7b760a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/07/31/17/bf27d79d-55ab-c20b-a7d7-6b03f04c16e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -197,12 +205,6 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 全世界人民全世界人民啊。千万千万记住这个视频呀……看看👉全宇宙伟大的中国共产党👈，能干什么？会干什么？
 
 <img src="https://media.gettr.com/group24/getter/2022/07/30/00/b25d4e2b-06fa-4758-16ef-700ca71c4756/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 12:04 AM UTC ](/content/gettr/p1kb2t296f3.md)
-
-❤️❤️❤️❤️周末音乐时间
 
 ---
 
