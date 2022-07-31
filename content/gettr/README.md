@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 7/31/2022 1:07 PM UTC  - :tv:直播](/content/gettr/p1khwz17559.md)
+
+2022.07.31:文贵大直播如期而至信息多，台湾将降佩洛西，喜币日本下一个…
+
+<img src="https://media.gettr.com/group19/origin/2022/07/31/13/7f4aba31-b870-4c20-b676-ee2efb7b760a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 7/31/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1kgknfdd56.md)
+
+7/30/2022 Miles Guo’s GETTR: Nancy’s Pelosi’s potential trip to Taiwan triggered a blame game within the CCP. The principle of the Whistleblowers’ Movement is that no matter how the CCP and the U.S. fight or make deals, they should...
+
+<img src="https://media.gettr.com/group9/getter/2022/07/31/01/794ff622-0549-2268-96e6-597eeff59a64/out.jpg" width="506" height="284">
+
+---
+
 [@gtranslators_2 7/30/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1kg14z0798.md)
 
 07/31/2022 秘翻拼图   郭文贵先生破产案详解--- 解读第11章受托人报告  #秘密翻译组   
@@ -65,14 +81,6 @@ For English：gettr.com/post/p1kfnpb66b9
 #LUC #普衡 #破产案 #Trustee
 
 <img src="https://media.gettr.com/group31/origin/2022/07/30/22/224593cd-a17e-759c-69ae-0c58332b2e8c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/31/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1kgknfdd56.md)
-
-7/30/2022 Miles Guo’s GETTR: Nancy’s Pelosi’s potential trip to Taiwan triggered a blame game within the CCP. The principle of the Whistleblowers’ Movement is that no matter how the CCP and the U.S. fight or make deals, they should...
-
-<img src="https://media.gettr.com/group9/getter/2022/07/31/01/794ff622-0549-2268-96e6-597eeff59a64/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,18 +213,6 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 
 
 <img src="https://media.gettr.com/group3/origin/2022/07/30/00/25733a31-5d97-6a77-4461-fda36117bc68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1kb7w36098.md)
-
-7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP.  Something big will happen in the CCP military, and the Lao Baixing will certainly rebel!
-
-
-
-7/27/2022 文贵直播：中共三场战争的最后赢家一定是曾庆红...
-
-<img src="https://media.gettr.com/group41/getter/2022/07/29/23/edd7b249-28c0-46b7-d1ef-7745cf0976e2/out.jpg" width="506" height="284">
 
 ---
 
