@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 7/31/2022 1:51 AM UTC  - 6圖](/content/gettr/p1kgcqcbdc9.md)
+
+2022.07.30 共产党的这副德行，大家会越来看得清清楚的．14亿中国人的悲哀……悲剧啊，这个只会欺软怕硬．假．骗．偷．黑．的一群垃圾和狗屎，只会欺负手无寸铁的新疆西藏人……香港人．那些真正的被他们洗脑的那些中国的穷困的老百姓而已……我R你八百祖宗👉中国共产党。你们将成为人类最大的笑话……吹呀．你们的战狼呢？，你们的全宇宙无敌的党呢？你们很快会在世界上消失，一切都已经开始！
+
+<img src="https://media.gettr.com/group6/getter/2022/07/31/01/33b5b66f-6cde-e746-7aed-a8e944b6ba32/eefa2a794634a94abb02ac7ea14161bf.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_2 7/30/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1kg14z0798.md)
+
+07/31/2022 秘翻拼图   郭文贵先生破产案详解--- 解读第11章受托人报告  #秘密翻译组   
+
+
+
+<img src="https://media.gettr.com/group28/origin/2022/07/30/23/576d954c-ba2c-bd28-b97e-fafce9f285e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 7/31/2022 12:16 AM UTC ](/content/gettr/p1kgkbi3a69.md)
 
 😏
@@ -50,13 +68,11 @@ For English：gettr.com/post/p1kfnpb66b9
 
 ---
 
-[@gtranslators_2 7/30/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1kg14z0798.md)
+[@miles 7/31/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1kgknfdd56.md)
 
-07/31/2022 秘翻拼图   郭文贵先生破产案详解--- 解读第11章受托人报告  #秘密翻译组   
+7/30/2022 Miles Guo’s GETTR: Nancy’s Pelosi’s potential trip to Taiwan triggered a blame game within the CCP. The principle of the Whistleblowers’ Movement is that no matter how the CCP and the U.S. fight or make deals, they should...
 
-
-
-<img src="https://media.gettr.com/group28/origin/2022/07/30/23/576d954c-ba2c-bd28-b97e-fafce9f285e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/07/31/01/794ff622-0549-2268-96e6-597eeff59a64/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,18 +208,6 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 
 ---
 
-[@miles 7/29/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1kbfaxf9b7.md)
-
-7/27/2022 Miles Guo: The third war faced by the CCP is the investigation into the origin of the CCP virus and the truth about the COVID vaccines, both of which will be found out as early as the end of this year!
-
-
-
-7/27/2022  文贵直播：...
-
-<img src="https://media.gettr.com/group42/getter/2022/07/29/23/29410b61-b7aa-8bca-0ba6-5580cdb45498/out.jpg" width="506" height="284">
-
----
-
 [@miles 7/29/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p1kb7w36098.md)
 
 7/27/2022 Miles Guo: Zeng Qinghong will end up as the ultimate winner of the three wars faced by the CCP.  Something big will happen in the CCP military, and the Lao Baixing will certainly rebel!
@@ -213,20 +217,6 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 7/27/2022 文贵直播：中共三场战争的最后赢家一定是曾庆红...
 
 <img src="https://media.gettr.com/group41/getter/2022/07/29/23/edd7b249-28c0-46b7-d1ef-7745cf0976e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 10:12 PM UTC  - :tv:直播](/content/gettr/p1kaxus0f18.md)
-
-(4K版) 飞飞秀《起飞了》2022-07-29
-
-For English：gettr.com/streaming/p1kauvj85f6
-
-
-
-#台湾 #佩罗西访台 #空军一体化
-
-<img src="https://media.gettr.com/group3/origin/2022/07/29/22/95fe60ba-c4c0-b014-8ef6-62d0aa462af5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
