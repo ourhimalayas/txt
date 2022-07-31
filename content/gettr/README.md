@@ -16,6 +16,34 @@ For English：gettr.com/post/p1kfnpb66b9
 
 ---
 
+[@newyorkrock 7/31/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1kghuw4591.md)
+
+《战》
+
+第一季  续篇《观 战》壹
+
+佩洛希的毕业旅行-已经抵达日本！！！
+
+#磐石农场
+
+威廉王 青藤
+
+@NewYorkRock
+
+#战
+
+#军情大爆料 
+
+#新中国联邦
+
+#青藤
+
+#Nick
+
+<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/30/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1kfc8j1236.md)
 
 (1080版) 飞飞秀 《利益冲突·第二十篇》 2022-07-30
@@ -29,6 +57,14 @@ For English：gettr.com/post/p1kfnpb66b9
 
 
 <img src="https://media.gettr.com/group50/origin/2022/07/30/22/bce9ac7b-c0e8-3bb7-ae24-e1d3301af4a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@gtvrealpeople 7/30/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1kf9iw4c80.md)
+
+2022.07.30 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -91,14 +127,6 @@ Submitted the Construction Project of the Communication and Command-and-Control 
 ...
 
 <img src="https://media.gettr.com/group34/getter/2022/07/30/07/25bf324f-875b-85a5-534a-47f169fd88ff/out.jpg" width="506" height="284">
-
----
-
-[@gtvrealpeople 7/30/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1kf9iw4c80.md)
-
-2022.07.30 G | Clubs 会员游船活动
-
-<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,14 +235,6 @@ For English：gettr.com/streaming/p1kauvj85f6
 Miles's livestream 2022-06-27七哥直播
 
 <img src="https://media.gettr.com/group5/origin/2022/07/13/12/05586032-0eda-2539-6787-a38b4d272478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/29/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p1k9uoa1735.md)
-
-2022.07.29 MILES GUO 直播
-
-<img src="https://media.gettr.com/group12/getter/2022/07/29/15/57a8a3a7-ee11-488d-f14f-d9c687dad80a/8de9811337130e7e49cc01d1e066decd.jpg" width="506" height="284">
 
 ---
 
