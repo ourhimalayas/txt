@@ -16,6 +16,28 @@ For English：gettr.com/post/p1kkqubc9d8
 
 ---
 
+[@miles 7/31/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1kkrbs9981.md)
+
+7/31/2022 Miles Guo: Liu Yanping used to brag about his importance being valued by the CCP and Xi Jinping to persuade me to cooperate with the CCP. Now he himself is in jail, and his daughter committed suicide. The CCP always sends...
+
+<img src="https://media.gettr.com/group32/getter/2022/07/31/23/3fa39804-2aed-51b0-e182-be879394c195/out.jpg" width="506" height="284">
+
+---
+
+[@miles 7/31/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1kkc7g6e8c.md)
+
+(4K版) 飞飞秀 《利益冲突·第二十一篇》 2022-07-31
+
+For English：gettr.com/post/p1kkqubc9d8
+
+
+
+#LUC #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group39/origin/2022/07/31/22/d40976d1-fefc-4d54-0751-12f1ba7b8348/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/31/2022 9:20 PM UTC  - :tv:直播](/content/gettr/p1kkk4p0e02.md)
 
 7/31/2022 Miles Guo: Nancy Pelosi's visit to Taiwan is incomparable to a statement made by Switzerland in terms of dealing a blow to the CCP. After Switzerland, the next country that will sanction the CCP may be Liechtenstein. Even...
@@ -53,20 +75,6 @@ For English：gettr.com/post/p1kkqubc9d8
 2022.07.30 共产党的这副德行，大家会越来看得清清楚的．14亿中国人的悲哀……悲剧啊，这个只会欺软怕硬．假．骗．偷．黑．的一群垃圾和狗屎，只会欺负手无寸铁的新疆西藏人……香港人．那些真正的被他们洗脑的那些中国的穷困的老百姓而已……我R你八百祖宗👉中国共产党。你们将成为人类最大的笑话……吹呀．你们的战狼呢？，你们的全宇宙无敌的党呢？你们很快会在世界上消失，一切都已经开始！
 
 <img src="https://media.gettr.com/group6/getter/2022/07/31/01/33b5b66f-6cde-e746-7aed-a8e944b6ba32/eefa2a794634a94abb02ac7ea14161bf.jpg" width="506" height="284">
-
----
-
-[@miles 7/31/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1kkc7g6e8c.md)
-
-(4K版) 飞飞秀 《利益冲突·第二十一篇》 2022-07-31
-
-For English：gettr.com/post/p1kkqubc9d8
-
-
-
-#LUC #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group39/origin/2022/07/31/22/d40976d1-fefc-4d54-0751-12f1ba7b8348/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -209,14 +217,6 @@ PLA Air Force Command(Request for Approval)
 Submitted the Construction Project of the Communication and Command-and-Control System of the Underground Command Post o...
 
 <img src="https://media.gettr.com/group22/getter/2022/07/30/08/eb48c4ec-9a9a-8957-ff7b-8fbd91190332/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p1kci5lf538.md)
-
-7/27/2022 Miles Guo: The CCP believes COVID vaccination is the best tool for them to control Lao Baixing; those forcing the COVID vaccination on elders are not the same group of people forcing it on children, and there is a great d...
-
-<img src="https://media.gettr.com/group31/getter/2022/07/30/07/0d6d6f53-b824-cdfc-292d-28deb26cafd4/out.jpg" width="506" height="284">
 
 ---
 
