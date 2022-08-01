@@ -2,6 +2,14 @@
 ---
 
 
+[@taishan 8/1/2022 5:08 AM UTC  - 3圖](/content/gettr/p1kls7p18d8.md)
+
+还有谁会质疑七哥的情报能力吗？
+
+<img src="https://media.gettr.com/group9/getter/2022/08/01/05/fe36aedc-3175-288e-0039-e5fc602f77d1/34bb7bdeebaeae902dd21cc0697a9d8d.jpg" width="506" height="284">
+
+---
+
 [@miles 8/1/2022 2:55 AM UTC  - 6圖](/content/gettr/p1kll928dee.md)
 
 2022.07.31 中国共产党的八一建军节……是中国灾难的开始，中国的军队和情报最重要的人物就是李克农和姬鹏飞，如果懂得中国军事的人从这几张照片就可以知道……郭文贵是从什么时候已经打入了共匪的核心……没有任何一个中国人像我一样在八九…….六四之后．真开始了灭共的真正的行动，我的真实的过去的30年．远远超过北平无战事100倍精彩……这几张照片就算我送给共匪的八一建军节的礼物吧，真正懂得中共的人，你会找到巨大的信息中国共产党你完了……一切都已经开始！
@@ -10,11 +18,11 @@
 
 ---
 
-[@taishan 8/1/2022 5:08 AM UTC  - 3圖](/content/gettr/p1kls7p18d8.md)
+[@miles 8/1/2022 6:11 AM UTC  - :tv:直播](/content/gettr/p1kludr5d2a.md)
 
-还有谁会质疑七哥的情报能力吗？
+7/31/2022 Miles Guo: Luc Despins wants to investigate our fellow fighters! He is no longer a US trustee, but a running dog of the CCP! Our fellow fighters should file a class action lawsuit against Luc Despins and Paul Hastings LLP...
 
-<img src="https://media.gettr.com/group9/getter/2022/08/01/05/fe36aedc-3175-288e-0039-e5fc602f77d1/34bb7bdeebaeae902dd21cc0697a9d8d.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/08/01/06/3efc1a19-d498-bf66-6143-7dd004cb3aeb/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,20 +185,6 @@ For English：gettr.com/post/p1kkqubc9d8
 #Nick
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1kfubr71bf.md)
-
-(4K版) 飞飞秀 《利益冲突·第二十篇》 2022-07-30
-
-For English：gettr.com/post/p1kfnpb66b9
-
-
-
-#LUC #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group31/origin/2022/07/30/22/224593cd-a17e-759c-69ae-0c58332b2e8c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
