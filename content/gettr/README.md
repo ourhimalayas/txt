@@ -2,6 +2,30 @@
 ---
 
 
+[@newyorkrock 8/1/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1kmxnxaef9.md)
+
+《时间点Time Line》第五期：从傅政华落马看中共以黑、以警治国
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007  苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group13/origin/2022/08/01/13/711dc4bd-b279-0189-0eda-7ecebb820ca3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/1/2022 6:19 AM UTC  - :tv:直播](/content/gettr/p1klu59cfd8.md)
+
+7/31/2022 Miles Guo: The Vice President of the US may visit Taiwan as well. The US aircraft carriers will be permanently stationed in Asia to blockade the CCP. Europe will make three moves to force the CCP to sign a "Plaza Accord''...
+
+<img src="https://media.gettr.com/group13/getter/2022/08/01/06/35bed7de-1a05-6781-728d-d5c22d1d2ac8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/1/2022 6:11 AM UTC  - :tv:直播](/content/gettr/p1kludr5d2a.md)
 
 7/31/2022 Miles Guo: Luc Despins wants to investigate our fellow fighters! He is no longer a US trustee, but a running dog of the CCP! Our fellow fighters should file a class action lawsuit against Luc Despins and Paul Hastings LLP...
@@ -26,11 +50,11 @@
 
 ---
 
-[@miles 8/1/2022 6:19 AM UTC  - :tv:直播](/content/gettr/p1klu59cfd8.md)
+[@miles 8/1/2022 2:44 PM UTC  - :tv:直播](/content/gettr/p1kmzz8f91e.md)
 
-7/31/2022 Miles Guo: The Vice President of the US may visit Taiwan as well. The US aircraft carriers will be permanently stationed in Asia to blockade the CCP. Europe will make three moves to force the CCP to sign a "Plaza Accord''...
+7/31/2022 Miles Guo: The arrest of Xiao Yaqing, the CCP's Minister of Industry and Information Technology, was not to target the Zeng family, given the fact that Xiao has established good relationship with the vassals of Xi Jinping...
 
-<img src="https://media.gettr.com/group13/getter/2022/08/01/06/35bed7de-1a05-6781-728d-d5c22d1d2ac8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/08/01/14/15573ff2-e920-50a9-45be-6af339c8d072/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,42 +189,6 @@ For English：gettr.com/post/p1kkqubc9d8
 [@miles 7/31/2022 12:16 AM UTC ](/content/gettr/p1kgkbi3a69.md)
 
 😏
-
----
-
-[@newyorkrock 7/31/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1kghuw4591.md)
-
-《战》
-
-第一季  续篇《观 战》壹
-
-佩洛希的毕业旅行-已经抵达日本！！！
-
-#磐石农场
-
-威廉王 青藤
-
-@NewYorkRock
-
-#战
-
-#军情大爆料 
-
-#新中国联邦
-
-#青藤
-
-#Nick
-
-<img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtvrealpeople 7/30/2022 8:00 PM UTC  - :tv:直播](/content/gettr/p1kf9iw4c80.md)
-
-2022.07.30 G | Clubs 会员游船活动
-
-<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
