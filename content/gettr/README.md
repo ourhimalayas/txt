@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/1/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p1kkyqm9acf.md)
+
+7/31/2022 Miles Guo: Switzerland recently announced that sanctions will be adopted if the CCP invades Taiwan. Switzerland's statement simply made the CCP back off and change their tone of voice over Nancy Pelosi's visit to Taiwan. ...
+
+<img src="https://media.gettr.com/group28/getter/2022/08/01/00/4537e956-7a5a-213b-297f-3a0235a00b94/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/31/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1kkrbs9981.md)
 
 7/31/2022 Miles Guo: Liu Yanping used to brag about his importance being valued by the CCP and Xi Jinping to persuade me to cooperate with the CCP. Now he himself is in jail, and his daughter committed suicide. The CCP always sends...
@@ -24,11 +32,23 @@ For English：gettr.com/post/p1kkqubc9d8
 
 ---
 
-[@miles 8/1/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p1kkyqm9acf.md)
+[@realfayfay 8/1/2022 2:17 AM UTC  - 2圖](/content/gettr/p1klk0e2b17.md)
 
-7/31/2022 Miles Guo: Switzerland recently announced that sanctions will be adopted if the CCP invades Taiwan. Switzerland's statement simply made the CCP back off and change their tone of voice over Nancy Pelosi's visit to Taiwan. ...
+战友们好，明天（8月1日）直播安排如下：
 
-<img src="https://media.gettr.com/group28/getter/2022/08/01/00/4537e956-7a5a-213b-297f-3a0235a00b94/out.jpg" width="506" height="284">
+美东早上十一点/墙内晚上十一点开播，正式听证会预计在美东中午十二点开始。
+
+
+
+中文直播频道：飞飞 @RealFayFay 
+
+英文直播频道：秘密翻译组 @GTranslators_2 
+
+
+
+特此告知🙏
+
+<img src="https://media.gettr.com/group48/origin/2022/08/01/02/2b69af2c-e6e6-949b-01af-ad6409479f7d/65755f3a9579df761c63865a3d746f34.jpg" width="506" height="284">
 
 ---
 
@@ -197,16 +217,6 @@ For English：gettr.com/post/p1kfnpb66b9
 2022.07.30 Pelosi don't challenge our bottom line or we'll have to adjust our bottom line佩洛西不要挑战我们的底线 要不然我们又要调整底线
 
 <img src="https://media.gettr.com/group44/getter/2022/07/30/15/11f9d713-0b1f-cd60-75ee-efbc3c48a588/588705568794426f636b1e54b18bc363.jpg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1kehbf17bf.md)
-
-新中国联邦｜真人真事 第60期  纽约香草山农场 霹雳姐姐
-
-
-
-<img src="https://media.gettr.com/group10/origin/2022/07/30/14/49d18086-5057-3eec-3514-7aebf7353075/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
