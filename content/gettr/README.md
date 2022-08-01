@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 8/1/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1kopmudda8.md)
+
+2022.08.02七哥谈8月1号的法庭听证和我们将面对的挑战
+
+<img src="https://media.gettr.com/group8/origin/2022/08/01/23/c36b6820-5b23-7795-35d4-591874caebf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/1/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kok06f784.md)
+
+7/31/2022 Miles Guo: Communist China has 3 approaches for the so-called development of its own chip industry: forming joint ventures, relying on the state and military intelligence authorities to steal technologies, and through the...
+
+<img src="https://media.gettr.com/group45/getter/2022/08/01/23/59e52901-b455-966c-9922-a05163fc8823/out.jpg" width="506" height="284">
+
+---
+
 [@jackposobiec 8/1/2022 8:25 PM UTC  - :tv:直播](/content/gettr/p1ko4t271a6.md)
 
 AUG 1, 2022 - SPEAKER PELOSI WILL LAUGH ALL THE WAY TO THE BANK AS TAIWAN BURNS
@@ -65,14 +81,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 @甜甜
 
 <img src="https://media.gettr.com/group38/getter/2022/08/01/13/cdf7462d-af5b-ae91-2111-d3a56f0f7ae9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kok06f784.md)
-
-7/31/2022 Miles Guo: Communist China has 3 approaches for the so-called development of its own chip industry: forming joint ventures, relying on the state and military intelligence authorities to steal technologies, and through the...
-
-<img src="https://media.gettr.com/group45/getter/2022/08/01/23/59e52901-b455-966c-9922-a05163fc8823/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,20 +187,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 7/31/2022 Miles Guo: Liu Yanping used to brag about his importance being valued by the CCP and Xi Jinping to persuade me to cooperate with the CCP. Now he himself is in jail, and his daughter committed suicide. The CCP always sends...
 
 <img src="https://media.gettr.com/group32/getter/2022/07/31/23/3fa39804-2aed-51b0-e182-be879394c195/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/31/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1kjzqo5e37.md)
-
-(1080版) 飞飞秀 《利益冲突·第二十一篇》 2022-07-31
-
-For English：gettr.com/post/p1kkqubc9d8
-
-
-
-#LUC #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group18/origin/2022/07/31/22/b914363f-5c67-ab71-8d72-293894829843/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
