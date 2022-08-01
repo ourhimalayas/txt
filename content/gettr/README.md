@@ -2,6 +2,34 @@
 ---
 
 
+[@miles 8/1/2022 2:55 AM UTC  - 6圖](/content/gettr/p1kll928dee.md)
+
+2022.07.31 中国共产党的八一建军节……是中国灾难的开始，中国的军队和情报最重要的人物就是李克农和姬鹏飞，如果懂得中国军事的人从这几张照片就可以知道……郭文贵是从什么时候已经打入了共匪的核心……没有任何一个中国人像我一样在八九…….六四之后．真开始了灭共的真正的行动，我的真实的过去的30年．远远超过北平无战事100倍精彩……这几张照片就算我送给共匪的八一建军节的礼物吧，真正懂得中共的人，你会找到巨大的信息中国共产党你完了……一切都已经开始！
+
+<img src="https://media.gettr.com/group28/getter/2022/08/01/02/ec131968-0ce7-4618-0a14-9c51d1d1dd85/2cb39ac1d04d203c1ae5aaf44a6a7609.jpg" width="506" height="284">
+
+---
+
+[@realfayfay 8/1/2022 2:17 AM UTC  - 2圖](/content/gettr/p1klk0e2b17.md)
+
+战友们好，明天（8月1日）直播安排如下：
+
+美东早上十一点/墙内晚上十一点开播，正式听证会预计在美东中午十二点开始。
+
+
+
+中文直播频道：飞飞 @RealFayFay 
+
+英文直播频道：秘密翻译组 @GTranslators_2 
+
+
+
+特此告知🙏
+
+<img src="https://media.gettr.com/group48/origin/2022/08/01/02/2b69af2c-e6e6-949b-01af-ad6409479f7d/65755f3a9579df761c63865a3d746f34.jpg" width="506" height="284">
+
+---
+
 [@miles 8/1/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p1kkyqm9acf.md)
 
 7/31/2022 Miles Guo: Switzerland recently announced that sanctions will be adopted if the CCP invades Taiwan. Switzerland's statement simply made the CCP back off and change their tone of voice over Nancy Pelosi's visit to Taiwan. ...
@@ -32,23 +60,9 @@ For English：gettr.com/post/p1kkqubc9d8
 
 ---
 
-[@realfayfay 8/1/2022 2:17 AM UTC  - 2圖](/content/gettr/p1klk0e2b17.md)
+[@miles 8/1/2022 2:57 AM UTC ](/content/gettr/p1klnn45304.md)
 
-战友们好，明天（8月1日）直播安排如下：
-
-美东早上十一点/墙内晚上十一点开播，正式听证会预计在美东中午十二点开始。
-
-
-
-中文直播频道：飞飞 @RealFayFay 
-
-英文直播频道：秘密翻译组 @GTranslators_2 
-
-
-
-特此告知🙏
-
-<img src="https://media.gettr.com/group48/origin/2022/08/01/02/2b69af2c-e6e6-949b-01af-ad6409479f7d/65755f3a9579df761c63865a3d746f34.jpg" width="506" height="284">
+2022.07.31 The August 1st Army Day of the Communist Party of China...is the beginning of China's disaster. The most important figures in China's military and intelligence are Li Kenong and Ji Pengfei. Anyone who understands Chinese...
 
 ---
 
@@ -201,22 +215,6 @@ For English：gettr.com/post/p1kfnpb66b9
 7/30/2022 Miles Guo’s GETTR: The CCP is urging Iran, Syria, North Korea and Russia to make some trouble; Luc and his law firm Paul Hastings LLP will definitely get punished by US laws. No matter how long it takes, with adequate pat...
 
 <img src="https://media.gettr.com/group20/getter/2022/07/30/22/c58ebb5b-071a-2e68-d17f-732824aec2dc/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1kdxgae9e9.md)
-
-2022.07.30 尊敬的战友们好，8月1号到8月8号．是有关台湾及中国人民和世界和平的大日子……也是爆料革命几个重大事件的分水岭，一切都已经开始！
-
-<img src="https://media.gettr.com/group50/getter/2022/07/30/16/8821d962-5691-9c79-9edc-69435a9e3266/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 3:46 PM UTC ](/content/gettr/p1ke568b684.md)
-
-2022.07.30 Pelosi don't challenge our bottom line or we'll have to adjust our bottom line佩洛西不要挑战我们的底线 要不然我们又要调整底线
-
-<img src="https://media.gettr.com/group44/getter/2022/07/30/15/11f9d713-0b1f-cd60-75ee-efbc3c48a588/588705568794426f636b1e54b18bc363.jpg" width="506" height="284">
 
 ---
 
