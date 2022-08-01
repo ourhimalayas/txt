@@ -22,6 +22,22 @@
 
 ---
 
+[@miles 8/1/2022 5:52 PM UTC  - 3圖](/content/gettr/p1knro9f8e0.md)
+
+2022.08.01 When Nancy was awarded the highest medal of honor by President Tsai Ing-wen in Taiwan.  When Nancy was awarded the title, the world saw clearly how ugly the Communist Party was.  Fake face, between August 2nd and 3rd.  N...
+
+<img src="https://media.gettr.com/group37/getter/2022/08/01/17/e9e6b073-5b6d-4c7d-acd0-dc7e233823c8/32e6fd8591e9c557912fab6363f0f380.jpg" width="506" height="284">
+
+---
+
+[@qmay007 8/1/2022 11:35 AM UTC  - 2圖](/content/gettr/p1km5z02325.md)
+
+
+
+<img src="https://media.gettr.com/group6/getter/2022/08/01/11/127f323b-cb34-0057-1d41-fc1fb6c68c2e/ecaea90d7594a91707c44a1936639c87.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 8/1/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1kmxnxaef9.md)
 
 《时间点Time Line》第五期：从傅政华落马看中共以黑、以警治国
@@ -35,14 +51,6 @@
 #磐石农场
 
 <img src="https://media.gettr.com/group13/origin/2022/08/01/13/711dc4bd-b279-0189-0eda-7ecebb820ca3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@qmay007 8/1/2022 11:35 AM UTC  - 2圖](/content/gettr/p1km5z02325.md)
-
-
-
-<img src="https://media.gettr.com/group6/getter/2022/08/01/11/127f323b-cb34-0057-1d41-fc1fb6c68c2e/ecaea90d7594a91707c44a1936639c87.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ For English：gettr.com/post/p1kkqubc9d8
 2022.07.31:文贵大直播如期而至信息多，台湾将降佩洛西，喜币日本下一个…
 
 <img src="https://media.gettr.com/group19/origin/2022/07/31/13/7f4aba31-b870-4c20-b676-ee2efb7b760a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/31/2022 1:51 AM UTC  - 6圖](/content/gettr/p1kgcqcbdc9.md)
-
-2022.07.30 共产党的这副德行，大家会越来看得清清楚的．14亿中国人的悲哀……悲剧啊，这个只会欺软怕硬．假．骗．偷．黑．的一群垃圾和狗屎，只会欺负手无寸铁的新疆西藏人……香港人．那些真正的被他们洗脑的那些中国的穷困的老百姓而已……我R你八百祖宗👉中国共产党。你们将成为人类最大的笑话……吹呀．你们的战狼呢？，你们的全宇宙无敌的党呢？你们很快会在世界上消失，一切都已经开始！
-
-<img src="https://media.gettr.com/group6/getter/2022/07/31/01/33b5b66f-6cde-e746-7aed-a8e944b6ba32/eefa2a794634a94abb02ac7ea14161bf.jpg" width="506" height="284">
 
 ---
 
