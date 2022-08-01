@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 7/31/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1kkrbs9981.md)
+
+7/31/2022 Miles Guo: Liu Yanping used to brag about his importance being valued by the CCP and Xi Jinping to persuade me to cooperate with the CCP. Now he himself is in jail, and his daughter committed suicide. The CCP always sends...
+
+<img src="https://media.gettr.com/group32/getter/2022/07/31/23/3fa39804-2aed-51b0-e182-be879394c195/out.jpg" width="506" height="284">
+
+---
+
 [@miles 7/31/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1kjzqo5e37.md)
 
 (1080版) 飞飞秀 《利益冲突·第二十一篇》 2022-07-31
@@ -16,11 +24,11 @@ For English：gettr.com/post/p1kkqubc9d8
 
 ---
 
-[@miles 7/31/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1kkrbs9981.md)
+[@miles 8/1/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p1kkyqm9acf.md)
 
-7/31/2022 Miles Guo: Liu Yanping used to brag about his importance being valued by the CCP and Xi Jinping to persuade me to cooperate with the CCP. Now he himself is in jail, and his daughter committed suicide. The CCP always sends...
+7/31/2022 Miles Guo: Switzerland recently announced that sanctions will be adopted if the CCP invades Taiwan. Switzerland's statement simply made the CCP back off and change their tone of voice over Nancy Pelosi's visit to Taiwan. ...
 
-<img src="https://media.gettr.com/group32/getter/2022/07/31/23/3fa39804-2aed-51b0-e182-be879394c195/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/08/01/00/4537e956-7a5a-213b-297f-3a0235a00b94/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,24 +207,6 @@ For English：gettr.com/post/p1kfnpb66b9
 
 
 <img src="https://media.gettr.com/group10/origin/2022/07/30/14/49d18086-5057-3eec-3514-7aebf7353075/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 8:12 AM UTC  - :tv:直播](/content/gettr/p1kd9ec7814.md)
-
-Exclusive: 01 Secret 
-
-Command Communication [2007] No. 105 
-
-
-
-PLA Air Force Command(Request for Approval)
-
-
-
-Submitted the Construction Project of the Communication and Command-and-Control System of the Underground Command Post o...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/30/08/eb48c4ec-9a9a-8957-ff7b-8fbd91190332/out.jpg" width="506" height="284">
 
 ---
 
