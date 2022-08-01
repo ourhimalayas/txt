@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/1/2022 6:11 AM UTC  - :tv:直播](/content/gettr/p1kludr5d2a.md)
+
+7/31/2022 Miles Guo: Luc Despins wants to investigate our fellow fighters! He is no longer a US trustee, but a running dog of the CCP! Our fellow fighters should file a class action lawsuit against Luc Despins and Paul Hastings LLP...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/01/06/3efc1a19-d498-bf66-6143-7dd004cb3aeb/out.jpg" width="506" height="284">
+
+---
+
 [@taishan 8/1/2022 5:08 AM UTC  - 3圖](/content/gettr/p1kls7p18d8.md)
 
 还有谁会质疑七哥的情报能力吗？
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 8/1/2022 6:11 AM UTC  - :tv:直播](/content/gettr/p1kludr5d2a.md)
+[@miles 8/1/2022 6:19 AM UTC  - :tv:直播](/content/gettr/p1klu59cfd8.md)
 
-7/31/2022 Miles Guo: Luc Despins wants to investigate our fellow fighters! He is no longer a US trustee, but a running dog of the CCP! Our fellow fighters should file a class action lawsuit against Luc Despins and Paul Hastings LLP...
+7/31/2022 Miles Guo: The Vice President of the US may visit Taiwan as well. The US aircraft carriers will be permanently stationed in Asia to blockade the CCP. Europe will make three moves to force the CCP to sign a "Plaza Accord''...
 
-<img src="https://media.gettr.com/group11/getter/2022/08/01/06/3efc1a19-d498-bf66-6143-7dd004cb3aeb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/08/01/06/35bed7de-1a05-6781-728d-d5c22d1d2ac8/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,22 +193,6 @@ For English：gettr.com/post/p1kkqubc9d8
 #Nick
 
 <img src="https://media.gettr.com/group39/origin/2022/07/25/20/218d5391-5a14-eda1-1291-9adbf9170cd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 10:17 PM UTC  - :tv:直播](/content/gettr/p1kfc8j1236.md)
-
-(1080版) 飞飞秀 《利益冲突·第二十篇》 2022-07-30
-
-For English：gettr.com/post/p1kfnpb66b9
-
-
-
-#LUC #普衡 #破产案 #Trustee
-
-
-
-<img src="https://media.gettr.com/group50/origin/2022/07/30/22/bce9ac7b-c0e8-3bb7-ae24-e1d3301af4a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
