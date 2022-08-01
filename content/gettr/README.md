@@ -10,6 +10,20 @@
 
 ---
 
+[@taishan 8/1/2022 5:08 AM UTC  - 3圖](/content/gettr/p1kls7p18d8.md)
+
+还有谁会质疑七哥的情报能力吗？
+
+<img src="https://media.gettr.com/group9/getter/2022/08/01/05/fe36aedc-3175-288e-0039-e5fc602f77d1/34bb7bdeebaeae902dd21cc0697a9d8d.jpg" width="506" height="284">
+
+---
+
+[@miles 8/1/2022 2:57 AM UTC ](/content/gettr/p1klnn45304.md)
+
+2022.07.31 The August 1st Army Day of the Communist Party of China...is the beginning of China's disaster. The most important figures in China's military and intelligence are Li Kenong and Ji Pengfei. Anyone who understands Chinese...
+
+---
+
 [@realfayfay 8/1/2022 2:17 AM UTC  - 2圖](/content/gettr/p1klk0e2b17.md)
 
 战友们好，明天（8月1日）直播安排如下：
@@ -57,12 +71,6 @@ For English：gettr.com/post/p1kkqubc9d8
 #LUC #普衡 #破产案 #Trustee
 
 <img src="https://media.gettr.com/group18/origin/2022/07/31/22/b914363f-5c67-ab71-8d72-293894829843/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 2:57 AM UTC ](/content/gettr/p1klnn45304.md)
-
-2022.07.31 The August 1st Army Day of the Communist Party of China...is the beginning of China's disaster. The most important figures in China's military and intelligence are Li Kenong and Ji Pengfei. Anyone who understands Chinese...
 
 ---
 
@@ -207,14 +215,6 @@ For English：gettr.com/post/p1kfnpb66b9
 2022.07.30 G | Clubs 会员游船活动
 
 <img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/30/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1kfuxr117f.md)
-
-7/30/2022 Miles Guo’s GETTR: The CCP is urging Iran, Syria, North Korea and Russia to make some trouble; Luc and his law firm Paul Hastings LLP will definitely get punished by US laws. No matter how long it takes, with adequate pat...
-
-<img src="https://media.gettr.com/group20/getter/2022/07/30/22/c58ebb5b-071a-2e68-d17f-732824aec2dc/out.jpg" width="506" height="284">
 
 ---
 
