@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/1/2022 9:06 PM UTC  - :tv:直播](/content/gettr/p1koqix5519.md)
+
+2022. 08.01 Nicole 看七哥 第八期  以身证法的真实七哥
+
+<img src="https://media.gettr.com/group45/origin/2022/08/01/21/d78b657e-f87a-a2d5-5e35-33884554b976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@realfayfay 8/1/2022 3:09 PM UTC  - :tv:直播](/content/gettr/p1kn0djbcb3.md)
 
 （1080版）《八月一日 听证会》 2022-08-01
@@ -44,11 +52,11 @@ For English：gettr.com/streaming/p1kn6o92c00
 
 ---
 
-[@miles 8/1/2022 9:06 PM UTC  - :tv:直播](/content/gettr/p1koqix5519.md)
+[@jackposobiec 8/1/2022 8:25 PM UTC  - :tv:直播](/content/gettr/p1ko4t271a6.md)
 
-2022. 08.01 Nicole 看七哥 第八期  以身证法的真实七哥
+AUG 1, 2022 - SPEAKER PELOSI WILL LAUGH ALL THE WAY TO THE BANK AS TAIWAN BURNS
 
-<img src="https://media.gettr.com/group45/origin/2022/08/01/21/d78b657e-f87a-a2d5-5e35-33884554b976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/08/01/20/9c893898-6ef2-e807-3163-2fe3cfdbc4a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ For English：gettr.com/post/p1kkqubc9d8
 7/31/2022: Miles Guo: The CCP and the U.S. may sign an agreement similar to the Plaza Accord, so that the CCP could survive a bit longer. Such an agreement would lead to further deterioration of the domestic economy, and the fallin...
 
 <img src="https://media.gettr.com/group16/getter/2022/07/31/20/bdfd1480-f889-ea3e-e18b-fa61bd04047e/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 7/31/2022 6:01 PM UTC  - :tv:直播](/content/gettr/p1kjdo749b6.md)
-
-2022-7-31「诚实」——唯真不破🎯，#小小尼莫音乐会 🎼第二十二期，宫崎骏经典之《千与千寻》，勇敢面对真实，哪怕需要付出代价⛈，诚实的心不可战胜🌟
-
-<img src="https://media.gettr.com/group8/origin/2022/07/31/17/bf27d79d-55ab-c20b-a7d7-6b03f04c16e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
