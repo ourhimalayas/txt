@@ -2,6 +2,26 @@
 ---
 
 
+[@rockvision 8/1/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1kmt3k54ee.md)
+
+#Supermay 18期精彩片段-匆匆那年
+
+
+
+#纽约磐石农场
+
+#Gmusic
+
+#Super-May 线上直播音乐会
+
+@supermanwang 
+
+@甜甜
+
+<img src="https://media.gettr.com/group38/getter/2022/08/01/13/cdf7462d-af5b-ae91-2111-d3a56f0f7ae9/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 8/1/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1kmxnxaef9.md)
 
 《时间点Time Line》第五期：从傅政华落马看中共以黑、以警治国
@@ -15,6 +35,22 @@
 #磐石农场
 
 <img src="https://media.gettr.com/group13/origin/2022/08/01/13/711dc4bd-b279-0189-0eda-7ecebb820ca3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@qmay007 8/1/2022 11:35 AM UTC  - 2圖](/content/gettr/p1km5z02325.md)
+
+
+
+<img src="https://media.gettr.com/group6/getter/2022/08/01/11/127f323b-cb34-0057-1d41-fc1fb6c68c2e/ecaea90d7594a91707c44a1936639c87.jpg" width="506" height="284">
+
+---
+
+[@miles 8/1/2022 2:44 PM UTC  - :tv:直播](/content/gettr/p1kmzz8f91e.md)
+
+7/31/2022 Miles Guo: The arrest of Xiao Yaqing, the CCP's Minister of Industry and Information Technology, was not to target the Zeng family, given the fact that Xiao has established good relationship with the vassals of Xi Jinping...
+
+<img src="https://media.gettr.com/group31/getter/2022/08/01/14/15573ff2-e920-50a9-45be-6af339c8d072/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,14 +83,6 @@
 2022.07.31 中国共产党的八一建军节……是中国灾难的开始，中国的军队和情报最重要的人物就是李克农和姬鹏飞，如果懂得中国军事的人从这几张照片就可以知道……郭文贵是从什么时候已经打入了共匪的核心……没有任何一个中国人像我一样在八九…….六四之后．真开始了灭共的真正的行动，我的真实的过去的30年．远远超过北平无战事100倍精彩……这几张照片就算我送给共匪的八一建军节的礼物吧，真正懂得中共的人，你会找到巨大的信息中国共产党你完了……一切都已经开始！
 
 <img src="https://media.gettr.com/group28/getter/2022/08/01/02/ec131968-0ce7-4618-0a14-9c51d1d1dd85/2cb39ac1d04d203c1ae5aaf44a6a7609.jpg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 2:44 PM UTC  - :tv:直播](/content/gettr/p1kmzz8f91e.md)
-
-7/31/2022 Miles Guo: The arrest of Xiao Yaqing, the CCP's Minister of Industry and Information Technology, was not to target the Zeng family, given the fact that Xiao has established good relationship with the vassals of Xi Jinping...
-
-<img src="https://media.gettr.com/group31/getter/2022/08/01/14/15573ff2-e920-50a9-45be-6af339c8d072/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,22 +201,6 @@ For English：gettr.com/post/p1kkqubc9d8
 7/30/2022 Miles Guo’s GETTR: Nancy’s Pelosi’s potential trip to Taiwan triggered a blame game within the CCP. The principle of the Whistleblowers’ Movement is that no matter how the CCP and the U.S. fight or make deals, they should...
 
 <img src="https://media.gettr.com/group9/getter/2022/07/31/01/794ff622-0549-2268-96e6-597eeff59a64/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 7/30/2022 11:55 PM UTC  - :tv:直播](/content/gettr/p1kg14z0798.md)
-
-07/31/2022 秘翻拼图   郭文贵先生破产案详解--- 解读第11章受托人报告  #秘密翻译组   
-
-
-
-<img src="https://media.gettr.com/group28/origin/2022/07/30/23/576d954c-ba2c-bd28-b97e-fafce9f285e7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 7/31/2022 12:16 AM UTC ](/content/gettr/p1kgkbi3a69.md)
-
-😏
 
 ---
 
