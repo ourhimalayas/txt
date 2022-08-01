@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/1/2022 5:52 PM UTC  - 3圖](/content/gettr/p1knro9f8e0.md)
+
+2022.08.01 When Nancy was awarded the highest medal of honor by President Tsai Ing-wen in Taiwan.  When Nancy was awarded the title, the world saw clearly how ugly the Communist Party was.  Fake face, between August 2nd and 3rd.  N...
+
+<img src="https://media.gettr.com/group37/getter/2022/08/01/17/e9e6b073-5b6d-4c7d-acd0-dc7e233823c8/32e6fd8591e9c557912fab6363f0f380.jpg" width="506" height="284">
+
+---
+
 [@rockvision 8/1/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1kmt3k54ee.md)
 
 #Supermay 18期精彩片段-匆匆那年
@@ -22,11 +30,17 @@
 
 ---
 
-[@miles 8/1/2022 5:52 PM UTC  - 3圖](/content/gettr/p1knro9f8e0.md)
+[@realfayfay 8/1/2022 3:09 PM UTC  - :tv:直播](/content/gettr/p1kn0djbcb3.md)
 
-2022.08.01 When Nancy was awarded the highest medal of honor by President Tsai Ing-wen in Taiwan.  When Nancy was awarded the title, the world saw clearly how ugly the Communist Party was.  Fake face, between August 2nd and 3rd.  N...
+（1080版）《八月一日 听证会》 2022-08-01
 
-<img src="https://media.gettr.com/group37/getter/2022/08/01/17/e9e6b073-5b6d-4c7d-acd0-dc7e233823c8/32e6fd8591e9c557912fab6363f0f380.jpg" width="506" height="284">
+For English：gettr.com/streaming/p1kn6o92c00
+
+
+
+#PAX #LUC #利益冲突 #听证会
+
+<img src="https://media.gettr.com/group39/origin/2022/08/01/15/2300e50f-8b10-c94f-19b7-c2eba935d57b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +207,6 @@ For English：gettr.com/post/p1kkqubc9d8
 2022.07.31:文贵大直播如期而至信息多，台湾将降佩洛西，喜币日本下一个…
 
 <img src="https://media.gettr.com/group19/origin/2022/07/31/13/7f4aba31-b870-4c20-b676-ee2efb7b760a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/31/2022 1:53 AM UTC  - :tv:直播](/content/gettr/p1kgknfdd56.md)
-
-7/30/2022 Miles Guo’s GETTR: Nancy’s Pelosi’s potential trip to Taiwan triggered a blame game within the CCP. The principle of the Whistleblowers’ Movement is that no matter how the CCP and the U.S. fight or make deals, they should...
-
-<img src="https://media.gettr.com/group9/getter/2022/07/31/01/794ff622-0549-2268-96e6-597eeff59a64/out.jpg" width="506" height="284">
 
 ---
 
