@@ -2,6 +2,42 @@
 ---
 
 
+[@miles 8/2/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1ku9jl50be.md)
+
+（1080版）《第二十二篇·种族歧视》 2022-08-02
+
+For English：gettr.com/post/p1kud30e0ea
+
+
+
+#PAX #LUC #种族歧视 #南区法院
+
+<img src="https://media.gettr.com/group30/origin/2022/08/02/22/a3a1e179-5649-f2ad-89b3-6ff45cd377af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/2/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1kuf0n7e5d.md)
+
+（4K版）《第二十二篇·种族歧视》 2022-08-02
+
+For English：gettr.com/post/p1kud30e0ea
+
+
+
+#PAX #LUC #种族歧视 #南区法院
+
+<img src="https://media.gettr.com/group23/origin/2022/08/02/22/20e3e807-4655-3fa2-c4dc-0ce90ca469a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/2/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1ktwtc96c7.md)
+
+2022. 08.02 Nicole 看七哥 第九期  工作中的郭先生 vs 生活中的七哥
+
+<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 6:57 PM UTC  - 2圖](/content/gettr/p1ktte00107.md)
 
 2022.08.02 共产党你完了！
@@ -56,11 +92,15 @@
 
 ---
 
-[@miles 8/2/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1ktwtc96c7.md)
+[@miles 8/2/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1ku5jlacb2.md)
 
-2022. 08.02 Nicole 看七哥 第九期  工作中的郭先生 vs 生活中的七哥
+8/1/2022 Miles Guo: Members of the New Federal State of China not only strive to win, but should also be able to handle setbacks and failures; only when your words and actions are consistent will you have a future！
 
-<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+8/1/2022 文贵直播...
+
+<img src="https://media.gettr.com/group17/getter/2022/08/02/22/76fff4c7-88d2-0e97-303a-50e09f5e41d6/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,35 +216,11 @@
 
 ---
 
-[@miles 8/1/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1kp4f1414b.md)
-
-7/31/2022：Miles Guo: Zeng Qinghong is regarded as the real leader of the second generation of top CCP cadres. As long as Zeng Qinghong is alive, he will have followers. Although Xi Jinping wants to take down Zeng very much,  all he...
-
-<img src="https://media.gettr.com/group48/getter/2022/08/01/23/d96b8322-0d0c-2a98-7319-0eec20962293/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/1/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kok06f784.md)
 
 7/31/2022 Miles Guo: Communist China has 3 approaches for the so-called development of its own chip industry: forming joint ventures, relying on the state and military intelligence authorities to steal technologies, and through the...
 
 <img src="https://media.gettr.com/group45/getter/2022/08/01/23/59e52901-b455-966c-9922-a05163fc8823/out.jpg" width="506" height="284">
-
----
-
-[@jackposobiec 8/1/2022 8:25 PM UTC  - :tv:直播](/content/gettr/p1ko4t271a6.md)
-
-AUG 1, 2022 - SPEAKER PELOSI WILL LAUGH ALL THE WAY TO THE BANK AS TAIWAN BURNS
-
-<img src="https://media.gettr.com/group10/origin/2022/08/01/20/9c893898-6ef2-e807-3163-2fe3cfdbc4a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 9:06 PM UTC  - :tv:直播](/content/gettr/p1koqix5519.md)
-
-2022. 08.01 Nicole 看七哥 第八期  以身证法的真实七哥
-
-<img src="https://media.gettr.com/group45/origin/2022/08/01/21/d78b657e-f87a-a2d5-5e35-33884554b976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
