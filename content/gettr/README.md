@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/2/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kukfc6aa0.md)
+
+8/2/2022 Miles Guo: The kleptocrats in Taiwan take bribery from the CCP and work on behalf of it. They are no longer qualified to represent Taiwan. Those who protested Nancy Pelosi in Taiwan and the U.S. would not dare to protest i...
+
+<img src="https://media.gettr.com/group47/getter/2022/08/02/23/5e0d4d40-77a1-b306-97d2-ac47fc39f183/out.jpg" width="506" height="284">
+
+---
+
 [@xiaoweng1 8/2/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1kuqnp69e9.md)
 
 
@@ -32,14 +40,6 @@ For English：gettr.com/post/p1kud30e0ea
 
 ---
 
-[@miles 8/2/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kukfc6aa0.md)
-
-8/2/2022 Miles Guo: The kleptocrats in Taiwan take bribery from the CCP and work on behalf of it. They are no longer qualified to represent Taiwan. Those who protested Nancy Pelosi in Taiwan and the U.S. would not dare to protest i...
-
-<img src="https://media.gettr.com/group47/getter/2022/08/02/23/5e0d4d40-77a1-b306-97d2-ac47fc39f183/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/2/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1kuf0n7e5d.md)
 
 （4K版）《第二十二篇·种族歧视》 2022-08-02
@@ -54,6 +54,14 @@ For English：gettr.com/post/p1kud30e0ea
 
 ---
 
+[@miles 8/2/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1ktwtc96c7.md)
+
+2022. 08.02 Nicole 看七哥 第九期  工作中的郭先生 vs 生活中的七哥
+
+<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1ku5jlacb2.md)
 
 8/1/2022 Miles Guo: Members of the New Federal State of China not only strive to win, but should also be able to handle setbacks and failures; only when your words and actions are consistent will you have a future！
@@ -63,14 +71,6 @@ For English：gettr.com/post/p1kud30e0ea
 8/1/2022 文贵直播...
 
 <img src="https://media.gettr.com/group17/getter/2022/08/02/22/76fff4c7-88d2-0e97-303a-50e09f5e41d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1ktwtc96c7.md)
-
-2022. 08.02 Nicole 看七哥 第九期  工作中的郭先生 vs 生活中的七哥
-
-<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -213,14 +213,6 @@ For English：gettr.com/post/p1kud30e0ea
 8/1/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan is of paramount significance! Even if a brief stay by Pelosi in Taiwan would make the Chinese Communist Party a laughing stock around the world. The CCP will no longer earn the res...
 
 <img src="https://media.gettr.com/group43/getter/2022/08/02/08/4a37307a-fafe-2b28-36a7-65bcb7ba4b71/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1kqu7q1745.md)
-
-8/1/2022 Miles Guo: Pelosi will fly from the US military base in Malaysia to Taiwan and will be awarded a medal by President Tsai Ing-wen. What do these two events mean? After Pelosi's visit to Taiwan, other political leaders of th...
-
-<img src="https://media.gettr.com/group16/getter/2022/08/02/07/276d8129-aaa0-ddc4-7b5b-d2a0849913bf/out.jpg" width="506" height="284">
 
 ---
 
