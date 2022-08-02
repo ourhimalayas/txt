@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/2/2022 7:28 AM UTC  - :tv:直播](/content/gettr/p1kqjnv1c55.md)
+
+7/31/2022 Miles Guo:  When Nancy Pelosi is about to visit Taiwan, Switzerland just announced that sanctions will be imposed if Communist China invades Taiwan, and other countries like Liechtenstein will follow and sanction the CCP ...
+
+<img src="https://media.gettr.com/group46/getter/2022/08/02/07/0b52e7fa-b4e1-d2a3-fbb2-d22a6bc2e321/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/1/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1kopmudda8.md)
 
 2022.08.02七哥谈8月1号的法庭听证和我们将面对的挑战
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 8/2/2022 7:28 AM UTC  - :tv:直播](/content/gettr/p1kqjnv1c55.md)
+[@miles 8/2/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1kqu7q1745.md)
 
-7/31/2022 Miles Guo:  When Nancy Pelosi is about to visit Taiwan, Switzerland just announced that sanctions will be imposed if Communist China invades Taiwan, and other countries like Liechtenstein will follow and sanction the CCP ...
+8/1/2022 Miles Guo: Pelosi will fly from the US military base in Malaysia to Taiwan and will be awarded a medal by President Tsai Ing-wen. What do these two events mean? After Pelosi's visit to Taiwan, other political leaders of th...
 
-<img src="https://media.gettr.com/group46/getter/2022/08/02/07/0b52e7fa-b4e1-d2a3-fbb2-d22a6bc2e321/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/08/02/07/276d8129-aaa0-ddc4-7b5b-d2a0849913bf/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 7/31/2022 Miles Guo: Switzerland recently announced that sanctions will be adopted if the CCP invades Taiwan. Switzerland's statement simply made the CCP back off and change their tone of voice over Nancy Pelosi's visit to Taiwan. ...
 
 <img src="https://media.gettr.com/group28/getter/2022/08/01/00/4537e956-7a5a-213b-297f-3a0235a00b94/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/31/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p1kkrbs9981.md)
-
-7/31/2022 Miles Guo: Liu Yanping used to brag about his importance being valued by the CCP and Xi Jinping to persuade me to cooperate with the CCP. Now he himself is in jail, and his daughter committed suicide. The CCP always sends...
-
-<img src="https://media.gettr.com/group32/getter/2022/07/31/23/3fa39804-2aed-51b0-e182-be879394c195/out.jpg" width="506" height="284">
 
 ---
 
