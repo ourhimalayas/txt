@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/2/2022 1:59 PM UTC ](/content/gettr/p1ks1g53176.md)
+
+2022.08.02 
+
+台湾的农场的战友……你们是最棒的台湾人……爱你们！
+
+---
+
 [@himalayajpn 8/1/2022 12:03 AM UTC ](/content/gettr/p1kki5u9e43.md)
 
 ／
@@ -78,11 +86,11 @@
 
 ---
 
-[@miles 8/2/2022 1:59 PM UTC ](/content/gettr/p1ks1g53176.md)
+[@miles 8/2/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1ksibv364b.md)
 
-2022.08.02 
+2022.08.02 尊敬的战友们好……从这一刻起……共产党彻底的成为全世界弃子，共产党从今天起真正的成为走历史。人类真正的开始了女性治天下的文明时代！一切都已经开始！
 
-台湾的农场的战友……你们是最棒的台湾人……爱你们！
+<img src="https://media.gettr.com/group47/getter/2022/08/02/14/dad95c27-f75b-d610-b584-6f041f529da9/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 7/31/2022 Miles Guo: Luc Despins wants to investigate our fellow fighters! He is no longer a US trustee, but a running dog of the CCP! Our fellow fighters should file a class action lawsuit against Luc Despins and Paul Hastings LLP...
 
 <img src="https://media.gettr.com/group11/getter/2022/08/01/06/3efc1a19-d498-bf66-6143-7dd004cb3aeb/out.jpg" width="506" height="284">
-
----
-
-[@taishan 8/1/2022 5:08 AM UTC  - 3圖](/content/gettr/p1kls7p18d8.md)
-
-还有谁会质疑七哥的情报能力吗？
-
-<img src="https://media.gettr.com/group9/getter/2022/08/01/05/fe36aedc-3175-288e-0039-e5fc602f77d1/34bb7bdeebaeae902dd21cc0697a9d8d.jpg" width="506" height="284">
 
 ---
 
