@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/1/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1kopmudda8.md)
+
+2022.08.02七哥谈8月1号的法庭听证和我们将面对的挑战
+
+<img src="https://media.gettr.com/group8/origin/2022/08/01/23/c36b6820-5b23-7795-35d4-591874caebf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/1/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1kp4f1414b.md)
 
 7/31/2022：Miles Guo: Zeng Qinghong is regarded as the real leader of the second generation of top CCP cadres. As long as Zeng Qinghong is alive, he will have followers. Although Xi Jinping wants to take down Zeng very much,  all he...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 8/1/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1kopmudda8.md)
+[@miles 8/2/2022 7:28 AM UTC  - :tv:直播](/content/gettr/p1kqjnv1c55.md)
 
-2022.08.02七哥谈8月1号的法庭听证和我们将面对的挑战
+7/31/2022 Miles Guo:  When Nancy Pelosi is about to visit Taiwan, Switzerland just announced that sanctions will be imposed if Communist China invades Taiwan, and other countries like Liechtenstein will follow and sanction the CCP ...
 
-<img src="https://media.gettr.com/group8/origin/2022/08/01/23/c36b6820-5b23-7795-35d4-591874caebf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/08/02/07/0b52e7fa-b4e1-d2a3-fbb2-d22a6bc2e321/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,20 +195,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 7/31/2022 Miles Guo: Liu Yanping used to brag about his importance being valued by the CCP and Xi Jinping to persuade me to cooperate with the CCP. Now he himself is in jail, and his daughter committed suicide. The CCP always sends...
 
 <img src="https://media.gettr.com/group32/getter/2022/07/31/23/3fa39804-2aed-51b0-e182-be879394c195/out.jpg" width="506" height="284">
-
----
-
-[@miles 7/31/2022 10:07 PM UTC  - :tv:直播](/content/gettr/p1kkc7g6e8c.md)
-
-(4K版) 飞飞秀 《利益冲突·第二十一篇》 2022-07-31
-
-For English：gettr.com/post/p1kkqubc9d8
-
-
-
-#LUC #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group39/origin/2022/07/31/22/d40976d1-fefc-4d54-0751-12f1ba7b8348/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
