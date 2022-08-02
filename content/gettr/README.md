@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/2/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1kqu7q1745.md)
+
+8/1/2022 Miles Guo: Pelosi will fly from the US military base in Malaysia to Taiwan and will be awarded a medal by President Tsai Ing-wen. What do these two events mean? After Pelosi's visit to Taiwan, other political leaders of th...
+
+<img src="https://media.gettr.com/group16/getter/2022/08/02/07/276d8129-aaa0-ddc4-7b5b-d2a0849913bf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 7:28 AM UTC  - :tv:直播](/content/gettr/p1kqjnv1c55.md)
 
 7/31/2022 Miles Guo:  When Nancy Pelosi is about to visit Taiwan, Switzerland just announced that sanctions will be imposed if Communist China invades Taiwan, and other countries like Liechtenstein will follow and sanction the CCP ...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 8/2/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1kqu7q1745.md)
+[@miles 8/2/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1kqbfp7926.md)
 
-8/1/2022 Miles Guo: Pelosi will fly from the US military base in Malaysia to Taiwan and will be awarded a medal by President Tsai Ing-wen. What do these two events mean? After Pelosi's visit to Taiwan, other political leaders of th...
+8/1/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan is of paramount significance! Even if a brief stay by Pelosi in Taiwan would make the Chinese Communist Party a laughing stock around the world. The CCP will no longer earn the res...
 
-<img src="https://media.gettr.com/group16/getter/2022/08/02/07/276d8129-aaa0-ddc4-7b5b-d2a0849913bf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/08/02/08/4a37307a-fafe-2b28-36a7-65bcb7ba4b71/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 特此告知🙏
 
 <img src="https://media.gettr.com/group48/origin/2022/08/01/02/2b69af2c-e6e6-949b-01af-ad6409479f7d/65755f3a9579df761c63865a3d746f34.jpg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p1kkyqm9acf.md)
-
-7/31/2022 Miles Guo: Switzerland recently announced that sanctions will be adopted if the CCP invades Taiwan. Switzerland's statement simply made the CCP back off and change their tone of voice over Nancy Pelosi's visit to Taiwan. ...
-
-<img src="https://media.gettr.com/group28/getter/2022/08/01/00/4537e956-7a5a-213b-297f-3a0235a00b94/out.jpg" width="506" height="284">
 
 ---
 
