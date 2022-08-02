@@ -14,11 +14,29 @@
 
 ---
 
-[@miles 8/2/2022 3:30 PM UTC  - :tv:直播](/content/gettr/p1ksavz0130.md)
+[@kuaiyaoliangle 8/2/2022 3:59 PM UTC ](/content/gettr/p1ksjir288a.md)
 
-8/1/2022 Miles Guo: I am grateful to my fellow fighters and your families! While you are sad, I cannot be upset. In contrast, the CCP is in greater crises than we are! Be sure to respect the judge. There are huge procedural problem...
+2022年8月1日文贵先生直播摘要
 
-<img src="https://media.gettr.com/group38/getter/2022/08/02/15/bb755020-6296-556d-b8a1-d2b56b7bc5de/out.jpg" width="506" height="284">
+1、今天七哥破产案开庭，很多战友都哭了，说实话七哥很高兴，因为战友们和七哥感同身受
+
+2、强奸案、破产案，中共司法超限战，很多人撑不过一年，七哥这五六年怎么过来的？
+
+3、不要攻击法官，要对法律和法官绝对的尊重
+
+4、今天开庭绝对是输了，很多战友哭成一片
+
+5、七哥破产案，最后一定会发回重审
+
+6、如何面对压力？想想你得到的
+
+7、8月份和10月份最大的挑战月
+
+8、佩洛西马来西亚飞往台湾，会住一晚
+
+9、佩洛西到台湾，...
+
+<img src="https://media.gettr.com/group9/getter/2022/08/02/15/5699d0ce-d2f5-f7a5-25d5-940a9e9eec04/4bae02d22fd1cf7907cff45df826660c.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +45,14 @@
 2022.08.02 佩洛西访台 全球视角
 
 <img src="https://media.gettr.com/group3/origin/2022/08/02/15/1621691d-4227-f1d3-e170-37808ed7e15f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/2/2022 3:30 PM UTC  - :tv:直播](/content/gettr/p1ksavz0130.md)
+
+8/1/2022 Miles Guo: I am grateful to my fellow fighters and your families! While you are sad, I cannot be upset. In contrast, the CCP is in greater crises than we are! Be sure to respect the judge. There are huge procedural problem...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/02/15/bb755020-6296-556d-b8a1-d2b56b7bc5de/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,26 +203,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 2022.08.01 When Nancy was awarded the highest medal of honor by President Tsai Ing-wen in Taiwan.  When Nancy was awarded the title, the world saw clearly how ugly the Communist Party was.  Fake face, between August 2nd and 3rd.  N...
 
 <img src="https://media.gettr.com/group37/getter/2022/08/01/17/e9e6b073-5b6d-4c7d-acd0-dc7e233823c8/32e6fd8591e9c557912fab6363f0f380.jpg" width="506" height="284">
-
----
-
-[@rockvision 8/1/2022 1:08 PM UTC  - :tv:直播](/content/gettr/p1kmt3k54ee.md)
-
-#Supermay 18期精彩片段-匆匆那年
-
-
-
-#纽约磐石农场
-
-#Gmusic
-
-#Super-May 线上直播音乐会
-
-@supermanwang 
-
-@甜甜
-
-<img src="https://media.gettr.com/group38/getter/2022/08/01/13/cdf7462d-af5b-ae91-2111-d3a56f0f7ae9/out.jpg" width="506" height="284">
 
 ---
 
