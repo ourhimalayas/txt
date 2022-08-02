@@ -2,6 +2,32 @@
 ---
 
 
+[@himalayajpn 8/1/2022 12:03 AM UTC ](/content/gettr/p1kki5u9e43.md)
+
+／
+
+お待たせしました！！
+
+🆕新規４通貨取扱い開始🆕
+
+＼
+
+
+
+このたび、2022年8月1日(月)より暗号資産現物取引サービスにて、以下4通貨の取扱いを開始させていただくことになりましたのでお知らせいたします。
+
+
+
+・XRP/JPY
+
+・BCH/JPY
+
+・ETC/JPY
+
+・XLM/JPY
+
+---
+
 [@taiwanparis 8/2/2022 10:57 AM UTC  - :tv:直播](/content/gettr/p1kqq3z8413.md)
 
 郭文貴的爆料～👏🏻👏🏻👏🏻👏🏻👏🏻
@@ -52,29 +78,11 @@
 
 ---
 
-[@himalayajpn 8/1/2022 12:03 AM UTC ](/content/gettr/p1kki5u9e43.md)
+[@miles 8/2/2022 1:59 PM UTC ](/content/gettr/p1ks1g53176.md)
 
-／
+2022.08.02 
 
-お待たせしました！！
-
-🆕新規４通貨取扱い開始🆕
-
-＼
-
-
-
-このたび、2022年8月1日(月)より暗号資産現物取引サービスにて、以下4通貨の取扱いを開始させていただくことになりましたのでお知らせいたします。
-
-
-
-・XRP/JPY
-
-・BCH/JPY
-
-・ETC/JPY
-
-・XLM/JPY
+台湾的农场的战友……你们是最棒的台湾人……爱你们！
 
 ---
 
@@ -197,12 +205,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 还有谁会质疑七哥的情报能力吗？
 
 <img src="https://media.gettr.com/group9/getter/2022/08/01/05/fe36aedc-3175-288e-0039-e5fc602f77d1/34bb7bdeebaeae902dd21cc0697a9d8d.jpg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 2:57 AM UTC ](/content/gettr/p1klnn45304.md)
-
-2022.07.31 The August 1st Army Day of the Communist Party of China...is the beginning of China's disaster. The most important figures in China's military and intelligence are Li Kenong and Ji Pengfei. Anyone who understands Chinese...
 
 ---
 
