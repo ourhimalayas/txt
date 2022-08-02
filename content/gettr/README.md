@@ -16,6 +16,14 @@ For English：gettr.com/post/p1kud30e0ea
 
 ---
 
+[@miles 8/2/2022 10:32 PM UTC  - :tv:直播](/content/gettr/p1kuq0wd70e.md)
+
+8/2/2022 Miles Guo’s GETTR: The U.S. military will be permanently stationed in Taiwan and Asia, protecting oil transportation through the Malacca and Hormuz Straits. Communism China’s era of disaster starts from this moment. Chines...
+
+<img src="https://media.gettr.com/group29/getter/2022/08/02/22/cd5e0df8-df5c-8288-008b-e8b82088dcef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1kuf0n7e5d.md)
 
 （4K版）《第二十二篇·种族歧视》 2022-08-02
@@ -27,6 +35,18 @@ For English：gettr.com/post/p1kud30e0ea
 #PAX #LUC #种族歧视 #南区法院
 
 <img src="https://media.gettr.com/group23/origin/2022/08/02/22/20e3e807-4655-3fa2-c4dc-0ce90ca469a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/2/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1ku5jlacb2.md)
+
+8/1/2022 Miles Guo: Members of the New Federal State of China not only strive to win, but should also be able to handle setbacks and failures; only when your words and actions are consistent will you have a future！
+
+
+
+8/1/2022 文贵直播...
+
+<img src="https://media.gettr.com/group17/getter/2022/08/02/22/76fff4c7-88d2-0e97-303a-50e09f5e41d6/out.jpg" width="506" height="284">
 
 ---
 
@@ -89,18 +109,6 @@ For English：gettr.com/post/p1kud30e0ea
 7/31/2022 文贵直播：瑞士发布声明称如果中共侵台，瑞士会立刻制裁中共，于是中共不得不在佩洛西访台一事上...
 
 <img src="https://media.gettr.com/group24/getter/2022/08/02/15/605e31da-1a74-e43e-e231-e42477ac438d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1ku5jlacb2.md)
-
-8/1/2022 Miles Guo: Members of the New Federal State of China not only strive to win, but should also be able to handle setbacks and failures; only when your words and actions are consistent will you have a future！
-
-
-
-8/1/2022 文贵直播...
-
-<img src="https://media.gettr.com/group17/getter/2022/08/02/22/76fff4c7-88d2-0e97-303a-50e09f5e41d6/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ For English：gettr.com/post/p1kud30e0ea
 2022.08.02七哥谈8月1号的法庭听证和我们将面对的挑战
 
 <img src="https://media.gettr.com/group8/origin/2022/08/01/23/c36b6820-5b23-7795-35d4-591874caebf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kok06f784.md)
-
-7/31/2022 Miles Guo: Communist China has 3 approaches for the so-called development of its own chip industry: forming joint ventures, relying on the state and military intelligence authorities to steal technologies, and through the...
-
-<img src="https://media.gettr.com/group45/getter/2022/08/01/23/59e52901-b455-966c-9922-a05163fc8823/out.jpg" width="506" height="284">
 
 ---
 
