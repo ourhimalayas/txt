@@ -2,11 +2,43 @@
 ---
 
 
+[@miles 8/2/2022 3:47 PM UTC  - :tv:直播](/content/gettr/p1ksnr054b6.md)
+
+7/31/2022 Miles Guo: Switzerland announced that sanctions will be imposed if the CCP invades Taiwan. So, the CCP has to chicken out on the issue of Pelosi’s trip to Taiwan.
+
+
+
+7/31/2022 文贵直播：瑞士发布声明称如果中共侵台，瑞士会立刻制裁中共，于是中共不得不在佩洛西访台一事上...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/02/15/605e31da-1a74-e43e-e231-e42477ac438d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 3:30 PM UTC  - :tv:直播](/content/gettr/p1ksavz0130.md)
 
 8/1/2022 Miles Guo: I am grateful to my fellow fighters and your families! While you are sad, I cannot be upset. In contrast, the CCP is in greater crises than we are! Be sure to respect the judge. There are huge procedural problem...
 
 <img src="https://media.gettr.com/group38/getter/2022/08/02/15/bb755020-6296-556d-b8a1-d2b56b7bc5de/out.jpg" width="506" height="284">
+
+---
+
+[@globalalliance 8/2/2022 3:49 PM UTC  - :tv:直播](/content/gettr/p1ksq24dcf3.md)
+
+2022.08.02 佩洛西访台 全球视角
+
+<img src="https://media.gettr.com/group3/origin/2022/08/02/15/1621691d-4227-f1d3-e170-37808ed7e15f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/2/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1ks53u7dc2.md)
+
+7/31/2022: Miles Guo: The CCP and the U.S. may sign an agreement similar to the Plaza Accord between the US and Japan in exchange for the survival of the CCP, of which the economy is doomed.
+
+
+
+7/31/2022 文贵直播：中共可能会与美国达成类似美日签署的“广场协议...
+
+<img src="https://media.gettr.com/group35/getter/2022/08/02/15/7a9db7bc-6c56-6520-bcc7-7216f6aae689/out.jpg" width="506" height="284">
 
 ---
 
@@ -102,18 +134,6 @@
 
 ---
 
-[@miles 8/2/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1ks53u7dc2.md)
-
-7/31/2022: Miles Guo: The CCP and the U.S. may sign an agreement similar to the Plaza Accord between the US and Japan in exchange for the survival of the CCP, of which the economy is doomed.
-
-
-
-7/31/2022 文贵直播：中共可能会与美国达成类似美日签署的“广场协议...
-
-<img src="https://media.gettr.com/group35/getter/2022/08/02/15/7a9db7bc-6c56-6520-bcc7-7216f6aae689/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/1/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kok06f784.md)
 
 7/31/2022 Miles Guo: Communist China has 3 approaches for the so-called development of its own chip industry: forming joint ventures, relying on the state and military intelligence authorities to steal technologies, and through the...
@@ -185,30 +205,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 
 
 <img src="https://media.gettr.com/group6/getter/2022/08/01/11/127f323b-cb34-0057-1d41-fc1fb6c68c2e/ecaea90d7594a91707c44a1936639c87.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 8/1/2022 2:30 PM UTC  - :tv:直播](/content/gettr/p1kmxnxaef9.md)
-
-《时间点Time Line》第五期：从傅政华落马看中共以黑、以警治国
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007  苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group13/origin/2022/08/01/13/711dc4bd-b279-0189-0eda-7ecebb820ca3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 2:44 PM UTC  - :tv:直播](/content/gettr/p1kmzz8f91e.md)
-
-7/31/2022 Miles Guo: The arrest of Xiao Yaqing, the CCP's Minister of Industry and Information Technology, was not to target the Zeng family, given the fact that Xiao has established good relationship with the vassals of Xi Jinping...
-
-<img src="https://media.gettr.com/group31/getter/2022/08/01/14/15573ff2-e920-50a9-45be-6af339c8d072/out.jpg" width="506" height="284">
 
 ---
 
