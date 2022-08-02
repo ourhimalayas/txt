@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 8/2/2022 3:30 PM UTC  - :tv:直播](/content/gettr/p1ksavz0130.md)
+
+8/1/2022 Miles Guo: I am grateful to my fellow fighters and your families! While you are sad, I cannot be upset. In contrast, the CCP is in greater crises than we are! Be sure to respect the judge. There are huge procedural problem...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/02/15/bb755020-6296-556d-b8a1-d2b56b7bc5de/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/2/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1ksibv364b.md)
+
+2022.08.02 尊敬的战友们好……从这一刻起……共产党彻底的成为全世界弃子，共产党从今天起真正的成为走历史。人类真正的开始了女性治天下的文明时代！一切都已经开始！
+
+<img src="https://media.gettr.com/group47/getter/2022/08/02/14/dad95c27-f75b-d610-b584-6f041f529da9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 1:59 PM UTC ](/content/gettr/p1ks1g53176.md)
 
 2022.08.02 
@@ -86,11 +102,15 @@
 
 ---
 
-[@miles 8/2/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1ksibv364b.md)
+[@miles 8/2/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1ks53u7dc2.md)
 
-2022.08.02 尊敬的战友们好……从这一刻起……共产党彻底的成为全世界弃子，共产党从今天起真正的成为走历史。人类真正的开始了女性治天下的文明时代！一切都已经开始！
+7/31/2022: Miles Guo: The CCP and the U.S. may sign an agreement similar to the Plaza Accord between the US and Japan in exchange for the survival of the CCP, of which the economy is doomed.
 
-<img src="https://media.gettr.com/group47/getter/2022/08/02/14/dad95c27-f75b-d610-b584-6f041f529da9/out.jpg" width="506" height="284">
+
+
+7/31/2022 文贵直播：中共可能会与美国达成类似美日签署的“广场协议...
+
+<img src="https://media.gettr.com/group35/getter/2022/08/02/15/7a9db7bc-6c56-6520-bcc7-7216f6aae689/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,22 +209,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 7/31/2022 Miles Guo: The arrest of Xiao Yaqing, the CCP's Minister of Industry and Information Technology, was not to target the Zeng family, given the fact that Xiao has established good relationship with the vassals of Xi Jinping...
 
 <img src="https://media.gettr.com/group31/getter/2022/08/01/14/15573ff2-e920-50a9-45be-6af339c8d072/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 6:19 AM UTC  - :tv:直播](/content/gettr/p1klu59cfd8.md)
-
-7/31/2022 Miles Guo: The Vice President of the US may visit Taiwan as well. The US aircraft carriers will be permanently stationed in Asia to blockade the CCP. Europe will make three moves to force the CCP to sign a "Plaza Accord''...
-
-<img src="https://media.gettr.com/group13/getter/2022/08/01/06/35bed7de-1a05-6781-728d-d5c22d1d2ac8/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 6:11 AM UTC  - :tv:直播](/content/gettr/p1kludr5d2a.md)
-
-7/31/2022 Miles Guo: Luc Despins wants to investigate our fellow fighters! He is no longer a US trustee, but a running dog of the CCP! Our fellow fighters should file a class action lawsuit against Luc Despins and Paul Hastings LLP...
-
-<img src="https://media.gettr.com/group11/getter/2022/08/01/06/3efc1a19-d498-bf66-6143-7dd004cb3aeb/out.jpg" width="506" height="284">
 
 ---
 
