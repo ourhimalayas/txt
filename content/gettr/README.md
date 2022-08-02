@@ -2,6 +2,16 @@
 ---
 
 
+[@taiwanparis 8/2/2022 10:57 AM UTC  - :tv:直播](/content/gettr/p1kqq3z8413.md)
+
+郭文貴的爆料～👏🏻👏🏻👏🏻👏🏻👏🏻
+
+@Miles
+
+<img src="https://media.gettr.com/group11/getter/2022/08/02/10/585b23a8-9425-d7f0-1c01-c3284fb3efd4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1kqbfp7926.md)
 
 8/1/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan is of paramount significance! Even if a brief stay by Pelosi in Taiwan would make the Chinese Communist Party a laughing stock around the world. The CCP will no longer earn the res...
@@ -42,13 +52,29 @@
 
 ---
 
-[@taiwanparis 8/2/2022 10:57 AM UTC  - :tv:直播](/content/gettr/p1kqq3z8413.md)
+[@himalayajpn 8/1/2022 12:03 AM UTC ](/content/gettr/p1kki5u9e43.md)
 
-郭文貴的爆料～👏🏻👏🏻👏🏻👏🏻👏🏻
+／
 
-@Miles
+お待たせしました！！
 
-<img src="https://media.gettr.com/group11/getter/2022/08/02/10/585b23a8-9425-d7f0-1c01-c3284fb3efd4/out.jpg" width="506" height="284">
+🆕新規４通貨取扱い開始🆕
+
+＼
+
+
+
+このたび、2022年8月1日(月)より暗号資産現物取引サービスにて、以下4通貨の取扱いを開始させていただくことになりましたのでお知らせいたします。
+
+
+
+・XRP/JPY
+
+・BCH/JPY
+
+・ETC/JPY
+
+・XLM/JPY
 
 ---
 
@@ -171,14 +197,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 还有谁会质疑七哥的情报能力吗？
 
 <img src="https://media.gettr.com/group9/getter/2022/08/01/05/fe36aedc-3175-288e-0039-e5fc602f77d1/34bb7bdeebaeae902dd21cc0697a9d8d.jpg" width="506" height="284">
-
----
-
-[@miles 8/1/2022 2:55 AM UTC  - 6圖](/content/gettr/p1kll928dee.md)
-
-2022.07.31 中国共产党的八一建军节……是中国灾难的开始，中国的军队和情报最重要的人物就是李克农和姬鹏飞，如果懂得中国军事的人从这几张照片就可以知道……郭文贵是从什么时候已经打入了共匪的核心……没有任何一个中国人像我一样在八九…….六四之后．真开始了灭共的真正的行动，我的真实的过去的30年．远远超过北平无战事100倍精彩……这几张照片就算我送给共匪的八一建军节的礼物吧，真正懂得中共的人，你会找到巨大的信息中国共产党你完了……一切都已经开始！
-
-<img src="https://media.gettr.com/group28/getter/2022/08/01/02/ec131968-0ce7-4618-0a14-9c51d1d1dd85/2cb39ac1d04d203c1ae5aaf44a6a7609.jpg" width="506" height="284">
 
 ---
 
