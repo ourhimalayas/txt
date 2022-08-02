@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/2/2022 6:57 PM UTC  - 2圖](/content/gettr/p1ktte00107.md)
+
+2022.08.02 共产党你完了！
+
+<img src="https://media.gettr.com/group24/getter/2022/08/02/18/d82bb5ef-c1d6-043b-7fd6-04cd5d9e66d5/086a96eb9162da5f8bc99770ec273410.jpg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1kszmld913.md)
 
 2022.08.02：七哥抽雪茄庆祝台湾事实独立
@@ -48,11 +56,11 @@
 
 ---
 
-[@miles 8/2/2022 6:57 PM UTC  - 2圖](/content/gettr/p1ktte00107.md)
+[@miles 8/2/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1ktwtc96c7.md)
 
-2022.08.02 共产党你完了！
+2022. 08.02 Nicole 看七哥 第九期  工作中的郭先生 vs 生活中的七哥
 
-<img src="https://media.gettr.com/group24/getter/2022/08/02/18/d82bb5ef-c1d6-043b-7fd6-04cd5d9e66d5/086a96eb9162da5f8bc99770ec273410.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -197,20 +205,6 @@ AUG 1, 2022 - SPEAKER PELOSI WILL LAUGH ALL THE WAY TO THE BANK AS TAIWAN BURNS
 2022. 08.01 Nicole 看七哥 第八期  以身证法的真实七哥
 
 <img src="https://media.gettr.com/group45/origin/2022/08/01/21/d78b657e-f87a-a2d5-5e35-33884554b976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@realfayfay 8/1/2022 3:09 PM UTC  - :tv:直播](/content/gettr/p1kn0djbcb3.md)
-
-（1080版）《八月一日 听证会》 2022-08-01
-
-For English：gettr.com/streaming/p1kn6o92c00
-
-
-
-#PAX #LUC #利益冲突 #听证会
-
-<img src="https://media.gettr.com/group39/origin/2022/08/01/15/2300e50f-8b10-c94f-19b7-c2eba935d57b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
