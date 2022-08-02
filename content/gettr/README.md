@@ -2,6 +2,14 @@
 ---
 
 
+[@xiaoweng1 8/2/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1kuqnp69e9.md)
+
+
+
+<img src="https://media.gettr.com/group47/getter/2022/08/02/23/278bd0e0-df90-569a-be6c-9a603a865c27/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 10:32 PM UTC  - :tv:直播](/content/gettr/p1kuq0wd70e.md)
 
 8/2/2022 Miles Guo’s GETTR: The U.S. military will be permanently stationed in Taiwan and Asia, protecting oil transportation through the Malacca and Hormuz Straits. Communism China’s era of disaster starts from this moment. Chines...
@@ -24,11 +32,11 @@ For English：gettr.com/post/p1kud30e0ea
 
 ---
 
-[@xiaoweng1 8/2/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1kuqnp69e9.md)
+[@miles 8/2/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kukfc6aa0.md)
 
+8/2/2022 Miles Guo: The kleptocrats in Taiwan take bribery from the CCP and work on behalf of it. They are no longer qualified to represent Taiwan. Those who protested Nancy Pelosi in Taiwan and the U.S. would not dare to protest i...
 
-
-<img src="https://media.gettr.com/group47/getter/2022/08/02/23/278bd0e0-df90-569a-be6c-9a603a865c27/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/08/02/23/5e0d4d40-77a1-b306-97d2-ac47fc39f183/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ For English：gettr.com/post/p1kud30e0ea
 8/1/2022 Miles Guo: Pelosi will fly from the US military base in Malaysia to Taiwan and will be awarded a medal by President Tsai Ing-wen. What do these two events mean? After Pelosi's visit to Taiwan, other political leaders of th...
 
 <img src="https://media.gettr.com/group16/getter/2022/08/02/07/276d8129-aaa0-ddc4-7b5b-d2a0849913bf/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 7:28 AM UTC  - :tv:直播](/content/gettr/p1kqjnv1c55.md)
-
-7/31/2022 Miles Guo:  When Nancy Pelosi is about to visit Taiwan, Switzerland just announced that sanctions will be imposed if Communist China invades Taiwan, and other countries like Liechtenstein will follow and sanction the CCP ...
-
-<img src="https://media.gettr.com/group46/getter/2022/08/02/07/0b52e7fa-b4e1-d2a3-fbb2-d22a6bc2e321/out.jpg" width="506" height="284">
 
 ---
 
