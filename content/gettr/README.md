@@ -2,18 +2,6 @@
 ---
 
 
-[@miles 8/2/2022 3:47 PM UTC  - :tv:直播](/content/gettr/p1ksnr054b6.md)
-
-7/31/2022 Miles Guo: Switzerland announced that sanctions will be imposed if the CCP invades Taiwan. So, the CCP has to chicken out on the issue of Pelosi’s trip to Taiwan.
-
-
-
-7/31/2022 文贵直播：瑞士发布声明称如果中共侵台，瑞士会立刻制裁中共，于是中共不得不在佩洛西访台一事上...
-
-<img src="https://media.gettr.com/group24/getter/2022/08/02/15/605e31da-1a74-e43e-e231-e42477ac438d/out.jpg" width="506" height="284">
-
----
-
 [@kuaiyaoliangle 8/2/2022 3:59 PM UTC ](/content/gettr/p1ksjir288a.md)
 
 2022年8月1日文贵先生直播摘要
@@ -37,6 +25,26 @@
 9、佩洛西到台湾，...
 
 <img src="https://media.gettr.com/group9/getter/2022/08/02/15/5699d0ce-d2f5-f7a5-25d5-940a9e9eec04/4bae02d22fd1cf7907cff45df826660c.jpg" width="506" height="284">
+
+---
+
+[@miles 8/2/2022 3:47 PM UTC  - :tv:直播](/content/gettr/p1ksnr054b6.md)
+
+7/31/2022 Miles Guo: Switzerland announced that sanctions will be imposed if the CCP invades Taiwan. So, the CCP has to chicken out on the issue of Pelosi’s trip to Taiwan.
+
+
+
+7/31/2022 文贵直播：瑞士发布声明称如果中共侵台，瑞士会立刻制裁中共，于是中共不得不在佩洛西访台一事上...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/02/15/605e31da-1a74-e43e-e231-e42477ac438d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/2/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1kszmld913.md)
+
+2022.08.02：七哥抽雪茄庆祝台湾事实独立
+
+<img src="https://media.gettr.com/group41/origin/2022/08/02/16/5e7c66a7-c713-4f90-1476-0e50579bd9ce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 2022.08.01 When Nancy was awarded the highest medal of honor by President Tsai Ing-wen in Taiwan.  When Nancy was awarded the title, the world saw clearly how ugly the Communist Party was.  Fake face, between August 2nd and 3rd.  N...
 
 <img src="https://media.gettr.com/group37/getter/2022/08/01/17/e9e6b073-5b6d-4c7d-acd0-dc7e233823c8/32e6fd8591e9c557912fab6363f0f380.jpg" width="506" height="284">
-
----
-
-[@qmay007 8/1/2022 11:35 AM UTC  - 2圖](/content/gettr/p1km5z02325.md)
-
-
-
-<img src="https://media.gettr.com/group6/getter/2022/08/01/11/127f323b-cb34-0057-1d41-fc1fb6c68c2e/ecaea90d7594a91707c44a1936639c87.jpg" width="506" height="284">
 
 ---
 
