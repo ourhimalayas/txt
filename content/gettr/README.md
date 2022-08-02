@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/2/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1kqbfp7926.md)
+
+8/1/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan is of paramount significance! Even if a brief stay by Pelosi in Taiwan would make the Chinese Communist Party a laughing stock around the world. The CCP will no longer earn the res...
+
+<img src="https://media.gettr.com/group43/getter/2022/08/02/08/4a37307a-fafe-2b28-36a7-65bcb7ba4b71/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 7:35 AM UTC  - :tv:直播](/content/gettr/p1kqu7q1745.md)
 
 8/1/2022 Miles Guo: Pelosi will fly from the US military base in Malaysia to Taiwan and will be awarded a medal by President Tsai Ing-wen. What do these two events mean? After Pelosi's visit to Taiwan, other political leaders of th...
@@ -34,11 +42,13 @@
 
 ---
 
-[@miles 8/2/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1kqbfp7926.md)
+[@taiwanparis 8/2/2022 10:57 AM UTC  - :tv:直播](/content/gettr/p1kqq3z8413.md)
 
-8/1/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan is of paramount significance! Even if a brief stay by Pelosi in Taiwan would make the Chinese Communist Party a laughing stock around the world. The CCP will no longer earn the res...
+郭文貴的爆料～👏🏻👏🏻👏🏻👏🏻👏🏻
 
-<img src="https://media.gettr.com/group43/getter/2022/08/02/08/4a37307a-fafe-2b28-36a7-65bcb7ba4b71/out.jpg" width="506" height="284">
+@Miles
+
+<img src="https://media.gettr.com/group11/getter/2022/08/02/10/585b23a8-9425-d7f0-1c01-c3284fb3efd4/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,26 +185,6 @@ For English：gettr.com/streaming/p1kn6o92c00
 [@miles 8/1/2022 2:57 AM UTC ](/content/gettr/p1klnn45304.md)
 
 2022.07.31 The August 1st Army Day of the Communist Party of China...is the beginning of China's disaster. The most important figures in China's military and intelligence are Li Kenong and Ji Pengfei. Anyone who understands Chinese...
-
----
-
-[@realfayfay 8/1/2022 2:17 AM UTC  - 2圖](/content/gettr/p1klk0e2b17.md)
-
-战友们好，明天（8月1日）直播安排如下：
-
-美东早上十一点/墙内晚上十一点开播，正式听证会预计在美东中午十二点开始。
-
-
-
-中文直播频道：飞飞 @RealFayFay 
-
-英文直播频道：秘密翻译组 @GTranslators_2 
-
-
-
-特此告知🙏
-
-<img src="https://media.gettr.com/group48/origin/2022/08/01/02/2b69af2c-e6e6-949b-01af-ad6409479f7d/65755f3a9579df761c63865a3d746f34.jpg" width="506" height="284">
 
 ---
 
