@@ -2,6 +2,22 @@
 ---
 
 
+[@gfashion 8/3/2022 4:18 PM UTC  - 6圖](/content/gettr/p1kyysm9f83.md)
+
+Dear valued GFashion customers,
+
+
+
+We have been reviewing all of your feedback, comments and concerns about some of the sizing for our products and would like to thank you! 
+
+
+
+If you have had sizing issues with any of these items,...
+
+<img src="https://media.gettr.com/group42/getter/2022/08/03/16/12a88ad7-14f2-2346-e52a-29e03b24ebc4/72c938c468e97cfd157ad6f778b8aca3.jpg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 12:44 PM UTC  - :tv:直播](/content/gettr/p1ky4aoddad.md)
 
 2022.08.03 文贵大直播：从台湾独立看新中国联邦的未来
@@ -32,19 +48,11 @@
 
 ---
 
-[@gfashion 8/3/2022 4:18 PM UTC  - 6圖](/content/gettr/p1kyysm9f83.md)
+[@miles 8/3/2022 5:19 PM UTC  - :tv:直播](/content/gettr/p1kzf3o454a.md)
 
-Dear valued GFashion customers,
+2022.08.03 尊敬的战友们好——今天的直播中忘掉了重点中的重点，就是在世界金融货币区块链化市场化时，以及世界上随着量子技术的诞生，必将会发生的科技发展时代到来之后，新中国联邦定将成为世界上最重要的一极的力量，最重要的就是．是疫苗灾难后．谁能活下去？这已经是无法逆转的已经发生的真正的实力的基础，这就是我们新中国联邦……真正未来的力量！
 
-
-
-We have been reviewing all of your feedback, comments and concerns about some of the sizing for our products and would like to thank you! 
-
-
-
-If you have had sizing issues with any of these items,...
-
-<img src="https://media.gettr.com/group42/getter/2022/08/03/16/12a88ad7-14f2-2346-e52a-29e03b24ebc4/72c938c468e97cfd157ad6f778b8aca3.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/08/03/17/9670ba61-d020-abcf-c906-8b40ec7609e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,20 +171,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 8/2/2022 Miles Guo’s GETTR: The U.S. military will be permanently stationed in Taiwan and Asia, protecting oil transportation through the Malacca and Hormuz Straits. Communism China’s era of disaster starts from this moment. Chines...
 
 <img src="https://media.gettr.com/group29/getter/2022/08/02/22/cd5e0df8-df5c-8288-008b-e8b82088dcef/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1ku9jl50be.md)
-
-（1080版）《第二十二篇·种族歧视》 2022-08-02
-
-For English：gettr.com/post/p1kud30e0ea
-
-
-
-#PAX #LUC #种族歧视 #南区法院
-
-<img src="https://media.gettr.com/group30/origin/2022/08/02/22/a3a1e179-5649-f2ad-89b3-6ff45cd377af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
