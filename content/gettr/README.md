@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/3/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1kvjq04882.md)
+
+8/2/2022 Miles Guo: The CCP's fall will shock the world more than the Fall of the Berlin Wall and the collapse of the Soviet Union. We must keep going on like Taiwaness did until the Chinese Communism Party is taken down！We will  l...
+
+<img src="https://media.gettr.com/group22/getter/2022/08/03/04/65cb3fb3-5b2a-ef5d-1510-4bcf3b125e62/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 2:43 AM UTC ](/content/gettr/p1kvl2p36dc.md)
 
 2022.08.02 👉👉👉👉👉👉👉👉授勋仪式…………就问你们服不服💪💪💪💪💪💪💪💪
@@ -18,11 +26,13 @@
 
 ---
 
-[@miles 8/3/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1kvjq04882.md)
+[@miles 8/3/2022 5:46 AM UTC  - :tv:直播](/content/gettr/p1kwe2vfb75.md)
 
-8/2/2022 Miles Guo: The CCP's fall will shock the world more than the Fall of the Berlin Wall and the collapse of the Soviet Union. We must keep going on like Taiwaness did until the Chinese Communism Party is taken down！We will  l...
+8/2/2022 Miles Guo’s GETTR: Nancy Pelosi and Tsai Ing-wen, two women, changed the world! 
 
-<img src="https://media.gettr.com/group22/getter/2022/08/03/04/65cb3fb3-5b2a-ef5d-1510-4bcf3b125e62/out.jpg" width="506" height="284">
+In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to do nothing but watch. Look at what those old shameless trait...
+
+<img src="https://media.gettr.com/group12/getter/2022/08/03/05/aa38769d-0912-273c-07e7-d3f1a19560e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,18 +199,6 @@ For English：gettr.com/post/p1kud30e0ea
 9、佩洛西到台湾，...
 
 <img src="https://media.gettr.com/group9/getter/2022/08/02/15/5699d0ce-d2f5-f7a5-25d5-940a9e9eec04/4bae02d22fd1cf7907cff45df826660c.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 3:47 PM UTC  - :tv:直播](/content/gettr/p1ksnr054b6.md)
-
-7/31/2022 Miles Guo: Switzerland announced that sanctions will be imposed if the CCP invades Taiwan. So, the CCP has to chicken out on the issue of Pelosi’s trip to Taiwan.
-
-
-
-7/31/2022 文贵直播：瑞士发布声明称如果中共侵台，瑞士会立刻制裁中共，于是中共不得不在佩洛西访台一事上...
-
-<img src="https://media.gettr.com/group24/getter/2022/08/02/15/605e31da-1a74-e43e-e231-e42477ac438d/out.jpg" width="506" height="284">
 
 ---
 
