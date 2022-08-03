@@ -40,6 +40,34 @@ For English：gettr.com/post/p1kud30e0ea
 
 ---
 
+[@newyorkrock 8/3/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1kulu23619.md)
+
+《战》
+
+第一季 续篇《观 战》贰
+
+佩洛希的毕业旅行-抵达台湾（将）接受蔡英文总统授勋!!!
+
+#磐石农场
+
+威廉王 青藤
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+
+
+<img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1kuf0n7e5d.md)
 
 （4K版）《第二十二篇·种族歧视》 2022-08-02
@@ -205,14 +233,6 @@ For English：gettr.com/post/p1kud30e0ea
 @Miles
 
 <img src="https://media.gettr.com/group11/getter/2022/08/02/10/585b23a8-9425-d7f0-1c01-c3284fb3efd4/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 8:59 AM UTC  - :tv:直播](/content/gettr/p1kqbfp7926.md)
-
-8/1/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan is of paramount significance! Even if a brief stay by Pelosi in Taiwan would make the Chinese Communist Party a laughing stock around the world. The CCP will no longer earn the res...
-
-<img src="https://media.gettr.com/group43/getter/2022/08/02/08/4a37307a-fafe-2b28-36a7-65bcb7ba4b71/out.jpg" width="506" height="284">
 
 ---
 
