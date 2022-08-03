@@ -2,6 +2,34 @@
 ---
 
 
+[@newyorkrock 8/3/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1kulu23619.md)
+
+《战》
+
+第一季 续篇《观 战》贰
+
+佩洛希的毕业旅行-抵达台湾（将）接受蔡英文总统授勋!!!
+
+#磐石农场
+
+威廉王 青藤
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+
+
+<img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/2/2022 11:22 PM UTC  - :tv:直播](/content/gettr/p1kukfc6aa0.md)
 
 8/2/2022 Miles Guo: The kleptocrats in Taiwan take bribery from the CCP and work on behalf of it. They are no longer qualified to represent Taiwan. Those who protested Nancy Pelosi in Taiwan and the U.S. would not dare to protest i...
@@ -40,31 +68,11 @@ For English：gettr.com/post/p1kud30e0ea
 
 ---
 
-[@newyorkrock 8/3/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1kulu23619.md)
+[@jessicag 8/3/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1kuym7b1cf.md)
 
-《战》
+2022-08-02与J有约-第114期：粉红女郎-佩洛西，世界进入女性时代
 
-第一季 续篇《观 战》贰
-
-佩洛希的毕业旅行-抵达台湾（将）接受蔡英文总统授勋!!!
-
-#磐石农场
-
-威廉王 青藤
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-
-
-<img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/08/01/00/5170bcbf-66b5-1752-0c3d-4ef1c89dc8ed/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -223,16 +231,6 @@ For English：gettr.com/post/p1kud30e0ea
 ・ETC/JPY
 
 ・XLM/JPY
-
----
-
-[@taiwanparis 8/2/2022 10:57 AM UTC  - :tv:直播](/content/gettr/p1kqq3z8413.md)
-
-郭文貴的爆料～👏🏻👏🏻👏🏻👏🏻👏🏻
-
-@Miles
-
-<img src="https://media.gettr.com/group11/getter/2022/08/02/10/585b23a8-9425-d7f0-1c01-c3284fb3efd4/out.jpg" width="506" height="284">
 
 ---
 
