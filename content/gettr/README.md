@@ -10,6 +10,24 @@
 
 ---
 
+[@miles 8/3/2022 11:46 AM UTC ](/content/gettr/p1kxfvv0107.md)
+
+2022.08.03 
+
+
+
+尊敬的战友们好！今天星期三的大直播将在9:30左右开始，一会儿打直播见！❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
+
+---
+
+[@miles 8/3/2022 8:24 AM UTC  - :tv:直播](/content/gettr/p1kwlkob8b4.md)
+
+7/31/2022 Miles Guo: We don’t want wars or extreme approaches. Instead, we hope the Chinese people will pay the minimal price for taking down the CCP and have a smooth transition to electing a democratic government by one person, o...
+
+<img src="https://media.gettr.com/group33/getter/2022/08/03/08/5a773483-ea74-3780-bd6e-b4bc778dded0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 5:46 AM UTC  - :tv:直播](/content/gettr/p1kwe2vfb75.md)
 
 8/2/2022 Miles Guo’s GETTR: Nancy Pelosi and Tsai Ing-wen, two women, changed the world! 
@@ -41,14 +59,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 8/1/2022 Miles Guo：We lost completely in today's hearing, but it doesn't mean things are over as we still have the right to appeal. We will use the grounds of procedural justice and facts to challenge all the false accusations agai...
 
 <img src="https://media.gettr.com/group4/getter/2022/08/03/02/575a14cd-af56-60df-54cc-13a6d1113460/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 8:24 AM UTC  - :tv:直播](/content/gettr/p1kwlkob8b4.md)
-
-7/31/2022 Miles Guo: We don’t want wars or extreme approaches. Instead, we hope the Chinese people will pay the minimal price for taking down the CCP and have a smooth transition to electing a democratic government by one person, o...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/03/08/5a773483-ea74-3780-bd6e-b4bc778dded0/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +191,6 @@ For English：gettr.com/post/p1kud30e0ea
 2022.08.02 共产党你完了！
 
 <img src="https://media.gettr.com/group24/getter/2022/08/02/18/d82bb5ef-c1d6-043b-7fd6-04cd5d9e66d5/086a96eb9162da5f8bc99770ec273410.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 4:40 PM UTC  - :tv:直播](/content/gettr/p1kszmld913.md)
-
-2022.08.02：七哥抽雪茄庆祝台湾事实独立
-
-<img src="https://media.gettr.com/group41/origin/2022/08/02/16/5e7c66a7-c713-4f90-1476-0e50579bd9ce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
