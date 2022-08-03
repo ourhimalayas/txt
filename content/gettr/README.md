@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 8/3/2022 2:43 AM UTC ](/content/gettr/p1kvl2p36dc.md)
+
+2022.08.02 👉👉👉👉👉👉👉👉授勋仪式…………就问你们服不服💪💪💪💪💪💪💪💪
+
+<img src="https://media.gettr.com/group41/getter/2022/08/03/02/5b1a44b8-3295-3233-7d30-6f51cf3d633e/dd46241a0b3351f8f0b702f6e80f4e01.jpg" width="506" height="284">
+
+---
+
+[@miles 8/3/2022 2:22 AM UTC ](/content/gettr/p1kv4r12e1f.md)
+
+2022.08.02 我真的快笑晕在厕所了，太有意思了．伟大的中国人。【微信圈： 不打我认了，但我想说的是，能不能保住最后的尊严，让她落地先做个核酸】
+
+<img src="https://media.gettr.com/group30/getter/2022/08/03/02/5a61a25f-24da-9539-c72f-6941865dc56b/75ed94ef4cf2467488404ff1b97e4b5a.jpg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1kuzicabd5.md)
 
 8/2/2022 Miles Guo: In all the events happening around the world including Nancy Pelosi’s visit to Taiwan, the NFSC people have been playing a critical role in them as unsung heroes. The successful landing of U.S. House Speaker Nan...
@@ -89,14 +105,6 @@ For English：gettr.com/post/p1kud30e0ea
 #PAX #LUC #种族歧视 #南区法院
 
 <img src="https://media.gettr.com/group30/origin/2022/08/02/22/a3a1e179-5649-f2ad-89b3-6ff45cd377af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 2:22 AM UTC ](/content/gettr/p1kv4r12e1f.md)
-
-2022.08.02 我真的快笑晕在厕所了，太有意思了．伟大的中国人。【微信圈： 不打我认了，但我想说的是，能不能保住最后的尊严，让她落地先做个核酸】
-
-<img src="https://media.gettr.com/group30/getter/2022/08/03/02/5a61a25f-24da-9539-c72f-6941865dc56b/75ed94ef4cf2467488404ff1b97e4b5a.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ For English：gettr.com/post/p1kud30e0ea
 2022.08.02 佩洛西访台 全球视角
 
 <img src="https://media.gettr.com/group3/origin/2022/08/02/15/1621691d-4227-f1d3-e170-37808ed7e15f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 3:30 PM UTC  - :tv:直播](/content/gettr/p1ksavz0130.md)
-
-8/1/2022 Miles Guo: I am grateful to my fellow fighters and your families! While you are sad, I cannot be upset. In contrast, the CCP is in greater crises than we are! Be sure to respect the judge. There are huge procedural problem...
-
-<img src="https://media.gettr.com/group38/getter/2022/08/02/15/bb755020-6296-556d-b8a1-d2b56b7bc5de/out.jpg" width="506" height="284">
 
 ---
 
