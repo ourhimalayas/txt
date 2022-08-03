@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 8/3/2022 10:23 PM UTC  - :tv:直播](/content/gettr/p1l0u6gc812.md)
+
+（1080版）《佩洛西访台》 2022-08-03
+
+For English：gettr.com/post/p1l0hgj5278
+
+
+
+#佩洛西访台 #台湾 #民心向郭 
+
+
+
+<img src="https://media.gettr.com/group11/origin/2022/08/03/22/740227f5-1ea2-82c2-2ab7-bb55ca007f6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/3/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1l0q09b040.md)
+
+2022.08.03 Nicole 看七哥 第十期  为战友们赚钱的郭先生
+
+
+
+<img src="https://media.gettr.com/group24/origin/2022/08/03/21/9c51b6ab-8b63-bf41-76b4-5a0162194262/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p1kzhmfcc10.md)
 
 2022.08.03 佩洛西访台 引发全球政治海啸
@@ -64,13 +90,19 @@ If you have had sizing issues with any of these items,...
 
 ---
 
-[@miles 8/3/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1l0q09b040.md)
+[@miles 8/3/2022 10:23 PM UTC  - :tv:直播](/content/gettr/p1l0r3w2c29.md)
 
-2022.08.03 Nicole 看七哥 第十期  为战友们赚钱的郭先生
+（4K版）《佩洛西访台》 2022-08-03
+
+For English：gettr.com/post/p1l0hgj5278
 
 
 
-<img src="https://media.gettr.com/group24/origin/2022/08/03/21/9c51b6ab-8b63-bf41-76b4-5a0162194262/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#佩洛西访台 #台湾 #民心向郭 
+
+
+
+<img src="https://media.gettr.com/group10/origin/2022/08/03/22/000790f8-94a0-e9f4-7ead-bd591278cf03/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,22 +205,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 8/2/2022 Miles Guo: The kleptocrats in Taiwan take bribery from the CCP and work on behalf of it. They are no longer qualified to represent Taiwan. Those who protested Nancy Pelosi in Taiwan and the U.S. would not dare to protest i...
 
 <img src="https://media.gettr.com/group47/getter/2022/08/02/23/5e0d4d40-77a1-b306-97d2-ac47fc39f183/out.jpg" width="506" height="284">
-
----
-
-[@xiaoweng1 8/2/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1kuqnp69e9.md)
-
-
-
-<img src="https://media.gettr.com/group47/getter/2022/08/02/23/278bd0e0-df90-569a-be6c-9a603a865c27/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 10:32 PM UTC  - :tv:直播](/content/gettr/p1kuq0wd70e.md)
-
-8/2/2022 Miles Guo’s GETTR: The U.S. military will be permanently stationed in Taiwan and Asia, protecting oil transportation through the Malacca and Hormuz Straits. Communism China’s era of disaster starts from this moment. Chines...
-
-<img src="https://media.gettr.com/group29/getter/2022/08/02/22/cd5e0df8-df5c-8288-008b-e8b82088dcef/out.jpg" width="506" height="284">
 
 ---
 
