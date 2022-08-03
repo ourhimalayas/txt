@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 8/3/2022 2:15 AM UTC  - :tv:直播](/content/gettr/p1kvtx24c54.md)
+
+8/1/2022 Miles Guo：We lost completely in today's hearing, but it doesn't mean things are over as we still have the right to appeal. We will use the grounds of procedural justice and facts to challenge all the false accusations agai...
+
+<img src="https://media.gettr.com/group4/getter/2022/08/03/02/575a14cd-af56-60df-54cc-13a6d1113460/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/3/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1kuzicabd5.md)
+
+8/2/2022 Miles Guo: In all the events happening around the world including Nancy Pelosi’s visit to Taiwan, the NFSC people have been playing a critical role in them as unsung heroes. The successful landing of U.S. House Speaker Nan...
+
+<img src="https://media.gettr.com/group25/getter/2022/08/03/02/d9307348-771b-e37b-c3b5-29010a6fddb2/out.jpg" width="506" height="284">
+
+---
+
 [@jessicag 8/3/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1kuym7b1cf.md)
 
 2022-08-02与J有约-第114期：粉红女郎-佩洛西，世界进入女性时代
@@ -76,11 +92,11 @@ For English：gettr.com/post/p1kud30e0ea
 
 ---
 
-[@miles 8/3/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1kuzicabd5.md)
+[@miles 8/3/2022 2:22 AM UTC ](/content/gettr/p1kv4r12e1f.md)
 
-8/2/2022 Miles Guo: In all the events happening around the world including Nancy Pelosi’s visit to Taiwan, the NFSC people have been playing a critical role in them as unsung heroes. The successful landing of U.S. House Speaker Nan...
+2022.08.02 我真的快笑晕在厕所了，太有意思了．伟大的中国人。【微信圈： 不打我认了，但我想说的是，能不能保住最后的尊严，让她落地先做个核酸】
 
-<img src="https://media.gettr.com/group25/getter/2022/08/03/02/d9307348-771b-e37b-c3b5-29010a6fddb2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/08/03/02/5a61a25f-24da-9539-c72f-6941865dc56b/75ed94ef4cf2467488404ff1b97e4b5a.jpg" width="506" height="284">
 
 ---
 
@@ -197,22 +213,6 @@ For English：gettr.com/post/p1kud30e0ea
 7/31/2022 文贵直播：中共可能会与美国达成类似美日签署的“广场协议...
 
 <img src="https://media.gettr.com/group35/getter/2022/08/02/15/7a9db7bc-6c56-6520-bcc7-7216f6aae689/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1ksibv364b.md)
-
-2022.08.02 尊敬的战友们好……从这一刻起……共产党彻底的成为全世界弃子，共产党从今天起真正的成为走历史。人类真正的开始了女性治天下的文明时代！一切都已经开始！
-
-<img src="https://media.gettr.com/group47/getter/2022/08/02/14/dad95c27-f75b-d610-b584-6f041f529da9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 1:59 PM UTC ](/content/gettr/p1ks1g53176.md)
-
-2022.08.02 
-
-台湾的农场的战友……你们是最棒的台湾人……爱你们！
 
 ---
 
