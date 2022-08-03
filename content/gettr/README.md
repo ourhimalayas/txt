@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 8/3/2022 8:20 AM UTC  - :tv:直播](/content/gettr/p1kwfkm9662.md)
+
+7/31/2022 Miles Guo: The Vice President of the US may visit Taiwan as well. The US aircraft carriers will be permanently stationed in Asia to blockade the CCP. Xi Jinping doesn't care if the Lao Baixing live or die, and he will jus...
+
+<img src="https://media.gettr.com/group3/getter/2022/08/03/08/df9dfe49-5497-1bb8-230a-bc67ebe5bfef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/3/2022 5:46 AM UTC  - :tv:直播](/content/gettr/p1kwe2vfb75.md)
+
+8/2/2022 Miles Guo’s GETTR: Nancy Pelosi and Tsai Ing-wen, two women, changed the world! 
+
+In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to do nothing but watch. Look at what those old shameless trait...
+
+<img src="https://media.gettr.com/group12/getter/2022/08/03/05/aa38769d-0912-273c-07e7-d3f1a19560e9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1kvjq04882.md)
 
 8/2/2022 Miles Guo: The CCP's fall will shock the world more than the Fall of the Berlin Wall and the collapse of the Soviet Union. We must keep going on like Taiwaness did until the Chinese Communism Party is taken down！We will  l...
@@ -26,13 +44,11 @@
 
 ---
 
-[@miles 8/3/2022 5:46 AM UTC  - :tv:直播](/content/gettr/p1kwe2vfb75.md)
+[@miles 8/3/2022 8:24 AM UTC  - :tv:直播](/content/gettr/p1kwlkob8b4.md)
 
-8/2/2022 Miles Guo’s GETTR: Nancy Pelosi and Tsai Ing-wen, two women, changed the world! 
+7/31/2022 Miles Guo: We don’t want wars or extreme approaches. Instead, we hope the Chinese people will pay the minimal price for taking down the CCP and have a smooth transition to electing a democratic government by one person, o...
 
-In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to do nothing but watch. Look at what those old shameless trait...
-
-<img src="https://media.gettr.com/group12/getter/2022/08/03/05/aa38769d-0912-273c-07e7-d3f1a19560e9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/08/03/08/5a773483-ea74-3780-bd6e-b4bc778dded0/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,40 +189,6 @@ For English：gettr.com/post/p1kud30e0ea
 2022.08.02：七哥抽雪茄庆祝台湾事实独立
 
 <img src="https://media.gettr.com/group41/origin/2022/08/02/16/5e7c66a7-c713-4f90-1476-0e50579bd9ce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@kuaiyaoliangle 8/2/2022 3:59 PM UTC ](/content/gettr/p1ksjir288a.md)
-
-2022年8月1日文贵先生直播摘要
-
-1、今天七哥破产案开庭，很多战友都哭了，说实话七哥很高兴，因为战友们和七哥感同身受
-
-2、强奸案、破产案，中共司法超限战，很多人撑不过一年，七哥这五六年怎么过来的？
-
-3、不要攻击法官，要对法律和法官绝对的尊重
-
-4、今天开庭绝对是输了，很多战友哭成一片
-
-5、七哥破产案，最后一定会发回重审
-
-6、如何面对压力？想想你得到的
-
-7、8月份和10月份最大的挑战月
-
-8、佩洛西马来西亚飞往台湾，会住一晚
-
-9、佩洛西到台湾，...
-
-<img src="https://media.gettr.com/group9/getter/2022/08/02/15/5699d0ce-d2f5-f7a5-25d5-940a9e9eec04/4bae02d22fd1cf7907cff45df826660c.jpg" width="506" height="284">
-
----
-
-[@globalalliance 8/2/2022 3:49 PM UTC  - :tv:直播](/content/gettr/p1ksq24dcf3.md)
-
-2022.08.02 佩洛西访台 全球视角
-
-<img src="https://media.gettr.com/group3/origin/2022/08/02/15/1621691d-4227-f1d3-e170-37808ed7e15f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
