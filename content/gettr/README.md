@@ -2,6 +2,14 @@
 ---
 
 
+[@jessicag 8/3/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1kuym7b1cf.md)
+
+2022-08-02与J有约-第114期：粉红女郎-佩洛西，世界进入女性时代
+
+<img src="https://media.gettr.com/group24/origin/2022/08/01/00/5170bcbf-66b5-1752-0c3d-4ef1c89dc8ed/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@newyorkrock 8/3/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1kulu23619.md)
 
 《战》
@@ -68,11 +76,11 @@ For English：gettr.com/post/p1kud30e0ea
 
 ---
 
-[@jessicag 8/3/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1kuym7b1cf.md)
+[@miles 8/3/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1kuzicabd5.md)
 
-2022-08-02与J有约-第114期：粉红女郎-佩洛西，世界进入女性时代
+8/2/2022 Miles Guo: In all the events happening around the world including Nancy Pelosi’s visit to Taiwan, the NFSC people have been playing a critical role in them as unsung heroes. The successful landing of U.S. House Speaker Nan...
 
-<img src="https://media.gettr.com/group24/origin/2022/08/01/00/5170bcbf-66b5-1752-0c3d-4ef1c89dc8ed/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/08/03/02/d9307348-771b-e37b-c3b5-29010a6fddb2/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,32 +213,6 @@ For English：gettr.com/post/p1kud30e0ea
 2022.08.02 
 
 台湾的农场的战友……你们是最棒的台湾人……爱你们！
-
----
-
-[@himalayajpn 8/1/2022 12:03 AM UTC ](/content/gettr/p1kki5u9e43.md)
-
-／
-
-お待たせしました！！
-
-🆕新規４通貨取扱い開始🆕
-
-＼
-
-
-
-このたび、2022年8月1日(月)より暗号資産現物取引サービスにて、以下4通貨の取扱いを開始させていただくことになりましたのでお知らせいたします。
-
-
-
-・XRP/JPY
-
-・BCH/JPY
-
-・ETC/JPY
-
-・XLM/JPY
 
 ---
 
