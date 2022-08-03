@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/3/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p1kzhmfcc10.md)
+
+2022.08.03 佩洛西访台 引发全球政治海啸
+
+<img src="https://media.gettr.com/group7/origin/2022/08/03/20/9177ae84-c96f-3cbc-d73e-9c73067c16bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 5:19 PM UTC  - :tv:直播](/content/gettr/p1kzf3o454a.md)
 
 2022.08.03 尊敬的战友们好——今天的直播中忘掉了重点中的重点，就是在世界金融货币区块链化市场化时，以及世界上随着量子技术的诞生，必将会发生的科技发展时代到来之后，新中国联邦定将成为世界上最重要的一极的力量，最重要的就是．是疫苗灾难后．谁能活下去？这已经是无法逆转的已经发生的真正的实力的基础，这就是我们新中国联邦……真正未来的力量！
@@ -56,11 +64,13 @@ If you have had sizing issues with any of these items,...
 
 ---
 
-[@miles 8/3/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p1kzhmfcc10.md)
+[@miles 8/3/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1l0q09b040.md)
 
-2022.08.03 佩洛西访台 引发全球政治海啸
+2022.08.03 Nicole 看七哥 第十期  为战友们赚钱的郭先生
 
-<img src="https://media.gettr.com/group7/origin/2022/08/03/20/9177ae84-c96f-3cbc-d73e-9c73067c16bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group24/origin/2022/08/03/21/9c51b6ab-8b63-bf41-76b4-5a0162194262/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,18 +197,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 2022. 08.02 Nicole 看七哥 第九期  工作中的郭先生 vs 生活中的七哥
 
 <img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p1ku5jlacb2.md)
-
-8/1/2022 Miles Guo: Members of the New Federal State of China not only strive to win, but should also be able to handle setbacks and failures; only when your words and actions are consistent will you have a future！
-
-
-
-8/1/2022 文贵直播...
-
-<img src="https://media.gettr.com/group17/getter/2022/08/02/22/76fff4c7-88d2-0e97-303a-50e09f5e41d6/out.jpg" width="506" height="284">
 
 ---
 
