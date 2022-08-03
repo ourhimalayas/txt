@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/3/2022 5:19 PM UTC  - :tv:直播](/content/gettr/p1kzf3o454a.md)
+
+2022.08.03 尊敬的战友们好——今天的直播中忘掉了重点中的重点，就是在世界金融货币区块链化市场化时，以及世界上随着量子技术的诞生，必将会发生的科技发展时代到来之后，新中国联邦定将成为世界上最重要的一极的力量，最重要的就是．是疫苗灾难后．谁能活下去？这已经是无法逆转的已经发生的真正的实力的基础，这就是我们新中国联邦……真正未来的力量！
+
+<img src="https://media.gettr.com/group46/getter/2022/08/03/17/9670ba61-d020-abcf-c906-8b40ec7609e8/out.jpg" width="506" height="284">
+
+---
+
 [@gfashion 8/3/2022 4:18 PM UTC  - 6圖](/content/gettr/p1kyysm9f83.md)
 
 Dear valued GFashion customers,
@@ -48,11 +56,11 @@ If you have had sizing issues with any of these items,...
 
 ---
 
-[@miles 8/3/2022 5:19 PM UTC  - :tv:直播](/content/gettr/p1kzf3o454a.md)
+[@miles 8/3/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p1kzhmfcc10.md)
 
-2022.08.03 尊敬的战友们好——今天的直播中忘掉了重点中的重点，就是在世界金融货币区块链化市场化时，以及世界上随着量子技术的诞生，必将会发生的科技发展时代到来之后，新中国联邦定将成为世界上最重要的一极的力量，最重要的就是．是疫苗灾难后．谁能活下去？这已经是无法逆转的已经发生的真正的实力的基础，这就是我们新中国联邦……真正未来的力量！
+2022.08.03 佩洛西访台 引发全球政治海啸
 
-<img src="https://media.gettr.com/group46/getter/2022/08/03/17/9670ba61-d020-abcf-c906-8b40ec7609e8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/08/03/20/9177ae84-c96f-3cbc-d73e-9c73067c16bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,20 +179,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 8/2/2022 Miles Guo’s GETTR: The U.S. military will be permanently stationed in Taiwan and Asia, protecting oil transportation through the Malacca and Hormuz Straits. Communism China’s era of disaster starts from this moment. Chines...
 
 <img src="https://media.gettr.com/group29/getter/2022/08/02/22/cd5e0df8-df5c-8288-008b-e8b82088dcef/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1kuf0n7e5d.md)
-
-（4K版）《第二十二篇·种族歧视》 2022-08-02
-
-For English：gettr.com/post/p1kud30e0ea
-
-
-
-#PAX #LUC #种族歧视 #南区法院
-
-<img src="https://media.gettr.com/group23/origin/2022/08/02/22/20e3e807-4655-3fa2-c4dc-0ce90ca469a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
