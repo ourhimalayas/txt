@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 8/3/2022 11:46 AM UTC ](/content/gettr/p1kxfvv0107.md)
+
+2022.08.03 
+
+
+
+尊敬的战友们好！今天星期三的大直播将在9:30左右开始，一会儿打直播见！❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
+
+---
+
 [@miles 8/3/2022 8:20 AM UTC  - :tv:直播](/content/gettr/p1kwfkm9662.md)
 
 7/31/2022 Miles Guo: The Vice President of the US may visit Taiwan as well. The US aircraft carriers will be permanently stationed in Asia to blockade the CCP. Xi Jinping doesn't care if the Lao Baixing live or die, and he will jus...
@@ -10,13 +20,15 @@
 
 ---
 
-[@miles 8/3/2022 11:46 AM UTC ](/content/gettr/p1kxfvv0107.md)
+[@miles 8/3/2022 12:44 PM UTC  - :tv:直播](/content/gettr/p1ky4aoddad.md)
 
-2022.08.03 
+2022.08.03 文贵大直播：从台湾独立看新中国联邦的未来
 
 
 
-尊敬的战友们好！今天星期三的大直播将在9:30左右开始，一会儿打直播见！❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
+
+
+<img src="https://media.gettr.com/group30/origin/2022/08/03/12/60e604fe-abb4-831a-2113-12685481911a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +195,6 @@ For English：gettr.com/post/p1kud30e0ea
 8/1/2022 文贵直播...
 
 <img src="https://media.gettr.com/group17/getter/2022/08/02/22/76fff4c7-88d2-0e97-303a-50e09f5e41d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 6:57 PM UTC  - 2圖](/content/gettr/p1ktte00107.md)
-
-2022.08.02 共产党你完了！
-
-<img src="https://media.gettr.com/group24/getter/2022/08/02/18/d82bb5ef-c1d6-043b-7fd6-04cd5d9e66d5/086a96eb9162da5f8bc99770ec273410.jpg" width="506" height="284">
 
 ---
 
