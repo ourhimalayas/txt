@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/3/2022 2:43 AM UTC ](/content/gettr/p1kvl2p36dc.md)
+
+2022.08.02 👉👉👉👉👉👉👉👉授勋仪式…………就问你们服不服💪💪💪💪💪💪💪💪
+
+<img src="https://media.gettr.com/group41/getter/2022/08/03/02/5b1a44b8-3295-3233-7d30-6f51cf3d633e/dd46241a0b3351f8f0b702f6e80f4e01.jpg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 2:15 AM UTC  - :tv:直播](/content/gettr/p1kvtx24c54.md)
 
 8/1/2022 Miles Guo：We lost completely in today's hearing, but it doesn't mean things are over as we still have the right to appeal. We will use the grounds of procedural justice and facts to challenge all the false accusations agai...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 8/3/2022 2:43 AM UTC ](/content/gettr/p1kvl2p36dc.md)
+[@miles 8/3/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1kvjq04882.md)
 
-2022.08.02 👉👉👉👉👉👉👉👉授勋仪式…………就问你们服不服💪💪💪💪💪💪💪💪
+8/2/2022 Miles Guo: The CCP's fall will shock the world more than the Fall of the Berlin Wall and the collapse of the Soviet Union. We must keep going on like Taiwaness did until the Chinese Communism Party is taken down！We will  l...
 
-<img src="https://media.gettr.com/group41/getter/2022/08/03/02/5b1a44b8-3295-3233-7d30-6f51cf3d633e/dd46241a0b3351f8f0b702f6e80f4e01.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/08/03/04/65cb3fb3-5b2a-ef5d-1510-4bcf3b125e62/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,18 +209,6 @@ For English：gettr.com/post/p1kud30e0ea
 2022.08.02 佩洛西访台 全球视角
 
 <img src="https://media.gettr.com/group3/origin/2022/08/02/15/1621691d-4227-f1d3-e170-37808ed7e15f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 3:35 PM UTC  - :tv:直播](/content/gettr/p1ks53u7dc2.md)
-
-7/31/2022: Miles Guo: The CCP and the U.S. may sign an agreement similar to the Plaza Accord between the US and Japan in exchange for the survival of the CCP, of which the economy is doomed.
-
-
-
-7/31/2022 文贵直播：中共可能会与美国达成类似美日签署的“广场协议...
-
-<img src="https://media.gettr.com/group35/getter/2022/08/02/15/7a9db7bc-6c56-6520-bcc7-7216f6aae689/out.jpg" width="506" height="284">
 
 ---
 
