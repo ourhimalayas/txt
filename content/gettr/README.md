@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 8/3/2022 12:44 PM UTC  - :tv:直播](/content/gettr/p1ky4aoddad.md)
+
+2022.08.03 文贵大直播：从台湾独立看新中国联邦的未来
+
+
+
+
+
+<img src="https://media.gettr.com/group30/origin/2022/08/03/12/60e604fe-abb4-831a-2113-12685481911a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 11:46 AM UTC ](/content/gettr/p1kxfvv0107.md)
 
 2022.08.03 
@@ -20,15 +32,19 @@
 
 ---
 
-[@miles 8/3/2022 12:44 PM UTC  - :tv:直播](/content/gettr/p1ky4aoddad.md)
+[@gfashion 8/3/2022 4:18 PM UTC  - 6圖](/content/gettr/p1kyysm9f83.md)
 
-2022.08.03 文贵大直播：从台湾独立看新中国联邦的未来
-
-
+Dear valued GFashion customers,
 
 
 
-<img src="https://media.gettr.com/group30/origin/2022/08/03/12/60e604fe-abb4-831a-2113-12685481911a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+We have been reviewing all of your feedback, comments and concerns about some of the sizing for our products and would like to thank you! 
+
+
+
+If you have had sizing issues with any of these items,...
+
+<img src="https://media.gettr.com/group42/getter/2022/08/03/16/12a88ad7-14f2-2346-e52a-29e03b24ebc4/72c938c468e97cfd157ad6f778b8aca3.jpg" width="506" height="284">
 
 ---
 
