@@ -2,6 +2,20 @@
 ---
 
 
+[@realfayfay 8/4/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1l471a8da7.md)
+
+（1080版）《八月四日·听证会》 2022-08-04
+
+For English：gettr.com/streaming/p1l4g4i7445
+
+ 
+
+#PAX #LUC #利益冲突 #听证会
+
+<img src="https://media.gettr.com/group3/origin/2022/08/04/16/f80feae9-8433-0311-b987-34854741f6bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/4/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1l42ojc8e3.md)
 
 2022.08.04 尊敬的战友们好．共产党的再次所谓的封锁台湾……已经被台军和联军彻底地给吓跑了，他再一次证明了他们是擀面杖的军队……证明了爆料以来，我们一直告诉全世界．中国的擀面杖经济……擀面杖子科技．擀面杖的军事的事实．这是所有中国人的悲哀和悲剧，同时让我们看到了事实是中国共产党灭亡是必然的，马上会发生的。
@@ -38,17 +52,13 @@
 
 ---
 
-[@realfayfay 8/4/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1l471a8da7.md)
+[@miles 8/4/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1l5oq50e1c.md)
 
-（1080版）《八月四日·听证会》 2022-08-04
+2022.08.04 Nicole 看七哥 第十一期  长岛市长眼中的郭先生
 
-For English：gettr.com/streaming/p1l4g4i7445
 
- 
 
-#PAX #LUC #利益冲突 #听证会
-
-<img src="https://media.gettr.com/group3/origin/2022/08/04/16/f80feae9-8433-0311-b987-34854741f6bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,16 +201,6 @@ If you have had sizing issues with any of these items,...
 
 
 <img src="https://media.gettr.com/group30/origin/2022/08/03/12/60e604fe-abb4-831a-2113-12685481911a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 11:46 AM UTC ](/content/gettr/p1kxfvv0107.md)
-
-2022.08.03 
-
-
-
-尊敬的战友们好！今天星期三的大直播将在9:30左右开始，一会儿打直播见！❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 
 ---
 
