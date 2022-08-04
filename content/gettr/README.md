@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/3/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p1l0ieu449e.md)
+
+8/3/2022 Miles Guo: Soft Power (i.e., obtaining the support of the people) is what the CCP cares a lot about. The CCP believes that Chinese culture is not compatible with democracy, human rights, and rule of law. However, Speaker N...
+
+<img src="https://media.gettr.com/group6/getter/2022/08/03/23/81036d65-02e5-135b-1b54-e2c57bdad65a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 10:23 PM UTC  - :tv:直播](/content/gettr/p1l0u6gc812.md)
 
 （1080版）《佩洛西访台》 2022-08-03
@@ -18,11 +26,11 @@ For English：gettr.com/post/p1l0hgj5278
 
 ---
 
-[@miles 8/3/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p1l0ieu449e.md)
+[@miles 8/4/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1l0qzo5e83.md)
 
-8/3/2022 Miles Guo: Soft Power (i.e., obtaining the support of the people) is what the CCP cares a lot about. The CCP believes that Chinese culture is not compatible with democracy, human rights, and rule of law. However, Speaker N...
+8/3/2022 Miles Guo: Intelligence will lose its value and become useless if it is used at a wrong time; The U.S. military is not almighty, and there are so many factors the U.S. has to consider prior to forming a military alliance w...
 
-<img src="https://media.gettr.com/group6/getter/2022/08/03/23/81036d65-02e5-135b-1b54-e2c57bdad65a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/08/04/00/be1bec72-f5cb-14e8-dbec-64a9830facfe/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,14 +213,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 
 
 <img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/2/2022 9:15 PM UTC  - :tv:直播](/content/gettr/p1ktwtc96c7.md)
-
-2022. 08.02 Nicole 看七哥 第九期  工作中的郭先生 vs 生活中的七哥
-
-<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
