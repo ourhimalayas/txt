@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 8/4/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p1l2f7h7d1e.md)
+
+8/3/2022 Miles Guo: Although the New Zealand government, which has been infiltrated by the CCP’s BGY Scheme, falsely accused the Himalaya Exchange of money laundering and fraud, the attorney of Himalaya Exchange failed this malicio...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/04/07/8494955a-4f94-0f9d-d8ba-4431e5070bf8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/4/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1l2iwsd2e7.md)
 
 8/3/2022 Miles Guo: The U.S. military has actually been well-prepared for confronting and destroying the CCP with the hope that the CCP could take the initiative by launching an attack, but the CCP is so disappointing and made no m...
 
 <img src="https://media.gettr.com/group34/getter/2022/08/04/06/4db5e4d2-1a8e-94af-ce3f-11ec0d792fe2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/4/2022 7:09 AM UTC  - :tv:直播](/content/gettr/p1l2fls5a27.md)
+
+8/3/2022 Miles Guo: Singapore is one of four places where Chinese Communist Party (CCP)'s kleptocrats hide their money. The US will force Singapore, along with Taiwan, Japan, Thailand, Malaysia, and other Asian countries to cut tie...
+
+<img src="https://media.gettr.com/group42/getter/2022/08/04/07/a6983f6c-fb23-8df0-edd9-1dc6ba94c1e7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/4/2022 6:58 AM UTC  - :tv:直播](/content/gettr/p1l2odu0dcd.md)
+
+8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, deploy military ...
+
+<img src="https://media.gettr.com/group37/getter/2022/08/04/06/ac50ba7f-9b0d-5827-95ee-13fff48c0e16/out.jpg" width="506" height="284">
 
 ---
 
@@ -55,14 +79,6 @@ For English：gettr.com/post/p1l0hgj5278
 
 
 <img src="https://media.gettr.com/group11/origin/2022/08/03/22/740227f5-1ea2-82c2-2ab7-bb55ca007f6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 6:58 AM UTC  - :tv:直播](/content/gettr/p1l2odu0dcd.md)
-
-8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, deploy military ...
-
-<img src="https://media.gettr.com/group37/getter/2022/08/04/06/ac50ba7f-9b0d-5827-95ee-13fff48c0e16/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,22 +193,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 8/2/2022 Miles Guo: The CCP's fall will shock the world more than the Fall of the Berlin Wall and the collapse of the Soviet Union. We must keep going on like Taiwaness did until the Chinese Communism Party is taken down！We will  l...
 
 <img src="https://media.gettr.com/group22/getter/2022/08/03/04/65cb3fb3-5b2a-ef5d-1510-4bcf3b125e62/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 2:43 AM UTC ](/content/gettr/p1kvl2p36dc.md)
-
-2022.08.02 👉👉👉👉👉👉👉👉授勋仪式…………就问你们服不服💪💪💪💪💪💪💪💪
-
-<img src="https://media.gettr.com/group41/getter/2022/08/03/02/5b1a44b8-3295-3233-7d30-6f51cf3d633e/dd46241a0b3351f8f0b702f6e80f4e01.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 2:22 AM UTC ](/content/gettr/p1kv4r12e1f.md)
-
-2022.08.02 我真的快笑晕在厕所了，太有意思了．伟大的中国人。【微信圈： 不打我认了，但我想说的是，能不能保住最后的尊严，让她落地先做个核酸】
-
-<img src="https://media.gettr.com/group30/getter/2022/08/03/02/5a61a25f-24da-9539-c72f-6941865dc56b/75ed94ef4cf2467488404ff1b97e4b5a.jpg" width="506" height="284">
 
 ---
 
