@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/4/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1l0qzo5e83.md)
+
+8/3/2022 Miles Guo: Intelligence will lose its value and become useless if it is used at a wrong time; The U.S. military is not almighty, and there are so many factors the U.S. has to consider prior to forming a military alliance w...
+
+<img src="https://media.gettr.com/group44/getter/2022/08/04/00/be1bec72-f5cb-14e8-dbec-64a9830facfe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/3/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p1l0ieu449e.md)
 
 8/3/2022 Miles Guo: Soft Power (i.e., obtaining the support of the people) is what the CCP cares a lot about. The CCP believes that Chinese culture is not compatible with democracy, human rights, and rule of law. However, Speaker N...
@@ -26,11 +34,11 @@ For English：gettr.com/post/p1l0hgj5278
 
 ---
 
-[@miles 8/4/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1l0qzo5e83.md)
+[@miles 8/4/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1l0to422d1.md)
 
-8/3/2022 Miles Guo: Intelligence will lose its value and become useless if it is used at a wrong time; The U.S. military is not almighty, and there are so many factors the U.S. has to consider prior to forming a military alliance w...
+8/3/2022 Miles Guo: I am the first one to tell the world that the US, Australia, and Japan very much want the CCP to start the war. Because they are very clear that if they don't take down the CCP, they will be destroyed by the CCP...
 
-<img src="https://media.gettr.com/group44/getter/2022/08/04/00/be1bec72-f5cb-14e8-dbec-64a9830facfe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/08/04/00/24c60984-f3b8-6b76-209d-50ed409d1a5a/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,34 +193,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 2022-08-02与J有约-第114期：粉红女郎-佩洛西，世界进入女性时代
 
 <img src="https://media.gettr.com/group24/origin/2022/08/01/00/5170bcbf-66b5-1752-0c3d-4ef1c89dc8ed/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@newyorkrock 8/3/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1kulu23619.md)
-
-《战》
-
-第一季 续篇《观 战》贰
-
-佩洛希的毕业旅行-抵达台湾（将）接受蔡英文总统授勋!!!
-
-#磐石农场
-
-威廉王 青藤
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-
-
-<img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
