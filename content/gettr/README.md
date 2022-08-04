@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 8/4/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p1l2f7h7d1e.md)
-
-8/3/2022 Miles Guo: Although the New Zealand government, which has been infiltrated by the CCP’s BGY Scheme, falsely accused the Himalaya Exchange of money laundering and fraud, the attorney of Himalaya Exchange failed this malicio...
-
-<img src="https://media.gettr.com/group11/getter/2022/08/04/07/8494955a-4f94-0f9d-d8ba-4431e5070bf8/out.jpg" width="506" height="284">
-
----
-
 [@realfayfay 8/4/2022 2:05 AM UTC  - 2圖](/content/gettr/p1l1ucx5995.md)
 
 美东时间8.4.2022（明天）中午12点听证会继续。我们会回顾一下官司相关的事件。正式会议时间会从下午1点开始。
@@ -19,6 +11,22 @@
 大家可以拨打以下电话去旁听听证会实况：Bridgeport: 1-877-336-1274 Access Code: 1077800
 
 <img src="https://media.gettr.com/group20/origin/2022/08/04/02/b2fe502a-08c4-4610-b3f2-156059dc12e4/cf647a1ef757dcac7e26faf9816f4b2b.jpg" width="506" height="284">
+
+---
+
+[@miles 8/4/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p1l2f7h7d1e.md)
+
+8/3/2022 Miles Guo: Although the New Zealand government, which has been infiltrated by the CCP’s BGY Scheme, falsely accused the Himalaya Exchange of money laundering and fraud, the attorney of Himalaya Exchange failed this malicio...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/04/07/8494955a-4f94-0f9d-d8ba-4431e5070bf8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/4/2022 2:16 PM UTC  - 3圖](/content/gettr/p1l3h7c4a00.md)
+
+2022.08.04 【原定三天，几个小时就结束了，敢情孙子们被吓回来了 世界级搞笑大师……快笑断气了……】【观看量82.8万，更多了😊】偷数据的人睡着了？
+
+<img src="https://media.gettr.com/group38/getter/2022/08/04/14/1a4b7ec5-59af-0f96-17ba-e906dd2ab4d2/d14c6fe07f3965b754d88d8d514c1306.jpg" width="506" height="284">
 
 ---
 
@@ -187,16 +195,6 @@ If you have had sizing issues with any of these items,...
 7/31/2022 Miles Guo: We don’t want wars or extreme approaches. Instead, we hope the Chinese people will pay the minimal price for taking down the CCP and have a smooth transition to electing a democratic government by one person, o...
 
 <img src="https://media.gettr.com/group33/getter/2022/08/03/08/5a773483-ea74-3780-bd6e-b4bc778dded0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 5:46 AM UTC  - :tv:直播](/content/gettr/p1kwe2vfb75.md)
-
-8/2/2022 Miles Guo’s GETTR: Nancy Pelosi and Tsai Ing-wen, two women, changed the world! 
-
-In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to do nothing but watch. Look at what those old shameless trait...
-
-<img src="https://media.gettr.com/group12/getter/2022/08/03/05/aa38769d-0912-273c-07e7-d3f1a19560e9/out.jpg" width="506" height="284">
 
 ---
 
