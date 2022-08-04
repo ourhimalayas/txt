@@ -10,11 +10,15 @@
 
 ---
 
-[@miles 8/4/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1l2iwsd2e7.md)
+[@realfayfay 8/4/2022 2:05 AM UTC  - 2圖](/content/gettr/p1l1ucx5995.md)
 
-8/3/2022 Miles Guo: The U.S. military has actually been well-prepared for confronting and destroying the CCP with the hope that the CCP could take the initiative by launching an attack, but the CCP is so disappointing and made no m...
+美东时间8.4.2022（明天）中午12点听证会继续。我们会回顾一下官司相关的事件。正式会议时间会从下午1点开始。
 
-<img src="https://media.gettr.com/group34/getter/2022/08/04/06/4db5e4d2-1a8e-94af-ce3f-11ec0d792fe2/out.jpg" width="506" height="284">
+直播会在@RealFayFay 和 @GTranslators_2 中英文同时直播。
+
+大家可以拨打以下电话去旁听听证会实况：Bridgeport: 1-877-336-1274 Access Code: 1077800
+
+<img src="https://media.gettr.com/group20/origin/2022/08/04/02/b2fe502a-08c4-4610-b3f2-156059dc12e4/cf647a1ef757dcac7e26faf9816f4b2b.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +27,14 @@
 8/3/2022 Miles Guo: Singapore is one of four places where Chinese Communist Party (CCP)'s kleptocrats hide their money. The US will force Singapore, along with Taiwan, Japan, Thailand, Malaysia, and other Asian countries to cut tie...
 
 <img src="https://media.gettr.com/group42/getter/2022/08/04/07/a6983f6c-fb23-8df0-edd9-1dc6ba94c1e7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/4/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1l2iwsd2e7.md)
+
+8/3/2022 Miles Guo: The U.S. military has actually been well-prepared for confronting and destroying the CCP with the hope that the CCP could take the initiative by launching an attack, but the CCP is so disappointing and made no m...
+
+<img src="https://media.gettr.com/group34/getter/2022/08/04/06/4db5e4d2-1a8e-94af-ce3f-11ec0d792fe2/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +197,6 @@ If you have had sizing issues with any of these items,...
 In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to do nothing but watch. Look at what those old shameless trait...
 
 <img src="https://media.gettr.com/group12/getter/2022/08/03/05/aa38769d-0912-273c-07e7-d3f1a19560e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1kvjq04882.md)
-
-8/2/2022 Miles Guo: The CCP's fall will shock the world more than the Fall of the Berlin Wall and the collapse of the Soviet Union. We must keep going on like Taiwaness did until the Chinese Communism Party is taken down！We will  l...
-
-<img src="https://media.gettr.com/group22/getter/2022/08/03/04/65cb3fb3-5b2a-ef5d-1510-4bcf3b125e62/out.jpg" width="506" height="284">
 
 ---
 
