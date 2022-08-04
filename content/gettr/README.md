@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/4/2022 2:16 PM UTC  - 3圖](/content/gettr/p1l3h7c4a00.md)
+
+2022.08.04 【原定三天，几个小时就结束了，敢情孙子们被吓回来了 世界级搞笑大师……快笑断气了……】【观看量82.8万，更多了😊】偷数据的人睡着了？
+
+<img src="https://media.gettr.com/group38/getter/2022/08/04/14/1a4b7ec5-59af-0f96-17ba-e906dd2ab4d2/d14c6fe07f3965b754d88d8d514c1306.jpg" width="506" height="284">
+
+---
+
 [@realfayfay 8/4/2022 2:05 AM UTC  - 2圖](/content/gettr/p1l1ucx5995.md)
 
 美东时间8.4.2022（明天）中午12点听证会继续。我们会回顾一下官司相关的事件。正式会议时间会从下午1点开始。
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 8/4/2022 2:16 PM UTC  - 3圖](/content/gettr/p1l3h7c4a00.md)
+[@miles 8/4/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1l42ojc8e3.md)
 
-2022.08.04 【原定三天，几个小时就结束了，敢情孙子们被吓回来了 世界级搞笑大师……快笑断气了……】【观看量82.8万，更多了😊】偷数据的人睡着了？
+2022.08.04 尊敬的战友们好．共产党的再次所谓的封锁台湾……已经被台军和联军彻底地给吓跑了，他再一次证明了他们是擀面杖的军队……证明了爆料以来，我们一直告诉全世界．中国的擀面杖经济……擀面杖子科技．擀面杖的军事的事实．这是所有中国人的悲哀和悲剧，同时让我们看到了事实是中国共产党灭亡是必然的，马上会发生的。
 
-<img src="https://media.gettr.com/group38/getter/2022/08/04/14/1a4b7ec5-59af-0f96-17ba-e906dd2ab4d2/d14c6fe07f3965b754d88d8d514c1306.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/08/04/14/393f99df-ab14-b040-97c6-c0994bf42155/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ If you have had sizing issues with any of these items,...
 
 
 尊敬的战友们好！今天星期三的大直播将在9:30左右开始，一会儿打直播见！❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
-
----
-
-[@miles 8/3/2022 8:20 AM UTC  - :tv:直播](/content/gettr/p1kwfkm9662.md)
-
-7/31/2022 Miles Guo: The Vice President of the US may visit Taiwan as well. The US aircraft carriers will be permanently stationed in Asia to blockade the CCP. Xi Jinping doesn't care if the Lao Baixing live or die, and he will jus...
-
-<img src="https://media.gettr.com/group3/getter/2022/08/03/08/df9dfe49-5497-1bb8-230a-bc67ebe5bfef/out.jpg" width="506" height="284">
 
 ---
 
