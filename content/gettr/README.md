@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 8/4/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1l2iwsd2e7.md)
+
+8/3/2022 Miles Guo: The U.S. military has actually been well-prepared for confronting and destroying the CCP with the hope that the CCP could take the initiative by launching an attack, but the CCP is so disappointing and made no m...
+
+<img src="https://media.gettr.com/group34/getter/2022/08/04/06/4db5e4d2-1a8e-94af-ce3f-11ec0d792fe2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/4/2022 1:33 AM UTC  - :tv:直播](/content/gettr/p1l1gsb4c1d.md)
+
+2022.08.03 中国绝对不缺明白人……大明白人！
+
+<img src="https://media.gettr.com/group27/getter/2022/08/04/01/a8c2d9e0-d06d-1c41-42c6-facacdac287e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/4/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1l0to422d1.md)
 
 8/3/2022 Miles Guo: I am the first one to tell the world that the US, Australia, and Japan very much want the CCP to start the war. Because they are very clear that if they don't take down the CCP, they will be destroyed by the CCP...
@@ -42,11 +58,11 @@ For English：gettr.com/post/p1l0hgj5278
 
 ---
 
-[@miles 8/4/2022 1:33 AM UTC  - :tv:直播](/content/gettr/p1l1gsb4c1d.md)
+[@miles 8/4/2022 6:58 AM UTC  - :tv:直播](/content/gettr/p1l2odu0dcd.md)
 
-2022.08.03 中国绝对不缺明白人……大明白人！
+8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, deploy military ...
 
-<img src="https://media.gettr.com/group27/getter/2022/08/04/01/a8c2d9e0-d06d-1c41-42c6-facacdac287e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/08/04/06/ac50ba7f-9b0d-5827-95ee-13fff48c0e16/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,27 +188,11 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 
 ---
 
-[@miles 8/3/2022 2:15 AM UTC  - :tv:直播](/content/gettr/p1kvtx24c54.md)
-
-8/1/2022 Miles Guo：We lost completely in today's hearing, but it doesn't mean things are over as we still have the right to appeal. We will use the grounds of procedural justice and facts to challenge all the false accusations agai...
-
-<img src="https://media.gettr.com/group4/getter/2022/08/03/02/575a14cd-af56-60df-54cc-13a6d1113460/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/3/2022 2:22 AM UTC ](/content/gettr/p1kv4r12e1f.md)
 
 2022.08.02 我真的快笑晕在厕所了，太有意思了．伟大的中国人。【微信圈： 不打我认了，但我想说的是，能不能保住最后的尊严，让她落地先做个核酸】
 
 <img src="https://media.gettr.com/group30/getter/2022/08/03/02/5a61a25f-24da-9539-c72f-6941865dc56b/75ed94ef4cf2467488404ff1b97e4b5a.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 2:11 AM UTC  - :tv:直播](/content/gettr/p1kuzicabd5.md)
-
-8/2/2022 Miles Guo: In all the events happening around the world including Nancy Pelosi’s visit to Taiwan, the NFSC people have been playing a critical role in them as unsung heroes. The successful landing of U.S. House Speaker Nan...
-
-<img src="https://media.gettr.com/group25/getter/2022/08/03/02/d9307348-771b-e37b-c3b5-29010a6fddb2/out.jpg" width="506" height="284">
 
 ---
 
