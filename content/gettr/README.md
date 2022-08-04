@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/4/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1l42ojc8e3.md)
+
+2022.08.04 尊敬的战友们好．共产党的再次所谓的封锁台湾……已经被台军和联军彻底地给吓跑了，他再一次证明了他们是擀面杖的军队……证明了爆料以来，我们一直告诉全世界．中国的擀面杖经济……擀面杖子科技．擀面杖的军事的事实．这是所有中国人的悲哀和悲剧，同时让我们看到了事实是中国共产党灭亡是必然的，马上会发生的。
+
+<img src="https://media.gettr.com/group40/getter/2022/08/04/14/393f99df-ab14-b040-97c6-c0994bf42155/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/4/2022 2:16 PM UTC  - 3圖](/content/gettr/p1l3h7c4a00.md)
 
 2022.08.04 【原定三天，几个小时就结束了，敢情孙子们被吓回来了 世界级搞笑大师……快笑断气了……】【观看量82.8万，更多了😊】偷数据的人睡着了？
@@ -30,11 +38,17 @@
 
 ---
 
-[@miles 8/4/2022 2:36 PM UTC  - :tv:直播](/content/gettr/p1l42ojc8e3.md)
+[@realfayfay 8/4/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1l471a8da7.md)
 
-2022.08.04 尊敬的战友们好．共产党的再次所谓的封锁台湾……已经被台军和联军彻底地给吓跑了，他再一次证明了他们是擀面杖的军队……证明了爆料以来，我们一直告诉全世界．中国的擀面杖经济……擀面杖子科技．擀面杖的军事的事实．这是所有中国人的悲哀和悲剧，同时让我们看到了事实是中国共产党灭亡是必然的，马上会发生的。
+（1080版）《八月四日·听证会》 2022-08-04
 
-<img src="https://media.gettr.com/group40/getter/2022/08/04/14/393f99df-ab14-b040-97c6-c0994bf42155/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p1l4g4i7445
+
+ 
+
+#PAX #LUC #利益冲突 #听证会
+
+<img src="https://media.gettr.com/group3/origin/2022/08/04/16/f80feae9-8433-0311-b987-34854741f6bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +201,6 @@ If you have had sizing issues with any of these items,...
 
 
 尊敬的战友们好！今天星期三的大直播将在9:30左右开始，一会儿打直播见！❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
-
----
-
-[@miles 8/3/2022 8:24 AM UTC  - :tv:直播](/content/gettr/p1kwlkob8b4.md)
-
-7/31/2022 Miles Guo: We don’t want wars or extreme approaches. Instead, we hope the Chinese people will pay the minimal price for taking down the CCP and have a smooth transition to electing a democratic government by one person, o...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/03/08/5a773483-ea74-3780-bd6e-b4bc778dded0/out.jpg" width="506" height="284">
 
 ---
 
