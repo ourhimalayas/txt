@@ -2,6 +2,20 @@
 ---
 
 
+[@lng123 8/4/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1l4y8xdf55.md)
+
+今天朋友圈有人上載《茶館》片段，老舍先生66年前寫的台詞：“沒打起來吧？沒那根雞冠翎子，就別裝老鷹”。“我打不了洋人，我還打不了你嗎？”又火了。
+
+🔥🔥🔥
+
+
+
+#台海局势 
+
+<img src="https://media.gettr.com/group24/getter/2022/08/04/17/5088b407-1f41-17de-1798-53fa39766e3c/out.jpg" width="506" height="284">
+
+---
+
 [@shibinzhang 8/4/2022 9:50 PM UTC ](/content/gettr/p1l63z52a2b.md)
 
 重庆，仙厨是重庆一家非常有名，菜品好吃的餐厅。疫情叠加经济下行，餐饮老板跳江！一个如此奋斗努力的人竟选择死亡来逃避中共高压的生存环境，这就是ccp赐给中国人的盛世。
@@ -70,17 +84,15 @@ For English：gettr.com/streaming/p1l4g4i7445
 
 ---
 
-[@lng123 8/4/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1l4y8xdf55.md)
+[@miles 8/4/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1l5uxm63d2.md)
 
-今天朋友圈有人上載《茶館》片段，老舍先生66年前寫的台詞：“沒打起來吧？沒那根雞冠翎子，就別裝老鷹”。“我打不了洋人，我還打不了你嗎？”又火了。
-
-🔥🔥🔥
+8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!
 
 
 
-#台海局势 
+...
 
-<img src="https://media.gettr.com/group24/getter/2022/08/04/17/5088b407-1f41-17de-1798-53fa39766e3c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/08/04/23/4225779e-99bc-aaca-2f3a-f9c5f371fba2/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +199,6 @@ For English：gettr.com/post/p1l0hgj5278
 2022.08.03 佩洛西访台 引发全球政治海啸
 
 <img src="https://media.gettr.com/group7/origin/2022/08/03/20/9177ae84-c96f-3cbc-d73e-9c73067c16bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 5:19 PM UTC  - :tv:直播](/content/gettr/p1kzf3o454a.md)
-
-2022.08.03 尊敬的战友们好——今天的直播中忘掉了重点中的重点，就是在世界金融货币区块链化市场化时，以及世界上随着量子技术的诞生，必将会发生的科技发展时代到来之后，新中国联邦定将成为世界上最重要的一极的力量，最重要的就是．是疫苗灾难后．谁能活下去？这已经是无法逆转的已经发生的真正的实力的基础，这就是我们新中国联邦……真正未来的力量！
-
-<img src="https://media.gettr.com/group46/getter/2022/08/03/17/9670ba61-d020-abcf-c906-8b40ec7609e8/out.jpg" width="506" height="284">
 
 ---
 
