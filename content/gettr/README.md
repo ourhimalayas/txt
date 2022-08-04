@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 8/4/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1l5oq50e1c.md)
+
+2022.08.04 Nicole 看七哥 第十一期  长岛市长眼中的郭先生
+
+
+
+<img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@realfayfay 8/4/2022 4:10 PM UTC  - :tv:直播](/content/gettr/p1l471a8da7.md)
 
 （1080版）《八月四日·听证会》 2022-08-04
@@ -52,13 +62,11 @@ For English：gettr.com/streaming/p1l4g4i7445
 
 ---
 
-[@miles 8/4/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1l5oq50e1c.md)
+[@shibinzhang 8/4/2022 9:50 PM UTC ](/content/gettr/p1l63z52a2b.md)
 
-2022.08.04 Nicole 看七哥 第十一期  长岛市长眼中的郭先生
+重庆，仙厨是重庆一家非常有名，菜品好吃的餐厅。疫情叠加经济下行，餐饮老板跳江！一个如此奋斗努力的人竟选择死亡来逃避中共高压的生存环境，这就是ccp赐给中国人的盛世。
 
-
-
-<img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/08/04/13/b8c22788-8e8c-954e-80fc-b1c2c1da61a0/5ece24c6bad27c60308de5c96207a594.jpg" width="506" height="284">
 
 ---
 
@@ -189,18 +197,6 @@ We have been reviewing all of your feedback, comments and concerns about some of
 If you have had sizing issues with any of these items,...
 
 <img src="https://media.gettr.com/group42/getter/2022/08/03/16/12a88ad7-14f2-2346-e52a-29e03b24ebc4/72c938c468e97cfd157ad6f778b8aca3.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 12:44 PM UTC  - :tv:直播](/content/gettr/p1ky4aoddad.md)
-
-2022.08.03 文贵大直播：从台湾独立看新中国联邦的未来
-
-
-
-
-
-<img src="https://media.gettr.com/group30/origin/2022/08/03/12/60e604fe-abb4-831a-2113-12685481911a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
