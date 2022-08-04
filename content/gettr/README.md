@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/4/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1l0to422d1.md)
+
+8/3/2022 Miles Guo: I am the first one to tell the world that the US, Australia, and Japan very much want the CCP to start the war. Because they are very clear that if they don't take down the CCP, they will be destroyed by the CCP...
+
+<img src="https://media.gettr.com/group32/getter/2022/08/04/00/24c60984-f3b8-6b76-209d-50ed409d1a5a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/4/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1l0qzo5e83.md)
 
 8/3/2022 Miles Guo: Intelligence will lose its value and become useless if it is used at a wrong time; The U.S. military is not almighty, and there are so many factors the U.S. has to consider prior to forming a military alliance w...
@@ -34,11 +42,11 @@ For English：gettr.com/post/p1l0hgj5278
 
 ---
 
-[@miles 8/4/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1l0to422d1.md)
+[@miles 8/4/2022 1:33 AM UTC  - :tv:直播](/content/gettr/p1l1gsb4c1d.md)
 
-8/3/2022 Miles Guo: I am the first one to tell the world that the US, Australia, and Japan very much want the CCP to start the war. Because they are very clear that if they don't take down the CCP, they will be destroyed by the CCP...
+2022.08.03 中国绝对不缺明白人……大明白人！
 
-<img src="https://media.gettr.com/group32/getter/2022/08/04/00/24c60984-f3b8-6b76-209d-50ed409d1a5a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/08/04/01/a8c2d9e0-d06d-1c41-42c6-facacdac287e/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ In contrast, Xi Jinping, who was said to be as powerful as the sun, was able to 
 8/2/2022 Miles Guo: In all the events happening around the world including Nancy Pelosi’s visit to Taiwan, the NFSC people have been playing a critical role in them as unsung heroes. The successful landing of U.S. House Speaker Nan...
 
 <img src="https://media.gettr.com/group25/getter/2022/08/03/02/d9307348-771b-e37b-c3b5-29010a6fddb2/out.jpg" width="506" height="284">
-
----
-
-[@jessicag 8/3/2022 12:29 AM UTC  - :tv:直播](/content/gettr/p1kuym7b1cf.md)
-
-2022-08-02与J有约-第114期：粉红女郎-佩洛西，世界进入女性时代
-
-<img src="https://media.gettr.com/group24/origin/2022/08/01/00/5170bcbf-66b5-1752-0c3d-4ef1c89dc8ed/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
