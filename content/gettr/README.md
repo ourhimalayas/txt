@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 8/4/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1l5uxm63d2.md)
+
+8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!
+
+
+
+...
+
+<img src="https://media.gettr.com/group21/getter/2022/08/04/23/4225779e-99bc-aaca-2f3a-f9c5f371fba2/out.jpg" width="506" height="284">
+
+---
+
 [@lng123 8/4/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1l4y8xdf55.md)
 
 今天朋友圈有人上載《茶館》片段，老舍先生66年前寫的台詞：“沒打起來吧？沒那根雞冠翎子，就別裝老鷹”。“我打不了洋人，我還打不了你嗎？”又火了。
@@ -84,15 +96,11 @@ For English：gettr.com/streaming/p1l4g4i7445
 
 ---
 
-[@miles 8/4/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1l5uxm63d2.md)
+[@miles 8/4/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1l678v3493.md)
 
-8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!
+8/4/2022 Miles Guo: There will be a major global economic collapse, and the CCP will be hurt most; The U.S. will force the CCP to make moves; All the CCP cadres’ overseas assets will be seized, and their family members will be take...
 
-
-
-...
-
-<img src="https://media.gettr.com/group21/getter/2022/08/04/23/4225779e-99bc-aaca-2f3a-f9c5f371fba2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/08/04/23/7ea00a3f-8045-236a-93f4-73b84a24221d/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ For English：gettr.com/post/p1l0hgj5278
 
 
 <img src="https://media.gettr.com/group24/origin/2022/08/03/21/9c51b6ab-8b63-bf41-76b4-5a0162194262/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 8:13 PM UTC  - :tv:直播](/content/gettr/p1kzhmfcc10.md)
-
-2022.08.03 佩洛西访台 引发全球政治海啸
-
-<img src="https://media.gettr.com/group7/origin/2022/08/03/20/9177ae84-c96f-3cbc-d73e-9c73067c16bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
