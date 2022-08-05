@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 8/5/2022 1:44 PM UTC  - :tv:直播](/content/gettr/p1l9bst44cc.md)
+
+2022年8月5日 七哥直播谈法律与道德 
+
+
+
+<img src="https://media.gettr.com/group45/origin/2022/08/05/13/bd3ad5f7-103e-7a66-7e72-d7f040310036/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguolive 8/5/2022 4:37 AM UTC  - :tv:直播](/content/gettr/p1l7imeb21d.md)
 
 0804大直播精华版
@@ -44,13 +54,13 @@
 
 ---
 
-[@miles 8/5/2022 1:44 PM UTC  - :tv:直播](/content/gettr/p1l9bst44cc.md)
+[@miles 8/5/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lb3j4e0ca.md)
 
-2022年8月5日 七哥直播谈法律与道德 
+2022.08.05 Nicole 看七哥 第十一期  与众不同的七哥
 
 
 
-<img src="https://media.gettr.com/group45/origin/2022/08/05/13/bd3ad5f7-103e-7a66-7e72-d7f040310036/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,14 +209,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 8/3/2022 Miles Guo: Singapore is one of four places where Chinese Communist Party (CCP)'s kleptocrats hide their money. The US will force Singapore, along with Taiwan, Japan, Thailand, Malaysia, and other Asian countries to cut tie...
 
 <img src="https://media.gettr.com/group42/getter/2022/08/04/07/a6983f6c-fb23-8df0-edd9-1dc6ba94c1e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 6:58 AM UTC  - :tv:直播](/content/gettr/p1l2odu0dcd.md)
-
-8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, deploy military ...
-
-<img src="https://media.gettr.com/group37/getter/2022/08/04/06/ac50ba7f-9b0d-5827-95ee-13fff48c0e16/out.jpg" width="506" height="284">
 
 ---
 
