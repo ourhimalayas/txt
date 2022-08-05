@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 8/5/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1las5z1b09.md)
+
+（1080版）《网络威胁》 2022-08-05
+
+For English：gettr.com/post/p1lb6v99219
+
+
+
+#CCP #单伟健 #杨贝贝 #网络威胁 
+
+
+
+<img src="https://media.gettr.com/group14/origin/2022/08/05/22/10749ad8-de3e-dac9-b3da-d97f14a01dd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/5/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lb3j4e0ca.md)
+
+2022.08.05 Nicole 看七哥 第十一期  与众不同的七哥
+
+
+
+<img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/5/2022 1:44 PM UTC  - :tv:直播](/content/gettr/p1l9bst44cc.md)
 
 2022年8月5日 七哥直播谈法律与道德 
@@ -54,13 +80,19 @@
 
 ---
 
-[@miles 8/5/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lb3j4e0ca.md)
+[@miles 8/5/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1lbavx5a90.md)
 
-2022.08.05 Nicole 看七哥 第十一期  与众不同的七哥
+（4K版）《网络威胁》 2022-08-05
+
+For English：gettr.com/post/p1lb6v99219
 
 
 
-<img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#CCP #单伟健 #杨贝贝 #网络威胁 
+
+
+
+<img src="https://media.gettr.com/group26/origin/2022/08/05/22/ced46f26-4bd1-543f-8279-c3e3efcddd48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,22 +225,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 大家可以拨打以下电话去旁听听证会实况：Bridgeport: 1-877-336-1274 Access Code: 1077800
 
 <img src="https://media.gettr.com/group20/origin/2022/08/04/02/b2fe502a-08c4-4610-b3f2-156059dc12e4/cf647a1ef757dcac7e26faf9816f4b2b.jpg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p1l2f7h7d1e.md)
-
-8/3/2022 Miles Guo: Although the New Zealand government, which has been infiltrated by the CCP’s BGY Scheme, falsely accused the Himalaya Exchange of money laundering and fraud, the attorney of Himalaya Exchange failed this malicio...
-
-<img src="https://media.gettr.com/group11/getter/2022/08/04/07/8494955a-4f94-0f9d-d8ba-4431e5070bf8/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 7:09 AM UTC  - :tv:直播](/content/gettr/p1l2fls5a27.md)
-
-8/3/2022 Miles Guo: Singapore is one of four places where Chinese Communist Party (CCP)'s kleptocrats hide their money. The US will force Singapore, along with Taiwan, Japan, Thailand, Malaysia, and other Asian countries to cut tie...
-
-<img src="https://media.gettr.com/group42/getter/2022/08/04/07/a6983f6c-fb23-8df0-edd9-1dc6ba94c1e7/out.jpg" width="506" height="284">
 
 ---
 
