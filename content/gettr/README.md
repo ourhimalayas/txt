@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 8/5/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1l79oze10d.md)
+
+8/4/2022 Miles Guo’s GETTR: Now people of Taiwan really know the true nature of the CCP, they should seize this opportunity and beat the CCP up; the US, Taiwan and Japan’s military have access to each of the PLA's decisions and mob...
+
+<img src="https://media.gettr.com/group48/getter/2022/08/05/04/ea7f9154-ab46-3dca-b16e-355d2c4ebc06/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 8/5/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1l61y2ef59.md)
 
 《战》
@@ -37,6 +45,14 @@
 #Nick
 
 <img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/5/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1l69y74a09.md)
+
+8/3/2022 Miles Guo: Zeng Qinghong benefits most from Nancy Pelosi's Taiwan visit, and he has the most followers within the CCP and its military; however due to the evil system of the CCP, Zeng inevitably became the slave to his fam...
+
+<img src="https://media.gettr.com/group33/getter/2022/08/04/23/77f83f46-0bcd-e11e-2000-ee0828a5f11c/out.jpg" width="506" height="284">
 
 ---
 
@@ -142,14 +158,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 
 ---
 
-[@miles 8/5/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1l69y74a09.md)
-
-8/3/2022 Miles Guo: Zeng Qinghong benefits most from Nancy Pelosi's Taiwan visit, and he has the most followers within the CCP and its military; however due to the evil system of the CCP, Zeng inevitably became the slave to his fam...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/04/23/77f83f46-0bcd-e11e-2000-ee0828a5f11c/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/4/2022 7:09 AM UTC  - :tv:直播](/content/gettr/p1l2fls5a27.md)
 
 8/3/2022 Miles Guo: Singapore is one of four places where Chinese Communist Party (CCP)'s kleptocrats hide their money. The US will force Singapore, along with Taiwan, Japan, Thailand, Malaysia, and other Asian countries to cut tie...
@@ -195,14 +203,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 8/3/2022 Miles Guo: Intelligence will lose its value and become useless if it is used at a wrong time; The U.S. military is not almighty, and there are so many factors the U.S. has to consider prior to forming a military alliance w...
 
 <img src="https://media.gettr.com/group44/getter/2022/08/04/00/be1bec72-f5cb-14e8-dbec-64a9830facfe/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p1l0ieu449e.md)
-
-8/3/2022 Miles Guo: Soft Power (i.e., obtaining the support of the people) is what the CCP cares a lot about. The CCP believes that Chinese culture is not compatible with democracy, human rights, and rule of law. However, Speaker N...
-
-<img src="https://media.gettr.com/group6/getter/2022/08/03/23/81036d65-02e5-135b-1b54-e2c57bdad65a/out.jpg" width="506" height="284">
 
 ---
 
