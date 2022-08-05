@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/5/2022 5:37 AM UTC  - :tv:直播](/content/gettr/p1l73wz677d.md)
+
+8/4/2022  Miles Guo:  We indirectly contributed to the success of the Speaker Nancy Pelosi's visit to Taiwan. The Speaker herself knows the NFSC and was touched by our support. The CCP's disgraceful reactions to her Taiwan visit, s...
+
+<img src="https://media.gettr.com/group27/getter/2022/08/05/05/5e612a73-b5eb-3416-b84a-db92712e5cd7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/5/2022 4:23 AM UTC  - :tv:直播](/content/gettr/p1l7ob9bf68.md)
 
 8/4/2022 Miles Guo’s GETTR:  The CCP’s live-fire military drills right after Nancy Pelosi’s Taiwan trip turned out to be a farce. It is so pathetic that only the Chinese people in mainland China continue to enjoy being brainwashed ...
@@ -26,11 +34,13 @@
 
 ---
 
-[@miles 8/5/2022 5:37 AM UTC  - :tv:直播](/content/gettr/p1l73wz677d.md)
+[@milesguolive 8/5/2022 4:37 AM UTC  - :tv:直播](/content/gettr/p1l7imeb21d.md)
 
-8/4/2022  Miles Guo:  We indirectly contributed to the success of the Speaker Nancy Pelosi's visit to Taiwan. The Speaker herself knows the NFSC and was touched by our support. The CCP's disgraceful reactions to her Taiwan visit, s...
+0804大直播精华版
 
-<img src="https://media.gettr.com/group27/getter/2022/08/05/05/5e612a73-b5eb-3416-b84a-db92712e5cd7/out.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group34/origin/2022/08/04/17/47c625d9-a5e6-dd3a-7998-c75a7dc56162/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -195,14 +205,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, deploy military ...
 
 <img src="https://media.gettr.com/group37/getter/2022/08/04/06/ac50ba7f-9b0d-5827-95ee-13fff48c0e16/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 1:33 AM UTC  - :tv:直播](/content/gettr/p1l1gsb4c1d.md)
-
-2022.08.03 中国绝对不缺明白人……大明白人！
-
-<img src="https://media.gettr.com/group27/getter/2022/08/04/01/a8c2d9e0-d06d-1c41-42c6-facacdac287e/out.jpg" width="506" height="284">
 
 ---
 
