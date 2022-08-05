@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/5/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1l79oze10d.md)
+
+8/4/2022 Miles Guo’s GETTR: Now people of Taiwan really know the true nature of the CCP, they should seize this opportunity and beat the CCP up; the US, Taiwan and Japan’s military have access to each of the PLA's decisions and mob...
+
+<img src="https://media.gettr.com/group48/getter/2022/08/05/04/ea7f9154-ab46-3dca-b16e-355d2c4ebc06/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/5/2022 12:00 AM UTC  - 2圖](/content/gettr/p1l69stc619.md)
 
 2022.08.04 尊敬的战友们好！科学家在此向战友们再次提出来吃青蒿素的建议，👉👉👉绝对不能连续吃超过三周青蒿素‼️‼️‼️中间间隔应该超过三周以上，伊维菌素更不能连续吃超过两周，‼️‼️‼️否则会严重的伤害肝脏的功能．导致．脱发．失眠等副作用……大家务必小心！🔥🔥🔥🔥🔥🔥‼️‼️‼️‼️‼️‼️‼️‼️‼️
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 8/5/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1l79oze10d.md)
+[@miles 8/5/2022 4:23 AM UTC  - :tv:直播](/content/gettr/p1l7ob9bf68.md)
 
-8/4/2022 Miles Guo’s GETTR: Now people of Taiwan really know the true nature of the CCP, they should seize this opportunity and beat the CCP up; the US, Taiwan and Japan’s military have access to each of the PLA's decisions and mob...
+8/4/2022 Miles Guo’s GETTR:  The CCP’s live-fire military drills right after Nancy Pelosi’s Taiwan trip turned out to be a farce. It is so pathetic that only the Chinese people in mainland China continue to enjoy being brainwashed ...
 
-<img src="https://media.gettr.com/group48/getter/2022/08/05/04/ea7f9154-ab46-3dca-b16e-355d2c4ebc06/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/08/05/04/e23c1b1c-5027-dbf2-248d-f14919e89be2/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 8/3/2022 Miles Guo: I am the first one to tell the world that the US, Australia, and Japan very much want the CCP to start the war. Because they are very clear that if they don't take down the CCP, they will be destroyed by the CCP...
 
 <img src="https://media.gettr.com/group32/getter/2022/08/04/00/24c60984-f3b8-6b76-209d-50ed409d1a5a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 12:26 AM UTC  - :tv:直播](/content/gettr/p1l0qzo5e83.md)
-
-8/3/2022 Miles Guo: Intelligence will lose its value and become useless if it is used at a wrong time; The U.S. military is not almighty, and there are so many factors the U.S. has to consider prior to forming a military alliance w...
-
-<img src="https://media.gettr.com/group44/getter/2022/08/04/00/be1bec72-f5cb-14e8-dbec-64a9830facfe/out.jpg" width="506" height="284">
 
 ---
 
