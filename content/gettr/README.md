@@ -2,6 +2,52 @@
 ---
 
 
+[@miles 8/5/2022 12:00 AM UTC  - 2圖](/content/gettr/p1l69stc619.md)
+
+2022.08.04 尊敬的战友们好！科学家在此向战友们再次提出来吃青蒿素的建议，👉👉👉绝对不能连续吃超过三周青蒿素‼️‼️‼️中间间隔应该超过三周以上，伊维菌素更不能连续吃超过两周，‼️‼️‼️否则会严重的伤害肝脏的功能．导致．脱发．失眠等副作用……大家务必小心！🔥🔥🔥🔥🔥🔥‼️‼️‼️‼️‼️‼️‼️‼️‼️
+
+<img src="https://media.gettr.com/group12/getter/2022/08/05/00/f8b76bdb-699a-0f1e-1d5c-d7ee63437ceb/da7ea5e7394afd90bfea0f069c894804.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 8/5/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1l61y2ef59.md)
+
+《战》
+
+第一季 续篇《观 战》叁
+
+中共扰台：长春围城2.0 结局出乎意料
+
+#磐石农场
+
+威廉王 Nick
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+#青藤
+
+#Nick
+
+<img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/4/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1l678v3493.md)
+
+8/4/2022 Miles Guo: There will be a major global economic collapse, and the CCP will be hurt most; The U.S. will force the CCP to make moves; All the CCP cadres’ overseas assets will be seized, and their family members will be take...
+
+<img src="https://media.gettr.com/group29/getter/2022/08/04/23/7ea00a3f-8045-236a-93f4-73b84a24221d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/4/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p1l5uxm63d2.md)
 
 8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!
@@ -96,11 +142,11 @@ For English：gettr.com/streaming/p1l4g4i7445
 
 ---
 
-[@miles 8/4/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1l678v3493.md)
+[@miles 8/5/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1l69y74a09.md)
 
-8/4/2022 Miles Guo: There will be a major global economic collapse, and the CCP will be hurt most; The U.S. will force the CCP to make moves; All the CCP cadres’ overseas assets will be seized, and their family members will be take...
+8/3/2022 Miles Guo: Zeng Qinghong benefits most from Nancy Pelosi's Taiwan visit, and he has the most followers within the CCP and its military; however due to the evil system of the CCP, Zeng inevitably became the slave to his fam...
 
-<img src="https://media.gettr.com/group29/getter/2022/08/04/23/7ea00a3f-8045-236a-93f4-73b84a24221d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/08/04/23/77f83f46-0bcd-e11e-2000-ee0828a5f11c/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,48 +203,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 8/3/2022 Miles Guo: Soft Power (i.e., obtaining the support of the people) is what the CCP cares a lot about. The CCP believes that Chinese culture is not compatible with democracy, human rights, and rule of law. However, Speaker N...
 
 <img src="https://media.gettr.com/group6/getter/2022/08/03/23/81036d65-02e5-135b-1b54-e2c57bdad65a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 10:23 PM UTC  - :tv:直播](/content/gettr/p1l0u6gc812.md)
-
-（1080版）《佩洛西访台》 2022-08-03
-
-For English：gettr.com/post/p1l0hgj5278
-
-
-
-#佩洛西访台 #台湾 #民心向郭 
-
-
-
-<img src="https://media.gettr.com/group11/origin/2022/08/03/22/740227f5-1ea2-82c2-2ab7-bb55ca007f6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 10:23 PM UTC  - :tv:直播](/content/gettr/p1l0r3w2c29.md)
-
-（4K版）《佩洛西访台》 2022-08-03
-
-For English：gettr.com/post/p1l0hgj5278
-
-
-
-#佩洛西访台 #台湾 #民心向郭 
-
-
-
-<img src="https://media.gettr.com/group10/origin/2022/08/03/22/000790f8-94a0-e9f4-7ead-bd591278cf03/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/3/2022 9:33 PM UTC  - :tv:直播](/content/gettr/p1l0q09b040.md)
-
-2022.08.03 Nicole 看七哥 第十期  为战友们赚钱的郭先生
-
-
-
-<img src="https://media.gettr.com/group24/origin/2022/08/03/21/9c51b6ab-8b63-bf41-76b4-5a0162194262/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
