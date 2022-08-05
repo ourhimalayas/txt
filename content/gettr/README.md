@@ -2,6 +2,16 @@
 ---
 
 
+[@milesguolive 8/5/2022 4:37 AM UTC  - :tv:直播](/content/gettr/p1l7imeb21d.md)
+
+0804大直播精华版
+
+
+
+<img src="https://media.gettr.com/group34/origin/2022/08/04/17/47c625d9-a5e6-dd3a-7998-c75a7dc56162/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/5/2022 5:37 AM UTC  - :tv:直播](/content/gettr/p1l73wz677d.md)
 
 8/4/2022  Miles Guo:  We indirectly contributed to the success of the Speaker Nancy Pelosi's visit to Taiwan. The Speaker herself knows the NFSC and was touched by our support. The CCP's disgraceful reactions to her Taiwan visit, s...
@@ -34,13 +44,13 @@
 
 ---
 
-[@milesguolive 8/5/2022 4:37 AM UTC  - :tv:直播](/content/gettr/p1l7imeb21d.md)
+[@miles 8/5/2022 1:44 PM UTC  - :tv:直播](/content/gettr/p1l9bst44cc.md)
 
-0804大直播精华版
+2022年8月5日 七哥直播谈法律与道德 
 
 
 
-<img src="https://media.gettr.com/group34/origin/2022/08/04/17/47c625d9-a5e6-dd3a-7998-c75a7dc56162/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/08/05/13/bd3ad5f7-103e-7a66-7e72-d7f040310036/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 8/3/2022 Miles Guo: Singapore is one of four places where Chinese Communist Party (CCP)'s kleptocrats hide their money. The US will force Singapore, along with Taiwan, Japan, Thailand, Malaysia, and other Asian countries to cut tie...
 
 <img src="https://media.gettr.com/group42/getter/2022/08/04/07/a6983f6c-fb23-8df0-edd9-1dc6ba94c1e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 6:46 AM UTC  - :tv:直播](/content/gettr/p1l2iwsd2e7.md)
-
-8/3/2022 Miles Guo: The U.S. military has actually been well-prepared for confronting and destroying the CCP with the hope that the CCP could take the initiative by launching an attack, but the CCP is so disappointing and made no m...
-
-<img src="https://media.gettr.com/group34/getter/2022/08/04/06/4db5e4d2-1a8e-94af-ce3f-11ec0d792fe2/out.jpg" width="506" height="284">
 
 ---
 
