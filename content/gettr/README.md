@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/5/2022 4:23 AM UTC  - :tv:直播](/content/gettr/p1l7ob9bf68.md)
+
+8/4/2022 Miles Guo’s GETTR:  The CCP’s live-fire military drills right after Nancy Pelosi’s Taiwan trip turned out to be a farce. It is so pathetic that only the Chinese people in mainland China continue to enjoy being brainwashed ...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/05/04/e23c1b1c-5027-dbf2-248d-f14919e89be2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/5/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1l79oze10d.md)
 
 8/4/2022 Miles Guo’s GETTR: Now people of Taiwan really know the true nature of the CCP, they should seize this opportunity and beat the CCP up; the US, Taiwan and Japan’s military have access to each of the PLA's decisions and mob...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 8/5/2022 4:23 AM UTC  - :tv:直播](/content/gettr/p1l7ob9bf68.md)
+[@miles 8/5/2022 5:37 AM UTC  - :tv:直播](/content/gettr/p1l73wz677d.md)
 
-8/4/2022 Miles Guo’s GETTR:  The CCP’s live-fire military drills right after Nancy Pelosi’s Taiwan trip turned out to be a farce. It is so pathetic that only the Chinese people in mainland China continue to enjoy being brainwashed ...
+8/4/2022  Miles Guo:  We indirectly contributed to the success of the Speaker Nancy Pelosi's visit to Taiwan. The Speaker herself knows the NFSC and was touched by our support. The CCP's disgraceful reactions to her Taiwan visit, s...
 
-<img src="https://media.gettr.com/group14/getter/2022/08/05/04/e23c1b1c-5027-dbf2-248d-f14919e89be2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/08/05/05/5e612a73-b5eb-3416-b84a-db92712e5cd7/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 2022.08.03 中国绝对不缺明白人……大明白人！
 
 <img src="https://media.gettr.com/group27/getter/2022/08/04/01/a8c2d9e0-d06d-1c41-42c6-facacdac287e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1l0to422d1.md)
-
-8/3/2022 Miles Guo: I am the first one to tell the world that the US, Australia, and Japan very much want the CCP to start the war. Because they are very clear that if they don't take down the CCP, they will be destroyed by the CCP...
-
-<img src="https://media.gettr.com/group32/getter/2022/08/04/00/24c60984-f3b8-6b76-209d-50ed409d1a5a/out.jpg" width="506" height="284">
 
 ---
 
