@@ -16,6 +16,28 @@ For English：gettr.com/post/p1lfy2lae81
 
 ---
 
+[@gtvrealpeople 8/6/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lf8se9c21.md)
+
+2022.08.06 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/6/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1lfiof24ee.md)
+
+(1080版) 飞飞秀 《利益冲突·第二十三篇》 2022-08-06
+
+For English：gettr.com/post/p1lfy2lae81
+
+
+
+#LUC #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group4/origin/2022/08/06/22/5383cc27-2ad3-bd85-6ec5-ef5aec6035ce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@myabs 8/5/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1l8f3w0bb9.md)
 
 七哥爆料佩洛西訪台視頻
@@ -55,20 +77,6 @@ For English：gettr.com/post/p1lfy2lae81
 2022.08.06 尊敬的战友们好……科学家让我再次给战友提醒．吃完青蒿素．伊维菌素药后，千万千万不要喝酒，否则将有无法挽回的肝脏损伤以及巨大的副作用……千万千万不要犯这个错。
 
 <img src="https://media.gettr.com/group7/getter/2022/08/06/07/6cfcf115-1071-01d7-035d-aec2d30fa9b4/56ff3b7c3538badeba8e56fb6ea7b6ca.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1lfiof24ee.md)
-
-(1080版) 飞飞秀 《利益冲突·第二十三篇》 2022-08-06
-
-For English：gettr.com/post/p1lfy2lae81
-
-
-
-#LUC #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group4/origin/2022/08/06/22/5383cc27-2ad3-bd85-6ec5-ef5aec6035ce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,22 +173,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 8/3/2022 Miles Guo: Himalaya Exchange acquired the most important license from this world's most powerful country, much faster than anticipated. Sovereign countries' licensing and investment are core values of the Himalaya Exchange...
 
 <img src="https://media.gettr.com/group6/getter/2022/08/05/23/5da4ce9b-4ceb-eeb4-9680-2bb148781e71/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1lbavx5a90.md)
-
-（4K版）《网络威胁》 2022-08-05
-
-For English：gettr.com/post/p1lb6v99219
-
-
-
-#CCP #单伟健 #杨贝贝 #网络威胁 
-
-
-
-<img src="https://media.gettr.com/group26/origin/2022/08/05/22/ced46f26-4bd1-543f-8279-c3e3efcddd48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
