@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 8/6/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1lfbfld04a.md)
+
+(4K版) 飞飞秀 《利益冲突·第二十三篇》 2022-08-06
+
+For English：gettr.com/post/p1lfy2lae81
+
+
+
+#LUC #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group42/origin/2022/08/06/21/2ab47b52-e595-6ab0-a2e2-0f2779a3fc87/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@myabs 8/5/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1l8f3w0bb9.md)
+
+七哥爆料佩洛西訪台視頻
+
+做的太好了👍👍👍
+
+<img src="https://media.gettr.com/group40/getter/2022/08/05/12/42623005-7f80-b565-2b5f-1188e8de558d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/6/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1ldtpwb949.md)
 
 新中国联邦｜真人真事 第61期  澳喜农场 文智  For English：https://gettr.com/post/p1ldpvd775d
@@ -34,13 +58,17 @@
 
 ---
 
-[@myabs 8/5/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1l8f3w0bb9.md)
+[@miles 8/6/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1lfiof24ee.md)
 
-七哥爆料佩洛西訪台視頻
+(1080版) 飞飞秀 《利益冲突·第二十三篇》 2022-08-06
 
-做的太好了👍👍👍
+For English：gettr.com/post/p1lfy2lae81
 
-<img src="https://media.gettr.com/group40/getter/2022/08/05/12/42623005-7f80-b565-2b5f-1188e8de558d/out.jpg" width="506" height="284">
+
+
+#LUC #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group4/origin/2022/08/06/22/5383cc27-2ad3-bd85-6ec5-ef5aec6035ce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -140,22 +168,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 
 ---
 
-[@miles 8/5/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1las5z1b09.md)
-
-（1080版）《网络威胁》 2022-08-05
-
-For English：gettr.com/post/p1lb6v99219
-
-
-
-#CCP #单伟健 #杨贝贝 #网络威胁 
-
-
-
-<img src="https://media.gettr.com/group14/origin/2022/08/05/22/10749ad8-de3e-dac9-b3da-d97f14a01dd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/5/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1lbavx5a90.md)
 
 （4K版）《网络威胁》 2022-08-05
@@ -169,16 +181,6 @@ For English：gettr.com/post/p1lb6v99219
 
 
 <img src="https://media.gettr.com/group26/origin/2022/08/05/22/ced46f26-4bd1-543f-8279-c3e3efcddd48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lb3j4e0ca.md)
-
-2022.08.05 Nicole 看七哥 第十一期  与众不同的七哥
-
-
-
-<img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
