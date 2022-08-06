@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 8/6/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1lclgxe2ce.md)
+
+8/5/2022 Miles Guo: Advice from the scientist: - we are not supposed to take ivermectin or artemisinin if it is not necessary. If we have to take, we must avoid long-term overdoses. Most of all, one should follow his or her doctor'...
+
+<img src="https://media.gettr.com/group21/getter/2022/08/06/04/4270f6f8-1dac-1aa8-294f-875f04b05c55/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/6/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1lbpwbac37.md)
+
+U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai Ing-wen, and the CCP military only dares to lie to the Chinese people that it is able to fight against the USS Ronald Reagan. Miles Guo interprets the m...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/06/04/bd6ce0b6-924e-1846-56a5-f463b47ac491/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/6/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1lb3lb079b.md)
 
 8/5/2022 Miles Guo: If the U.S. and Europe fail to take the initiative to decouple from the CCP in the areas of technology, finance and internet, they will be unable to protect themselves once the economic meltdown takes place. The...
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 8/6/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1lbpwbac37.md)
+[@miles 8/6/2022 4:21 AM UTC  - :tv:直播](/content/gettr/p1lbrfw1000.md)
 
-U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai Ing-wen, and the CCP military only dares to lie to the Chinese people that it is able to fight against the USS Ronald Reagan. Miles Guo interprets the m...
+8/5/2022  Miles Guo: We lost again at the hearing yesterday, but we have many grounds for appeal, and one of them will succeed for sure! In America, we must absolutely respect judges and abide by court verdicts unconditionally, but...
 
-<img src="https://media.gettr.com/group38/getter/2022/08/06/04/bd6ce0b6-924e-1846-56a5-f463b47ac491/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/08/06/04/0e944a46-d6ce-ca3e-0485-f8951a432f84/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,44 +171,6 @@ For English：gettr.com/post/p1lb6v99219
 8/4/2022 Miles Guo’s GETTR: Now people of Taiwan really know the true nature of the CCP, they should seize this opportunity and beat the CCP up; the US, Taiwan and Japan’s military have access to each of the PLA's decisions and mob...
 
 <img src="https://media.gettr.com/group48/getter/2022/08/05/04/ea7f9154-ab46-3dca-b16e-355d2c4ebc06/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 12:00 AM UTC  - 2圖](/content/gettr/p1l69stc619.md)
-
-2022.08.04 尊敬的战友们好！科学家在此向战友们再次提出来吃青蒿素的建议，👉👉👉绝对不能连续吃超过三周青蒿素‼️‼️‼️中间间隔应该超过三周以上，伊维菌素更不能连续吃超过两周，‼️‼️‼️否则会严重的伤害肝脏的功能．导致．脱发．失眠等副作用……大家务必小心！🔥🔥🔥🔥🔥🔥‼️‼️‼️‼️‼️‼️‼️‼️‼️
-
-<img src="https://media.gettr.com/group12/getter/2022/08/05/00/f8b76bdb-699a-0f1e-1d5c-d7ee63437ceb/da7ea5e7394afd90bfea0f069c894804.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 8/5/2022 12:00 AM UTC  - :tv:直播](/content/gettr/p1l61y2ef59.md)
-
-《战》
-
-第一季 续篇《观 战》叁
-
-中共扰台：长春围城2.0 结局出乎意料
-
-#磐石农场
-
-威廉王 Nick
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-#青藤
-
-#Nick
-
-<img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
