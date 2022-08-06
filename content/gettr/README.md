@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/6/2022 2:24 PM UTC  - :tv:直播](/content/gettr/p1ldfjxf55d.md)
+
+8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is not compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!...
+
+<img src="https://media.gettr.com/group22/getter/2022/08/06/14/b8ddc303-c74f-818f-6bf0-5baf82694a45/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/6/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p1ld9zo7043.md)
 
 8/3/2022 Miles Guo: No matter how many favors and opportunities the US has offered, the CCP will never give the Chinese people democracy and rule of law; any American or European with a conscience would know that it was Miles Guo a...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 8/6/2022 2:24 PM UTC  - :tv:直播](/content/gettr/p1ldfjxf55d.md)
+[@miles 8/6/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1ldtpwb949.md)
 
-8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is not compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!...
+新中国联邦｜真人真事 第61期  澳喜农场 文智  For English：https://gettr.com/post/p1ldpvd775d
 
-<img src="https://media.gettr.com/group22/getter/2022/08/06/14/b8ddc303-c74f-818f-6bf0-5baf82694a45/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/08/06/14/153b2367-dad3-4aa8-ca3e-ee8407476e01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ For English：gettr.com/post/p1lb6v99219
 
 
 <img src="https://media.gettr.com/group45/origin/2022/08/05/13/bd3ad5f7-103e-7a66-7e72-d7f040310036/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguolive 8/5/2022 4:37 AM UTC  - :tv:直播](/content/gettr/p1l7imeb21d.md)
-
-0804大直播精华版
-
-
-
-<img src="https://media.gettr.com/group34/origin/2022/08/04/17/47c625d9-a5e6-dd3a-7998-c75a7dc56162/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
