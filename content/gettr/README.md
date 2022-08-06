@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/6/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1ldtpwb949.md)
+
+新中国联邦｜真人真事 第61期  澳喜农场 文智  For English：https://gettr.com/post/p1ldpvd775d
+
+<img src="https://media.gettr.com/group6/origin/2022/08/06/14/153b2367-dad3-4aa8-ca3e-ee8407476e01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/6/2022 2:24 PM UTC  - :tv:直播](/content/gettr/p1ldfjxf55d.md)
 
 8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is not compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!...
@@ -26,11 +34,13 @@
 
 ---
 
-[@miles 8/6/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1ldtpwb949.md)
+[@myabs 8/5/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1l8f3w0bb9.md)
 
-新中国联邦｜真人真事 第61期  澳喜农场 文智  For English：https://gettr.com/post/p1ldpvd775d
+七哥爆料佩洛西訪台視頻
 
-<img src="https://media.gettr.com/group6/origin/2022/08/06/14/153b2367-dad3-4aa8-ca3e-ee8407476e01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+做的太好了👍👍👍
+
+<img src="https://media.gettr.com/group40/getter/2022/08/05/12/42623005-7f80-b565-2b5f-1188e8de558d/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +179,6 @@ For English：gettr.com/post/p1lb6v99219
 
 
 <img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 1:44 PM UTC  - :tv:直播](/content/gettr/p1l9bst44cc.md)
-
-2022年8月5日 七哥直播谈法律与道德 
-
-
-
-<img src="https://media.gettr.com/group45/origin/2022/08/05/13/bd3ad5f7-103e-7a66-7e72-d7f040310036/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
