@@ -2,11 +2,37 @@
 ---
 
 
+[@miles 8/6/2022 7:10 AM UTC ](/content/gettr/p1lcgvx21a7.md)
+
+2022.08.06 尊敬的战友们好……科学家让我再次给战友提醒．吃完青蒿素．伊维菌素药后，千万千万不要喝酒，否则将有无法挽回的肝脏损伤以及巨大的副作用……千万千万不要犯这个错。
+
+<img src="https://media.gettr.com/group7/getter/2022/08/06/07/6cfcf115-1071-01d7-035d-aec2d30fa9b4/56ff3b7c3538badeba8e56fb6ea7b6ca.jpg" width="506" height="284">
+
+---
+
 [@miles 8/6/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1lclgxe2ce.md)
 
 8/5/2022 Miles Guo: Advice from the scientist: - we are not supposed to take ivermectin or artemisinin if it is not necessary. If we have to take, we must avoid long-term overdoses. Most of all, one should follow his or her doctor'...
 
 <img src="https://media.gettr.com/group21/getter/2022/08/06/04/4270f6f8-1dac-1aa8-294f-875f04b05c55/out.jpg" width="506" height="284">
+
+---
+
+[@wenjun 8/6/2022 2:39 AM UTC  - :tv:直播](/content/gettr/p1lc7ajcadd.md)
+
+八月四号，金边，东盟外长晚宴，美日外长谈笑风声，王毅被孤立，提前离席，饿着肚子走了。😂😂😂
+
+August 4th, Phnom Penh, ASEAN Foreign Ministers Dinner, US and Japanese Foreign Ministers talk and laugh, Chinese Communist Foreign Minister Wang Yi isolated, left early and left hu...
+
+<img src="https://media.gettr.com/group34/getter/2022/08/06/02/746f5c49-dee7-e456-e0b5-18d66fb54f7c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/6/2022 4:21 AM UTC  - :tv:直播](/content/gettr/p1lbrfw1000.md)
+
+8/5/2022  Miles Guo: We lost again at the hearing yesterday, but we have many grounds for appeal, and one of them will succeed for sure! In America, we must absolutely respect judges and abide by court verdicts unconditionally, but...
+
+<img src="https://media.gettr.com/group19/getter/2022/08/06/04/0e944a46-d6ce-ca3e-0485-f8951a432f84/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,14 +57,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 8/5/2022 Miles Guo: The CCP will most likely unleash another new virus! This time the virus probably will originate from the Middle East, and will be called a variant of the virus causing an  infectious disease such as MERS, smallp...
 
 <img src="https://media.gettr.com/group35/getter/2022/08/06/00/67f58e75-93d5-6b1e-c60e-1f8f1cbc99ee/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 4:21 AM UTC  - :tv:直播](/content/gettr/p1lbrfw1000.md)
-
-8/5/2022  Miles Guo: We lost again at the hearing yesterday, but we have many grounds for appeal, and one of them will succeed for sure! In America, we must absolutely respect judges and abide by court verdicts unconditionally, but...
-
-<img src="https://media.gettr.com/group19/getter/2022/08/06/04/0e944a46-d6ce-ca3e-0485-f8951a432f84/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +181,6 @@ For English：gettr.com/post/p1lb6v99219
 8/4/2022 Miles Guo’s GETTR:  The CCP’s live-fire military drills right after Nancy Pelosi’s Taiwan trip turned out to be a farce. It is so pathetic that only the Chinese people in mainland China continue to enjoy being brainwashed ...
 
 <img src="https://media.gettr.com/group14/getter/2022/08/05/04/e23c1b1c-5027-dbf2-248d-f14919e89be2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 4:03 AM UTC  - :tv:直播](/content/gettr/p1l79oze10d.md)
-
-8/4/2022 Miles Guo’s GETTR: Now people of Taiwan really know the true nature of the CCP, they should seize this opportunity and beat the CCP up; the US, Taiwan and Japan’s military have access to each of the PLA's decisions and mob...
-
-<img src="https://media.gettr.com/group48/getter/2022/08/05/04/ea7f9154-ab46-3dca-b16e-355d2c4ebc06/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1l69y74a09.md)
-
-8/3/2022 Miles Guo: Zeng Qinghong benefits most from Nancy Pelosi's Taiwan visit, and he has the most followers within the CCP and its military; however due to the evil system of the CCP, Zeng inevitably became the slave to his fam...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/04/23/77f83f46-0bcd-e11e-2000-ee0828a5f11c/out.jpg" width="506" height="284">
 
 ---
 
