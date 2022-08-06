@@ -2,9 +2,33 @@
 ---
 
 
+[@miles 8/6/2022 12:16 AM UTC  - :tv:直播](/content/gettr/p1lbsb5b7bb.md)
+
+8/5/2022 Miles Guo: The CCP will most likely unleash another new virus! This time the virus probably will originate from the Middle East, and will be called a variant of the virus causing an  infectious disease such as MERS, smallp...
+
+<img src="https://media.gettr.com/group35/getter/2022/08/06/00/67f58e75-93d5-6b1e-c60e-1f8f1cbc99ee/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/6/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1lb7l2e50e.md)
+
+8/5/2022 Miles Guo: The CCP will most likely unleash another new virus! This time the virus probably will originate from the Middle East, and will be called a variant of the virus causing an  infectious disease such as MERS, smallp...
+
+<img src="https://media.gettr.com/group20/getter/2022/08/06/00/fe947d7d-2f73-bb01-5d53-78e5985bb00b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/6/2022 12:05 AM UTC ](/content/gettr/p1lbrds885a.md)
 
 ❤️❤️❤️大家一起来听音乐
+
+---
+
+[@miles 8/6/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p1lbggn1a11.md)
+
+8/5/2022 Miles Guo: Russia is trying to reconcile with Ukraine and will eventually make the Chinese a scapegoat for its own wrongdoings. The CCP won't just wait for its doom after Nancy Pelosi's Taiwan visit. Through its military f...
+
+<img src="https://media.gettr.com/group29/getter/2022/08/06/00/0bdeb95b-ab31-a13f-f81d-934401bbd21d/out.jpg" width="506" height="284">
 
 ---
 
@@ -13,6 +37,14 @@
 8/3/2022 Miles Guo: The US, Australia, and Japan are very clear that if they don’t take down the CCP, they will be destroyed by the CCP instead; Nancy Pelosi’s visit to Taiwan is backed by the bipartisan consensus; and the CCP has ...
 
 <img src="https://media.gettr.com/group50/getter/2022/08/06/00/f536ec6e-1b23-38ec-edf0-ae718e8e9445/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/6/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1lbgu5a6a9.md)
+
+8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, send troops to p...
+
+<img src="https://media.gettr.com/group19/getter/2022/08/06/00/17e4fcaa-c6f2-a677-db4b-5e81211becdb/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,14 +69,6 @@ For English：gettr.com/post/p1lb6v99219
 
 
 <img src="https://media.gettr.com/group14/origin/2022/08/05/22/10749ad8-de3e-dac9-b3da-d97f14a01dd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1lbgu5a6a9.md)
-
-8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, send troops to p...
-
-<img src="https://media.gettr.com/group19/getter/2022/08/06/00/17e4fcaa-c6f2-a677-db4b-5e81211becdb/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,38 +205,6 @@ For English：gettr.com/post/p1lb6v99219
 ...
 
 <img src="https://media.gettr.com/group21/getter/2022/08/04/23/4225779e-99bc-aaca-2f3a-f9c5f371fba2/out.jpg" width="506" height="284">
-
----
-
-[@lng123 8/4/2022 5:49 PM UTC  - :tv:直播](/content/gettr/p1l4y8xdf55.md)
-
-今天朋友圈有人上載《茶館》片段，老舍先生66年前寫的台詞：“沒打起來吧？沒那根雞冠翎子，就別裝老鷹”。“我打不了洋人，我還打不了你嗎？”又火了。
-
-🔥🔥🔥
-
-
-
-#台海局势 
-
-<img src="https://media.gettr.com/group24/getter/2022/08/04/17/5088b407-1f41-17de-1798-53fa39766e3c/out.jpg" width="506" height="284">
-
----
-
-[@shibinzhang 8/4/2022 9:50 PM UTC ](/content/gettr/p1l63z52a2b.md)
-
-重庆，仙厨是重庆一家非常有名，菜品好吃的餐厅。疫情叠加经济下行，餐饮老板跳江！一个如此奋斗努力的人竟选择死亡来逃避中共高压的生存环境，这就是ccp赐给中国人的盛世。
-
-<img src="https://media.gettr.com/group47/getter/2022/08/04/13/b8c22788-8e8c-954e-80fc-b1c2c1da61a0/5ece24c6bad27c60308de5c96207a594.jpg" width="506" height="284">
-
----
-
-[@miles 8/4/2022 9:01 PM UTC  - :tv:直播](/content/gettr/p1l5oq50e1c.md)
-
-2022.08.04 Nicole 看七哥 第十一期  长岛市长眼中的郭先生
-
-
-
-<img src="https://media.gettr.com/group32/origin/2022/08/04/20/e0e93046-29af-dd04-0510-cfe450939b18/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
