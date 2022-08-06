@@ -18,6 +18,30 @@ For English：gettr.com/post/p1lb6v99219
 
 ---
 
+[@miles 8/5/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1lb8isdfc8.md)
+
+8/3/2022 Miles Guo: Himalaya Exchange acquired the most important license from this world's most powerful country, much faster than anticipated. Sovereign countries' licensing and investment are core values of the Himalaya Exchange...
+
+<img src="https://media.gettr.com/group6/getter/2022/08/05/23/5da4ce9b-4ceb-eeb4-9680-2bb148781e71/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/5/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1lbavx5a90.md)
+
+（4K版）《网络威胁》 2022-08-05
+
+For English：gettr.com/post/p1lb6v99219
+
+
+
+#CCP #单伟健 #杨贝贝 #网络威胁 
+
+
+
+<img src="https://media.gettr.com/group26/origin/2022/08/05/22/ced46f26-4bd1-543f-8279-c3e3efcddd48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/5/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lb3j4e0ca.md)
 
 2022.08.05 Nicole 看七哥 第十一期  与众不同的七哥
@@ -77,22 +101,6 @@ For English：gettr.com/post/p1lb6v99219
 2022.08.04 尊敬的战友们好！科学家在此向战友们再次提出来吃青蒿素的建议，👉👉👉绝对不能连续吃超过三周青蒿素‼️‼️‼️中间间隔应该超过三周以上，伊维菌素更不能连续吃超过两周，‼️‼️‼️否则会严重的伤害肝脏的功能．导致．脱发．失眠等副作用……大家务必小心！🔥🔥🔥🔥🔥🔥‼️‼️‼️‼️‼️‼️‼️‼️‼️
 
 <img src="https://media.gettr.com/group12/getter/2022/08/05/00/f8b76bdb-699a-0f1e-1d5c-d7ee63437ceb/da7ea5e7394afd90bfea0f069c894804.jpg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p1lbavx5a90.md)
-
-（4K版）《网络威胁》 2022-08-05
-
-For English：gettr.com/post/p1lb6v99219
-
-
-
-#CCP #单伟健 #杨贝贝 #网络威胁 
-
-
-
-<img src="https://media.gettr.com/group26/origin/2022/08/05/22/ced46f26-4bd1-543f-8279-c3e3efcddd48/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -213,18 +221,6 @@ For English：gettr.com/streaming/p1l4g4i7445
 2022.08.04 【原定三天，几个小时就结束了，敢情孙子们被吓回来了 世界级搞笑大师……快笑断气了……】【观看量82.8万，更多了😊】偷数据的人睡着了？
 
 <img src="https://media.gettr.com/group38/getter/2022/08/04/14/1a4b7ec5-59af-0f96-17ba-e906dd2ab4d2/d14c6fe07f3965b754d88d8d514c1306.jpg" width="506" height="284">
-
----
-
-[@realfayfay 8/4/2022 2:05 AM UTC  - 2圖](/content/gettr/p1l1ucx5995.md)
-
-美东时间8.4.2022（明天）中午12点听证会继续。我们会回顾一下官司相关的事件。正式会议时间会从下午1点开始。
-
-直播会在@RealFayFay 和 @GTranslators_2 中英文同时直播。
-
-大家可以拨打以下电话去旁听听证会实况：Bridgeport: 1-877-336-1274 Access Code: 1077800
-
-<img src="https://media.gettr.com/group20/origin/2022/08/04/02/b2fe502a-08c4-4610-b3f2-156059dc12e4/cf647a1ef757dcac7e26faf9816f4b2b.jpg" width="506" height="284">
 
 ---
 
