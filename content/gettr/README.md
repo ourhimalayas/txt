@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 8/6/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1lclgxe2ce.md)
+[@miles 8/6/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p1ld9zo7043.md)
 
-8/5/2022 Miles Guo: Advice from the scientist: - we are not supposed to take ivermectin or artemisinin if it is not necessary. If we have to take, we must avoid long-term overdoses. Most of all, one should follow his or her doctor'...
+8/3/2022 Miles Guo: No matter how many favors and opportunities the US has offered, the CCP will never give the Chinese people democracy and rule of law; any American or European with a conscience would know that it was Miles Guo a...
 
-<img src="https://media.gettr.com/group21/getter/2022/08/06/04/4270f6f8-1dac-1aa8-294f-875f04b05c55/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/08/06/14/add48c2b-ca05-6e82-a735-1148c63b2864/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@
 August 4th, Phnom Penh, ASEAN Foreign Ministers Dinner, US and Japanese Foreign Ministers talk and laugh, Chinese Communist Foreign Minister Wang Yi isolated, left early and left hu...
 
 <img src="https://media.gettr.com/group34/getter/2022/08/06/02/746f5c49-dee7-e456-e0b5-18d66fb54f7c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/6/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1lclgxe2ce.md)
+
+8/5/2022 Miles Guo: Advice from the scientist: - we are not supposed to take ivermectin or artemisinin if it is not necessary. If we have to take, we must avoid long-term overdoses. Most of all, one should follow his or her doctor'...
+
+<img src="https://media.gettr.com/group21/getter/2022/08/06/04/4270f6f8-1dac-1aa8-294f-875f04b05c55/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ For English：gettr.com/post/p1lb6v99219
 8/4/2022  Miles Guo:  We indirectly contributed to the success of the Speaker Nancy Pelosi's visit to Taiwan. The Speaker herself knows the NFSC and was touched by our support. The CCP's disgraceful reactions to her Taiwan visit, s...
 
 <img src="https://media.gettr.com/group27/getter/2022/08/05/05/5e612a73-b5eb-3416-b84a-db92712e5cd7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 4:23 AM UTC  - :tv:直播](/content/gettr/p1l7ob9bf68.md)
-
-8/4/2022 Miles Guo’s GETTR:  The CCP’s live-fire military drills right after Nancy Pelosi’s Taiwan trip turned out to be a farce. It is so pathetic that only the Chinese people in mainland China continue to enjoy being brainwashed ...
-
-<img src="https://media.gettr.com/group14/getter/2022/08/05/04/e23c1b1c-5027-dbf2-248d-f14919e89be2/out.jpg" width="506" height="284">
 
 ---
 
