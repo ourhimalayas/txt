@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/6/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p1ld9zo7043.md)
+
+8/3/2022 Miles Guo: No matter how many favors and opportunities the US has offered, the CCP will never give the Chinese people democracy and rule of law; any American or European with a conscience would know that it was Miles Guo a...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/06/14/add48c2b-ca05-6e82-a735-1148c63b2864/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/6/2022 7:10 AM UTC ](/content/gettr/p1lcgvx21a7.md)
 
 2022.08.06 尊敬的战友们好……科学家让我再次给战友提醒．吃完青蒿素．伊维菌素药后，千万千万不要喝酒，否则将有无法挽回的肝脏损伤以及巨大的副作用……千万千万不要犯这个错。
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 8/6/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p1ld9zo7043.md)
+[@miles 8/6/2022 2:24 PM UTC  - :tv:直播](/content/gettr/p1ldfjxf55d.md)
 
-8/3/2022 Miles Guo: No matter how many favors and opportunities the US has offered, the CCP will never give the Chinese people democracy and rule of law; any American or European with a conscience would know that it was Miles Guo a...
+8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is not compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!...
 
-<img src="https://media.gettr.com/group14/getter/2022/08/06/14/add48c2b-ca05-6e82-a735-1148c63b2864/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/08/06/14/b8ddc303-c74f-818f-6bf0-5baf82694a45/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ For English：gettr.com/post/p1lb6v99219
 
 
 <img src="https://media.gettr.com/group34/origin/2022/08/04/17/47c625d9-a5e6-dd3a-7998-c75a7dc56162/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 5:37 AM UTC  - :tv:直播](/content/gettr/p1l73wz677d.md)
-
-8/4/2022  Miles Guo:  We indirectly contributed to the success of the Speaker Nancy Pelosi's visit to Taiwan. The Speaker herself knows the NFSC and was touched by our support. The CCP's disgraceful reactions to her Taiwan visit, s...
-
-<img src="https://media.gettr.com/group27/getter/2022/08/05/05/5e612a73-b5eb-3416-b84a-db92712e5cd7/out.jpg" width="506" height="284">
 
 ---
 
