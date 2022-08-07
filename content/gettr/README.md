@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/7/2022 3:06 AM UTC ](/content/gettr/p1lgfhga751.md)
+
+2022.08.06 尊敬的战友的好……里根号航母会成为灭共的第一把尖刀……莘县阳谷县搭县……咱们走着看！
+
+<img src="https://media.gettr.com/group20/getter/2022/08/07/03/055f7b15-9738-129e-e13c-0d27dc83e213/4611aebd4abf7d9097a03c871873d087.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 8/7/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lfqbn2fdc.md)
 
 《战》
@@ -54,11 +62,11 @@ For English：gettr.com/post/p1lfy2lae81
 
 ---
 
-[@miles 8/7/2022 3:06 AM UTC ](/content/gettr/p1lgfhga751.md)
+[@miles 8/7/2022 10:59 AM UTC ](/content/gettr/p1lhj02be42.md)
 
-2022.08.06 尊敬的战友的好……里根号航母会成为灭共的第一把尖刀……莘县阳谷县搭县……咱们走着看！
+2022.08.07 尊敬的战友们好，这是真的假的？为啥呢？😱😱😱😱😱😱😱😱😱今天9:30开始七哥的乱聊答直播！【突发事件：美国人寿保险公司表示，18-49 岁人群的死亡人数莫名其妙地增加了 40%。】
 
-<img src="https://media.gettr.com/group20/getter/2022/08/07/03/055f7b15-9738-129e-e13c-0d27dc83e213/4611aebd4abf7d9097a03c871873d087.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/08/07/10/3ec92e4d-578a-c7a1-cbc3-b27d388c2875/97ac0611654cb700dc42ebe7259fb85f.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 8/5/2022 Miles Guo: Russia is trying to reconcile with Ukraine and will eventually make the Chinese a scapegoat for its own wrongdoings. The CCP won't just wait for its doom after Nancy Pelosi's Taiwan visit. Through its military f...
 
 <img src="https://media.gettr.com/group29/getter/2022/08/06/00/0bdeb95b-ab31-a13f-f81d-934401bbd21d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 12:07 AM UTC  - :tv:直播](/content/gettr/p1lbnb1f977.md)
-
-8/3/2022 Miles Guo: The US, Australia, and Japan are very clear that if they don’t take down the CCP, they will be destroyed by the CCP instead; Nancy Pelosi’s visit to Taiwan is backed by the bipartisan consensus; and the CCP has ...
-
-<img src="https://media.gettr.com/group50/getter/2022/08/06/00/f536ec6e-1b23-38ec-edf0-ae718e8e9445/out.jpg" width="506" height="284">
 
 ---
 
