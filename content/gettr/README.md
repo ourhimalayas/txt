@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/7/2022 10:59 AM UTC ](/content/gettr/p1lhj02be42.md)
+
+2022.08.07 尊敬的战友们好，这是真的假的？为啥呢？😱😱😱😱😱😱😱😱😱今天9:30开始七哥的乱聊答直播！【突发事件：美国人寿保险公司表示，18-49 岁人群的死亡人数莫名其妙地增加了 40%。】
+
+<img src="https://media.gettr.com/group33/getter/2022/08/07/10/3ec92e4d-578a-c7a1-cbc3-b27d388c2875/97ac0611654cb700dc42ebe7259fb85f.jpg" width="506" height="284">
+
+---
+
 [@miles 8/7/2022 3:06 AM UTC ](/content/gettr/p1lgfhga751.md)
 
 2022.08.06 尊敬的战友的好……里根号航母会成为灭共的第一把尖刀……莘县阳谷县搭县……咱们走着看！
@@ -62,11 +70,11 @@ For English：gettr.com/post/p1lfy2lae81
 
 ---
 
-[@miles 8/7/2022 10:59 AM UTC ](/content/gettr/p1lhj02be42.md)
+[@miles 8/7/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1lija80b88.md)
 
-2022.08.07 尊敬的战友们好，这是真的假的？为啥呢？😱😱😱😱😱😱😱😱😱今天9:30开始七哥的乱聊答直播！【突发事件：美国人寿保险公司表示，18-49 岁人群的死亡人数莫名其妙地增加了 40%。】
+2022年08月07日 七哥谈如何使用数字与货币、金融、媒体成为灭共的手段
 
-<img src="https://media.gettr.com/group33/getter/2022/08/07/10/3ec92e4d-578a-c7a1-cbc3-b27d388c2875/97ac0611654cb700dc42ebe7259fb85f.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/08/07/12/bf17b7a4-e2c3-b82d-cd8b-13186f47f5ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 8/5/2022 Miles Guo: Russia is trying to reconcile with Ukraine and will eventually make the Chinese a scapegoat for its own wrongdoings. The CCP won't just wait for its doom after Nancy Pelosi's Taiwan visit. Through its military f...
 
 <img src="https://media.gettr.com/group29/getter/2022/08/06/00/0bdeb95b-ab31-a13f-f81d-934401bbd21d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 12:13 AM UTC  - :tv:直播](/content/gettr/p1lbgu5a6a9.md)
-
-8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, send troops to p...
-
-<img src="https://media.gettr.com/group19/getter/2022/08/06/00/17e4fcaa-c6f2-a677-db4b-5e81211becdb/out.jpg" width="506" height="284">
 
 ---
 
