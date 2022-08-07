@@ -2,6 +2,14 @@
 ---
 
 
+[@gtvrealpeople 8/6/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lf8se9c21.md)
+
+2022.08.06 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/6/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1lfbfld04a.md)
 
 (4K版) 飞飞秀 《利益冲突·第二十三篇》 2022-08-06
@@ -16,11 +24,33 @@ For English：gettr.com/post/p1lfy2lae81
 
 ---
 
-[@gtvrealpeople 8/6/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lf8se9c21.md)
+[@newyorkrock 8/7/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lfqbn2fdc.md)
 
-2022.08.06 G | Clubs 会员游船活动
+《战》
 
-<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+第一季 续篇《观 战》肆
+
+台湾 – 科技命脉  海上生命线
+
+威廉王 青藤
+
+#磐石农场
+
+威廉王 Nick
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+#Nick
+
+<img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +195,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 8/3/2022 Miles Guo: The U.S. will form a fleet together with countries such as Australia and Japan to patrol the South China Sea and the East China Sea. Meanwhile, the U.S. will implement the Indo-Pacific Strategy, send troops to p...
 
 <img src="https://media.gettr.com/group19/getter/2022/08/06/00/17e4fcaa-c6f2-a677-db4b-5e81211becdb/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/5/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1lb8isdfc8.md)
-
-8/3/2022 Miles Guo: Himalaya Exchange acquired the most important license from this world's most powerful country, much faster than anticipated. Sovereign countries' licensing and investment are core values of the Himalaya Exchange...
-
-<img src="https://media.gettr.com/group6/getter/2022/08/05/23/5da4ce9b-4ceb-eeb4-9680-2bb148781e71/out.jpg" width="506" height="284">
 
 ---
 
