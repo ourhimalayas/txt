@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 8/7/2022 10:26 PM UTC  - :tv:直播](/content/gettr/p1ljvsy23af.md)
+
+（1080版）《飞飞秀·东北杀猪》 2022-08-07
+
+For English：gettr.com/post/p1lkecl070c
+
+
+
+#躺平 #杀猪 #效率 #喜币
+
+<img src="https://media.gettr.com/group30/origin/2022/08/07/22/0af5df4b-a2e3-1a9d-8c12-2a78d2b26546/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/7/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1lija80b88.md)
+
+2022年08月07日 七哥谈如何使用数字与货币、金融、媒体成为灭共的手段
+
+<img src="https://media.gettr.com/group36/origin/2022/08/07/12/bf17b7a4-e2c3-b82d-cd8b-13186f47f5ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/7/2022 10:59 AM UTC ](/content/gettr/p1lhj02be42.md)
 
 2022.08.07 尊敬的战友们好，这是真的假的？为啥呢？😱😱😱😱😱😱😱😱😱今天9:30开始七哥的乱聊答直播！【突发事件：美国人寿保险公司表示，18-49 岁人群的死亡人数莫名其妙地增加了 40%。】
@@ -70,11 +92,17 @@ For English：gettr.com/post/p1lfy2lae81
 
 ---
 
-[@miles 8/7/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1lija80b88.md)
+[@miles 8/7/2022 10:26 PM UTC  - :tv:直播](/content/gettr/p1lkho6fc8b.md)
 
-2022年08月07日 七哥谈如何使用数字与货币、金融、媒体成为灭共的手段
+（4K版）《飞飞秀·东北杀猪》 2022-08-07
 
-<img src="https://media.gettr.com/group36/origin/2022/08/07/12/bf17b7a4-e2c3-b82d-cd8b-13186f47f5ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/post/p1lkecl070c
+
+
+
+#躺平 #杀猪 #效率 #喜币
+
+<img src="https://media.gettr.com/group29/origin/2022/08/07/22/4569f29f-69a8-8fb6-124a-27e2546df937/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,22 +201,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 8/5/2022 Miles Guo: If the U.S. and Europe fail to take the initiative to decouple from the CCP in the areas of technology, finance and internet, they will be unable to protect themselves once the economic meltdown takes place. The...
 
 <img src="https://media.gettr.com/group27/getter/2022/08/06/00/74d0be58-ca7b-045a-881e-6834a85de3bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 12:16 AM UTC  - :tv:直播](/content/gettr/p1lbsb5b7bb.md)
-
-8/5/2022 Miles Guo: The CCP will most likely unleash another new virus! This time the virus probably will originate from the Middle East, and will be called a variant of the virus causing an  infectious disease such as MERS, smallp...
-
-<img src="https://media.gettr.com/group35/getter/2022/08/06/00/67f58e75-93d5-6b1e-c60e-1f8f1cbc99ee/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p1lb7l2e50e.md)
-
-8/5/2022 Miles Guo: The CCP will most likely unleash another new virus! This time the virus probably will originate from the Middle East, and will be called a variant of the virus causing an  infectious disease such as MERS, smallp...
-
-<img src="https://media.gettr.com/group20/getter/2022/08/06/00/fe947d7d-2f73-bb01-5d53-78e5985bb00b/out.jpg" width="506" height="284">
 
 ---
 
