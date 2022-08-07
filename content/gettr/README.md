@@ -2,28 +2,6 @@
 ---
 
 
-[@gtvrealpeople 8/6/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lf8se9c21.md)
-
-2022.08.06 G | Clubs 会员游船活动
-
-<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1lfbfld04a.md)
-
-(4K版) 飞飞秀 《利益冲突·第二十三篇》 2022-08-06
-
-For English：gettr.com/post/p1lfy2lae81
-
-
-
-#LUC #普衡 #破产案 #Trustee
-
-<img src="https://media.gettr.com/group42/origin/2022/08/06/21/2ab47b52-e595-6ab0-a2e2-0f2779a3fc87/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 8/7/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lfqbn2fdc.md)
 
 《战》
@@ -51,6 +29,36 @@ For English：gettr.com/post/p1lfy2lae81
 #Nick
 
 <img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@gtvrealpeople 8/6/2022 8:31 PM UTC  - :tv:直播](/content/gettr/p1lf8se9c21.md)
+
+2022.08.06 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/6/2022 10:09 PM UTC  - :tv:直播](/content/gettr/p1lfbfld04a.md)
+
+(4K版) 飞飞秀 《利益冲突·第二十三篇》 2022-08-06
+
+For English：gettr.com/post/p1lfy2lae81
+
+
+
+#LUC #普衡 #破产案 #Trustee
+
+<img src="https://media.gettr.com/group42/origin/2022/08/06/21/2ab47b52-e595-6ab0-a2e2-0f2779a3fc87/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/7/2022 3:06 AM UTC ](/content/gettr/p1lgfhga751.md)
+
+2022.08.06 尊敬的战友的好……里根号航母会成为灭共的第一把尖刀……莘县阳谷县搭县……咱们走着看！
+
+<img src="https://media.gettr.com/group20/getter/2022/08/07/03/055f7b15-9738-129e-e13c-0d27dc83e213/4611aebd4abf7d9097a03c871873d087.jpg" width="506" height="284">
 
 ---
 
@@ -173,12 +181,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 8/5/2022 Miles Guo: Russia is trying to reconcile with Ukraine and will eventually make the Chinese a scapegoat for its own wrongdoings. The CCP won't just wait for its doom after Nancy Pelosi's Taiwan visit. Through its military f...
 
 <img src="https://media.gettr.com/group29/getter/2022/08/06/00/0bdeb95b-ab31-a13f-f81d-934401bbd21d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 12:05 AM UTC ](/content/gettr/p1lbrds885a.md)
-
-❤️❤️❤️大家一起来听音乐
 
 ---
 
