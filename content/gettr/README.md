@@ -16,6 +16,28 @@ For English：gettr.com/post/p1lkecl070c
 
 ---
 
+[@miles 8/7/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1lkub5f769.md)
+
+8/7/2022 Miles Guo: With a series of Taiwan policies introduced in the US, Taiwan is indeed already independent. The US and Europe will take back Hong Kong, and protect and support the people of Xinjiang and Tibet as never before; ...
+
+<img src="https://media.gettr.com/group7/getter/2022/08/07/23/d7d8cbdf-05f4-2876-8bfb-e7c7734a77d9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/7/2022 10:26 PM UTC  - :tv:直播](/content/gettr/p1lkho6fc8b.md)
+
+（4K版）《飞飞秀·东北杀猪》 2022-08-07
+
+For English：gettr.com/post/p1lkecl070c
+
+
+
+#躺平 #杀猪 #效率 #喜币
+
+<img src="https://media.gettr.com/group29/origin/2022/08/07/22/4569f29f-69a8-8fb6-124a-27e2546df937/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/7/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1lija80b88.md)
 
 2022年08月07日 七哥谈如何使用数字与货币、金融、媒体成为灭共的手段
@@ -89,20 +111,6 @@ For English：gettr.com/post/p1lfy2lae81
 #LUC #普衡 #破产案 #Trustee
 
 <img src="https://media.gettr.com/group42/origin/2022/08/06/21/2ab47b52-e595-6ab0-a2e2-0f2779a3fc87/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/7/2022 10:26 PM UTC  - :tv:直播](/content/gettr/p1lkho6fc8b.md)
-
-（4K版）《飞飞秀·东北杀猪》 2022-08-07
-
-For English：gettr.com/post/p1lkecl070c
-
-
-
-#躺平 #杀猪 #效率 #喜币
-
-<img src="https://media.gettr.com/group29/origin/2022/08/07/22/4569f29f-69a8-8fb6-124a-27e2546df937/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai I
 8/5/2022 Miles Guo: If the U.S. and Europe fail to take the initiative to decouple from the CCP in the areas of technology, finance and internet, they will be unable to protect themselves once the economic meltdown takes place. The...
 
 <img src="https://media.gettr.com/group27/getter/2022/08/06/00/74d0be58-ca7b-045a-881e-6834a85de3bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p1lbggn1a11.md)
-
-8/5/2022 Miles Guo: Russia is trying to reconcile with Ukraine and will eventually make the Chinese a scapegoat for its own wrongdoings. The CCP won't just wait for its doom after Nancy Pelosi's Taiwan visit. Through its military f...
-
-<img src="https://media.gettr.com/group29/getter/2022/08/06/00/0bdeb95b-ab31-a13f-f81d-934401bbd21d/out.jpg" width="506" height="284">
 
 ---
 
