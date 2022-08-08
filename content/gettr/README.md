@@ -10,11 +10,31 @@
 
 ---
 
+[@miles 8/8/2022 8:42 PM UTC  - :tv:直播](/content/gettr/p1loo8m22a5.md)
+
+2022.08.08 【Nicole看七哥】自爆料革命伊始，郭先生就一直强调健身的重要性：健身不只给了他强健的身体素质，更锻炼了他的精力和斗志。
+
+
+
+Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized the importance of doing exercise. Exercise not only builds his body but al...
+
+<img src="https://media.gettr.com/group3/origin/2022/08/08/20/4a2b95b7-464e-34d5-e859-b041257ed1a8/out.jpg" width="506" height="284">
+
+---
+
 [@qiwenchang 8/8/2022 6:46 PM UTC  - :tv:直播](/content/gettr/p1lo6ht170e.md)
 
 上海刚解封我就来海南，没想到海南又封了
 
 <img src="https://media.gettr.com/group38/gvision/2022/08/08/18/ae0091ba-1c2b-493f-be6a-110227d7e93f/out.jpg" width="506" height="284">
+
+---
+
+[@yigushi 7/31/2022 4:24 AM UTC  - :tv:直播](/content/gettr/p1kha95e384.md)
+
+七哥“一语奠丰碑”——香港是中华圣城，香港人是中国人榜样
+
+<img src="https://media.gettr.com/group26/gvision/2022/07/31/04/840e4b9b-ecc0-dd34-03cf-450b94434626/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,14 +59,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 [@miles 8/8/2022 2:36 PM UTC ](/content/gettr/p1lnseg1f53.md)
 
 《时间点》开始了👍
-
----
-
-[@yigushi 7/31/2022 4:24 AM UTC  - :tv:直播](/content/gettr/p1kha95e384.md)
-
-七哥“一语奠丰碑”——香港是中华圣城，香港人是中国人榜样
-
-<img src="https://media.gettr.com/group26/gvision/2022/07/31/04/840e4b9b-ecc0-dd34-03cf-450b94434626/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,36 +173,6 @@ For English：gettr.com/post/p1lkecl070c
 2022.08.06 尊敬的战友的好……里根号航母会成为灭共的第一把尖刀……莘县阳谷县搭县……咱们走着看！
 
 <img src="https://media.gettr.com/group20/getter/2022/08/07/03/055f7b15-9738-129e-e13c-0d27dc83e213/4611aebd4abf7d9097a03c871873d087.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 8/7/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lfqbn2fdc.md)
-
-《战》
-
-第一季 续篇《观 战》肆
-
-台湾 – 科技命脉  海上生命线
-
-威廉王 青藤
-
-#磐石农场
-
-威廉王 Nick
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-#Nick
-
-<img src="https://media.gettr.com/group14/origin/2022/08/02/21/e5a32a5d-5f6e-bb97-c305-bc20bd49478a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
