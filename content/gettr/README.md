@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 8/8/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1lplzx7f4f.md)
+
+（1080版）《飞飞秀·十八楼》 2022-08-08
+
+#十八楼 #破产案
+
+<img src="https://media.gettr.com/group13/origin/2022/08/08/22/a8f768d5-3207-080e-afac-8fdeb8f8d07e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 9:37 PM UTC  - :tv:直播](/content/gettr/p1lotckce1b.md)
+
+ 8月8号2022年，尊敬的战友们好．非常抱歉，七哥今天小视频发晚了，一切都已经开始！ 
+
+
+
+
+
+<img src="https://media.gettr.com/group3/getter/2022/08/08/20/a55d08a4-11c3-a395-e8b4-810559415eeb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/8/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1lonk10b76.md)
 
 2022.08.08 Nicole 看七哥 第十三期  谈郭先生的破产案
@@ -42,15 +64,13 @@ Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized
 
 ---
 
-[@miles 8/8/2022 9:37 PM UTC  - :tv:直播](/content/gettr/p1lotckce1b.md)
+[@miles 8/8/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1lpmuoa406.md)
 
- 8月8号2022年，尊敬的战友们好．非常抱歉，七哥今天小视频发晚了，一切都已经开始！ 
+（4K版）《飞飞秀·十八楼》 2022-08-08
 
+#十八楼 #破产案
 
-
-
-
-<img src="https://media.gettr.com/group3/getter/2022/08/08/20/a55d08a4-11c3-a395-e8b4-810559415eeb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/08/08/22/2d8e86bf-2f57-89eb-f39c-4747d97828d9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,34 +173,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 8/7/2022 Miles Guo: With a series of Taiwan policies introduced in the US, Taiwan is indeed already independent. The US and Europe will take back Hong Kong, and protect and support the people of Xinjiang and Tibet as never before; ...
 
 <img src="https://media.gettr.com/group7/getter/2022/08/07/23/d7d8cbdf-05f4-2876-8bfb-e7c7734a77d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/7/2022 10:26 PM UTC  - :tv:直播](/content/gettr/p1ljvsy23af.md)
-
-（1080版）《飞飞秀·东北杀猪》 2022-08-07
-
-For English：gettr.com/post/p1lkecl070c
-
-
-
-#躺平 #杀猪 #效率 #喜币
-
-<img src="https://media.gettr.com/group30/origin/2022/08/07/22/0af5df4b-a2e3-1a9d-8c12-2a78d2b26546/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/7/2022 10:26 PM UTC  - :tv:直播](/content/gettr/p1lkho6fc8b.md)
-
-（4K版）《飞飞秀·东北杀猪》 2022-08-07
-
-For English：gettr.com/post/p1lkecl070c
-
-
-
-#躺平 #杀猪 #效率 #喜币
-
-<img src="https://media.gettr.com/group29/origin/2022/08/07/22/4569f29f-69a8-8fb6-124a-27e2546df937/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
