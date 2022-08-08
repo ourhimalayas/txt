@@ -12,6 +12,24 @@
 
 ---
 
+[@miles 8/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1lpgsa6f95.md)
+
+8/7/2022 Miles Guo: Fighting fraud is the first step for Chinese people to truly enter civilization! With the advent of digital currency, blockchain technologies and quantum computers, data fabrication will no longer be possible. C...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/08/22/f464c386-e535-db1f-51b2-3faf2cabcbf5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1lpmuoa406.md)
+
+（4K版）《飞飞秀·十八楼》 2022-08-08
+
+#十八楼 #破产案
+
+<img src="https://media.gettr.com/group9/origin/2022/08/08/22/2d8e86bf-2f57-89eb-f39c-4747d97828d9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 8/8/2022 9:37 PM UTC  - :tv:直播](/content/gettr/p1lotckce1b.md)
 
  8月8号2022年，尊敬的战友们好．非常抱歉，七哥今天小视频发晚了，一切都已经开始！ 
@@ -61,16 +79,6 @@ Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized
 
 
 <img src="https://media.gettr.com/group19/gvision/2022/08/08/18/8bfc3a12-333c-49f2-d3e3-06b6a05a0adb/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1lpmuoa406.md)
-
-（4K版）《飞飞秀·十八楼》 2022-08-08
-
-#十八楼 #破产案
-
-<img src="https://media.gettr.com/group9/origin/2022/08/08/22/2d8e86bf-2f57-89eb-f39c-4747d97828d9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 8/7/2022 Miles Guo: Fellow fighters, never forget the benefits of not being unvaccinated against COVID! A fellow fighter who was arrested was not beaten by the CCP police, because the policewoman followed the advice of the Whistleb...
 
 <img src="https://media.gettr.com/group27/getter/2022/08/07/23/6cffd26c-b130-3faf-d1bb-9cfbe4402caf/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/7/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1lkub5f769.md)
-
-8/7/2022 Miles Guo: With a series of Taiwan policies introduced in the US, Taiwan is indeed already independent. The US and Europe will take back Hong Kong, and protect and support the people of Xinjiang and Tibet as never before; ...
-
-<img src="https://media.gettr.com/group7/getter/2022/08/07/23/d7d8cbdf-05f4-2876-8bfb-e7c7734a77d9/out.jpg" width="506" height="284">
 
 ---
 
