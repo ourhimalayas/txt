@@ -2,11 +2,27 @@
 ---
 
 
+[@likewater 8/8/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1lkw0rf5d0.md)
+
+今天七哥爆了啥
+
+<img src="https://media.gettr.com/group37/origin/2022/08/04/00/df8c9e29-c2cd-d1eb-f2ab-47b6ed95508e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/8/2022 12:18 AM UTC  - :tv:直播](/content/gettr/p1lkx3c4aff.md)
 
 8/7/2022 Miles Guo: Xi Jinping doesn't feel safe at all. Xi has built 3 security bunkers in Beidaihe and asked her daughter to get married before the 20th Party Congress. Xi's comment on a secret document, "Whoever plays with fires...
 
 <img src="https://media.gettr.com/group36/getter/2022/08/08/00/32877d4b-5ebe-a7c7-aa97-b2e9cbda3e49/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1llakzc400.md)
+
+8/7/2022 Miles Guo: The US is ready militarily and have all the intel that the CCP has on Taiwan, the US, Japan, and Australia will annihilate the CCP's military presence in the region if the CCP initiates a blockade or any militar...
+
+<img src="https://media.gettr.com/group36/getter/2022/08/08/00/e34e743f-50d0-c521-651a-59d46b93da51/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +59,6 @@ For English：gettr.com/post/p1lkecl070c
 #躺平 #杀猪 #效率 #喜币
 
 <img src="https://media.gettr.com/group30/origin/2022/08/07/22/0af5df4b-a2e3-1a9d-8c12-2a78d2b26546/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p1lkbmbffc7.md)
-
-8/7/2022 Miles Guo: The fact that Dai Yongge was able to obtain the content of Xi Jinping's handwritten instructions on Pelosi's visit to Taiwan earlier than a former member of the CCP Politburo Standing Committee, and that Dai cou...
-
-<img src="https://media.gettr.com/group42/getter/2022/08/08/00/bf502159-9d58-062c-9407-0fe42c4ff0d3/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ For English：gettr.com/post/p1lfy2lae81
 8/3/2022 Miles Guo: No matter how many favors and opportunities the US has offered, the CCP will never give the Chinese people democracy and rule of law; any American or European with a conscience would know that it was Miles Guo a...
 
 <img src="https://media.gettr.com/group14/getter/2022/08/06/14/add48c2b-ca05-6e82-a735-1148c63b2864/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 7:10 AM UTC ](/content/gettr/p1lcgvx21a7.md)
-
-2022.08.06 尊敬的战友们好……科学家让我再次给战友提醒．吃完青蒿素．伊维菌素药后，千万千万不要喝酒，否则将有无法挽回的肝脏损伤以及巨大的副作用……千万千万不要犯这个错。
-
-<img src="https://media.gettr.com/group7/getter/2022/08/06/07/6cfcf115-1071-01d7-035d-aec2d30fa9b4/56ff3b7c3538badeba8e56fb6ea7b6ca.jpg" width="506" height="284">
 
 ---
 
