@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 8/8/2022 12:18 AM UTC  - :tv:直播](/content/gettr/p1lkx3c4aff.md)
+
+8/7/2022 Miles Guo: Xi Jinping doesn't feel safe at all. Xi has built 3 security bunkers in Beidaihe and asked her daughter to get married before the 20th Party Congress. Xi's comment on a secret document, "Whoever plays with fires...
+
+<img src="https://media.gettr.com/group36/getter/2022/08/08/00/32877d4b-5ebe-a7c7-aa97-b2e9cbda3e49/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 12:23 AM UTC ](/content/gettr/p1lkixdd971.md)
+
+2022.08.07 一切都己经开始！
+
+---
+
+[@miles 8/7/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1lkmdy704c.md)
+
+8/7/2022 Miles Guo: Fellow fighters, never forget the benefits of not being unvaccinated against COVID! A fellow fighter who was arrested was not beaten by the CCP police, because the policewoman followed the advice of the Whistleb...
+
+<img src="https://media.gettr.com/group27/getter/2022/08/07/23/6cffd26c-b130-3faf-d1bb-9cfbe4402caf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/7/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1lkub5f769.md)
 
 8/7/2022 Miles Guo: With a series of Taiwan policies introduced in the US, Taiwan is indeed already independent. The US and Europe will take back Hong Kong, and protect and support the people of Xinjiang and Tibet as never before; ...
@@ -24,11 +46,11 @@ For English：gettr.com/post/p1lkecl070c
 
 ---
 
-[@miles 8/7/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1lkmdy704c.md)
+[@miles 8/8/2022 12:25 AM UTC  - :tv:直播](/content/gettr/p1lkbmbffc7.md)
 
-8/7/2022 Miles Guo: Fellow fighters, never forget the benefits of not being unvaccinated against COVID! A fellow fighter who was arrested was not beaten by the CCP police, because the policewoman followed the advice of the Whistleb...
+8/7/2022 Miles Guo: The fact that Dai Yongge was able to obtain the content of Xi Jinping's handwritten instructions on Pelosi's visit to Taiwan earlier than a former member of the CCP Politburo Standing Committee, and that Dai cou...
 
-<img src="https://media.gettr.com/group27/getter/2022/08/07/23/6cffd26c-b130-3faf-d1bb-9cfbe4402caf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/08/08/00/bf502159-9d58-062c-9407-0fe42c4ff0d3/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,30 +207,6 @@ For English：gettr.com/post/p1lfy2lae81
 August 4th, Phnom Penh, ASEAN Foreign Ministers Dinner, US and Japanese Foreign Ministers talk and laugh, Chinese Communist Foreign Minister Wang Yi isolated, left early and left hu...
 
 <img src="https://media.gettr.com/group34/getter/2022/08/06/02/746f5c49-dee7-e456-e0b5-18d66fb54f7c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 4:18 AM UTC  - :tv:直播](/content/gettr/p1lclgxe2ce.md)
-
-8/5/2022 Miles Guo: Advice from the scientist: - we are not supposed to take ivermectin or artemisinin if it is not necessary. If we have to take, we must avoid long-term overdoses. Most of all, one should follow his or her doctor'...
-
-<img src="https://media.gettr.com/group21/getter/2022/08/06/04/4270f6f8-1dac-1aa8-294f-875f04b05c55/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 4:21 AM UTC  - :tv:直播](/content/gettr/p1lbrfw1000.md)
-
-8/5/2022  Miles Guo: We lost again at the hearing yesterday, but we have many grounds for appeal, and one of them will succeed for sure! In America, we must absolutely respect judges and abide by court verdicts unconditionally, but...
-
-<img src="https://media.gettr.com/group19/getter/2022/08/06/04/0e944a46-d6ce-ca3e-0485-f8951a432f84/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p1lbpwbac37.md)
-
-U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai Ing-wen, and the CCP military only dares to lie to the Chinese people that it is able to fight against the USS Ronald Reagan. Miles Guo interprets the m...
-
-<img src="https://media.gettr.com/group38/getter/2022/08/06/04/bd6ce0b6-924e-1846-56a5-f463b47ac491/out.jpg" width="506" height="284">
 
 ---
 
