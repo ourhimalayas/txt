@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 8/8/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1lois38542.md)
+
+2022.08.08 【Nicole看七哥】对于郭先生而言，危机即为机遇。临危不乱、处变不惊是战友们最应该从郭先生身上学习的处事方式。
+
+
+
+For Mr. Guo, crisis means opportunity. Being unflappable when facing danger is one of the most valuable parts for us to learn from him.
+
+<img src="https://media.gettr.com/group36/origin/2022/08/08/20/48ef2532-396e-2df6-503e-ea50db66db8b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/8/2022 8:42 PM UTC  - :tv:直播](/content/gettr/p1loo8m22a5.md)
 
 2022.08.08 【Nicole看七哥】自爆料革命伊始，郭先生就一直强调健身的重要性：健身不只给了他强健的身体素质，更锻炼了他的精力和斗志。
@@ -22,15 +34,11 @@ Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized
 
 ---
 
-[@miles 8/8/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1lois38542.md)
+[@miles 8/8/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1lonk10b76.md)
 
-2022.08.08 【Nicole看七哥】对于郭先生而言，危机即为机遇。临危不乱、处变不惊是战友们最应该从郭先生身上学习的处事方式。
+2022.08.08 Nicole 看七哥 第十三期  谈郭先生的破产案
 
-
-
-For Mr. Guo, crisis means opportunity. Being unflappable when facing danger is one of the most valuable parts for us to learn from him.
-
-<img src="https://media.gettr.com/group36/origin/2022/08/08/20/48ef2532-396e-2df6-503e-ea50db66db8b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/08/08/20/f9089b92-4f3e-cad9-d996-52e549a2f60b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ For English：gettr.com/post/p1lkecl070c
 2022年08月07日 七哥谈如何使用数字与货币、金融、媒体成为灭共的手段
 
 <img src="https://media.gettr.com/group36/origin/2022/08/07/12/bf17b7a4-e2c3-b82d-cd8b-13186f47f5ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/7/2022 10:59 AM UTC ](/content/gettr/p1lhj02be42.md)
-
-2022.08.07 尊敬的战友们好，这是真的假的？为啥呢？😱😱😱😱😱😱😱😱😱今天9:30开始七哥的乱聊答直播！【突发事件：美国人寿保险公司表示，18-49 岁人群的死亡人数莫名其妙地增加了 40%。】
-
-<img src="https://media.gettr.com/group33/getter/2022/08/07/10/3ec92e4d-578a-c7a1-cbc3-b27d388c2875/97ac0611654cb700dc42ebe7259fb85f.jpg" width="506" height="284">
 
 ---
 
