@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 8/8/2022 12:18 AM UTC  - :tv:直播](/content/gettr/p1lkx3c4aff.md)
+[@miles 8/8/2022 4:27 AM UTC  - :tv:直播](/content/gettr/p1llnyybf3b.md)
 
-8/7/2022 Miles Guo: Xi Jinping doesn't feel safe at all. Xi has built 3 security bunkers in Beidaihe and asked her daughter to get married before the 20th Party Congress. Xi's comment on a secret document, "Whoever plays with fires...
+8/7/2022 Miles Guo: A fellow fighter who just fled Communist China told me that the CCP policemen were well-informed of everything that the Whistleblowers' Movement, the NFSC and the Himalaya Alliance Committee had done. The CCP sp...
 
-<img src="https://media.gettr.com/group36/getter/2022/08/08/00/32877d4b-5ebe-a7c7-aa97-b2e9cbda3e49/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/08/08/04/0146213f-2396-2827-5c8e-8dca2f9dffcf/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 8/7/2022 Miles Guo: The US is ready militarily and have all the intel that the CCP has on Taiwan, the US, Japan, and Australia will annihilate the CCP's military presence in the region if the CCP initiates a blockade or any militar...
 
 <img src="https://media.gettr.com/group36/getter/2022/08/08/00/e34e743f-50d0-c521-651a-59d46b93da51/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 12:18 AM UTC  - :tv:直播](/content/gettr/p1lkx3c4aff.md)
+
+8/7/2022 Miles Guo: Xi Jinping doesn't feel safe at all. Xi has built 3 security bunkers in Beidaihe and asked her daughter to get married before the 20th Party Congress. Xi's comment on a secret document, "Whoever plays with fires...
+
+<img src="https://media.gettr.com/group36/getter/2022/08/08/00/32877d4b-5ebe-a7c7-aa97-b2e9cbda3e49/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,16 +205,6 @@ For English：gettr.com/post/p1lfy2lae81
 8/3/2022 Miles Guo: No matter how many favors and opportunities the US has offered, the CCP will never give the Chinese people democracy and rule of law; any American or European with a conscience would know that it was Miles Guo a...
 
 <img src="https://media.gettr.com/group14/getter/2022/08/06/14/add48c2b-ca05-6e82-a735-1148c63b2864/out.jpg" width="506" height="284">
-
----
-
-[@wenjun 8/6/2022 2:39 AM UTC  - :tv:直播](/content/gettr/p1lc7ajcadd.md)
-
-八月四号，金边，东盟外长晚宴，美日外长谈笑风声，王毅被孤立，提前离席，饿着肚子走了。😂😂😂
-
-August 4th, Phnom Penh, ASEAN Foreign Ministers Dinner, US and Japanese Foreign Ministers talk and laugh, Chinese Communist Foreign Minister Wang Yi isolated, left early and left hu...
-
-<img src="https://media.gettr.com/group34/getter/2022/08/06/02/746f5c49-dee7-e456-e0b5-18d66fb54f7c/out.jpg" width="506" height="284">
 
 ---
 
