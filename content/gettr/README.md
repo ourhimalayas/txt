@@ -2,12 +2,6 @@
 ---
 
 
-[@miles 8/8/2022 2:36 PM UTC ](/content/gettr/p1lnseg1f53.md)
-
-《时间点》开始了👍
-
----
-
 [@milesguolive 8/8/2022 4:21 PM UTC  - :tv:直播](/content/gettr/p1lo3g90123.md)
 
 0808大直播精华版
@@ -15,6 +9,20 @@
 
 
 <img src="https://media.gettr.com/group49/origin/2022/08/08/16/5c1daef9-2201-8171-866e-983c8d61d64c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 2:36 PM UTC ](/content/gettr/p1lnseg1f53.md)
+
+《时间点》开始了👍
+
+---
+
+[@loveyou777 7/24/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1jiki43540.md)
+
+Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
+
+<img src="https://media.gettr.com/group29/gvision/2022/07/24/05/f3e6a4d7-69a2-6a52-8f7e-c465189a314e/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,16 +203,6 @@ For English：gettr.com/post/p1lfy2lae81
 #LUC #普衡 #破产案 #Trustee
 
 <img src="https://media.gettr.com/group4/origin/2022/08/06/22/5383cc27-2ad3-bd85-6ec5-ef5aec6035ce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@myabs 8/5/2022 12:18 PM UTC  - :tv:直播](/content/gettr/p1l8f3w0bb9.md)
-
-七哥爆料佩洛西訪台視頻
-
-做的太好了👍👍👍
-
-<img src="https://media.gettr.com/group40/getter/2022/08/05/12/42623005-7f80-b565-2b5f-1188e8de558d/out.jpg" width="506" height="284">
 
 ---
 
