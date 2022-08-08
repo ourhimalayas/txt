@@ -2,14 +2,6 @@
 ---
 
 
-[@shanliang 8/8/2022 6:47 PM UTC  - :tv:直播](/content/gettr/p1loodd5e90.md)
-
-
-
-<img src="https://media.gettr.com/group19/gvision/2022/08/08/18/8bfc3a12-333c-49f2-d3e3-06b6a05a0adb/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/8/2022 8:42 PM UTC  - :tv:直播](/content/gettr/p1loo8m22a5.md)
 
 2022.08.08 【Nicole看七哥】自爆料革命伊始，郭先生就一直强调健身的重要性：健身不只给了他强健的身体素质，更锻炼了他的精力和斗志。
@@ -19,6 +11,26 @@
 Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized the importance of doing exercise. Exercise not only builds his body but al...
 
 <img src="https://media.gettr.com/group3/origin/2022/08/08/20/4a2b95b7-464e-34d5-e859-b041257ed1a8/out.jpg" width="506" height="284">
+
+---
+
+[@shanliang 8/8/2022 6:47 PM UTC  - :tv:直播](/content/gettr/p1loodd5e90.md)
+
+
+
+<img src="https://media.gettr.com/group19/gvision/2022/08/08/18/8bfc3a12-333c-49f2-d3e3-06b6a05a0adb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1lois38542.md)
+
+2022.08.08 【Nicole看七哥】对于郭先生而言，危机即为机遇。临危不乱、处变不惊是战友们最应该从郭先生身上学习的处事方式。
+
+
+
+For Mr. Guo, crisis means opportunity. Being unflappable when facing danger is one of the most valuable parts for us to learn from him.
+
+<img src="https://media.gettr.com/group36/origin/2022/08/08/20/48ef2532-396e-2df6-503e-ea50db66db8b/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ For English：gettr.com/post/p1lkecl070c
 2022.08.07 尊敬的战友们好，这是真的假的？为啥呢？😱😱😱😱😱😱😱😱😱今天9:30开始七哥的乱聊答直播！【突发事件：美国人寿保险公司表示，18-49 岁人群的死亡人数莫名其妙地增加了 40%。】
 
 <img src="https://media.gettr.com/group33/getter/2022/08/07/10/3ec92e4d-578a-c7a1-cbc3-b27d388c2875/97ac0611654cb700dc42ebe7259fb85f.jpg" width="506" height="284">
-
----
-
-[@miles 8/7/2022 3:06 AM UTC ](/content/gettr/p1lgfhga751.md)
-
-2022.08.06 尊敬的战友的好……里根号航母会成为灭共的第一把尖刀……莘县阳谷县搭县……咱们走着看！
-
-<img src="https://media.gettr.com/group20/getter/2022/08/07/03/055f7b15-9738-129e-e13c-0d27dc83e213/4611aebd4abf7d9097a03c871873d087.jpg" width="506" height="284">
 
 ---
 
