@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/7/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1lkub5f769.md)
+
+8/7/2022 Miles Guo: With a series of Taiwan policies introduced in the US, Taiwan is indeed already independent. The US and Europe will take back Hong Kong, and protect and support the people of Xinjiang and Tibet as never before; ...
+
+<img src="https://media.gettr.com/group7/getter/2022/08/07/23/d7d8cbdf-05f4-2876-8bfb-e7c7734a77d9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/7/2022 10:26 PM UTC  - :tv:直播](/content/gettr/p1ljvsy23af.md)
 
 （1080版）《飞飞秀·东北杀猪》 2022-08-07
@@ -16,11 +24,11 @@ For English：gettr.com/post/p1lkecl070c
 
 ---
 
-[@miles 8/7/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p1lkub5f769.md)
+[@miles 8/7/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1lkmdy704c.md)
 
-8/7/2022 Miles Guo: With a series of Taiwan policies introduced in the US, Taiwan is indeed already independent. The US and Europe will take back Hong Kong, and protect and support the people of Xinjiang and Tibet as never before; ...
+8/7/2022 Miles Guo: Fellow fighters, never forget the benefits of not being unvaccinated against COVID! A fellow fighter who was arrested was not beaten by the CCP police, because the policewoman followed the advice of the Whistleb...
 
-<img src="https://media.gettr.com/group7/getter/2022/08/07/23/d7d8cbdf-05f4-2876-8bfb-e7c7734a77d9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/08/07/23/6cffd26c-b130-3faf-d1bb-9cfbe4402caf/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ August 4th, Phnom Penh, ASEAN Foreign Ministers Dinner, US and Japanese Foreign 
 U.S. House Speaker Nancy Pelosi was awarded a national order by President Tsai Ing-wen, and the CCP military only dares to lie to the Chinese people that it is able to fight against the USS Ronald Reagan. Miles Guo interprets the m...
 
 <img src="https://media.gettr.com/group38/getter/2022/08/06/04/bd6ce0b6-924e-1846-56a5-f463b47ac491/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 12:30 AM UTC  - :tv:直播](/content/gettr/p1lb3lb079b.md)
-
-8/5/2022 Miles Guo: If the U.S. and Europe fail to take the initiative to decouple from the CCP in the areas of technology, finance and internet, they will be unable to protect themselves once the economic meltdown takes place. The...
-
-<img src="https://media.gettr.com/group27/getter/2022/08/06/00/74d0be58-ca7b-045a-881e-6834a85de3bd/out.jpg" width="506" height="284">
 
 ---
 
