@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/8/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1lonk10b76.md)
+
+2022.08.08 Nicole 看七哥 第十三期  谈郭先生的破产案
+
+<img src="https://media.gettr.com/group28/origin/2022/08/08/20/f9089b92-4f3e-cad9-d996-52e549a2f60b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/8/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1lois38542.md)
 
 2022.08.08 【Nicole看七哥】对于郭先生而言，危机即为机遇。临危不乱、处变不惊是战友们最应该从郭先生身上学习的处事方式。
@@ -34,11 +42,15 @@ Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized
 
 ---
 
-[@miles 8/8/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1lonk10b76.md)
+[@miles 8/8/2022 9:37 PM UTC  - :tv:直播](/content/gettr/p1lotckce1b.md)
 
-2022.08.08 Nicole 看七哥 第十三期  谈郭先生的破产案
+ 8月8号2022年，尊敬的战友们好．非常抱歉，七哥今天小视频发晚了，一切都已经开始！ 
 
-<img src="https://media.gettr.com/group28/origin/2022/08/08/20/f9089b92-4f3e-cad9-d996-52e549a2f60b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+
+
+<img src="https://media.gettr.com/group3/getter/2022/08/08/20/a55d08a4-11c3-a395-e8b4-810559415eeb/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +181,6 @@ For English：gettr.com/post/p1lkecl070c
 #躺平 #杀猪 #效率 #喜币
 
 <img src="https://media.gettr.com/group29/origin/2022/08/07/22/4569f29f-69a8-8fb6-124a-27e2546df937/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/7/2022 12:53 PM UTC  - :tv:直播](/content/gettr/p1lija80b88.md)
-
-2022年08月07日 七哥谈如何使用数字与货币、金融、媒体成为灭共的手段
-
-<img src="https://media.gettr.com/group36/origin/2022/08/07/12/bf17b7a4-e2c3-b82d-cd8b-13186f47f5ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
