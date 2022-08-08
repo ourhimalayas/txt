@@ -8,6 +8,24 @@
 
 ---
 
+[@milesguolive 8/8/2022 4:21 PM UTC  - :tv:直播](/content/gettr/p1lo3g90123.md)
+
+0808大直播精华版
+
+
+
+<img src="https://media.gettr.com/group49/origin/2022/08/08/16/5c1daef9-2201-8171-866e-983c8d61d64c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 2:40 PM UTC  - :tv:直播](/content/gettr/p1lnjxf8f31.md)
+
+8/7/2022 Miles Guo: A conversation between a friend of mine and a former senior CCP cadre in Shanghai revealed that Xi Jinping's complete confrontation with the West over Taiwan will eventually lead to a world war and become a disa...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/08/14/fa36d069-fdc1-d47d-aaea-68b938a69ab0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/8/2022 4:27 AM UTC  - :tv:直播](/content/gettr/p1llnyybf3b.md)
 
 8/7/2022 Miles Guo: A fellow fighter who just fled Communist China told me that the CCP policemen were well-informed of everything that the Whistleblowers' Movement, the NFSC and the Himalaya Alliance Committee had done. The CCP sp...
@@ -21,14 +39,6 @@
 今天七哥爆了啥
 
 <img src="https://media.gettr.com/group37/origin/2022/08/04/00/df8c9e29-c2cd-d1eb-f2ab-47b6ed95508e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 2:40 PM UTC  - :tv:直播](/content/gettr/p1lnjxf8f31.md)
-
-8/7/2022 Miles Guo: A conversation between a friend of mine and a former senior CCP cadre in Shanghai revealed that Xi Jinping's complete confrontation with the West over Taiwan will eventually lead to a world war and become a disa...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/08/14/fa36d069-fdc1-d47d-aaea-68b938a69ab0/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +205,6 @@ For English：gettr.com/post/p1lfy2lae81
 做的太好了👍👍👍
 
 <img src="https://media.gettr.com/group40/getter/2022/08/05/12/42623005-7f80-b565-2b5f-1188e8de558d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 2:31 PM UTC  - :tv:直播](/content/gettr/p1ldtpwb949.md)
-
-新中国联邦｜真人真事 第61期  澳喜农场 文智  For English：https://gettr.com/post/p1ldpvd775d
-
-<img src="https://media.gettr.com/group6/origin/2022/08/06/14/153b2367-dad3-4aa8-ca3e-ee8407476e01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
