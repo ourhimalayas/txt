@@ -2,11 +2,9 @@
 ---
 
 
-[@likewater 8/8/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1lkw0rf5d0.md)
+[@miles 8/8/2022 2:36 PM UTC ](/content/gettr/p1lnseg1f53.md)
 
-今天七哥爆了啥
-
-<img src="https://media.gettr.com/group37/origin/2022/08/04/00/df8c9e29-c2cd-d1eb-f2ab-47b6ed95508e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+《时间点》开始了👍
 
 ---
 
@@ -15,6 +13,22 @@
 8/7/2022 Miles Guo: A fellow fighter who just fled Communist China told me that the CCP policemen were well-informed of everything that the Whistleblowers' Movement, the NFSC and the Himalaya Alliance Committee had done. The CCP sp...
 
 <img src="https://media.gettr.com/group49/getter/2022/08/08/04/0146213f-2396-2827-5c8e-8dca2f9dffcf/out.jpg" width="506" height="284">
+
+---
+
+[@likewater 8/8/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1lkw0rf5d0.md)
+
+今天七哥爆了啥
+
+<img src="https://media.gettr.com/group37/origin/2022/08/04/00/df8c9e29-c2cd-d1eb-f2ab-47b6ed95508e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/8/2022 2:40 PM UTC  - :tv:直播](/content/gettr/p1lnjxf8f31.md)
+
+8/7/2022 Miles Guo: A conversation between a friend of mine and a former senior CCP cadre in Shanghai revealed that Xi Jinping's complete confrontation with the West over Taiwan will eventually lead to a world war and become a disa...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/08/14/fa36d069-fdc1-d47d-aaea-68b938a69ab0/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,22 +203,6 @@ For English：gettr.com/post/p1lfy2lae81
 新中国联邦｜真人真事 第61期  澳喜农场 文智  For English：https://gettr.com/post/p1ldpvd775d
 
 <img src="https://media.gettr.com/group6/origin/2022/08/06/14/153b2367-dad3-4aa8-ca3e-ee8407476e01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 2:24 PM UTC  - :tv:直播](/content/gettr/p1ldfjxf55d.md)
-
-8/3/2022 Miles Guo: Nancy Pelosi’s visit to Taiwan completely debunked the CCP’s propaganda that Chinese culture is not compatible with democracy and rule of law; the CCP will disband by itself once its overseas assets are exposed!...
-
-<img src="https://media.gettr.com/group22/getter/2022/08/06/14/b8ddc303-c74f-818f-6bf0-5baf82694a45/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/6/2022 2:05 PM UTC  - :tv:直播](/content/gettr/p1ld9zo7043.md)
-
-8/3/2022 Miles Guo: No matter how many favors and opportunities the US has offered, the CCP will never give the Chinese people democracy and rule of law; any American or European with a conscience would know that it was Miles Guo a...
-
-<img src="https://media.gettr.com/group14/getter/2022/08/06/14/add48c2b-ca05-6e82-a735-1148c63b2864/out.jpg" width="506" height="284">
 
 ---
 
