@@ -16,6 +16,22 @@
 
 ---
 
+[@miles 8/9/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1lrcoc15ef.md)
+
+8/82022 Miles Guo’s GETTR: No one in the CCP dares to mention my name, because they don’t want the West to know what a big threat the Whistleblowers’ Movement and the New Federal State of China is to the CCP; our fellow fighters wi...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/09/04/769c50b2-34a8-7327-b7ca-c4d9dda5334c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/9/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1lqgp5f8c1.md)
+
+8/7/2022 Miles Guo: The U.S. and the rest of the world are surely decoupling from the CCP in the technological and financial areas. The overseas CCP members including Dai Yongge will end up being deported, and their assets will be ...
+
+<img src="https://media.gettr.com/group31/getter/2022/08/09/00/97a503dd-90e9-1ada-60be-dd1a8adef6ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lpqkzb4e8.md)
 
 8/7/2022 Miles Guo: The fact that Dai Yongge was able to flee to London and obtain Xi Jinping's instructions at any time proves that Zeng Qinghong and his clique still have power and cannot be underestimated.
@@ -43,14 +59,6 @@
 #十八楼 #破产案
 
 <img src="https://media.gettr.com/group13/origin/2022/08/08/22/a8f768d5-3207-080e-afac-8fdeb8f8d07e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 8/9/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1lqgp5f8c1.md)
-
-8/7/2022 Miles Guo: The U.S. and the rest of the world are surely decoupling from the CCP in the technological and financial areas. The overseas CCP members including Dai Yongge will end up being deported, and their assets will be ...
-
-<img src="https://media.gettr.com/group31/getter/2022/08/09/00/97a503dd-90e9-1ada-60be-dd1a8adef6ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 8/7/2022 Miles Guo: A fellow fighter who just fled Communist China told me that the CCP policemen were well-informed of everything that the Whistleblowers' Movement, the NFSC and the Himalaya Alliance Committee had done. The CCP sp...
 
 <img src="https://media.gettr.com/group49/getter/2022/08/08/04/0146213f-2396-2827-5c8e-8dca2f9dffcf/out.jpg" width="506" height="284">
-
----
-
-[@likewater 8/8/2022 12:27 AM UTC  - :tv:直播](/content/gettr/p1lkw0rf5d0.md)
-
-今天七哥爆了啥
-
-<img src="https://media.gettr.com/group37/origin/2022/08/04/00/df8c9e29-c2cd-d1eb-f2ab-47b6ed95508e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
