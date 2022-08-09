@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/9/2022 5:24 PM UTC  - :tv:直播](/content/gettr/p1lu56ba434.md)
+
+2022.08.09 第二次小视频……尊敬的战友们好……刚才的小视频．忘了回答一些战友询问关于己经投资了新加坡中国背景基金……一些风险的问题，我在这里补上！
+
+<img src="https://media.gettr.com/group32/getter/2022/08/09/17/defbbed2-4bfe-16f0-9fa2-6be54ddad8dc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 3:34 PM UTC  - :tv:直播](/content/gettr/p1lugzp4099.md)
 
  2022年8月9号：尊敬的战友们好，你们健身了吗？一切都已经开始！ 
@@ -44,11 +52,11 @@
 
 ---
 
-[@miles 8/9/2022 5:24 PM UTC  - :tv:直播](/content/gettr/p1lu56ba434.md)
+[@miles 8/9/2022 9:05 PM UTC  - :tv:直播](/content/gettr/p1lvnj2aeb6.md)
 
-2022.08.09 第二次小视频……尊敬的战友们好……刚才的小视频．忘了回答一些战友询问关于己经投资了新加坡中国背景基金……一些风险的问题，我在这里补上！
+2022.08.09  Nicole 看七哥 第十四期  前华为战友如是说
 
-<img src="https://media.gettr.com/group32/getter/2022/08/09/17/defbbed2-4bfe-16f0-9fa2-6be54ddad8dc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 
 
 <img src="https://media.gettr.com/group49/origin/2022/08/08/16/5c1daef9-2201-8171-866e-983c8d61d64c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 2:40 PM UTC  - :tv:直播](/content/gettr/p1lnjxf8f31.md)
-
-8/7/2022 Miles Guo: A conversation between a friend of mine and a former senior CCP cadre in Shanghai revealed that Xi Jinping's complete confrontation with the West over Taiwan will eventually lead to a world war and become a disa...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/08/14/fa36d069-fdc1-d47d-aaea-68b938a69ab0/out.jpg" width="506" height="284">
 
 ---
 
