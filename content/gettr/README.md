@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1lpgsa6f95.md)
+
+8/7/2022 Miles Guo: Fighting fraud is the first step for Chinese people to truly enter civilization! With the advent of digital currency, blockchain technologies and quantum computers, data fabrication will no longer be possible. C...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/08/22/f464c386-e535-db1f-51b2-3faf2cabcbf5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/8/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1lplzx7f4f.md)
 
 （1080版）《飞飞秀·十八楼》 2022-08-08
@@ -12,11 +20,15 @@
 
 ---
 
-[@miles 8/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1lpgsa6f95.md)
+[@miles 8/9/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lpqkzb4e8.md)
 
-8/7/2022 Miles Guo: Fighting fraud is the first step for Chinese people to truly enter civilization! With the advent of digital currency, blockchain technologies and quantum computers, data fabrication will no longer be possible. C...
+8/7/2022 Miles Guo: The fact that Dai Yongge was able to flee to London and obtain Xi Jinping's instructions at any time proves that Zeng Qinghong and his clique still have power and cannot be underestimated.
 
-<img src="https://media.gettr.com/group38/getter/2022/08/08/22/f464c386-e535-db1f-51b2-3faf2cabcbf5/out.jpg" width="506" height="284">
+
+
+8/7/2022 文贵直播：戴永革能逃...
+
+<img src="https://media.gettr.com/group50/getter/2022/08/08/23/8977b682-2cf7-e28c-2aa1-0c39246ab495/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 [@miles 8/8/2022 12:23 AM UTC ](/content/gettr/p1lkixdd971.md)
 
 2022.08.07 一切都己经开始！
-
----
-
-[@miles 8/7/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1lkmdy704c.md)
-
-8/7/2022 Miles Guo: Fellow fighters, never forget the benefits of not being unvaccinated against COVID! A fellow fighter who was arrested was not beaten by the CCP police, because the policewoman followed the advice of the Whistleb...
-
-<img src="https://media.gettr.com/group27/getter/2022/08/07/23/6cffd26c-b130-3faf-d1bb-9cfbe4402caf/out.jpg" width="506" height="284">
 
 ---
 
