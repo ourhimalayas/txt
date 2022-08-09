@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/9/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1lvtt24d56.md)
+
+8/7/2022 Miles Guo: Traitors in Taiwan not only sold out Taiwan, but also provided a bunch of bad advice to the Communist Party, but the U.S. has the top 1 intelligence source regarding Taiwan issue; the U.S., Australia and Japan w...
+
+<img src="https://media.gettr.com/group21/getter/2022/08/09/23/d94171b5-eff8-4e2e-abff-1c2464951434/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1lvg8m4835.md)
 
 8/8/2022 Miles Guo: Wang Xiaohong wants to wipe out the Meng Jianzhu and Sun Lijun factions, but is not capable of doing it. On the contrary, Wang could get himself wiped out. Zhang Hongwei and his families might all face jail time...
@@ -10,15 +18,11 @@
 
 ---
 
-[@miles 8/9/2022 10:27 PM UTC  - :tv:直播](/content/gettr/p1lvq6f3443.md)
+[@miles 8/9/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1lw04sc123.md)
 
-（1080版）《飞飞秀·居中制衡》 2022-08-09
+8/7/2022 Miles Guo: Our fellow fighters should care for each other, adhere to the principle of “only the truth prevails”, and the belief that human rights are God-given; we didn’t take the COVID vaccines, own digital currencies and...
 
-For English：gettr.com/streaming/p1lw3via4fe
-
-#居中制衡
-
-<img src="https://media.gettr.com/group39/origin/2022/08/09/22/3d088ea5-3095-8c57-0f26-077e181014d4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/08/09/23/cd563960-a754-222d-e6a9-6898e6fb6a37/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,6 +37,18 @@ For English：gettr.com/streaming/p1lw3via4fe
 
 
 <img src="https://media.gettr.com/group35/getter/2022/08/09/23/7f91c7c6-654d-f42b-9b36-8e5e096eedb2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/9/2022 10:27 PM UTC  - :tv:直播](/content/gettr/p1lvq6f3443.md)
+
+（1080版）《飞飞秀·居中制衡》 2022-08-09
+
+For English：gettr.com/streaming/p1lw3via4fe
+
+#居中制衡
+
+<img src="https://media.gettr.com/group39/origin/2022/08/09/22/3d088ea5-3095-8c57-0f26-077e181014d4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,26 +199,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 For Mr. Guo, crisis means opportunity. Being unflappable when facing danger is one of the most valuable parts for us to learn from him.
 
 <img src="https://media.gettr.com/group36/origin/2022/08/08/20/48ef2532-396e-2df6-503e-ea50db66db8b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 8:42 PM UTC  - :tv:直播](/content/gettr/p1loo8m22a5.md)
-
-2022.08.08 【Nicole看七哥】自爆料革命伊始，郭先生就一直强调健身的重要性：健身不只给了他强健的身体素质，更锻炼了他的精力和斗志。
-
-
-
-Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized the importance of doing exercise. Exercise not only builds his body but al...
-
-<img src="https://media.gettr.com/group3/origin/2022/08/08/20/4a2b95b7-464e-34d5-e859-b041257ed1a8/out.jpg" width="506" height="284">
-
----
-
-[@yigushi 7/31/2022 4:24 AM UTC  - :tv:直播](/content/gettr/p1kha95e384.md)
-
-七哥“一语奠丰碑”——香港是中华圣城，香港人是中国人榜样
-
-<img src="https://media.gettr.com/group26/gvision/2022/07/31/04/840e4b9b-ecc0-dd34-03cf-450b94434626/out.jpg" width="506" height="284">
 
 ---
 
