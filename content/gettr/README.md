@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 8/9/2022 10:27 PM UTC  - :tv:直播](/content/gettr/p1lvq6f3443.md)
+
+（1080版）《飞飞秀·居中制衡》 2022-08-09
+
+For English：gettr.com/streaming/p1lw3via4fe
+
+#居中制衡
+
+<img src="https://media.gettr.com/group39/origin/2022/08/09/22/3d088ea5-3095-8c57-0f26-077e181014d4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/9/2022 9:05 PM UTC  - :tv:直播](/content/gettr/p1lvnj2aeb6.md)
+
+2022.08.09  Nicole 看七哥 第十四期  前华为战友如是说
+
+<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 5:24 PM UTC  - :tv:直播](/content/gettr/p1lu56ba434.md)
 
 2022.08.09 第二次小视频……尊敬的战友们好……刚才的小视频．忘了回答一些战友询问关于己经投资了新加坡中国背景基金……一些风险的问题，我在这里补上！
@@ -52,11 +72,15 @@
 
 ---
 
-[@miles 8/9/2022 9:05 PM UTC  - :tv:直播](/content/gettr/p1lvnj2aeb6.md)
+[@miles 8/9/2022 10:27 PM UTC  - :tv:直播](/content/gettr/p1lvzs87071.md)
 
-2022.08.09  Nicole 看七哥 第十四期  前华为战友如是说
+（4K版）《飞飞秀·居中制衡》 2022-08-09
 
-<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1lw3via4fe
+
+#居中制衡
+
+<img src="https://media.gettr.com/group44/origin/2022/08/09/22/cbb91adc-a236-a5a1-b7f1-828c6d8f2688/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,24 +197,6 @@ Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized
 七哥“一语奠丰碑”——香港是中华圣城，香港人是中国人榜样
 
 <img src="https://media.gettr.com/group26/gvision/2022/07/31/04/840e4b9b-ecc0-dd34-03cf-450b94434626/out.jpg" width="506" height="284">
-
----
-
-[@loveyou777 7/24/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p1jiki43540.md)
-
-Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
-
-<img src="https://media.gettr.com/group29/gvision/2022/07/24/05/f3e6a4d7-69a2-6a52-8f7e-c465189a314e/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 8/8/2022 4:21 PM UTC  - :tv:直播](/content/gettr/p1lo3g90123.md)
-
-0808大直播精华版
-
-
-
-<img src="https://media.gettr.com/group49/origin/2022/08/08/16/5c1daef9-2201-8171-866e-983c8d61d64c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
