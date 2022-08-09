@@ -9,6 +9,8 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
+**由於技術問題，此頁面暫時不能更新。我們會在儘快解決，謝謝理解。**
+
 ---
 
 #### [樱花FM┃中信旗下麻袋财富爆雷，投资人或将血本无归](/content/gnews/2696336.md)
