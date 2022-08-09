@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1lvg8m4835.md)
+
+8/8/2022 Miles Guo: Wang Xiaohong wants to wipe out the Meng Jianzhu and Sun Lijun factions, but is not capable of doing it. On the contrary, Wang could get himself wiped out. Zhang Hongwei and his families might all face jail time...
+
+<img src="https://media.gettr.com/group5/getter/2022/08/09/22/24ffdfb9-ce17-3d60-dab4-431b8c6f5844/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 10:27 PM UTC  - :tv:直播](/content/gettr/p1lvq6f3443.md)
 
 （1080版）《飞飞秀·居中制衡》 2022-08-09
@@ -11,6 +19,32 @@ For English：gettr.com/streaming/p1lw3via4fe
 #居中制衡
 
 <img src="https://media.gettr.com/group39/origin/2022/08/09/22/3d088ea5-3095-8c57-0f26-077e181014d4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/9/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1lw2d10c4b.md)
+
+8/7/2022 Miles Guo: The New Federal State of China relies on our own strength. We only care about the approval of Chinese people and our fellow fighters!
+
+
+
+8/7/2022 文贵直播：新中国联邦靠的是实力，我们只在意中国人和战友的认可！
+
+
+
+<img src="https://media.gettr.com/group35/getter/2022/08/09/23/7f91c7c6-654d-f42b-9b36-8e5e096eedb2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/9/2022 10:27 PM UTC  - :tv:直播](/content/gettr/p1lvzs87071.md)
+
+（4K版）《飞飞秀·居中制衡》 2022-08-09
+
+For English：gettr.com/streaming/p1lw3via4fe
+
+#居中制衡
+
+<img src="https://media.gettr.com/group44/origin/2022/08/09/22/cbb91adc-a236-a5a1-b7f1-828c6d8f2688/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -69,18 +103,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 
 
 <img src="https://media.gettr.com/group44/getter/2022/08/09/00/188e8000-7773-cedd-6b9c-0c799eca04f3/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 10:27 PM UTC  - :tv:直播](/content/gettr/p1lvzs87071.md)
-
-（4K版）《飞飞秀·居中制衡》 2022-08-09
-
-For English：gettr.com/streaming/p1lw3via4fe
-
-#居中制衡
-
-<img src="https://media.gettr.com/group44/origin/2022/08/09/22/cbb91adc-a236-a5a1-b7f1-828c6d8f2688/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,22 +195,6 @@ For Mr. Guo, crisis means opportunity. Being unflappable when facing danger is o
 Since the beginning of the Whistleblower Movement, Mr. Guo has always emphasized the importance of doing exercise. Exercise not only builds his body but al...
 
 <img src="https://media.gettr.com/group3/origin/2022/08/08/20/4a2b95b7-464e-34d5-e859-b041257ed1a8/out.jpg" width="506" height="284">
-
----
-
-[@shanliang 8/8/2022 6:47 PM UTC  - :tv:直播](/content/gettr/p1loodd5e90.md)
-
-
-
-<img src="https://media.gettr.com/group19/gvision/2022/08/08/18/8bfc3a12-333c-49f2-d3e3-06b6a05a0adb/out.jpg" width="506" height="284">
-
----
-
-[@qiwenchang 8/8/2022 6:46 PM UTC  - :tv:直播](/content/gettr/p1lo6ht170e.md)
-
-上海刚解封我就来海南，没想到海南又封了
-
-<img src="https://media.gettr.com/group38/gvision/2022/08/08/18/ae0091ba-1c2b-493f-be6a-110227d7e93f/out.jpg" width="506" height="284">
 
 ---
 
