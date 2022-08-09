@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/9/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p1lqzfad063.md)
+
+8/8/2022 Miles Guo's GETTR: The CCP is going to massively trap and arrest their own people in the U.K., Australia, Singapore and other countries across the world. The Zeng Family, Fudan Gang and other people associated with the CCP...
+
+<img src="https://media.gettr.com/group45/getter/2022/08/09/04/a7dfb767-262a-76aa-8255-cf5200d992f7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1lrcoc15ef.md)
 
 8/82022 Miles Guo’s GETTR: No one in the CCP dares to mention my name, because they don’t want the West to know what a big threat the Whistleblowers’ Movement and the New Federal State of China is to the CCP; our fellow fighters wi...
@@ -24,11 +32,15 @@
 
 ---
 
-[@miles 8/9/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p1lqzfad063.md)
+[@miles 8/9/2022 3:34 PM UTC  - :tv:直播](/content/gettr/p1lugzp4099.md)
 
-8/8/2022 Miles Guo's GETTR: The CCP is going to massively trap and arrest their own people in the U.K., Australia, Singapore and other countries across the world. The Zeng Family, Fudan Gang and other people associated with the CCP...
+ 2022年8月9号：尊敬的战友们好，你们健身了吗？一切都已经开始！ 
 
-<img src="https://media.gettr.com/group45/getter/2022/08/09/04/a7dfb767-262a-76aa-8255-cf5200d992f7/out.jpg" width="506" height="284">
+
+
+
+
+<img src="https://media.gettr.com/group21/getter/2022/08/09/15/d178586c-6032-685a-601c-16ed6a765503/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +189,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 8/7/2022 Miles Guo: A conversation between a friend of mine and a former senior CCP cadre in Shanghai revealed that Xi Jinping's complete confrontation with the West over Taiwan will eventually lead to a world war and become a disa...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/08/14/fa36d069-fdc1-d47d-aaea-68b938a69ab0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 4:27 AM UTC  - :tv:直播](/content/gettr/p1llnyybf3b.md)
-
-8/7/2022 Miles Guo: A fellow fighter who just fled Communist China told me that the CCP policemen were well-informed of everything that the Whistleblowers' Movement, the NFSC and the Himalaya Alliance Committee had done. The CCP sp...
-
-<img src="https://media.gettr.com/group49/getter/2022/08/08/04/0146213f-2396-2827-5c8e-8dca2f9dffcf/out.jpg" width="506" height="284">
 
 ---
 
