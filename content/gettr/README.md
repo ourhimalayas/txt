@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 8/9/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1lq2oi9dc9.md)
+
+8/7/2022 Miles Guo:  Xi’s mistake of writing a wrong word in his note has become a joke spreading inside the CCP, and Xi has no sense of security.
+
+
+
+8/7/2022 文贵直播：习批示中的错别字一事已成为中共全党的笑话，习毫无安全感
+
+
+
+<img src="https://media.gettr.com/group44/getter/2022/08/09/00/188e8000-7773-cedd-6b9c-0c799eca04f3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/9/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lpqkzb4e8.md)
+
+8/7/2022 Miles Guo: The fact that Dai Yongge was able to flee to London and obtain Xi Jinping's instructions at any time proves that Zeng Qinghong and his clique still have power and cannot be underestimated.
+
+
+
+8/7/2022 文贵直播：戴永革能逃...
+
+<img src="https://media.gettr.com/group50/getter/2022/08/08/23/8977b682-2cf7-e28c-2aa1-0c39246ab495/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1lpgsa6f95.md)
 
 8/7/2022 Miles Guo: Fighting fraud is the first step for Chinese people to truly enter civilization! With the advent of digital currency, blockchain technologies and quantum computers, data fabrication will no longer be possible. C...
@@ -20,15 +46,11 @@
 
 ---
 
-[@miles 8/9/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lpqkzb4e8.md)
+[@miles 8/9/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1lqgp5f8c1.md)
 
-8/7/2022 Miles Guo: The fact that Dai Yongge was able to flee to London and obtain Xi Jinping's instructions at any time proves that Zeng Qinghong and his clique still have power and cannot be underestimated.
+8/7/2022 Miles Guo: The U.S. and the rest of the world are surely decoupling from the CCP in the technological and financial areas. The overseas CCP members including Dai Yongge will end up being deported, and their assets will be ...
 
-
-
-8/7/2022 文贵直播：戴永革能逃...
-
-<img src="https://media.gettr.com/group50/getter/2022/08/08/23/8977b682-2cf7-e28c-2aa1-0c39246ab495/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/08/09/00/97a503dd-90e9-1ada-60be-dd1a8adef6ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,20 +185,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 8/7/2022 Miles Guo: The US is ready militarily and have all the intel that the CCP has on Taiwan, the US, Japan, and Australia will annihilate the CCP's military presence in the region if the CCP initiates a blockade or any militar...
 
 <img src="https://media.gettr.com/group36/getter/2022/08/08/00/e34e743f-50d0-c521-651a-59d46b93da51/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 12:18 AM UTC  - :tv:直播](/content/gettr/p1lkx3c4aff.md)
-
-8/7/2022 Miles Guo: Xi Jinping doesn't feel safe at all. Xi has built 3 security bunkers in Beidaihe and asked her daughter to get married before the 20th Party Congress. Xi's comment on a secret document, "Whoever plays with fires...
-
-<img src="https://media.gettr.com/group36/getter/2022/08/08/00/32877d4b-5ebe-a7c7-aa97-b2e9cbda3e49/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 12:23 AM UTC ](/content/gettr/p1lkixdd971.md)
-
-2022.08.07 一切都己经开始！
 
 ---
 
