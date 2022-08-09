@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/9/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1lrcoc15ef.md)
+
+8/82022 Miles Guo’s GETTR: No one in the CCP dares to mention my name, because they don’t want the West to know what a big threat the Whistleblowers’ Movement and the New Federal State of China is to the CCP; our fellow fighters wi...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/09/04/769c50b2-34a8-7327-b7ca-c4d9dda5334c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1lq2oi9dc9.md)
 
 8/7/2022 Miles Guo:  Xi’s mistake of writing a wrong word in his note has become a joke spreading inside the CCP, and Xi has no sense of security.
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 8/9/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1lrcoc15ef.md)
+[@miles 8/9/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p1lqzfad063.md)
 
-8/82022 Miles Guo’s GETTR: No one in the CCP dares to mention my name, because they don’t want the West to know what a big threat the Whistleblowers’ Movement and the New Federal State of China is to the CCP; our fellow fighters wi...
+8/8/2022 Miles Guo's GETTR: The CCP is going to massively trap and arrest their own people in the U.K., Australia, Singapore and other countries across the world. The Zeng Family, Fudan Gang and other people associated with the CCP...
 
-<img src="https://media.gettr.com/group14/getter/2022/08/09/04/769c50b2-34a8-7327-b7ca-c4d9dda5334c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/08/09/04/a7dfb767-262a-76aa-8255-cf5200d992f7/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ Chiến đấu đến hơi thở cuối cùng #thegioidongvat #wildanimals
 8/7/2022 Miles Guo: A fellow fighter who just fled Communist China told me that the CCP policemen were well-informed of everything that the Whistleblowers' Movement, the NFSC and the Himalaya Alliance Committee had done. The CCP sp...
 
 <img src="https://media.gettr.com/group49/getter/2022/08/08/04/0146213f-2396-2827-5c8e-8dca2f9dffcf/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 12:50 AM UTC  - :tv:直播](/content/gettr/p1llakzc400.md)
-
-8/7/2022 Miles Guo: The US is ready militarily and have all the intel that the CCP has on Taiwan, the US, Japan, and Australia will annihilate the CCP's military presence in the region if the CCP initiates a blockade or any militar...
-
-<img src="https://media.gettr.com/group36/getter/2022/08/08/00/e34e743f-50d0-c521-651a-59d46b93da51/out.jpg" width="506" height="284">
 
 ---
 
