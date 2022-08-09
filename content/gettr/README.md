@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/9/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1lwm2n06b1.md)
+
+8/9/2022 Miles Guo's GETTR: Do not worry about President Trump, we do not understand the U.S. law, nor are we in a position to meddle in the U.S. politics; in addition to taking down the CCP, our fellow fighters should focus on our...
+
+<img src="https://media.gettr.com/group44/getter/2022/08/09/23/b87b8b1d-2d97-9a55-eff2-9be28348a0b7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1lvtt24d56.md)
 
 8/7/2022 Miles Guo: Traitors in Taiwan not only sold out Taiwan, but also provided a bunch of bad advice to the Communist Party, but the U.S. has the top 1 intelligence source regarding Taiwan issue; the U.S., Australia and Japan w...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 8/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1lvg8m4835.md)
+[@miles 8/9/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1lw4uk7613.md)
 
-8/8/2022 Miles Guo: Wang Xiaohong wants to wipe out the Meng Jianzhu and Sun Lijun factions, but is not capable of doing it. On the contrary, Wang could get himself wiped out. Zhang Hongwei and his families might all face jail time...
+8/9/2022 Miles Guo’s GETTR Google data center exploded, why? One of our fellow fighters in Europe was awarded 4 million Euros in a lawsuit because the court found out that Twitter completely manipulated our data; the New Federal St...
 
-<img src="https://media.gettr.com/group5/getter/2022/08/09/22/24ffdfb9-ce17-3d60-dab4-431b8c6f5844/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/08/09/23/8e036f6e-684d-ea4c-8577-d6e922fd36e6/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@
 8/7/2022 Miles Guo: Our fellow fighters should care for each other, adhere to the principle of “only the truth prevails”, and the belief that human rights are God-given; we didn’t take the COVID vaccines, own digital currencies and...
 
 <img src="https://media.gettr.com/group42/getter/2022/08/09/23/cd563960-a754-222d-e6a9-6898e6fb6a37/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1lvg8m4835.md)
+
+8/8/2022 Miles Guo: Wang Xiaohong wants to wipe out the Meng Jianzhu and Sun Lijun factions, but is not capable of doing it. On the contrary, Wang could get himself wiped out. Zhang Hongwei and his families might all face jail time...
+
+<img src="https://media.gettr.com/group5/getter/2022/08/09/22/24ffdfb9-ce17-3d60-dab4-431b8c6f5844/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,26 +195,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 
 
 <img src="https://media.gettr.com/group3/getter/2022/08/08/20/a55d08a4-11c3-a395-e8b4-810559415eeb/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p1lonk10b76.md)
-
-2022.08.08 Nicole 看七哥 第十三期  谈郭先生的破产案
-
-<img src="https://media.gettr.com/group28/origin/2022/08/08/20/f9089b92-4f3e-cad9-d996-52e549a2f60b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 8:53 PM UTC  - :tv:直播](/content/gettr/p1lois38542.md)
-
-2022.08.08 【Nicole看七哥】对于郭先生而言，危机即为机遇。临危不乱、处变不惊是战友们最应该从郭先生身上学习的处事方式。
-
-
-
-For Mr. Guo, crisis means opportunity. Being unflappable when facing danger is one of the most valuable parts for us to learn from him.
-
-<img src="https://media.gettr.com/group36/origin/2022/08/08/20/48ef2532-396e-2df6-503e-ea50db66db8b/out.jpg" width="506" height="284">
 
 ---
 
