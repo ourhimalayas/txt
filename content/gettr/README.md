@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 8/10/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1m0oyp9353.md)
+
+2022.08.10 MILES GUO 直播
+
+<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
+
+---
+
+[@miles 8/10/2022 6:44 PM UTC  - :tv:直播](/content/gettr/p1m0l6e21f3.md)
+
+2022.08.10 MILES GUO 直播
+
+<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1m08nq2a69.md)
 
 2022.08.10 【Nicole看七哥】在美国，宪法赋予了每个人保护私人财产的权利。然而，康州法院的法官却强迫郭先生签署了一份荒唐的18楼转让强制令。但即使如此，郭先生还是欣然的接受并签署了文件。
@@ -138,14 +154,6 @@ No.1🥇 on Macau🇲🇴 and Hun...
 
 ---
 
-[@miles 8/10/2022 6:44 PM UTC  - :tv:直播](/content/gettr/p1m0l6e21f3.md)
-
-2022.08.10 MILES GUO 直播
-
-<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
-
----
-
 [@miles 8/9/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1lw4uk7613.md)
 
 8/9/2022 Miles Guo’s GETTR Google data center exploded, why? One of our fellow fighters in Europe was awarded 4 million Euros in a lawsuit because the court found out that Twitter completely manipulated our data; the New Federal St...
@@ -221,14 +229,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 2022.08.09  Nicole 看七哥 第十四期  前华为战友如是说
 
 <img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 5:24 PM UTC  - :tv:直播](/content/gettr/p1lu56ba434.md)
-
-2022.08.09 第二次小视频……尊敬的战友们好……刚才的小视频．忘了回答一些战友询问关于己经投资了新加坡中国背景基金……一些风险的问题，我在这里补上！
-
-<img src="https://media.gettr.com/group32/getter/2022/08/09/17/defbbed2-4bfe-16f0-9fa2-6be54ddad8dc/out.jpg" width="506" height="284">
 
 ---
 
