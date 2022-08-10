@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/10/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1m0oyp9353.md)
+
+2022.08.10 MILES GUO 直播
+
+<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1m0ky60032.md)
 
 2022.08.10 MILES GUO 直播
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 8/10/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1m0oyp9353.md)
+[@miles 8/10/2022 9:03 PM UTC  - :tv:直播](/content/gettr/p1m19uwe933.md)
 
-2022.08.10 MILES GUO 直播
+2022.08.10 Nicole 看七哥 第15期  酷炫爆二代说郭叔
 
-<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/08/10/20/90c93c77-1b90-4002-9cb2-125304dd3ac3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -221,14 +229,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 #居中制衡
 
 <img src="https://media.gettr.com/group44/origin/2022/08/09/22/cbb91adc-a236-a5a1-b7f1-828c6d8f2688/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 9:05 PM UTC  - :tv:直播](/content/gettr/p1lvnj2aeb6.md)
-
-2022.08.09  Nicole 看七哥 第十四期  前华为战友如是说
-
-<img src="https://media.gettr.com/group6/origin/2022/08/02/21/adf4ac5b-a3c1-d70c-2bf0-638cf12c280c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
