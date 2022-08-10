@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 8/9/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1lvtt24d56.md)
+[@miles 8/9/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1lwodx13d0.md)
 
-8/7/2022 Miles Guo: Traitors in Taiwan not only sold out Taiwan, but also provided a bunch of bad advice to the Communist Party, but the U.S. has the top 1 intelligence source regarding Taiwan issue; the U.S., Australia and Japan w...
+8/9/2022  Miles Guo’s GETTR: The vaccine disaster is bringing two benefits to humanity: one is a full-scale use of biotechnology across the world, the other is to make people believe that we have a creator; the era of digital curre...
 
-<img src="https://media.gettr.com/group21/getter/2022/08/09/23/d94171b5-eff8-4e2e-abff-1c2464951434/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/08/09/23/a53dda6a-b7dc-65fb-921e-bc69b0d2583b/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 8/9/2022 Miles Guo’s GETTR Google data center exploded, why? One of our fellow fighters in Europe was awarded 4 million Euros in a lawsuit because the court found out that Twitter completely manipulated our data; the New Federal St...
 
 <img src="https://media.gettr.com/group33/getter/2022/08/09/23/8e036f6e-684d-ea4c-8577-d6e922fd36e6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/9/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1lvtt24d56.md)
+
+8/7/2022 Miles Guo: Traitors in Taiwan not only sold out Taiwan, but also provided a bunch of bad advice to the Communist Party, but the U.S. has the top 1 intelligence source regarding Taiwan issue; the U.S., Australia and Japan w...
+
+<img src="https://media.gettr.com/group21/getter/2022/08/09/23/d94171b5-eff8-4e2e-abff-1c2464951434/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,18 +191,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 #十八楼 #破产案
 
 <img src="https://media.gettr.com/group9/origin/2022/08/08/22/2d8e86bf-2f57-89eb-f39c-4747d97828d9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 8/8/2022 9:37 PM UTC  - :tv:直播](/content/gettr/p1lotckce1b.md)
-
- 8月8号2022年，尊敬的战友们好．非常抱歉，七哥今天小视频发晚了，一切都已经开始！ 
-
-
-
-
-
-<img src="https://media.gettr.com/group3/getter/2022/08/08/20/a55d08a4-11c3-a395-e8b4-810559415eeb/out.jpg" width="506" height="284">
 
 ---
 
