@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/10/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p1lx0mjebfd.md)
+
+8/9/2022 Miles Guo's GETTR: The CCP has made up its mind to pay any price in order to have those overseas tycoons deported back to Communist China, and the Singapore government will work with the CCP; if you invested in the funds r...
+
+<img src="https://media.gettr.com/group29/getter/2022/08/10/01/22a3592c-9bc8-6ee2-675f-85aba30ea694/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 8/10/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1lwu62b2d0.md)
 
 《战》
@@ -48,11 +56,11 @@
 
 ---
 
-[@miles 8/10/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p1lx0mjebfd.md)
+[@miles 8/10/2022 12:47 PM UTC  - :tv:直播](/content/gettr/p1lzf068f13.md)
 
-8/9/2022 Miles Guo's GETTR: The CCP has made up its mind to pay any price in order to have those overseas tycoons deported back to Communist China, and the Singapore government will work with the CCP; if you invested in the funds r...
+2022.08.10 文贵大直播：习近平和曾庆红的政治斗争，面对的疫苗灾难
 
-<img src="https://media.gettr.com/group29/getter/2022/08/10/01/22a3592c-9bc8-6ee2-675f-85aba30ea694/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/08/10/12/e383fbb7-7a31-508e-ecf5-e09d48711310/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 8/7/2022 文贵直播：戴永革能逃...
 
 <img src="https://media.gettr.com/group50/getter/2022/08/08/23/8977b682-2cf7-e28c-2aa1-0c39246ab495/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p1lpgsa6f95.md)
-
-8/7/2022 Miles Guo: Fighting fraud is the first step for Chinese people to truly enter civilization! With the advent of digital currency, blockchain technologies and quantum computers, data fabrication will no longer be possible. C...
-
-<img src="https://media.gettr.com/group38/getter/2022/08/08/22/f464c386-e535-db1f-51b2-3faf2cabcbf5/out.jpg" width="506" height="284">
 
 ---
 
