@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/9/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1lwodx13d0.md)
+
+8/9/2022  Miles Guo’s GETTR: The vaccine disaster is bringing two benefits to humanity: one is a full-scale use of biotechnology across the world, the other is to make people believe that we have a creator; the era of digital curre...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/09/23/a53dda6a-b7dc-65fb-921e-bc69b0d2583b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/9/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1lwm2n06b1.md)
 
 8/9/2022 Miles Guo's GETTR: Do not worry about President Trump, we do not understand the U.S. law, nor are we in a position to meddle in the U.S. politics; in addition to taking down the CCP, our fellow fighters should focus on our...
@@ -10,11 +18,33 @@
 
 ---
 
-[@miles 8/9/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1lwodx13d0.md)
+[@newyorkrock 8/10/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1lwu62b2d0.md)
 
-8/9/2022  Miles Guo’s GETTR: The vaccine disaster is bringing two benefits to humanity: one is a full-scale use of biotechnology across the world, the other is to make people believe that we have a creator; the era of digital curre...
+《战》
 
-<img src="https://media.gettr.com/group15/getter/2022/08/09/23/a53dda6a-b7dc-65fb-921e-bc69b0d2583b/out.jpg" width="506" height="284">
+第一季	续篇《观 战》伍
+
+-聚焦南中国海-
+
+威廉王 青藤
+
+#磐石农场
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+#青藤
+
+#Nick
+
+<img src="https://media.gettr.com/group45/origin/2022/08/09/21/5b9c74da-6340-eabd-ed6c-c5d6915f149e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +201,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 8/7/2022 Miles Guo: Fighting fraud is the first step for Chinese people to truly enter civilization! With the advent of digital currency, blockchain technologies and quantum computers, data fabrication will no longer be possible. C...
 
 <img src="https://media.gettr.com/group38/getter/2022/08/08/22/f464c386-e535-db1f-51b2-3faf2cabcbf5/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/8/2022 10:30 PM UTC  - :tv:直播](/content/gettr/p1lplzx7f4f.md)
-
-（1080版）《飞飞秀·十八楼》 2022-08-08
-
-#十八楼 #破产案
-
-<img src="https://media.gettr.com/group13/origin/2022/08/08/22/a8f768d5-3207-080e-afac-8fdeb8f8d07e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
