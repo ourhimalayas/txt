@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/10/2022 10:53 PM UTC  - :tv:直播](/content/gettr/p1m1r5p56b0.md)
+
+2022.08.10 纯粹胡说八道……这两种人从来没有成过大事……改变自己命运过……
+
+<img src="https://media.gettr.com/group16/getter/2022/08/10/22/260c23e9-2f1f-e7d9-12b3-c86f91a668ec/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1m1zdkdf13.md)
 
 (4K版) 飞飞秀 《利益冲突·第二十四篇》2022-08-10
@@ -14,11 +22,11 @@
 
 ---
 
-[@miles 8/10/2022 10:53 PM UTC  - :tv:直播](/content/gettr/p1m1r5p56b0.md)
+[@miles 8/10/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1m1zep1c6a.md)
 
-2022.08.10 纯粹胡说八道……这两种人从来没有成过大事……改变自己命运过……
+8/10/2022 Miles Guo: Someone recently had dinner with Xi Jinping's daughter, and asked her about COVID vaccines. Xi's daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudd...
 
-<img src="https://media.gettr.com/group16/getter/2022/08/10/22/260c23e9-2f1f-e7d9-12b3-c86f91a668ec/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/08/10/23/e0376f5a-1a84-f01a-7139-b6781a511003/out.jpg" width="506" height="284">
 
 ---
 
@@ -215,20 +223,6 @@ No.1🥇 on Macau🇲🇴 and Hun...
 8/7/2022 Miles Guo: Our fellow fighters should care for each other, adhere to the principle of “only the truth prevails”, and the belief that human rights are God-given; we didn’t take the COVID vaccines, own digital currencies and...
 
 <img src="https://media.gettr.com/group42/getter/2022/08/09/23/cd563960-a754-222d-e6a9-6898e6fb6a37/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p1lw2d10c4b.md)
-
-8/7/2022 Miles Guo: The New Federal State of China relies on our own strength. We only care about the approval of Chinese people and our fellow fighters!
-
-
-
-8/7/2022 文贵直播：新中国联邦靠的是实力，我们只在意中国人和战友的认可！
-
-
-
-<img src="https://media.gettr.com/group35/getter/2022/08/09/23/7f91c7c6-654d-f42b-9b36-8e5e096eedb2/out.jpg" width="506" height="284">
 
 ---
 
