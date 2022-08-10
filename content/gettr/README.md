@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/10/2022 12:47 PM UTC  - :tv:直播](/content/gettr/p1lzf068f13.md)
+
+2022.08.10 文贵大直播：习近平和曾庆红的政治斗争，面对的疫苗灾难
+
+<img src="https://media.gettr.com/group19/origin/2022/08/10/12/e383fbb7-7a31-508e-ecf5-e09d48711310/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p1lx0mjebfd.md)
 
 8/9/2022 Miles Guo's GETTR: The CCP has made up its mind to pay any price in order to have those overseas tycoons deported back to Communist China, and the Singapore government will work with the CCP; if you invested in the funds r...
@@ -56,11 +64,23 @@
 
 ---
 
-[@miles 8/10/2022 12:47 PM UTC  - :tv:直播](/content/gettr/p1lzf068f13.md)
+[@miles 8/10/2022 2:59 PM UTC ](/content/gettr/p1lzhu2f031.md)
 
-2022.08.10 文贵大直播：习近平和曾庆红的政治斗争，面对的疫苗灾难
+Miles Guo's Songs iTunes Ranking Record - August 10, 2022
 
-<img src="https://media.gettr.com/group19/origin/2022/08/10/12/e383fbb7-7a31-508e-ecf5-e09d48711310/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gnews.org/post/p16f18dce
+
+
+
+“Chained Dream” hits iTunes
+
+No.1🥇 on Macau🇲🇴 Pop Music Videos Chart
+
+
+
+“Hcoin To The Moon” hits iTunes 
+
+No.1🥇 on Macau🇲🇴 and Hun...
 
 ---
 
@@ -197,18 +217,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 8/7/2022 Miles Guo: The U.S. and the rest of the world are surely decoupling from the CCP in the technological and financial areas. The overseas CCP members including Dai Yongge will end up being deported, and their assets will be ...
 
 <img src="https://media.gettr.com/group31/getter/2022/08/09/00/97a503dd-90e9-1ada-60be-dd1a8adef6ac/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 12:01 AM UTC  - :tv:直播](/content/gettr/p1lpqkzb4e8.md)
-
-8/7/2022 Miles Guo: The fact that Dai Yongge was able to flee to London and obtain Xi Jinping's instructions at any time proves that Zeng Qinghong and his clique still have power and cannot be underestimated.
-
-
-
-8/7/2022 文贵直播：戴永革能逃...
-
-<img src="https://media.gettr.com/group50/getter/2022/08/08/23/8977b682-2cf7-e28c-2aa1-0c39246ab495/out.jpg" width="506" height="284">
 
 ---
 
