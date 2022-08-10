@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 8/10/2022 2:59 PM UTC ](/content/gettr/p1lzhu2f031.md)
+
+Miles Guo's Songs iTunes Ranking Record - August 10, 2022
+
+https://gnews.org/post/p16f18dce
+
+
+
+“Chained Dream” hits iTunes
+
+No.1🥇 on Macau🇲🇴 Pop Music Videos Chart
+
+
+
+“Hcoin To The Moon” hits iTunes 
+
+No.1🥇 on Macau🇲🇴 and Hun...
+
+---
+
 [@miles 8/10/2022 12:47 PM UTC  - :tv:直播](/content/gettr/p1lzf068f13.md)
 
 2022.08.10 文贵大直播：习近平和曾庆红的政治斗争，面对的疫苗灾难
@@ -64,23 +84,21 @@
 
 ---
 
-[@miles 8/10/2022 2:59 PM UTC ](/content/gettr/p1lzhu2f031.md)
+[@james012415 8/10/2022 3:13 PM UTC  - 2圖](/content/gettr/p1lzrrlceb3.md)
 
-Miles Guo's Songs iTunes Ranking Record - August 10, 2022
-
-https://gnews.org/post/p16f18dce
+8月10日 路大腦袋被台灣國防部認定中共大陸政論頻道討論內容為假訊息謠言！
 
 
 
-“Chained Dream” hits iTunes
-
-No.1🥇 on Macau🇲🇴 Pop Music Videos Chart
 
 
 
-“Hcoin To The Moon” hits iTunes 
 
-No.1🥇 on Macau🇲🇴 and Hun...
+
+
+
+
+<img src="https://media.gettr.com/group11/getter/2022/08/10/15/d49e4d4e-ae98-00d7-72bd-7e3be8d33eae/4a64abacc0461290fe4b937aa8dd5c6a.jpg" width="506" height="284">
 
 ---
 
@@ -195,20 +213,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 8/82022 Miles Guo’s GETTR: No one in the CCP dares to mention my name, because they don’t want the West to know what a big threat the Whistleblowers’ Movement and the New Federal State of China is to the CCP; our fellow fighters wi...
 
 <img src="https://media.gettr.com/group14/getter/2022/08/09/04/769c50b2-34a8-7327-b7ca-c4d9dda5334c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p1lq2oi9dc9.md)
-
-8/7/2022 Miles Guo:  Xi’s mistake of writing a wrong word in his note has become a joke spreading inside the CCP, and Xi has no sense of security.
-
-
-
-8/7/2022 文贵直播：习批示中的错别字一事已成为中共全党的笑话，习毫无安全感
-
-
-
-<img src="https://media.gettr.com/group44/getter/2022/08/09/00/188e8000-7773-cedd-6b9c-0c799eca04f3/out.jpg" width="506" height="284">
 
 ---
 
