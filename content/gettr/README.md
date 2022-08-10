@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 8/10/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1m0ky60032.md)
+
+2022.08.10 MILES GUO 直播
+
+<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
+
+---
+
+[@miles 8/10/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1m08nq2a69.md)
+
+2022.08.10 【Nicole看七哥】在美国，宪法赋予了每个人保护私人财产的权利。然而，康州法院的法官却强迫郭先生签署了一份荒唐的18楼转让强制令。但即使如此，郭先生还是欣然的接受并签署了文件。
+
+
+
+In the US, the Constitution gives everyone the right to protect private property. However, a Connecticut court judge forced Mr....
+
+<img src="https://media.gettr.com/group35/origin/2022/08/10/16/7be33959-70f9-f114-5e44-4136f7435fb1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 4:11 PM UTC  - :tv:直播](/content/gettr/p1m0cysfe89.md)
 
 2022.08.10 【Nicole看七哥】郭先生提过：健身是一个精神上的活儿；而灭共则是一种修行。
@@ -118,15 +138,11 @@ No.1🥇 on Macau🇲🇴 and Hun...
 
 ---
 
-[@miles 8/10/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1m08nq2a69.md)
+[@miles 8/10/2022 6:44 PM UTC  - :tv:直播](/content/gettr/p1m0l6e21f3.md)
 
-2022.08.10 【Nicole看七哥】在美国，宪法赋予了每个人保护私人财产的权利。然而，康州法院的法官却强迫郭先生签署了一份荒唐的18楼转让强制令。但即使如此，郭先生还是欣然的接受并签署了文件。
+2022.08.10 MILES GUO 直播
 
-
-
-In the US, the Constitution gives everyone the right to protect private property. However, a Connecticut court judge forced Mr....
-
-<img src="https://media.gettr.com/group35/origin/2022/08/10/16/7be33959-70f9-f114-5e44-4136f7435fb1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
 
 ---
 
@@ -213,26 +229,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 2022.08.09 第二次小视频……尊敬的战友们好……刚才的小视频．忘了回答一些战友询问关于己经投资了新加坡中国背景基金……一些风险的问题，我在这里补上！
 
 <img src="https://media.gettr.com/group32/getter/2022/08/09/17/defbbed2-4bfe-16f0-9fa2-6be54ddad8dc/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 3:34 PM UTC  - :tv:直播](/content/gettr/p1lugzp4099.md)
-
- 2022年8月9号：尊敬的战友们好，你们健身了吗？一切都已经开始！ 
-
-
-
-
-
-<img src="https://media.gettr.com/group21/getter/2022/08/09/15/d178586c-6032-685a-601c-16ed6a765503/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 5:01 AM UTC  - :tv:直播](/content/gettr/p1lqzfad063.md)
-
-8/8/2022 Miles Guo's GETTR: The CCP is going to massively trap and arrest their own people in the U.K., Australia, Singapore and other countries across the world. The Zeng Family, Fudan Gang and other people associated with the CCP...
-
-<img src="https://media.gettr.com/group45/getter/2022/08/09/04/a7dfb767-262a-76aa-8255-cf5200d992f7/out.jpg" width="506" height="284">
 
 ---
 
