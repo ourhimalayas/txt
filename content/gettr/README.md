@@ -2,6 +2,24 @@
 ---
 
 
+[@james012415 8/10/2022 3:13 PM UTC  - 2圖](/content/gettr/p1lzrrlceb3.md)
+
+8月10日 路大腦袋被台灣國防部認定中共大陸政論頻道討論內容為假訊息謠言！
+
+
+
+
+
+
+
+
+
+
+
+<img src="https://media.gettr.com/group11/getter/2022/08/10/15/d49e4d4e-ae98-00d7-72bd-7e3be8d33eae/4a64abacc0461290fe4b937aa8dd5c6a.jpg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 2:59 PM UTC ](/content/gettr/p1lzhu2f031.md)
 
 Miles Guo's Songs iTunes Ranking Record - August 10, 2022
@@ -84,21 +102,19 @@ No.1🥇 on Macau🇲🇴 and Hun...
 
 ---
 
-[@james012415 8/10/2022 3:13 PM UTC  - 2圖](/content/gettr/p1lzrrlceb3.md)
+[@miles 8/10/2022 4:11 PM UTC  - :tv:直播](/content/gettr/p1m0cysfe89.md)
 
-8月10日 路大腦袋被台灣國防部認定中共大陸政論頻道討論內容為假訊息謠言！
+2022.08.10 【Nicole看七哥】郭先生提过：健身是一个精神上的活儿；而灭共则是一种修行。
 
-
-
-
+当一个人能把灭共作为一种正道主义的话，又有什么东西可以打败他呢？
 
 
 
+Mr. Guo mentioned that exercising is a spiritual activity and the annihilation of the CCP is a kind of practice.
 
+When he treats this annihilat...
 
-
-
-<img src="https://media.gettr.com/group11/getter/2022/08/10/15/d49e4d4e-ae98-00d7-72bd-7e3be8d33eae/4a64abacc0461290fe4b937aa8dd5c6a.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/08/10/16/ca806f64-d198-95a0-4cbb-211ebaa8cca7/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +229,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 8/82022 Miles Guo’s GETTR: No one in the CCP dares to mention my name, because they don’t want the West to know what a big threat the Whistleblowers’ Movement and the New Federal State of China is to the CCP; our fellow fighters wi...
 
 <img src="https://media.gettr.com/group14/getter/2022/08/09/04/769c50b2-34a8-7327-b7ca-c4d9dda5334c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p1lqgp5f8c1.md)
-
-8/7/2022 Miles Guo: The U.S. and the rest of the world are surely decoupling from the CCP in the technological and financial areas. The overseas CCP members including Dai Yongge will end up being deported, and their assets will be ...
-
-<img src="https://media.gettr.com/group31/getter/2022/08/09/00/97a503dd-90e9-1ada-60be-dd1a8adef6ac/out.jpg" width="506" height="284">
 
 ---
 
