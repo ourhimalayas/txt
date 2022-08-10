@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 8/10/2022 4:11 PM UTC  - :tv:直播](/content/gettr/p1m0cysfe89.md)
+
+2022.08.10 【Nicole看七哥】郭先生提过：健身是一个精神上的活儿；而灭共则是一种修行。
+
+当一个人能把灭共作为一种正道主义的话，又有什么东西可以打败他呢？
+
+
+
+Mr. Guo mentioned that exercising is a spiritual activity and the annihilation of the CCP is a kind of practice.
+
+When he treats this annihilat...
+
+<img src="https://media.gettr.com/group37/origin/2022/08/10/16/ca806f64-d198-95a0-4cbb-211ebaa8cca7/out.jpg" width="506" height="284">
+
+---
+
 [@james012415 8/10/2022 3:13 PM UTC  - 2圖](/content/gettr/p1lzrrlceb3.md)
 
 8月10日 路大腦袋被台灣國防部認定中共大陸政論頻道討論內容為假訊息謠言！
@@ -102,19 +118,15 @@ No.1🥇 on Macau🇲🇴 and Hun...
 
 ---
 
-[@miles 8/10/2022 4:11 PM UTC  - :tv:直播](/content/gettr/p1m0cysfe89.md)
+[@miles 8/10/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1m08nq2a69.md)
 
-2022.08.10 【Nicole看七哥】郭先生提过：健身是一个精神上的活儿；而灭共则是一种修行。
-
-当一个人能把灭共作为一种正道主义的话，又有什么东西可以打败他呢？
+2022.08.10 【Nicole看七哥】在美国，宪法赋予了每个人保护私人财产的权利。然而，康州法院的法官却强迫郭先生签署了一份荒唐的18楼转让强制令。但即使如此，郭先生还是欣然的接受并签署了文件。
 
 
 
-Mr. Guo mentioned that exercising is a spiritual activity and the annihilation of the CCP is a kind of practice.
+In the US, the Constitution gives everyone the right to protect private property. However, a Connecticut court judge forced Mr....
 
-When he treats this annihilat...
-
-<img src="https://media.gettr.com/group37/origin/2022/08/10/16/ca806f64-d198-95a0-4cbb-211ebaa8cca7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/08/10/16/7be33959-70f9-f114-5e44-4136f7435fb1/out.jpg" width="506" height="284">
 
 ---
 
@@ -221,14 +233,6 @@ For English：gettr.com/streaming/p1lw3via4fe
 8/8/2022 Miles Guo's GETTR: The CCP is going to massively trap and arrest their own people in the U.K., Australia, Singapore and other countries across the world. The Zeng Family, Fudan Gang and other people associated with the CCP...
 
 <img src="https://media.gettr.com/group45/getter/2022/08/09/04/a7dfb767-262a-76aa-8255-cf5200d992f7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 4:58 AM UTC  - :tv:直播](/content/gettr/p1lrcoc15ef.md)
-
-8/82022 Miles Guo’s GETTR: No one in the CCP dares to mention my name, because they don’t want the West to know what a big threat the Whistleblowers’ Movement and the New Federal State of China is to the CCP; our fellow fighters wi...
-
-<img src="https://media.gettr.com/group14/getter/2022/08/09/04/769c50b2-34a8-7327-b7ca-c4d9dda5334c/out.jpg" width="506" height="284">
 
 ---
 
