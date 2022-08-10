@@ -14,6 +14,26 @@
 
 ---
 
+[@miles 8/10/2022 10:53 PM UTC  - :tv:直播](/content/gettr/p1m1r5p56b0.md)
+
+2022.08.10 纯粹胡说八道……这两种人从来没有成过大事……改变自己命运过……
+
+<img src="https://media.gettr.com/group16/getter/2022/08/10/22/260c23e9-2f1f-e7d9-12b3-c86f91a668ec/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/10/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1m1b9bac0f.md)
+
+(1080版) 飞飞秀 《利益冲突·第二十四篇》2022-08-10
+
+
+
+#LUC #PAX #破产案 #Vice #HBO #东丽案
+
+<img src="https://media.gettr.com/group50/origin/2022/08/10/22/488fda12-2f48-6164-0b3c-4c502802d467/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 9:03 PM UTC  - :tv:直播](/content/gettr/p1m19uwe933.md)
 
 2022.08.10 Nicole 看七哥 第15期  酷炫爆二代说郭叔
@@ -35,18 +55,6 @@
 2022.08.10 MILES GUO 直播
 
 <img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1m1b9bac0f.md)
-
-(1080版) 飞飞秀 《利益冲突·第二十四篇》2022-08-10
-
-
-
-#LUC #PAX #破产案 #Vice #HBO #东丽案
-
-<img src="https://media.gettr.com/group50/origin/2022/08/10/22/488fda12-2f48-6164-0b3c-4c502802d467/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ No.1🥇 on Macau🇲🇴 and Hun...
 8/7/2022 Miles Guo: Our fellow fighters should care for each other, adhere to the principle of “only the truth prevails”, and the belief that human rights are God-given; we didn’t take the COVID vaccines, own digital currencies and...
 
 <img src="https://media.gettr.com/group42/getter/2022/08/09/23/cd563960-a754-222d-e6a9-6898e6fb6a37/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p1lvg8m4835.md)
-
-8/8/2022 Miles Guo: Wang Xiaohong wants to wipe out the Meng Jianzhu and Sun Lijun factions, but is not capable of doing it. On the contrary, Wang could get himself wiped out. Zhang Hongwei and his families might all face jail time...
-
-<img src="https://media.gettr.com/group5/getter/2022/08/09/22/24ffdfb9-ce17-3d60-dab4-431b8c6f5844/out.jpg" width="506" height="284">
 
 ---
 
