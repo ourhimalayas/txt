@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 8/11/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1m5xi0a733.md)
+
+2022.08.11 尊敬的战友们好……新大消息来了……灭共小组全面出手！
+
+<img src="https://media.gettr.com/group7/getter/2022/08/11/14/2669e4c7-d3df-fd5d-ef8d-626b7644f732/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 8:34 AM UTC  - :tv:直播](/content/gettr/p1m48uje08d.md)
+
+8/10/2022 Miles Guo’s GETTR: In about 2007, Xiao Yaqing, former Minister of Industry and Information Technology, bragged to me that Communist China would become the world's number one in chips. One of Xiao Yaqing’s family members w...
+
+<img src="https://media.gettr.com/group35/getter/2022/08/11/08/ee812ea8-b2db-e687-69dc-5bbe25336a8e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 12:37 AM UTC  - :tv:直播](/content/gettr/p1m2aw98ad6.md)
 
 8/10/2022 Miles Guo: Zeng Qinghong still has tremendous control and influence in Communist China, and Xi Jinping is by no means a match for Zeng Qinghong. Jack Ma, Neil Shen, and Pony Ma are the core forces of the CCP's unrestricte...
@@ -31,14 +47,6 @@
 8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
 
 <img src="https://media.gettr.com/group44/getter/2022/08/10/23/982a0b3c-67b7-ca3d-a620-4faa70088d33/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 8:34 AM UTC  - :tv:直播](/content/gettr/p1m48uje08d.md)
-
-8/10/2022 Miles Guo’s GETTR: In about 2007, Xiao Yaqing, former Minister of Industry and Information Technology, bragged to me that Communist China would become the world's number one in chips. One of Xiao Yaqing’s family members w...
-
-<img src="https://media.gettr.com/group35/getter/2022/08/11/08/ee812ea8-b2db-e687-69dc-5bbe25336a8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ No.1🥇 on Macau🇲🇴 and Hun...
 2022.08.10 文贵大直播：习近平和曾庆红的政治斗争，面对的疫苗灾难
 
 <img src="https://media.gettr.com/group19/origin/2022/08/10/12/e383fbb7-7a31-508e-ecf5-e09d48711310/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 1:57 AM UTC  - :tv:直播](/content/gettr/p1lx0mjebfd.md)
-
-8/9/2022 Miles Guo's GETTR: The CCP has made up its mind to pay any price in order to have those overseas tycoons deported back to Communist China, and the Singapore government will work with the CCP; if you invested in the funds r...
-
-<img src="https://media.gettr.com/group29/getter/2022/08/10/01/22a3592c-9bc8-6ee2-675f-85aba30ea694/out.jpg" width="506" height="284">
 
 ---
 
