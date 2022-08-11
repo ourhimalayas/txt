@@ -14,6 +14,44 @@ For English：gettr.com/post/p1m7mfac95a
 
 ---
 
+[@sealiuyan2019 8/11/2022 12:44 PM UTC  - :tv:直播](/content/gettr/p1m4jv82695.md)
+
+台湾作家三毛笔下的河西，是我很喜欢的一个人物
+
+
+
+现实中，出现了类似河西……
+
+
+
+乌兹别克斯坦的男孩儿，比我小八岁，跟我表白，可不可以做我的女朋友……
+
+
+
+看着他害羞样儿，逗他说，不可以、从来不和比自己年龄小的男孩儿谈恋爱
+
+他说，我看着比你年龄大啊、我想保护你
+
+
+
+听他这么一说，久违的有些心动.☺️
+
+<img src="https://media.gettr.com/group10/gvision/2022/08/11/12/b58f207d-05aa-51b6-8901-40f5e22e39eb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1m7nt3b8da.md)
+
+(4K版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
+
+For English：gettr.com/post/p1m7mfac95a
+
+#LUC #PAX #破产案 #缠诉
+
+<img src="https://media.gettr.com/group8/origin/2022/08/11/22/149d671d-6984-9d48-5510-88bd5cbc1319/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p1m7q8ud539.md)
 
 2022.08.11 Nicole 看七哥 第16期 漫谈新中国联邦文化
@@ -69,18 +107,6 @@ For English：gettr.com/post/p1m7mfac95a
 8/10/2022 Miles Guo: The "Moat Project of Hebei", designed by Zeng Qinghong, is already set off with Xi Jinping as the target; an event similar to the arrest of "the Gang of Four" will probably take place; the Fudan Gang will absol...
 
 <img src="https://media.gettr.com/group40/getter/2022/08/11/08/3d0f4414-1d96-8532-7b58-89fc01119531/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1m7nt3b8da.md)
-
-(4K版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
-
-For English：gettr.com/post/p1m7mfac95a
-
-#LUC #PAX #破产案 #缠诉
-
-<img src="https://media.gettr.com/group8/origin/2022/08/11/22/149d671d-6984-9d48-5510-88bd5cbc1319/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +195,6 @@ For English：gettr.com/post/p1m7mfac95a
 2022.08.10 Nicole 看七哥 第15期  酷炫爆二代说郭叔
 
 <img src="https://media.gettr.com/group33/origin/2022/08/10/20/90c93c77-1b90-4002-9cb2-125304dd3ac3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1m0oyp9353.md)
-
-2022.08.10 MILES GUO 直播
-
-<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
 
 ---
 
