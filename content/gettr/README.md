@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 8/11/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p1m48rx366f.md)
+
+8/10/2022 Miles Guo: The "Moat Project of Hebei", designed by Zeng Qinghong, is already set off with Xi Jinping as the target; an event similar to the arrest of "the Gang of Four" will probably take place; the Fudan Gang will absol...
+
+<img src="https://media.gettr.com/group40/getter/2022/08/11/08/3d0f4414-1d96-8532-7b58-89fc01119531/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 12:37 AM UTC  - :tv:直播](/content/gettr/p1m2aw98ad6.md)
+
+8/10/2022 Miles Guo: Zeng Qinghong still has tremendous control and influence in Communist China, and Xi Jinping is by no means a match for Zeng Qinghong. Jack Ma, Neil Shen, and Pony Ma are the core forces of the CCP's unrestricte...
+
+<img src="https://media.gettr.com/group7/getter/2022/08/11/00/06546901-c5ed-d0a1-c6b9-40de65ebcd29/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1m21n5978f.md)
 
 8/10/200 Miles Guo: The Jiang Family is the founder of Fudan Gang, where Jiang Zemin is the big boss followed by Wang Huning. In Fudan Gang, there are other people such as Jiang Mianheng, Neil Shen, Meng Jianzhu, Sun Lijun, Bruno W...
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 8/11/2022 12:37 AM UTC  - :tv:直播](/content/gettr/p1m2aw98ad6.md)
+[@miles 8/11/2022 8:34 AM UTC  - :tv:直播](/content/gettr/p1m48uje08d.md)
 
-8/10/2022 Miles Guo: Zeng Qinghong still has tremendous control and influence in Communist China, and Xi Jinping is by no means a match for Zeng Qinghong. Jack Ma, Neil Shen, and Pony Ma are the core forces of the CCP's unrestricte...
+8/10/2022 Miles Guo’s GETTR: In about 2007, Xiao Yaqing, former Minister of Industry and Information Technology, bragged to me that Communist China would become the world's number one in chips. One of Xiao Yaqing’s family members w...
 
-<img src="https://media.gettr.com/group7/getter/2022/08/11/00/06546901-c5ed-d0a1-c6b9-40de65ebcd29/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/08/11/08/ee812ea8-b2db-e687-69dc-5bbe25336a8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,44 +201,6 @@ No.1🥇 on Macau🇲🇴 and Hun...
 8/9/2022 Miles Guo's GETTR: The CCP has made up its mind to pay any price in order to have those overseas tycoons deported back to Communist China, and the Singapore government will work with the CCP; if you invested in the funds r...
 
 <img src="https://media.gettr.com/group29/getter/2022/08/10/01/22a3592c-9bc8-6ee2-675f-85aba30ea694/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 8/10/2022 12:02 AM UTC  - :tv:直播](/content/gettr/p1lwu62b2d0.md)
-
-《战》
-
-第一季	续篇《观 战》伍
-
--聚焦南中国海-
-
-威廉王 青藤
-
-#磐石农场
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-#青藤
-
-#Nick
-
-<img src="https://media.gettr.com/group45/origin/2022/08/09/21/5b9c74da-6340-eabd-ed6c-c5d6915f149e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 11:46 PM UTC  - :tv:直播](/content/gettr/p1lwodx13d0.md)
-
-8/9/2022  Miles Guo’s GETTR: The vaccine disaster is bringing two benefits to humanity: one is a full-scale use of biotechnology across the world, the other is to make people believe that we have a creator; the era of digital curre...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/09/23/a53dda6a-b7dc-65fb-921e-bc69b0d2583b/out.jpg" width="506" height="284">
 
 ---
 
