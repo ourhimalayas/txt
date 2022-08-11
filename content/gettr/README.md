@@ -2,18 +2,6 @@
 ---
 
 
-[@miles 8/11/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1m8cs807e8.md)
-
-(1080版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
-
-For English：gettr.com/post/p1m7mfac95a
-
-#LUC #PAX #破产案 #缠诉
-
-<img src="https://media.gettr.com/group15/origin/2022/08/11/22/4fd09c17-67d5-18e6-3fbe-e402160f24ed/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@sealiuyan2019 8/11/2022 12:44 PM UTC  - :tv:直播](/content/gettr/p1m4jv82695.md)
 
 台湾作家三毛笔下的河西，是我很喜欢的一个人物
@@ -37,6 +25,26 @@ For English：gettr.com/post/p1m7mfac95a
 听他这么一说，久违的有些心动.☺️
 
 <img src="https://media.gettr.com/group10/gvision/2022/08/11/12/b58f207d-05aa-51b6-8901-40f5e22e39eb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1m8cs807e8.md)
+
+(1080版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
+
+For English：gettr.com/post/p1m7mfac95a
+
+#LUC #PAX #破产案 #缠诉
+
+<img src="https://media.gettr.com/group15/origin/2022/08/11/22/4fd09c17-67d5-18e6-3fbe-e402160f24ed/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1m7zxi3a16.md)
+
+8/10/2022: Miles Guo’s GETTR: Pan Shiyi once attempted to get rid of Guo Guangchang with 2 billion, and was told by the CCP’s Central Commission for Discipline Inspection that at least 200 billion is needed! Investigations into the...
+
+<img src="https://media.gettr.com/group13/getter/2022/08/11/23/f1428e0a-f85f-0725-3c98-89ffb4208ed5/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ For English：gettr.com/post/p1m7mfac95a
 #LUC #PAX #破产案 #Vice #HBO #东丽案
 
 <img src="https://media.gettr.com/group50/origin/2022/08/10/22/488fda12-2f48-6164-0b3c-4c502802d467/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 9:03 PM UTC  - :tv:直播](/content/gettr/p1m19uwe933.md)
-
-2022.08.10 Nicole 看七哥 第15期  酷炫爆二代说郭叔
-
-<img src="https://media.gettr.com/group33/origin/2022/08/10/20/90c93c77-1b90-4002-9cb2-125304dd3ac3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
