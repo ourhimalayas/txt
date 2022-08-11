@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/11/2022 3:02 PM UTC  - :tv:直播](/content/gettr/p1m5zfy692c.md)
+
+8/10/2022 Miles Guo’s GETTR: The CCP had a journalist from Asia Weekly write an article smearing me for telling the US to launch a war against the CCP, but I have never said such a thing and have never hoped the CCP would attack th...
+
+<img src="https://media.gettr.com/group4/getter/2022/08/11/14/f5420efb-7cc9-ebf5-684a-8e42655ea887/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1m5xi0a733.md)
 
 2022.08.11 尊敬的战友们好……新大消息来了……灭共小组全面出手！
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 8/11/2022 3:02 PM UTC  - :tv:直播](/content/gettr/p1m5zfy692c.md)
+[@miles 8/11/2022 3:20 PM UTC  - :tv:直播](/content/gettr/p1m5rkwcfd2.md)
 
-8/10/2022 Miles Guo’s GETTR: The CCP had a journalist from Asia Weekly write an article smearing me for telling the US to launch a war against the CCP, but I have never said such a thing and have never hoped the CCP would attack th...
+8/10/2022 Miles Guo: Xi Jinping’s daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudden death certainly is related to COVID vaccines. She confirmed that her dad did not ...
 
-<img src="https://media.gettr.com/group4/getter/2022/08/11/14/f5420efb-7cc9-ebf5-684a-8e42655ea887/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/08/11/15/53957438-4bab-3d4a-6d30-db71efca1955/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,26 +189,6 @@ When he treats this annihilat...
 
 
 <img src="https://media.gettr.com/group11/getter/2022/08/10/15/d49e4d4e-ae98-00d7-72bd-7e3be8d33eae/4a64abacc0461290fe4b937aa8dd5c6a.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 2:59 PM UTC ](/content/gettr/p1lzhu2f031.md)
-
-Miles Guo's Songs iTunes Ranking Record - August 10, 2022
-
-https://gnews.org/post/p16f18dce
-
-
-
-“Chained Dream” hits iTunes
-
-No.1🥇 on Macau🇲🇴 Pop Music Videos Chart
-
-
-
-“Hcoin To The Moon” hits iTunes 
-
-No.1🥇 on Macau🇲🇴 and Hun...
 
 ---
 
