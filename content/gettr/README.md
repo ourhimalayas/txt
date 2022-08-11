@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/11/2022 3:20 PM UTC  - :tv:直播](/content/gettr/p1m5rkwcfd2.md)
+
+8/10/2022 Miles Guo: Xi Jinping’s daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudden death certainly is related to COVID vaccines. She confirmed that her dad did not ...
+
+<img src="https://media.gettr.com/group46/getter/2022/08/11/15/53957438-4bab-3d4a-6d30-db71efca1955/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 3:02 PM UTC  - :tv:直播](/content/gettr/p1m5zfy692c.md)
 
 8/10/2022 Miles Guo’s GETTR: The CCP had a journalist from Asia Weekly write an article smearing me for telling the US to launch a war against the CCP, but I have never said such a thing and have never hoped the CCP would attack th...
@@ -26,11 +34,13 @@
 
 ---
 
-[@miles 8/11/2022 3:20 PM UTC  - :tv:直播](/content/gettr/p1m5rkwcfd2.md)
+[@milesguolive 8/11/2022 3:33 PM UTC  - :tv:直播](/content/gettr/p1m67yc056a.md)
 
-8/10/2022 Miles Guo: Xi Jinping’s daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudden death certainly is related to COVID vaccines. She confirmed that her dad did not ...
+0811大直播精华版
 
-<img src="https://media.gettr.com/group46/getter/2022/08/11/15/53957438-4bab-3d4a-6d30-db71efca1955/out.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group5/origin/2022/08/11/15/43cbda11-6f3e-ad8e-62d4-ff0d09e3955f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,24 +181,6 @@ Mr. Guo mentioned that exercising is a spiritual activity and the annihilation o
 When he treats this annihilat...
 
 <img src="https://media.gettr.com/group37/origin/2022/08/10/16/ca806f64-d198-95a0-4cbb-211ebaa8cca7/out.jpg" width="506" height="284">
-
----
-
-[@james012415 8/10/2022 3:13 PM UTC  - 2圖](/content/gettr/p1lzrrlceb3.md)
-
-8月10日 路大腦袋被台灣國防部認定中共大陸政論頻道討論內容為假訊息謠言！
-
-
-
-
-
-
-
-
-
-
-
-<img src="https://media.gettr.com/group11/getter/2022/08/10/15/d49e4d4e-ae98-00d7-72bd-7e3be8d33eae/4a64abacc0461290fe4b937aa8dd5c6a.jpg" width="506" height="284">
 
 ---
 
