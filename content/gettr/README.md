@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1m7zxi3a16.md)
+
+8/10/2022: Miles Guo’s GETTR: Pan Shiyi once attempted to get rid of Guo Guangchang with 2 billion, and was told by the CCP’s Central Commission for Discipline Inspection that at least 200 billion is needed! Investigations into the...
+
+<img src="https://media.gettr.com/group13/getter/2022/08/11/23/f1428e0a-f85f-0725-3c98-89ffb4208ed5/out.jpg" width="506" height="284">
+
+---
+
 [@sealiuyan2019 8/11/2022 12:44 PM UTC  - :tv:直播](/content/gettr/p1m4jv82695.md)
 
 台湾作家三毛笔下的河西，是我很喜欢的一个人物
@@ -40,11 +48,11 @@ For English：gettr.com/post/p1m7mfac95a
 
 ---
 
-[@miles 8/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1m7zxi3a16.md)
+[@miles 8/11/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p1m8m8r9055.md)
 
-8/10/2022: Miles Guo’s GETTR: Pan Shiyi once attempted to get rid of Guo Guangchang with 2 billion, and was told by the CCP’s Central Commission for Discipline Inspection that at least 200 billion is needed! Investigations into the...
+8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
 
-<img src="https://media.gettr.com/group13/getter/2022/08/11/23/f1428e0a-f85f-0725-3c98-89ffb4208ed5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/08/11/23/42b96b4d-344f-c332-5bb5-2c476d56c5e7/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,18 +179,6 @@ For English：gettr.com/post/p1m7mfac95a
 2022.08.10 纯粹胡说八道……这两种人从来没有成过大事……改变自己命运过……
 
 <img src="https://media.gettr.com/group16/getter/2022/08/10/22/260c23e9-2f1f-e7d9-12b3-c86f91a668ec/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1m1zdkdf13.md)
-
-(4K版) 飞飞秀 《利益冲突·第二十四篇》2022-08-10
-
-
-
-#LUC #PAX #破产案 #Vice #HBO #东丽案
-
-<img src="https://media.gettr.com/group19/origin/2022/08/10/22/04755d8b-3994-1711-e8d4-adbcd396f8d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
