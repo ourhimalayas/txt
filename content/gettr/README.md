@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1m21n5978f.md)
+
+8/10/200 Miles Guo: The Jiang Family is the founder of Fudan Gang, where Jiang Zemin is the big boss followed by Wang Huning. In Fudan Gang, there are other people such as Jiang Mianheng, Neil Shen, Meng Jianzhu, Sun Lijun, Bruno W...
+
+<img src="https://media.gettr.com/group35/getter/2022/08/11/00/b3a97f1e-60b7-7bf7-1d5b-c9c27028a854/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1m2g9j04fe.md)
 
 8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 8/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1m21n5978f.md)
+[@miles 8/11/2022 12:37 AM UTC  - :tv:直播](/content/gettr/p1m2aw98ad6.md)
 
-8/10/200 Miles Guo: The Jiang Family is the founder of Fudan Gang, where Jiang Zemin is the big boss followed by Wang Huning. In Fudan Gang, there are other people such as Jiang Mianheng, Neil Shen, Meng Jianzhu, Sun Lijun, Bruno W...
+8/10/2022 Miles Guo: Zeng Qinghong still has tremendous control and influence in Communist China, and Xi Jinping is by no means a match for Zeng Qinghong. Jack Ma, Neil Shen, and Pony Ma are the core forces of the CCP's unrestricte...
 
-<img src="https://media.gettr.com/group35/getter/2022/08/11/00/b3a97f1e-60b7-7bf7-1d5b-c9c27028a854/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/08/11/00/06546901-c5ed-d0a1-c6b9-40de65ebcd29/out.jpg" width="506" height="284">
 
 ---
 
@@ -215,14 +223,6 @@ No.1🥇 on Macau🇲🇴 and Hun...
 8/9/2022  Miles Guo’s GETTR: The vaccine disaster is bringing two benefits to humanity: one is a full-scale use of biotechnology across the world, the other is to make people believe that we have a creator; the era of digital curre...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/09/23/a53dda6a-b7dc-65fb-921e-bc69b0d2583b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p1lw4uk7613.md)
-
-8/9/2022 Miles Guo’s GETTR Google data center exploded, why? One of our fellow fighters in Europe was awarded 4 million Euros in a lawsuit because the court found out that Twitter completely manipulated our data; the New Federal St...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/09/23/8e036f6e-684d-ea4c-8577-d6e922fd36e6/out.jpg" width="506" height="284">
 
 ---
 
