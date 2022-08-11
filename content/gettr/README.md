@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 8/11/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1m8cs807e8.md)
+
+(1080版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
+
+For English：gettr.com/post/p1m7mfac95a
+
+#LUC #PAX #破产案 #缠诉
+
+<img src="https://media.gettr.com/group15/origin/2022/08/11/22/4fd09c17-67d5-18e6-3fbe-e402160f24ed/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p1m7q8ud539.md)
+
+2022.08.11 Nicole 看七哥 第16期 漫谈新中国联邦文化
+
+<img src="https://media.gettr.com/group38/origin/2022/08/11/20/1fe457e4-8f12-d1d9-6511-f05484d2ee4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 5:03 PM UTC ](/content/gettr/p1m7532f7ee.md)
 
 2022.08.11 这绝对是共产党的走狗……我R你八辈祖宗共产党！你太烂了……【七哥，Zero Hedge 文章的原作者Pepe Escobar 之前在2020年就被写在国务员的关于俄罗斯网络信息操控的报告里。作者的全被文章都在这里 https://www.vijayvaani.com/AuthorProfile.aspx?pid=386。他是少数一些不是俄罗斯人的网上写手，替 Moscow-based SCF （Strategic Culture Fou...
@@ -52,11 +72,15 @@
 
 ---
 
-[@miles 8/11/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p1m7q8ud539.md)
+[@miles 8/11/2022 10:13 PM UTC  - :tv:直播](/content/gettr/p1m7nt3b8da.md)
 
-2022.08.11 Nicole 看七哥 第16期 漫谈新中国联邦文化
+(4K版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
 
-<img src="https://media.gettr.com/group38/origin/2022/08/11/20/1fe457e4-8f12-d1d9-6511-f05484d2ee4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/post/p1m7mfac95a
+
+#LUC #PAX #破产案 #缠诉
+
+<img src="https://media.gettr.com/group8/origin/2022/08/11/22/149d671d-6984-9d48-5510-88bd5cbc1319/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,22 +173,6 @@
 ---
 
 [@miles 8/10/2022 6:56 PM UTC  - :tv:直播](/content/gettr/p1m0oyp9353.md)
-
-2022.08.10 MILES GUO 直播
-
-<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p1m0ky60032.md)
-
-2022.08.10 MILES GUO 直播
-
-<img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 6:44 PM UTC  - :tv:直播](/content/gettr/p1m0l6e21f3.md)
 
 2022.08.10 MILES GUO 直播
 
