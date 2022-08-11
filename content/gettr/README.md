@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/11/2022 5:03 PM UTC ](/content/gettr/p1m7532f7ee.md)
+
+2022.08.11 这绝对是共产党的走狗……我R你八辈祖宗共产党！你太烂了……【七哥，Zero Hedge 文章的原作者Pepe Escobar 之前在2020年就被写在国务员的关于俄罗斯网络信息操控的报告里。作者的全被文章都在这里 https://www.vijayvaani.com/AuthorProfile.aspx?pid=386。他是少数一些不是俄罗斯人的网上写手，替 Moscow-based SCF （Strategic Culture Fou...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/11/17/27231923-2ba0-773f-af38-fcd96ca2c8bb/d5f01125ec88b95302ed29c8fd6c30c4.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 8/11/2022 3:33 PM UTC  - :tv:直播](/content/gettr/p1m67yc056a.md)
 
 0811大直播精华版
@@ -44,11 +52,11 @@
 
 ---
 
-[@miles 8/11/2022 5:03 PM UTC ](/content/gettr/p1m7532f7ee.md)
+[@miles 8/11/2022 9:02 PM UTC  - :tv:直播](/content/gettr/p1m7q8ud539.md)
 
-2022.08.11 这绝对是共产党的走狗……我R你八辈祖宗共产党！你太烂了……【七哥，Zero Hedge 文章的原作者Pepe Escobar 之前在2020年就被写在国务员的关于俄罗斯网络信息操控的报告里。作者的全被文章都在这里 https://www.vijayvaani.com/AuthorProfile.aspx?pid=386。他是少数一些不是俄罗斯人的网上写手，替 Moscow-based SCF （Strategic Culture Fou...
+2022.08.11 Nicole 看七哥 第16期 漫谈新中国联邦文化
 
-<img src="https://media.gettr.com/group15/getter/2022/08/11/17/27231923-2ba0-773f-af38-fcd96ca2c8bb/d5f01125ec88b95302ed29c8fd6c30c4.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/08/11/20/1fe457e4-8f12-d1d9-6511-f05484d2ee4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@
 2022.08.10 MILES GUO 直播
 
 <img src="https://media.gettr.com/group14/getter/2022/08/10/18/47cd28f0-2692-dfe5-1088-d623a74582b6/66f35a387169e85bcdf382455b0d06d4.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 4:28 PM UTC  - :tv:直播](/content/gettr/p1m08nq2a69.md)
-
-2022.08.10 【Nicole看七哥】在美国，宪法赋予了每个人保护私人财产的权利。然而，康州法院的法官却强迫郭先生签署了一份荒唐的18楼转让强制令。但即使如此，郭先生还是欣然的接受并签署了文件。
-
-
-
-In the US, the Constitution gives everyone the right to protect private property. However, a Connecticut court judge forced Mr....
-
-<img src="https://media.gettr.com/group35/origin/2022/08/10/16/7be33959-70f9-f114-5e44-4136f7435fb1/out.jpg" width="506" height="284">
 
 ---
 
