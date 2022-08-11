@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 8/11/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1m5xi0a733.md)
+
+2022.08.11 尊敬的战友们好……新大消息来了……灭共小组全面出手！
+
+<img src="https://media.gettr.com/group7/getter/2022/08/11/14/2669e4c7-d3df-fd5d-ef8d-626b7644f732/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p1m48rx366f.md)
 
 8/10/2022 Miles Guo: The "Moat Project of Hebei", designed by Zeng Qinghong, is already set off with Xi Jinping as the target; an event similar to the arrest of "the Gang of Four" will probably take place; the Fudan Gang will absol...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 8/11/2022 2:32 PM UTC  - :tv:直播](/content/gettr/p1m5xi0a733.md)
+[@miles 8/11/2022 3:02 PM UTC  - :tv:直播](/content/gettr/p1m5zfy692c.md)
 
-2022.08.11 尊敬的战友们好……新大消息来了……灭共小组全面出手！
+8/10/2022 Miles Guo’s GETTR: The CCP had a journalist from Asia Weekly write an article smearing me for telling the US to launch a war against the CCP, but I have never said such a thing and have never hoped the CCP would attack th...
 
-<img src="https://media.gettr.com/group7/getter/2022/08/11/14/2669e4c7-d3df-fd5d-ef8d-626b7644f732/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/08/11/14/f5420efb-7cc9-ebf5-684a-8e42655ea887/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ No.1🥇 on Macau🇲🇴 Pop Music Videos Chart
 “Hcoin To The Moon” hits iTunes 
 
 No.1🥇 on Macau🇲🇴 and Hun...
-
----
-
-[@miles 8/10/2022 12:47 PM UTC  - :tv:直播](/content/gettr/p1lzf068f13.md)
-
-2022.08.10 文贵大直播：习近平和曾庆红的政治斗争，面对的疫苗灾难
-
-<img src="https://media.gettr.com/group19/origin/2022/08/10/12/e383fbb7-7a31-508e-ecf5-e09d48711310/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
