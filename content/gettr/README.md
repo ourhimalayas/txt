@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 8/10/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1m2g9j04fe.md)
+
+8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
+
+<img src="https://media.gettr.com/group44/getter/2022/08/10/23/982a0b3c-67b7-ca3d-a620-4faa70088d33/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/10/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1m1zep1c6a.md)
+
+8/10/2022 Miles Guo: Someone recently had dinner with Xi Jinping's daughter, and asked her about COVID vaccines. Xi's daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudd...
+
+<img src="https://media.gettr.com/group49/getter/2022/08/10/23/e0376f5a-1a84-f01a-7139-b6781a511003/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 10:53 PM UTC  - :tv:直播](/content/gettr/p1m1r5p56b0.md)
 
 2022.08.10 纯粹胡说八道……这两种人从来没有成过大事……改变自己命运过……
@@ -22,11 +38,11 @@
 
 ---
 
-[@miles 8/10/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1m1zep1c6a.md)
+[@miles 8/10/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p1m20svd76b.md)
 
-8/10/2022 Miles Guo: Someone recently had dinner with Xi Jinping's daughter, and asked her about COVID vaccines. Xi's daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudd...
+8/10/2022 Miles Guo: Xi's third term will be beneficial for us to take down the CCP! Xi amended the Constitution too early, and he was ruined by Wang Huning and Li Zhanshu. Xi did not take into account that Wang Qishan could not be...
 
-<img src="https://media.gettr.com/group49/getter/2022/08/10/23/e0376f5a-1a84-f01a-7139-b6781a511003/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/08/10/23/3076b918-402c-ac28-ee7e-e24d233302e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,22 +223,6 @@ No.1🥇 on Macau🇲🇴 and Hun...
 8/9/2022 Miles Guo’s GETTR Google data center exploded, why? One of our fellow fighters in Europe was awarded 4 million Euros in a lawsuit because the court found out that Twitter completely manipulated our data; the New Federal St...
 
 <img src="https://media.gettr.com/group33/getter/2022/08/09/23/8e036f6e-684d-ea4c-8577-d6e922fd36e6/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1lvtt24d56.md)
-
-8/7/2022 Miles Guo: Traitors in Taiwan not only sold out Taiwan, but also provided a bunch of bad advice to the Communist Party, but the U.S. has the top 1 intelligence source regarding Taiwan issue; the U.S., Australia and Japan w...
-
-<img src="https://media.gettr.com/group21/getter/2022/08/09/23/d94171b5-eff8-4e2e-abff-1c2464951434/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1lw04sc123.md)
-
-8/7/2022 Miles Guo: Our fellow fighters should care for each other, adhere to the principle of “only the truth prevails”, and the belief that human rights are God-given; we didn’t take the COVID vaccines, own digital currencies and...
-
-<img src="https://media.gettr.com/group42/getter/2022/08/09/23/cd563960-a754-222d-e6a9-6898e6fb6a37/out.jpg" width="506" height="284">
 
 ---
 
