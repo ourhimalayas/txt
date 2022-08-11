@@ -2,6 +2,16 @@
 ---
 
 
+[@milesguolive 8/11/2022 3:33 PM UTC  - :tv:直播](/content/gettr/p1m67yc056a.md)
+
+0811大直播精华版
+
+
+
+<img src="https://media.gettr.com/group5/origin/2022/08/11/15/43cbda11-6f3e-ad8e-62d4-ff0d09e3955f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 3:20 PM UTC  - :tv:直播](/content/gettr/p1m5rkwcfd2.md)
 
 8/10/2022 Miles Guo: Xi Jinping’s daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudden death certainly is related to COVID vaccines. She confirmed that her dad did not ...
@@ -34,13 +44,11 @@
 
 ---
 
-[@milesguolive 8/11/2022 3:33 PM UTC  - :tv:直播](/content/gettr/p1m67yc056a.md)
+[@miles 8/11/2022 5:03 PM UTC ](/content/gettr/p1m7532f7ee.md)
 
-0811大直播精华版
+2022.08.11 这绝对是共产党的走狗……我R你八辈祖宗共产党！你太烂了……【七哥，Zero Hedge 文章的原作者Pepe Escobar 之前在2020年就被写在国务员的关于俄罗斯网络信息操控的报告里。作者的全被文章都在这里 https://www.vijayvaani.com/AuthorProfile.aspx?pid=386。他是少数一些不是俄罗斯人的网上写手，替 Moscow-based SCF （Strategic Culture Fou...
 
-
-
-<img src="https://media.gettr.com/group5/origin/2022/08/11/15/43cbda11-6f3e-ad8e-62d4-ff0d09e3955f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/08/11/17/27231923-2ba0-773f-af38-fcd96ca2c8bb/d5f01125ec88b95302ed29c8fd6c30c4.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +173,6 @@
 In the US, the Constitution gives everyone the right to protect private property. However, a Connecticut court judge forced Mr....
 
 <img src="https://media.gettr.com/group35/origin/2022/08/10/16/7be33959-70f9-f114-5e44-4136f7435fb1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 4:11 PM UTC  - :tv:直播](/content/gettr/p1m0cysfe89.md)
-
-2022.08.10 【Nicole看七哥】郭先生提过：健身是一个精神上的活儿；而灭共则是一种修行。
-
-当一个人能把灭共作为一种正道主义的话，又有什么东西可以打败他呢？
-
-
-
-Mr. Guo mentioned that exercising is a spiritual activity and the annihilation of the CCP is a kind of practice.
-
-When he treats this annihilat...
-
-<img src="https://media.gettr.com/group37/origin/2022/08/10/16/ca806f64-d198-95a0-4cbb-211ebaa8cca7/out.jpg" width="506" height="284">
 
 ---
 
