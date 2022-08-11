@@ -2,6 +2,26 @@
 ---
 
 
+[@miles 8/11/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1m8qk976e7.md)
+
+8/10/2022 Miles Guo: The “Moat Project of Hebei”, designed by Zeng Qinghong, is already set off with Xi Jinping as the target; the Fudan faction will absolutely take drastic measures to get rid of Xi Jinping!
+
+
+
+8/10/2022 文贵直播：曾庆红设...
+
+<img src="https://media.gettr.com/group27/getter/2022/08/11/23/6137f5da-6ee2-9f3c-75f8-6ca2da7c1cf0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p1m8m8r9055.md)
+
+8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
+
+<img src="https://media.gettr.com/group46/getter/2022/08/11/23/42b96b4d-344f-c332-5bb5-2c476d56c5e7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p1m7zxi3a16.md)
 
 8/10/2022: Miles Guo’s GETTR: Pan Shiyi once attempted to get rid of Guo Guangchang with 2 billion, and was told by the CCP’s Central Commission for Discipline Inspection that at least 200 billion is needed! Investigations into the...
@@ -48,11 +68,11 @@ For English：gettr.com/post/p1m7mfac95a
 
 ---
 
-[@miles 8/11/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p1m8m8r9055.md)
+[@miles 8/11/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1m8fml8cb7.md)
 
-8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
+8/10/2022 Miles Guo’s GETTR: Xiao Yaqing straddles both Fudan Gang and Peking Gang, and is very close to Meng Jianzhu, Wang Qishan, Zhang Shousheng and Wang Enge; Zhou Liang and Fan Yifei may be arrested due to their involvement in...
 
-<img src="https://media.gettr.com/group46/getter/2022/08/11/23/42b96b4d-344f-c332-5bb5-2c476d56c5e7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/08/11/23/d88d499c-2314-3a3e-f960-32b6fd168a16/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,26 +191,6 @@ For English：gettr.com/post/p1m7mfac95a
 8/10/2022 Miles Guo: Someone recently had dinner with Xi Jinping's daughter, and asked her about COVID vaccines. Xi's daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudd...
 
 <img src="https://media.gettr.com/group49/getter/2022/08/10/23/e0376f5a-1a84-f01a-7139-b6781a511003/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 10:53 PM UTC  - :tv:直播](/content/gettr/p1m1r5p56b0.md)
-
-2022.08.10 纯粹胡说八道……这两种人从来没有成过大事……改变自己命运过……
-
-<img src="https://media.gettr.com/group16/getter/2022/08/10/22/260c23e9-2f1f-e7d9-12b3-c86f91a668ec/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 10:11 PM UTC  - :tv:直播](/content/gettr/p1m1b9bac0f.md)
-
-(1080版) 飞飞秀 《利益冲突·第二十四篇》2022-08-10
-
-
-
-#LUC #PAX #破产案 #Vice #HBO #东丽案
-
-<img src="https://media.gettr.com/group50/origin/2022/08/10/22/488fda12-2f48-6164-0b3c-4c502802d467/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
