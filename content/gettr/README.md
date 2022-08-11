@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 8/11/2022 12:06 AM UTC  - :tv:直播](/content/gettr/p1m21n5978f.md)
+
+8/10/200 Miles Guo: The Jiang Family is the founder of Fudan Gang, where Jiang Zemin is the big boss followed by Wang Huning. In Fudan Gang, there are other people such as Jiang Mianheng, Neil Shen, Meng Jianzhu, Sun Lijun, Bruno W...
+
+<img src="https://media.gettr.com/group35/getter/2022/08/11/00/b3a97f1e-60b7-7bf7-1d5b-c9c27028a854/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/10/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p1m20svd76b.md)
+
+8/10/2022 Miles Guo: Xi's third term will be beneficial for us to take down the CCP! Xi amended the Constitution too early, and he was ruined by Wang Huning and Li Zhanshu. Xi did not take into account that Wang Qishan could not be...
+
+<img src="https://media.gettr.com/group49/getter/2022/08/10/23/3076b918-402c-ac28-ee7e-e24d233302e2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/10/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1m1zep1c6a.md)
 
 8/10/2022 Miles Guo: Someone recently had dinner with Xi Jinping's daughter, and asked her about COVID vaccines. Xi's daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudd...
@@ -35,14 +51,6 @@
 #LUC #PAX #破产案 #Vice #HBO #东丽案
 
 <img src="https://media.gettr.com/group19/origin/2022/08/10/22/04755d8b-3994-1711-e8d4-adbcd396f8d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p1m20svd76b.md)
-
-8/10/2022 Miles Guo: Xi's third term will be beneficial for us to take down the CCP! Xi amended the Constitution too early, and he was ruined by Wang Huning and Li Zhanshu. Xi did not take into account that Wang Qishan could not be...
-
-<img src="https://media.gettr.com/group49/getter/2022/08/10/23/3076b918-402c-ac28-ee7e-e24d233302e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ No.1🥇 on Macau🇲🇴 and Hun...
 8/9/2022  Miles Guo’s GETTR: The vaccine disaster is bringing two benefits to humanity: one is a full-scale use of biotechnology across the world, the other is to make people believe that we have a creator; the era of digital curre...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/09/23/a53dda6a-b7dc-65fb-921e-bc69b0d2583b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/9/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p1lwm2n06b1.md)
-
-8/9/2022 Miles Guo's GETTR: Do not worry about President Trump, we do not understand the U.S. law, nor are we in a position to meddle in the U.S. politics; in addition to taking down the CCP, our fellow fighters should focus on our...
-
-<img src="https://media.gettr.com/group44/getter/2022/08/09/23/b87b8b1d-2d97-9a55-eff2-9be28348a0b7/out.jpg" width="506" height="284">
 
 ---
 
