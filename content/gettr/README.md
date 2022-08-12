@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 8/11/2022 11:47 PM UTC  - :tv:直播](/content/gettr/p1m8jmzeedb.md)
+
+8/10/2022 Miles Guo: Xi Jinping amended the Constitution too early, and has offended all the CCP members. Now Xi has to bite the bullet and carry on. Xi must fight every single day just to survive one more day.
+
+
+
+8/10/2022 文贵直播：习近...
+
+<img src="https://media.gettr.com/group3/getter/2022/08/11/23/96189758-fdcc-9898-03d3-1412b58f9fec/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 11:51 PM UTC  - :tv:直播](/content/gettr/p1m81sjd439.md)
+
+8/10/2022 Miles Guo: The Jiang Family is the founder of Fudan Gang and it was Zeng Qinghong who made Fudan Gang into a political force that rivals the Tsinghua Gang in Communist China.
+
+
+
+8/10/2022  文贵直播：复旦帮始于江家，是曾庆红扶持了复旦帮，并让它成为抗衡清...
+
+<img src="https://media.gettr.com/group33/getter/2022/08/11/23/49f05093-bbf6-f64d-beb6-80c4d57affa6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 11:30 PM UTC  - :tv:直播](/content/gettr/p1m8qk976e7.md)
 
 8/10/2022 Miles Guo: The “Moat Project of Hebei”, designed by Zeng Qinghong, is already set off with Xi Jinping as the target; the Fudan faction will absolutely take drastic measures to get rid of Xi Jinping!
@@ -11,6 +35,22 @@
 8/10/2022 文贵直播：曾庆红设...
 
 <img src="https://media.gettr.com/group27/getter/2022/08/11/23/6137f5da-6ee2-9f3c-75f8-6ca2da7c1cf0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 11:57 PM UTC  - :tv:直播](/content/gettr/p1m863y4d09.md)
+
+8/11/2022 Miles Guo: I believe the deaths of Liu Wenxi and his wife is a consequence of COVID vaccination, and have nothing to do with the brutal attack on the four girls in Tangshan. Tangshan is under the control of Yao's family a...
+
+<img src="https://media.gettr.com/group18/getter/2022/08/11/23/565af566-3975-77be-7b4f-adaecbd2381d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1m8fml8cb7.md)
+
+8/10/2022 Miles Guo’s GETTR: Xiao Yaqing straddles both Fudan Gang and Peking Gang, and is very close to Meng Jianzhu, Wang Qishan, Zhang Shousheng and Wang Enge; Zhou Liang and Fan Yifei may be arrested due to their involvement in...
+
+<img src="https://media.gettr.com/group39/getter/2022/08/11/23/d88d499c-2314-3a3e-f960-32b6fd168a16/out.jpg" width="506" height="284">
 
 ---
 
@@ -65,14 +105,6 @@ For English：gettr.com/post/p1m7mfac95a
 #LUC #PAX #破产案 #缠诉
 
 <img src="https://media.gettr.com/group15/origin/2022/08/11/22/4fd09c17-67d5-18e6-3fbe-e402160f24ed/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p1m8fml8cb7.md)
-
-8/10/2022 Miles Guo’s GETTR: Xiao Yaqing straddles both Fudan Gang and Peking Gang, and is very close to Meng Jianzhu, Wang Qishan, Zhang Shousheng and Wang Enge; Zhou Liang and Fan Yifei may be arrested due to their involvement in...
-
-<img src="https://media.gettr.com/group39/getter/2022/08/11/23/d88d499c-2314-3a3e-f960-32b6fd168a16/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,30 +199,6 @@ For English：gettr.com/post/p1m7mfac95a
 8/10/200 Miles Guo: The Jiang Family is the founder of Fudan Gang, where Jiang Zemin is the big boss followed by Wang Huning. In Fudan Gang, there are other people such as Jiang Mianheng, Neil Shen, Meng Jianzhu, Sun Lijun, Bruno W...
 
 <img src="https://media.gettr.com/group35/getter/2022/08/11/00/b3a97f1e-60b7-7bf7-1d5b-c9c27028a854/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 11:48 PM UTC  - :tv:直播](/content/gettr/p1m2g9j04fe.md)
-
-8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
-
-<img src="https://media.gettr.com/group44/getter/2022/08/10/23/982a0b3c-67b7-ca3d-a620-4faa70088d33/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p1m20svd76b.md)
-
-8/10/2022 Miles Guo: Xi's third term will be beneficial for us to take down the CCP! Xi amended the Constitution too early, and he was ruined by Wang Huning and Li Zhanshu. Xi did not take into account that Wang Qishan could not be...
-
-<img src="https://media.gettr.com/group49/getter/2022/08/10/23/3076b918-402c-ac28-ee7e-e24d233302e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/10/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p1m1zep1c6a.md)
-
-8/10/2022 Miles Guo: Someone recently had dinner with Xi Jinping's daughter, and asked her about COVID vaccines. Xi's daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudd...
-
-<img src="https://media.gettr.com/group49/getter/2022/08/10/23/e0376f5a-1a84-f01a-7139-b6781a511003/out.jpg" width="506" height="284">
 
 ---
 
