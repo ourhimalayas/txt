@@ -9,7 +9,7 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
-**由於技術問題，此頁面暫時不能更新。我們會在儘快解決，謝謝理解。**
+**:tada:視頻文字已更新:confetti_ball:** GNews文章隨後會保持更新
 
 ---
 
