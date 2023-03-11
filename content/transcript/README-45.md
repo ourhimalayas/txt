@@ -1,4 +1,4 @@
-﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
+﻿###  [:house:返回](README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
 ## 頁面 45/109 [**<**](/content/transcript/README-44.md) [1](/content/transcript/README.md) ... [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) **45** [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-46.md) [查看全部](/content/transcript/README-all.md)
