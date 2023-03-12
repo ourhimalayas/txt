@@ -2,6 +2,54 @@
 ---
 
 
+[@milesguo 3/12/2023 7:48 PM UTC  - 6圖](/content/gettr/p2b8jrma2f6.md)
+
+2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（一）
+
+<img src="https://media.gettr.com/group9/getter/2023/03/12/19/164e25af-b0c3-171b-7758-f5e7f3c60447/e654591ef4c2cc6fa907ae49c77adf84.JPG" width="506" height="284">
+
+---
+
+[@milesguo 3/12/2023 7:49 PM UTC  - 6圖](/content/gettr/p2b9fn195f7.md)
+
+2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（三）
+
+<img src="https://media.gettr.com/group6/getter/2023/03/12/19/843b280e-9dc1-a107-5cbf-7c9be07c1ed4/3f0d6bc7460e080ba4ff7489de212dee.JPG" width="506" height="284">
+
+---
+
+[@milesguo 3/12/2023 7:49 PM UTC  - 6圖](/content/gettr/p2b98xwd6fb.md)
+
+2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（四）
+
+<img src="https://media.gettr.com/group6/getter/2023/03/12/19/7cc17fe1-21d9-14f3-38bb-c6e4a707e459/08c6cd05fe1cefcbebffc4e548be2378.JPG" width="506" height="284">
+
+---
+
+[@milesguo 3/12/2023 7:50 PM UTC  - 6圖](/content/gettr/p2b94v8d2b0.md)
+
+2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（五）
+
+<img src="https://media.gettr.com/group11/getter/2023/03/12/19/9bc12b42-4a62-55dc-3d4f-9bfc2d8ca9df/bb3b3ae9eee0c9b3c62389da86ca60e6.JPG" width="506" height="284">
+
+---
+
+[@milesguo 3/12/2023 7:50 PM UTC  - 5圖](/content/gettr/p2b9461c834.md)
+
+2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（六）
+
+<img src="https://media.gettr.com/group7/getter/2023/03/12/19/d22276fa-cd8b-ac2f-23be-50b8c6ce7e8c/cb3fcbbcfde4c39e4ca942bc1084eaf8.JPG" width="506" height="284">
+
+---
+
+[@michaelyhon 3/12/2023 6:27 PM UTC  - :tv:直播](/content/gettr/p2b8xjfcf06.md)
+
+Pras Michel, from famous musician to CCP accomplice. (Part4)
+
+<img src="https://media.gettr.com/group11/getter/2023/03/12/18/ff570d49-ad47-1a8a-8adb-62ea54b775fe/3cdfffbe492ce43c869b072db784a191.png" width="506" height="284">
+
+---
+
 [@milesguo 3/12/2023 3:38 PM UTC  - 6圖](/content/gettr/p2b8hsh6307.md)
 
 2023.03.12 无处不在的Gfashion．新中国联邦……
@@ -26,61 +74,17 @@
 
 ---
 
-[@michaelyhon 3/12/2023 6:27 PM UTC  - :tv:直播](/content/gettr/p2b8xjfcf06.md)
+[@milesguo 3/12/2023 7:51 PM UTC  - :tv:直播](/content/gettr/p2b9e6d864b.md)
 
-Pras Michel, from famous musician to CCP accomplice. (Part4)
-
-<img src="https://media.gettr.com/group11/getter/2023/03/12/18/ff570d49-ad47-1a8a-8adb-62ea54b775fe/3cdfffbe492ce43c869b072db784a191.png" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 1:58 AM UTC  - :tv:直播](/content/gettr/p2b2zgo78e5.md)
-
-【NFSC@CPAC 】3/2/2023: Election Official James Mullarkey: Communism, like a despotic cancer, has stifled all human progress and advancement. The CCP will be condemned to the back pages of history, which the New Federal State of Chin...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/11/01/964f5484-30a4-ceba-17c9-952455da5cc1/out.jpg" width="506" height="284">
-
----
-
-[@wenfeng2020 3/11/2023 12:32 AM UTC ](/content/gettr/p2b3jub0a98.md)
-
-郭先生：“各位参与A10兄弟姐妹，今天是个大日子。共产党在结束两会的六个小时，有计划的对西方大的金融机构（集团）抛物业，赎回所有投资的钱，导致了国际级的房倒银塌，世界上最大的房地产公司叫做黑石（Blackstone）。老板就是想遣返七哥的Schwarzman（舒曼），管理上万亿美元资产。据说以超级低的价格到处卖他们控制的最佳资产，特别是中共国全部决绝。结果是房倒。银塌就是Silvergate这家银行,中共的火币、USDT，还有USDC很多钱都在这家银行，骤跌...
-
----
-
-[@milesguo 3/11/2023 4:08 AM UTC  - :tv:直播](/content/gettr/p2b3bhy54bd.md)
-
-2023.03.10  When the Chinese Communist Party learned that Miles GUO had helped scientists flee Communist China and got a hold of the dossiers on Sun Lijun and Wu Xiaohui, they sent 7,000 SWATs, using their usual underhanded tactics...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/11/04/eaee12a6-d4c6-fcb0-36d6-7b8d3cfde433/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 4:11 AM UTC  - :tv:直播](/content/gettr/p2b3rnu3bd2.md)
-
-2023.03.10  Pras Michel, Sun Lijun, and others participated in the task of repatriating Miles Guo.
-
-米歇尔和孙立军等一起参与遣返郭文贵的任务。
-
-<img src="https://media.gettr.com/group12/getter/2023/03/11/04/cb656529-aeab-d412-21e5-0e54c310457a/out.jpg" width="506" height="284">
-
----
-
-[@laojiang 3/10/2023 7:39 PM UTC ](/content/gettr/p2b229o4409.md)
-
-灭共取决于三个人：郭先生、美国下一任总统、中共党内的“戈尔巴乔夫”
+2023.03.12 
 
 
 
-前苏联共产党倒台，是由于整个国家的经济崩溃和财富破产，戈尔巴乔夫面对各方压力，不得不宣布苏共解体。有能力解决中共海外“钱袋子”的，只有爆料革命发起者郭文贵先生，随着过去的“盘古氏案”、“UBS”案、马上要结束的“PAX担保案”、“个人破产案”进入收尾阶段，“隔空取钱”、“以美灭共”、“以法灭共”就要发力，最后就是“以共灭共”。不解决中共海外“钱袋子”，灭共绝无可能。如果大家还有印象，仔...
 
----
 
-[@milesguo 3/11/2023 9:13 AM UTC  - :tv:直播](/content/gettr/p2b3t8id9dc.md)
+应战友们的要求……发个小SEVEN视频！
 
-【NFSC@CPAC 】3/2/2023 Virginia US Senate 2024 Candidate Kimberly Lowe: The threats that Communist China has been bringing to the U.S. are all related to national security issues; I completely stand with the citizens of the New Feder...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/11/09/1c52721e-5197-341f-28fe-09dbfcd4c77e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/12/19/4cfccd70-1a1a-11c6-3719-3b1e80cd9e1a/out.jpg" width="506" height="284">
 
 ---
 
