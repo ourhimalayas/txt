@@ -2,11 +2,11 @@
 ---
 
 
-[@milesguo 3/10/2023 11:52 PM UTC  - :tv:直播](/content/gettr/p2b3ad1d98d.md)
+[@milesguo 3/12/2023 5:47 AM UTC  - :tv:直播](/content/gettr/p2b76i641f8.md)
 
-3/10/2023 Miles Guo: Is there an intimate relationship between Fauci and Wang Yanyi? Follow the sextual and financial relationship between Fauci and Wang Yanyi, then we won't be far from uncovering the origins of the CCP virus and ...
+2023.03.12 【七哥的大胡子越看越好看😊】
 
-<img src="https://media.gettr.com/group8/getter/2023/03/10/23/2adb6add-c011-b4c3-7ff9-45a761df8d76/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
 
 ---
 
