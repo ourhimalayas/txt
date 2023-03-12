@@ -1,15 +1,6 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-推薦文章:point_down:
-
-[2020年6月4日新中国联邦宣言](/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
-
-[香港抗争者致内地同胞书](/master/2019/08/a_letter_from_the_hong_kong_people.md)
-
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
-
----
 
 #### [2023年3月11日郭先生盖特全文字版](/content/gnews/1005326.md)
 SVB硅谷银行、黑石相继暴雷，今天311发生的事情将比当年911事件带来的影响更大。喜联储因为郭先生的建议才躲过这场金融灾难，这场灾难之后行业将重整，喜联储将建立稳定币和区块链的桥梁，永远不会倒。中共图谋与中东、俄罗斯建立新联合国，习现在一人独大，权力影响力已超当年的毛泽东。世界出现两极集团，习想在经济、能源、俄乌战争上取得优势，习派去俄国的火箭军在过去的七十个小时已经在俄乌战争中参战，欧洲还愚蠢的以为共产党只是提供武器，世界将经历1923年以来从未有过的经济大灾难！ `3/11/2023 9:25 PM UTC Miles`
