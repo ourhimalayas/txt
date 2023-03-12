@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/12/2023 3:38 PM UTC  - 6圖](/content/gettr/p2b8hsh6307.md)
+
+2023.03.12 无处不在的Gfashion．新中国联邦……
+
+<img src="https://media.gettr.com/group3/getter/2023/03/12/15/cd6c30ab-a696-daef-3fcd-932cbab8c860/bd2fec7f81a03e5bb22cc56e9ff6f4da.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/12/2023 12:44 PM UTC  - :tv:直播](/content/gettr/p2b7kcm569c.md)
 
 2023.03.12 文贵大直播
@@ -18,25 +26,11 @@
 
 ---
 
-[@milesguo 3/12/2023 3:38 PM UTC  - 6圖](/content/gettr/p2b8hsh6307.md)
+[@michaelyhon 3/12/2023 6:27 PM UTC  - :tv:直播](/content/gettr/p2b8xjfcf06.md)
 
-2023.03.12 无处不在的Gfashion．新中国联邦……
+Pras Michel, from famous musician to CCP accomplice. (Part4)
 
-<img src="https://media.gettr.com/group3/getter/2023/03/12/15/cd6c30ab-a696-daef-3fcd-932cbab8c860/bd2fec7f81a03e5bb22cc56e9ff6f4da.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 1:01 AM UTC  - :tv:直播](/content/gettr/p2b3dx3b407.md)
-
-Super-May线上直播音乐会 第四十七期：当年情——追忆“哥哥”张国荣
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-嘉宾：鬼五
-
-<img src="https://media.gettr.com/group3/origin/2023/03/11/00/ce2ed094-9ea1-c442-e772-fefd059b60c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/12/18/ff570d49-ad47-1a8a-8adb-62ea54b775fe/3cdfffbe492ce43c869b072db784a191.png" width="506" height="284">
 
 ---
 
