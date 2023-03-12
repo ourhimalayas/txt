@@ -3,6 +3,10 @@
 
 ## 頁面 86/109 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月19日视频 20181119_1王建之死发布会的前一天受到各方压力](/content/transcript/2018/11/20181119-53478418.md)
+
+[郭文贵2018年11月18日视频 20181118_1](/content/transcript/2018/11/20181118-53478407.md)
+
 [郭文贵2018年11月17日视频 2018111711月20号的新闻发布会进展报告，遇到了巨大的困难，但是一定会照常进行](/content/transcript/2018/11/20181117-53480934.md)
 
 [郭文贵2018年11月16日视频 20181116_2](/content/transcript/2018/11/20181116-53478402.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年10月26日视频 20181026你们健身了吗！一切都是刚开始！谈港币和人⺠币 的汇率](/content/transcript/2018/10/20181026-53479089.md)
 
 [郭文贵2018年10月25日视频 20181025刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/content/transcript/2018/10/20181025-53478699.md)
-
-[郭文贵2018年10月25日视频 20181025_2](/content/transcript/2018/10/20181025-53478342.md)
-
-[郭文贵2018年10月24日视频 20181024王歧山与马云窜访忽悠以色列????????的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/content/transcript/2018/10/20181024-53478376.md)
 
 
 ## 頁面 86/109 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 99/109 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月15日《文贵看春晚》 20180215爆料正式整理](/content/transcript/2018/02/20180215-53482204.md)
+
+[郭文贵2018年2月15日 20180215_2陈军先生不敢面对文贵与他2月18号的辩论，文贵将为辩论准备的有关部分视频播出“陈军是个大骗子”](/content/transcript/2018/02/20180215-53481368.md)
+
 [郭文贵2018年2月13日直播 20180213_1郭媒體第一次多方連線試直播](/content/transcript/2018/02/20180213-53477202.md)
 
 [郭文贵2018年2月12日 20180212_1郭文贵首次在郭媒体上直播！放出博讯拿钱删帖证据！对陈军做最后一次说明！大量网友互动内中有猛料！](/content/transcript/2018/02/20180212-53484105.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年2月5日第二次直播 20180205_2文贵浅谈，曹长青先生被断访．这是上天赐给我们的又一个礼物！](/content/transcript/2018/02/20180205-53484208.md)
 
 [郭文贵2018年2月5日第三次直播 20180205_3文贵现金悬赏．提供假民运分子利用假证屁文件．欺骗同胞．违法美国法律．给同胞造成伤害和损失证据！希望所有的战友们口口相传共同打击假民运！假政庇！](/content/transcript/2018/02/20180205-53484044.md)
-
-[郭文贵2018年2月5日第一次直播 20180205_1假民运分子利用真正英雄的死亡，和他们付出生命的代价，发财的时代必须结束！我们必须要让这些无人性的伪类们付出代价，一切都是刚刚开始！](/content/transcript/2018/02/20180205-53483958.md)
-
-[郭文贵2018年2月4日视频 20180204谈陈军欲谋害文贵与明镜和何频的关系](/content/transcript/2018/02/20180204-53484041.md)
 
 
 ## 頁面 99/109 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)

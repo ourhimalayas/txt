@@ -3,6 +3,10 @@
 
 ## 頁面 91/109 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月30日直播 20180830_3](/content/transcript/2018/08/20180830-53478188.md)
+
+[郭文贵2018年8月30日直播 20180830_2](/content/transcript/2018/08/20180830-53478186.md)
+
 [郭文贵2018年8月29日视频 20180829谈王健事件发布会的准备工作](/content/transcript/2018/08/20180829-53482534.md)
 
 [郭文贵2018年8月27日直播 20180827_2](/content/transcript/2018/08/20180827-53478182.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年8月12日视频 20180812_2在Riek Owes取今年秋季服装（合成版）](/content/transcript/2018/08/20180812-53477237.md)
 
 [郭文贵2018年8月11日直播 20180811_1在与川普总统同一家定制西装店直播](/content/transcript/2018/08/20180811-53478146.md)
-
-[郭文贵2018年8月10日直播 20180810_1尊敬的战友们你们健身了吗！今天我将与刑事律师团开会．关于王健被杀的案件！一切都是刚刚开始！](/content/transcript/2018/08/20180810-53478143.md)
-
-[郭文贵2018年8月9日视频 20180809海航集团纽约大楼被白宫查封只是刚刚开始！](/content/transcript/2018/08/20180809-53482477.md)
 
 
 ## 頁面 91/109 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 82/109 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读](/content/transcript/2019/02/20190216-53482266.md)
+
+[郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190207-53482228.md)
+
 [郭文贵2019年2月7日视频 20190207_3Snow 在咬王妓山．孟建柱．孙力军的蛋蛋！](/content/transcript/2019/02/20190207-53478598.md)
 
 [郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！](/content/transcript/2019/02/20190207-53478596.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始](/content/transcript/2019/01/20190122-53478534.md)
 
 [郭文贵2019年1月21日视频 20190121共产党号召学习王阳明的心学是对圣人的巨大侮辱](/content/transcript/2019/01/20190121-53481802.md)
-
-[郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！](/content/transcript/2019/01/20190120-53481784.md)
-
-[郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友](/content/transcript/2019/01/20190120-53478116.md)
 
 
 ## 頁面 82/109 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

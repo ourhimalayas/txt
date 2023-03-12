@@ -3,6 +3,10 @@
 
 ## 頁面 96/109 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年4月19日第三次直播 20180419_3VOG断播一周年回顾之——路德提问](/content/transcript/2018/04/20180419-53477631.md)
+
+[郭文贵2018年4月16日在Livestrem 20180416谈墙内方老先生和开放海南夺命岛](/content/transcript/2018/04/20180416-53482294.md)
+
 [郭文贵2018年4月16日视频 20180416_2我正在马阿拉哥庄园的对面的海上](/content/transcript/2018/04/20180416-53477173.md)
 
 [郭文贵2018年4月14日视频 20180414谈美国及盟国导弹袭击叙利亚是中国的第二次战略机会还是盗国贼盗国的最大机会](/content/transcript/2018/04/20180414-53482280.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体](/content/transcript/2018/03/20180329-53477161.md)
 
 [郭文贵2018年3月28日第二次直播 20180328_2谈香港黑警察与金正恩访华](/content/transcript/2018/03/20180328-53482002.md)
-
-[郭文贵2018年3月28日第一次直播 20180328_1谈香港警察如何黑抓我们的员工和钱](/content/transcript/2018/03/20180328-53481918.md)
-
-[郭文贵2018年3月27日直播 20180327_2不允许任何劵商买卖方正股票为的啥？](/content/transcript/2018/03/20180327-53477421.md)
 
 
 ## 頁面 96/109 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)

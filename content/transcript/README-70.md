@@ -3,6 +3,10 @@
 
 ## 頁面 70/109 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划](/content/transcript/2019/09/20190901-53482988.md)
+
+[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港](/content/transcript/2019/08/20190831-53478992.md)
+
 [2019年8月29日文贵大直播全文字版：中共是恐怖组织白宫已过10万;芬太尼, 假美元是中共3F美国的部分国家行动核心战略](/content/transcript/2019/08/20190829-53845136.md)
 
 [郭文贵2019年8月29日视频 20190829_3马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(二)](/content/transcript/2019/08/20190829-53478956.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年8月18日视频 20190818从‘818’的170万港人再上街 来看大湾区的吞港计划](/content/transcript/2019/08/20190818-53483141.md)
 
 [2019年8月17号文贵大直播全文字版：回复有关今早直播后，大家发来的私信问题……](/content/transcript/2019/08/20190817-53795601.md)
-
-[郭文贵2019年8月17日 20190817（原声） 班农与文贵先生谈：香港危机 美国即将必须采取的行动](/content/transcript/2019/08/20190817-53483079.md)
-
-[郭文贵2019年8月17日视频 20190817_2回复有关今早直播后，大家发来的私信问题](/content/transcript/2019/08/20190817-53478911.md)
 
 
 ## 頁面 70/109 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 102/109 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年11月8日 20171108twitter再次被封7天后的报平安](/content/transcript/2017/11/20171108-53484033.md)
+
+[郭文贵2017年11月7日接受郭宝胜采访 20171107](/content/transcript/2017/11/20171107-53484192.md)
+
 [郭文贵2017年11月2日在Livestream试直播 20171102](/content/transcript/2017/11/20171102-53484179.md)
 
 [郭文贵2017年11月1日 20171101“谁抓判文贵的家人？”什么时候报下两个常委的料！](/content/transcript/2017/11/20171101-53484028.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年10月5日 20171005 郭文贵10月5日全球新聞發布會第02次华盛顿记者会剪輯後英語版官方版](/content/transcript/2017/10/20171005-53484102.md)
 
 [郭文贵2017年10月4日 20171004在哈德森演讲延期事件后直播,谁将哈德逊蓝金黄的？](/content/transcript/2017/10/20171004-53484094.md)
-
-[郭文贵2017年10月4日视频 20171004_2在华盛顿报平安](/content/transcript/2017/10/20171004-53483611.md)
-
-[郭文贵2017年10月2日视频 20171002为拉斯维加斯悲剧受害者祈福](/content/transcript/2017/10/20171002-53483608.md)
 
 
 ## 頁面 102/109 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

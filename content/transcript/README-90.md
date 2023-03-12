@@ -3,6 +3,10 @@
 
 ## 頁面 90/109 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月15日直播 20180915_1](/content/transcript/2018/09/20180915-53478256.md)
+
+[郭文贵2018年9月13日直播 20180913_1](/content/transcript/2018/09/20180913-53478253.md)
+
 [郭文贵2018年9月12日第一次直播 20180912_1战友之声聊天室曝光 调查王健的一个团队被盗国贼50万美金买走所有资料；爆料和姬胜德认识过程；文贵先生早年的经历；90年代赖昌星一天赚2个亿人民币；再次承诺2亿美金成立老兵基金！](/content/transcript/2018/09/20180912-53482585.md)
 
 [郭文贵2018年9月12日第三次直播 20180912_3某军委委员家一面墙的翡翠就价值3个亿美金；首次酒后爆文贵先生80年代－90年代起家经历；爆释永信的私生子；戒忍和尚写一个对联受8万元钱故事！](/content/transcript/2018/09/20180912-53482571.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年8月31日直播 20180831_1感谢昨天为盘古公寓和写字楼被非法拍卖而流泪担心我的战友们你们的爱惜担心文贵更加让我精进反盗为战友而战为正义而战一切都是刚刚开始](/content/transcript/2018/08/20180831-53478192.md)
 
 [郭文贵2018年8月30日视频 20180830关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！](/content/transcript/2018/08/20180830-53482551.md)
-
-[郭文贵2018年8月30日直播 20180830_3](/content/transcript/2018/08/20180830-53478188.md)
-
-[郭文贵2018年8月30日直播 20180830_2](/content/transcript/2018/08/20180830-53478186.md)
 
 
 ## 頁面 90/109 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

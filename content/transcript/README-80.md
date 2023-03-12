@@ -3,6 +3,10 @@
 
 ## 頁面 80/109 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月20日视频 20190420班农先生与文贵谈郭台铭选台湾总统 : Steve Bannon and Miles Guo, a dialogue on Terry Gou’s presidential bid](/content/transcript/2019/04/20190420-53482349.md)
+
+[郭文贵2019年4月19日视频 20190419明早將與班農一起直播, 班農說的話文貴不負責, 因為他可能違反郭七條](/content/transcript/2019/04/20190419-53478635.md)
+
 [郭文贵2019年4月18日视频 20190418_1一个难忘的日子……2017年与VOA龚小夏女士．东方先生……在我家的釆访！断播二周年．文贵回顾这两年来爆料的一些人和事……一切都是刚刚开始](/content/transcript/2019/04/20190418-53482322.md)
 
 [郭文贵2019年4月18日视频 20190418_2正在准备20号上午9点的直播！](/content/transcript/2019/04/20190418-53478632.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年4月2日视频 20190402尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵向战友们报告在加洲开会的感受．和睡在帐篷的原因与地点！一切都是刚刚开始！【挺郭小妹】](/content/transcript/2019/04/20190402-53482200.md)
 
 [郭文贵2019年4月2日视频 20190402_2万分感谢潜伏的战友们的重大贡献](/content/transcript/2019/04/20190402-53478575.md)
-
-[郭文贵2019年4月1日视频 20190401_1郭文贵先生美国加州报平安：帐内论灭共，血誓定决心！](/content/transcript/2019/04/20190401-53478660.md)
-
-[郭文贵2019年3月31日视频 20190331_1尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵在加州圣巴巴拉向大家报平安！一切都是刚刚开始！](/content/transcript/2019/03/20190331-53478657.md)
 
 
 ## 頁面 80/109 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

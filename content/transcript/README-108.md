@@ -3,6 +3,10 @@
 
 ## 頁面 108/109 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月21日第一次直播 20170521_1](/content/transcript/2017/05/20170521-53483996.md)
+
+[郭文贵2017年5月21日第三次直播 20170521_3](/content/transcript/2017/05/20170521-53483794.md)
+
 [郭文贵2017年5月21日第二次直播 20170521_2](/content/transcript/2017/05/20170521-53483778.md)
 
 [郭文贵2017年5月20日第一次直播 20170520在香港是否存在执法黑屋](/content/transcript/2017/05/20170520-53483761.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年5月3日视频 20170503_1](/content/transcript/2017/05/20170503-53483733.md)
 
 [郭文贵2017年5月3日第二次直播 20170503_2小狗狗生日礼物](/content/transcript/2017/05/20170503-53483724.md)
-
-[郭文贵2017年5月2日视频 20170502_2推友過15.2萬](/content/transcript/2017/05/20170502-53483532.md)
-
-[郭文贵2017年5月2日与刘彦平的通话 20170502这是文贵首次挂出，我与刘彦平先生在2017年5月1日至2日斗沟通．有关来美国的过程！这些视频将成为西方看中国．看文贵的最好的事实样版！](/content/transcript/2017/05/20170502-53482254.md)
 
 
 ## 頁面 108/109 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

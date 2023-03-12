@@ -3,6 +3,10 @@
 
 ## 頁面 105/109 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月25日视频 20170825_270天的特别之旅](/content/transcript/2017/08/20170825-53483540.md)
+
+[郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦](/content/transcript/2017/08/20170824-53483923.md)
+
 [郭文贵2017年8月23日视频 20170823](/content/transcript/2017/08/20170823-53483528.md)
 
 [郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。](/content/transcript/2017/08/20170822-53484311.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年8月5日视频 20170805_2](/content/transcript/2017/08/20170805-53483515.md)
 
 [郭文贵2017年8月4日 20170804关于香港警察调查郭文贵以自己的1600亿诈骗自己的360亿的案件 搞笑 搞笑](/content/transcript/2017/08/20170804-53483843.md)
-
-[郭文贵2017年8月3日 20170803关于网上虚假录音和香港警察搜查文贵香港办公室](/content/transcript/2017/08/20170803-53483823.md)
-
-[郭文贵2017年8月2日第一次直播 20170802_1试试网络：拜托推友别给我发黄色视频．下一集的爆料的大概的预报！(1)](/content/transcript/2017/08/20170802-53484170.md)
 
 
 ## 頁面 105/109 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

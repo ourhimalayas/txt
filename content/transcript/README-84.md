@@ -3,6 +3,10 @@
 
 ## 頁面 84/109 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月5日视频 20190105_2-保镖告诉我，林宝坚尼为我特制的SUV已经到我的停车场了，我都快忘了这个车了](/content/transcript/2019/01/20190105-53478482.md)
+
+[郭文贵2019年1月4日视频 20190104_1欺民賊們在西方布下的中文媒體的配合CCP的網路大軍太可怕了](/content/transcript/2019/01/20190104-53478481.md)
+
 [郭文贵2019年1月3日视频 20190103_1香港和台湾人民在2019年一定会对CCP全面反击，港台的光明时刻一定会到来](/content/transcript/2019/01/20190103-53478477.md)
 
 [郭文贵2019年1月2日视频 20190102_2风中的Snow](/content/transcript/2019/01/20190102-53478475.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年12月14日视频 20181214肖建华的资产被分的差不多了，很快就会消失了](/content/transcript/2018/12/20181214-53481390.md)
 
 [郭文贵2018年12月12日视频 20181212](/content/transcript/2018/12/20181212-53481240.md)
-
-[郭文贵2018年12月11日视频 20181211_2回到了美麗的藍天白雲的紐約](/content/transcript/2018/12/20181211-53478565.md)
-
-[郭文贵2018年12月11日视频 20181211_1文贵简单的早餐](/content/transcript/2018/12/20181211-53478564.md)
 
 
 ## 頁面 84/109 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

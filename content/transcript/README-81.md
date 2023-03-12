@@ -3,6 +3,10 @@
 
 ## 頁面 81/109 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月1日视频 20190401_1郭文贵先生美国加州报平安：帐内论灭共，血誓定决心！](/content/transcript/2019/04/20190401-53478660.md)
+
+[郭文贵2019年3月31日视频 20190331_1尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵在加州圣巴巴拉向大家报平安！一切都是刚刚开始！](/content/transcript/2019/03/20190331-53478657.md)
+
 [郭文贵2019年3月30日视频 20190330_1文贵在加州向战友们报平安！有的事情爆得太早 把事情都毀了 而且毀得很嚴重](/content/transcript/2019/03/20190330-53478654.md)
 
 [郭文贵2019年3月29日浴火重生 20190329超人归来](/content/transcript/2019/03/20190329-53482196.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡](/content/transcript/2019/02/20190219-53482340.md)
 
 [郭文贵2019年2月17日 20190217文贵再谈法治基金的目的和中美之间即将发生的大事。](/content/transcript/2019/02/20190217-53482295.md)
-
-[郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读](/content/transcript/2019/02/20190216-53482266.md)
-
-[郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190207-53482228.md)
 
 
 ## 頁面 81/109 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)

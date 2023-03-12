@@ -3,6 +3,10 @@
 
 ## 頁面 93/109 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年7月18日lns直播视频 20180718昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/content/transcript/2018/07/20180718-53482453.md)
+
+[郭文贵2018年7月17日路德访谈（三）20180717_3郭文贵先生全球直播（第三部分）](/content/transcript/2018/07/20180717-53482445.md)
+
 [郭文贵2018年7月17日路德访谈（二）20180717_2郭文贵先生全球直播（第二部分）](/content/transcript/2018/07/20180717-53482435.md)
 
 [郭文贵2018年7月17日路德访谈（一）20180717_1郭文贵先生全球直播（第一部分）](/content/transcript/2018/07/20180717-53482415.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年6月16日直播 20180616_1万分感激网络侠客联盟．正义黑客小哥．大侠保罗先生的拨剑相助．给大家一个真相](/content/transcript/2018/06/20180616-53477914.md)
 
 [郭文贵2018年6月15日直播 20180615_1谈只有中国正道主义可以救中国．只有与西方和平共处才能让中国长治久安！](/content/transcript/2018/06/20180615-53477910.md)
-
-[郭文贵2018年6月13日直播 20180613_1郭战装与什么是习主席的政治轮轴效应！](/content/transcript/2018/06/20180613-53477894.md)
-
-[郭文贵2018年6月11日直播 20180611_1陈峰脑血管病急救．感谢黑客先生．大陆官场热离婚．商场热移民美国！习主席进入官场轮轴灾难区！](/content/transcript/2018/06/20180611-53477873.md)
 
 
 ## 頁面 93/109 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

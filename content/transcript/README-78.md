@@ -3,6 +3,10 @@
 
 ## 頁面 78/109 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月27日视频 20190527_1文貴又出來浪了](/content/transcript/2019/05/20190527-53478666.md)
+
+[郭文贵2019年5月26日视频 20190526_12020年6月4日将是新中国的国庆日！](/content/transcript/2019/05/20190526-53478727.md)
+
 [郭文贵2019年5月26日视频 20190526_2SNOW 是路德先生的大粉丝！](/content/transcript/2019/05/20190526-53478663.md)
 
 [郭文贵2019年5月25日视频 20190525世界秩序新开始就在日本G20会议 G20 summit will mark the beginning of a new US-China game!](/content/transcript/2019/05/20190525-53482697.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年5月8日视频 20190508尊敬的战友们好，你们健身了吗？文贵聊聊．为什么中方要求美方不能公开中美的贸易协议内容！为什么文贵的梦语．郭九条．在国内引起了巨大的反响！一切都是刚刚开始！](/content/transcript/2019/05/20190508-53482532.md)
 
 [郭文贵2019年5月7日视频 20190507共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/content/transcript/2019/05/20190507-53482526.md)
-
-[郭文贵2019年5月6日视频 20190506文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/transcript/2019/05/20190506-53482515.md)
-
-[郭文贵2019年5月6日视频 20190506_2文贵受到snow的严重骚扰……因为文贵马上要参加两个紧急的会议，暂时不能直播](/content/transcript/2019/05/20190506-53478701.md)
 
 
 ## 頁面 78/109 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 104/109 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月9日 20170909说说姚依林与马云，孟建柱，孙立军](/content/transcript/2017/09/20170909-53483965.md)
+
+[郭文贵2017年9月9日视频 20170909_5在船上](/content/transcript/2017/09/20170909-53483572.md)
+
 [郭文贵2017年9月9日视频 20170909_4补偿今天直播技术的失败 分享游艇内部](/content/transcript/2017/09/20170909-53483567.md)
 
 [郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！](/content/transcript/2017/09/20170909-53483564.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年8月26日视频 20170826老兵通过新加坡发来视频 翻墙软件偷信息 美政府对海航的关注达到我们的目的](/content/transcript/2017/08/20170826-53483541.md)
 
 [郭文贵2017年8月25日做客郭宝胜 20170825宗教与中国政治及社会关系](/content/transcript/2017/08/20170825-53484317.md)
-
-[郭文贵2017年8月25日视频 20170825_270天的特别之旅](/content/transcript/2017/08/20170825-53483540.md)
-
-[郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦](/content/transcript/2017/08/20170824-53483923.md)
 
 
 ## 頁面 104/109 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)

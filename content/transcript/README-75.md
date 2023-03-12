@@ -3,6 +3,10 @@
 
 ## 頁面 75/109 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着](/content/transcript/2019/07/20190708-53478790.md)
+
+[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始](/content/transcript/2019/07/20190708-53478788.md)
+
 [2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集](/content/transcript/2019/07/20190707-53575672.md)
 
 [郭文贵2019年7月7日第一次直播 20190707_1爆料革命当中扮演的重要角色……并希望能给更多战友加入郭媒体……一切都是刚刚开始！](/content/transcript/2019/07/20190707-53482865.md)
@@ -48,10 +52,6 @@
 [2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜](/content/transcript/2019/06/20190629-53560626.md)
 
 [郭文贵2019年6月29日视频 20190629_1战友们的有关G20的失望情绪．就是我们反共的核心力量表现！也是检验谁是真反共的一个特别事件……一切都是刚刚开始！](/content/transcript/2019/06/20190629-53478757.md)
-
-[郭文贵2019年6月28日视频 20190628G20](/content/transcript/2019/06/20190628-53482757.md)
-
-[郭文贵2019年6月27日视频 20190627_1尊敬的战友好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！](/content/transcript/2019/06/20190627-53478753.md)
 
 
 ## 頁面 75/109 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)

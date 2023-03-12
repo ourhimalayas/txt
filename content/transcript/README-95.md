@@ -3,6 +3,10 @@
 
 ## 頁面 95/109 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年5月5日视频第二部分 20180505_2陈氏兄弟及盟相关机密文件内幕](/content/transcript/2018/05/20180505-53483665.md)
+
+[郭文贵2018年5月5日视频 20180505_4连线路德访谈：揭露陈氏兄弟、专员以及机密文件更多相关内幕](/content/transcript/2018/05/20180505-53482384.md)
+
 [郭文贵2018年5月3日视频 20180503推墙卫星准备就绪即将发射大家耐心等待](/content/transcript/2018/05/20180503-53477181.md)
 
 [郭文贵2018年5月2日视频 20180502Instagram 直播 《战友同行》](/content/transcript/2018/05/20180502-53482342.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年4月19日第二次直播 20180419_2谈明镜](/content/transcript/2018/04/20180419-53482305.md)
 
 [郭文贵2018年4月19日第四次直播 20180419_4-419VOA断播门一周年回顾 網友提問 & 評何頻的為人](/content/transcript/2018/04/20180419-53477677.md)
-
-[郭文贵2018年4月19日第三次直播 20180419_3VOG断播一周年回顾之——路德提问](/content/transcript/2018/04/20180419-53477631.md)
-
-[郭文贵2018年4月16日在Livestrem 20180416谈墙内方老先生和开放海南夺命岛](/content/transcript/2018/04/20180416-53482294.md)
 
 
 ## 頁面 95/109 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

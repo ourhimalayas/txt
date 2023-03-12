@@ -3,6 +3,10 @@
 
 ## 頁面 73/109 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715653.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715528.md)
+
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715452.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715422.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年7月23日直播 20190723_3黑客后第二段高清版](/content/transcript/2019/07/20190723-53478078.md)
 
 [2019年7月22日 直播全文字版](/content/transcript/2019/07/20190722-53673045.md)
-
-[2019年7月21日直播全文字版：爆料革命进入全球灭共的新时代](/content/transcript/2019/07/20190721-53627486.md)
-
-[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版](/content/transcript/2019/07/20190721-53478837.md)
 
 
 ## 頁面 73/109 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

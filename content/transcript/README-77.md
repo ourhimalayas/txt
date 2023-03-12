@@ -3,6 +3,10 @@
 
 ## 頁面 77/109 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月12日与细思直播 20190612如何布局最后部分谈8964监狱风](/content/transcript/2019/06/20190612-53482624.md)
+
+[郭文贵2019年6月12日视频 20190612_5衷心的为香港的所有同胞祈愿 香港的事情还要有一定的时间发展 所有的在香港现场的同胞们朋友们战友们务必注意安全不要低估了C C P的恶魔的凶残本性](/content/transcript/2019/06/20190612-53479244.md)
+
 [郭文贵2019年6月12日视频 20190612_4喜马拉雅连线香港前线战友！5時58分](/content/transcript/2019/06/20190612-53479242.md)
 
 [郭文贵2019年6月12日视频 20190612_3文贵先生直播：最终结果立法推迟3時36分](/content/transcript/2019/06/20190612-53479090.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天](/content/transcript/2019/05/20190530-53478676.md)
 
 [郭文贵2019年5月30日视频 20190530_1林郑月娥亲自撰写，并要求中共中央在香港实施《遣返万能法》](/content/transcript/2019/05/20190530-53478671.md)
-
-[郭文贵2019年5月27日视频 20190527_1文貴又出來浪了](/content/transcript/2019/05/20190527-53478666.md)
-
-[郭文贵2019年5月26日视频 20190526_12020年6月4日将是新中国的国庆日！](/content/transcript/2019/05/20190526-53478727.md)
 
 
 ## 頁面 77/109 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

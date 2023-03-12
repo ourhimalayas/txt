@@ -3,6 +3,10 @@
 
 ## 頁面 79/109 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月6日视频 20190506文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/transcript/2019/05/20190506-53482515.md)
+
+[郭文贵2019年5月6日视频 20190506_2文贵受到snow的严重骚扰……因为文贵马上要参加两个紧急的会议，暂时不能直播](/content/transcript/2019/05/20190506-53478701.md)
+
 [郭文贵2019年5月6日视频 20190506_35.6聊股市](/content/transcript/2019/05/20190506-53478091.md)
 
 [郭文贵2019年5月5日与班农先生对谈 20190505文贵与班农先生就有关中美贸易协议停止！](/content/transcript/2019/05/20190505-53482505.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年4月22日视频 20190422_2半小时后，纽约时间上午1000北京时间晚上1000．文贵直播报平安．谈谈对伊朗石油的制裁意味着什么？和盗国贼有什么关系](/content/transcript/2019/04/20190422-53478637.md)
 
 [郭文贵2019年4月21日 20190421文贵为什么要揭穿．李嘉诚．马云．郭台铭．江志诚！](/content/transcript/2019/04/20190421-53482358.md)
-
-[郭文贵2019年4月20日视频 20190420班农先生与文贵谈郭台铭选台湾总统 : Steve Bannon and Miles Guo, a dialogue on Terry Gou’s presidential bid](/content/transcript/2019/04/20190420-53482349.md)
-
-[郭文贵2019年4月19日视频 20190419明早將與班農一起直播, 班農說的話文貴不負責, 因為他可能違反郭七條](/content/transcript/2019/04/20190419-53478635.md)
 
 
 ## 頁面 79/109 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 85/109 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年12月11日视频 20181211_2回到了美麗的藍天白雲的紐約](/content/transcript/2018/12/20181211-53478565.md)
+
+[郭文贵2018年12月11日视频 20181211_1文贵简单的早餐](/content/transcript/2018/12/20181211-53478564.md)
+
 [郭文贵2018年12月10日视频 20181210纠正一下昨天直播时的几个口误！刘乐国因为掌握令计划案北大李友案太多案情](/content/transcript/2018/12/20181210-53481218.md)
 
 [郭文贵2018年12月10日视频 20181210_2大连刘乐国因为通过李友案件掌握了中南海的高官的很多证据被释放．他能活多久？](/content/transcript/2018/12/20181210-53478559.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年11月20日视频 20181120_4路德访谈班农、文贵先生：谈谈未来制裁中共王岐山盗国贼的一系列行为](/content/transcript/2018/11/20181120-53478527.md)
 
 [郭文贵2018年11月20日视频 20181120_3(曾宏版)郭文贵2018年11月20日王健之死與海航背後真相信息发布会](/content/transcript/2018/11/20181120-53478406.md)
-
-[郭文贵2018年11月19日视频 20181119_1王建之死发布会的前一天受到各方压力](/content/transcript/2018/11/20181119-53478418.md)
-
-[郭文贵2018年11月18日视频 20181118_1](/content/transcript/2018/11/20181118-53478407.md)
 
 
 ## 頁面 85/109 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！](/content/transcript/2019/01/20190120-53481784.md)
+
+[郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友](/content/transcript/2019/01/20190120-53478116.md)
+
 [郭文贵2019年1月19日视频 20190119文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件。](/content/transcript/2019/01/20190119-53481757.md)
 
 [郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀](/content/transcript/2019/01/20190118-53481748.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年1月6日视频 20190106关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/transcript/2019/01/20190106-53481603.md)
 
 [郭文贵2019年1月5日 20190105接受庄烈宏先生美东之声访问。中共敢打台湾吗？什么叫战友？2019文贵爆料的具体战略](/content/transcript/2019/01/20190105-53481588.md)
-
-[郭文贵2019年1月5日视频 20190105_2-保镖告诉我，林宝坚尼为我特制的SUV已经到我的停车场了，我都快忘了这个车了](/content/transcript/2019/01/20190105-53478482.md)
-
-[郭文贵2019年1月4日视频 20190104_1欺民賊們在西方布下的中文媒體的配合CCP的網路大軍太可怕了](/content/transcript/2019/01/20190104-53478481.md)
 
 
 ## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

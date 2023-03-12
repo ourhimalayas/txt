@@ -3,6 +3,10 @@
 
 ## 頁面 69/109 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-53845263.md)
+
+[郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-53483073.md)
+
 [郭文贵2019年9月11日视频 20190911_1(前段)博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-53479001.md)
 
 [郭文贵2019年9月10日视频 20190910_1文贵在凌晨6 00先向大家报平安了，昨天路德的晚餐, 加上他兒子弄壞船上的沙發, 至少毀了我十萬美元, TNND, 非叫路德賠不可](/content/transcript/2019/09/20190910-53478998.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年9月2日图桑报平安 20190902](/content/transcript/2019/09/20190902-53482993.md)
 
 [2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版](/content/transcript/2019/09/20190901-53839486.md)
-
-[郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划](/content/transcript/2019/09/20190901-53482988.md)
-
-[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港](/content/transcript/2019/08/20190831-53478992.md)
 
 
 ## 頁面 69/109 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)

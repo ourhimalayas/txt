@@ -3,6 +3,10 @@
 
 ## 頁面 88/109 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月12日视频 20181012_3](/content/transcript/2018/10/20181012-53478348.md)
+
+[郭文贵2018年10月12日视频 20181012_2共产党．王岐山．孟建柱．傳政华．孙力军．的专案组．与大连法院以黑治郭．罚北京政泉控股600亿．＋180亿未收！大约13亿美元！这是一个爆料革命的重大成就！](/content/transcript/2018/10/20181012-53478347.md)
+
 [郭文贵2018年10月11日视频 20181011_1未来的三周将是文贵艰难的日子！盗国贼开始一系的疯狂抓捕审判我的员工及家人！拍卖公司资产！](/content/transcript/2018/10/20181011-53478345.md)
 
 [郭文贵2018年10月10日视频 20181010江．朱．王．等盗国贼们．正在疯狂的向海外洗钱！党内对国有化私人企业！产生巨大分歧！都在等上面出大事儿！](/content/transcript/2018/10/20181010-53482682.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年10月1日视频 20181001_1](/content/transcript/2018/10/20181001-53478302.md)
 
 [郭文贵2018年9月30日视频 20180930_1我們恨中共 但是我耽心同胞 耽心我們的國家 他們的大難即將來臨 還不知道死活呢](/content/transcript/2018/09/20180930-53478299.md)
-
-[郭文贵2018年9月29日视频 20180929_1](/content/transcript/2018/09/20180929-53478318.md)
-
-[郭文贵2018年9月28日视频 20180928文贵在会议结束后返回途中的飞机上，和战友们汇报一下会议的初步概况，一切都是刚刚开始！](/content/transcript/2018/09/20180928-53482665.md)
 
 
 ## 頁面 88/109 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
