@@ -2,11 +2,35 @@
 ---
 
 
+[@milesguo 3/12/2023 9:57 PM UTC  - :tv:直播](/content/gettr/p2b9l23e02f.md)
+
+3/12/2023 Miles Guo: Han Zheng won’t stay idle and wait to be killed like what Wang Qishan did, and he is absolutely capable of eliminating Xi!
+
+#HanZheng #WangQishan #XiJinping #eliminateXiJinping
+
+ 
+
+3/12/2023 文贵直播：韩正不会像王岐山一样等死，他...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/12/21/10bec369-ba9f-a6c8-f688-bf8adafa4f06/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/12/2023 7:48 PM UTC  - 6圖](/content/gettr/p2b8jrma2f6.md)
 
 2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（一）
 
 <img src="https://media.gettr.com/group9/getter/2023/03/12/19/164e25af-b0c3-171b-7758-f5e7f3c60447/e654591ef4c2cc6fa907ae49c77adf84.JPG" width="506" height="284">
+
+---
+
+[@milesguo 3/12/2023 9:58 PM UTC  - :tv:直播](/content/gettr/p2b9hcy8be6.md)
+
+3/12/2023 Miles Guo: “Xi the Dead Emperor” won’t survive beyond the year 2025, but the disasters that he brings to humanity will go beyond anyone’s imagination!
+
+#endingOfXitheDeadEmperor #huclearWar #KingofMiddleEast #RussiaUkrain...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/12/21/b02c0320-844f-7ba8-4a74-5e7fb8f18fe2/out.jpg" width="506" height="284">
 
 ---
 
@@ -42,6 +66,20 @@
 
 ---
 
+[@milesguo 3/12/2023 7:51 PM UTC  - :tv:直播](/content/gettr/p2b9e6d864b.md)
+
+2023.03.12 
+
+
+
+
+
+应战友们的要求……发个小SEVEN视频！
+
+<img src="https://media.gettr.com/group5/getter/2023/03/12/19/4cfccd70-1a1a-11c6-3719-3b1e80cd9e1a/out.jpg" width="506" height="284">
+
+---
+
 [@michaelyhon 3/12/2023 6:27 PM UTC  - :tv:直播](/content/gettr/p2b8xjfcf06.md)
 
 Pras Michel, from famous musician to CCP accomplice. (Part4)
@@ -71,36 +109,6 @@ Pras Michel, from famous musician to CCP accomplice. (Part4)
 2023.03.12 【七哥的大胡子越看越好看😊】
 
 <img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 7:51 PM UTC  - :tv:直播](/content/gettr/p2b9e6d864b.md)
-
-2023.03.12 
-
-
-
-
-
-应战友们的要求……发个小SEVEN视频！
-
-<img src="https://media.gettr.com/group5/getter/2023/03/12/19/4cfccd70-1a1a-11c6-3719-3b1e80cd9e1a/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 9:23 AM UTC  - :tv:直播](/content/gettr/p2b3zpu97d9.md)
-
-【NFSC @CPAC 】03/03/2023 The National Correspondent for Real America’s Voice Christopher Carter(GETTR:@Carterocks): If a wealthy celebrity need to transplant a liver, he or she will have to wait for 4 years with NIH, but in China, h...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/11/09/f422f853-06e2-b115-9718-8b18509fc2cf/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 11:17 AM UTC  - :tv:直播](/content/gettr/p2b4jz1af1a.md)
-
-2023.03.10 No one ever mentioned the personal relationship between Fauci and Wang Yanyi. One knows about viruses best in the world, the head of NIH; The other is the boss of the Wuhan Institute of Virology, where the coronavirus go...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/11/11/deb21138-f0a1-8173-e1f0-2592eb25d739/out.jpg" width="506" height="284">
 
 ---
 
