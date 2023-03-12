@@ -16,11 +16,11 @@
 
 ---
 
-[@milesguo 3/12/2023 7:48 PM UTC  - 6圖](/content/gettr/p2b8jrma2f6.md)
+[@milesguo 3/12/2023 10:00 PM UTC  - :tv:直播](/content/gettr/p2b94i3029a.md)
 
-2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（一）
+3/12/2023 Miles Guo: Wang Qishan, Neil Shen, and Alvin Jiang deposited their money in the Silicon Valley Bank, whereas Silvergate Bank is No. 1 in the digital currency sector, and nearly 20% of its deposits belong to the CCP. So, w...
 
-<img src="https://media.gettr.com/group9/getter/2023/03/12/19/164e25af-b0c3-171b-7758-f5e7f3c60447/e654591ef4c2cc6fa907ae49c77adf84.JPG" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/12/21/e2c8f41a-1b77-c504-a242-3386be11473c/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,6 +31,14 @@
 #endingOfXitheDeadEmperor #huclearWar #KingofMiddleEast #RussiaUkrain...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/12/21/b02c0320-844f-7ba8-4a74-5e7fb8f18fe2/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/12/2023 7:48 PM UTC  - 6圖](/content/gettr/p2b8jrma2f6.md)
+
+2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（一）
+
+<img src="https://media.gettr.com/group9/getter/2023/03/12/19/164e25af-b0c3-171b-7758-f5e7f3c60447/e654591ef4c2cc6fa907ae49c77adf84.JPG" width="506" height="284">
 
 ---
 
@@ -109,14 +117,6 @@ Pras Michel, from famous musician to CCP accomplice. (Part4)
 2023.03.12 【七哥的大胡子越看越好看😊】
 
 <img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 12:58 PM UTC  - :tv:直播](/content/gettr/p2b4izc659a.md)
-
-【NFSC @CPAC 】03/02/2023 GiveSendGo co-founder Heather Wilson (GETTR: @givesendgo) interviewed by Elliott Dordick: The oppression that the Chinese Communist Party has imposed on the NFSC members by weaponizing the U.S. federal gover...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/11/12/86990d77-ea7a-bf2d-4f19-641d0f84621b/out.jpg" width="506" height="284">
 
 ---
 
