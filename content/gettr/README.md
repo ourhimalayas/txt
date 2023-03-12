@@ -2,14 +2,6 @@
 ---
 
 
-[@milesguo 3/12/2023 5:47 AM UTC  - :tv:直播](/content/gettr/p2b76i641f8.md)
-
-2023.03.12 【七哥的大胡子越看越好看😊】
-
-<img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 3/12/2023 12:44 PM UTC  - :tv:直播](/content/gettr/p2b7kcm569c.md)
 
 2023.03.12 文贵大直播
@@ -18,11 +10,19 @@
 
 ---
 
-[@milesguo 3/11/2023 12:36 AM UTC  - :tv:直播](/content/gettr/p2b3noyd0e4.md)
+[@milesguo 3/12/2023 5:47 AM UTC  - :tv:直播](/content/gettr/p2b76i641f8.md)
 
-2023.03.10 感谢来福福制作的精美视频，还配上了这么棒的音乐！
+2023.03.12 【七哥的大胡子越看越好看😊】
 
-<img src="https://media.gettr.com/group5/getter/2023/03/11/00/e53c5749-df9d-a6df-8e2d-6907887700d0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/12/2023 3:38 PM UTC  - 6圖](/content/gettr/p2b8hsh6307.md)
+
+2023.03.12 无处不在的Gfashion．新中国联邦……
+
+<img src="https://media.gettr.com/group3/getter/2023/03/12/15/cd6c30ab-a696-daef-3fcd-932cbab8c860/bd2fec7f81a03e5bb22cc56e9ff6f4da.jpg" width="506" height="284">
 
 ---
 
