@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/12/2023 10:00 PM UTC  - :tv:直播](/content/gettr/p2b94i3029a.md)
+
+3/12/2023 Miles Guo: Wang Qishan, Neil Shen, and Alvin Jiang deposited their money in the Silicon Valley Bank, whereas Silvergate Bank is No. 1 in the digital currency sector, and nearly 20% of its deposits belong to the CCP. So, w...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/12/21/e2c8f41a-1b77-c504-a242-3386be11473c/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/12/2023 9:57 PM UTC  - :tv:直播](/content/gettr/p2b9l23e02f.md)
 
 3/12/2023 Miles Guo: Han Zheng won’t stay idle and wait to be killed like what Wang Qishan did, and he is absolutely capable of eliminating Xi!
@@ -16,11 +24,11 @@
 
 ---
 
-[@milesguo 3/12/2023 10:00 PM UTC  - :tv:直播](/content/gettr/p2b94i3029a.md)
+[@milesguo 3/12/2023 11:28 PM UTC  - :tv:直播](/content/gettr/p2b9x8jf2e8.md)
 
-3/12/2023 Miles Guo: Wang Qishan, Neil Shen, and Alvin Jiang deposited their money in the Silicon Valley Bank, whereas Silvergate Bank is No. 1 in the digital currency sector, and nearly 20% of its deposits belong to the CCP. So, w...
+3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/12/21/e2c8f41a-1b77-c504-a242-3386be11473c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/12/23/9de0b2c6-6940-6987-8115-846ecdcd4d96/out.jpg" width="506" height="284">
 
 ---
 
@@ -117,14 +125,6 @@ Pras Michel, from famous musician to CCP accomplice. (Part4)
 2023.03.12 【七哥的大胡子越看越好看😊】
 
 <img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 2:32 PM UTC ](/content/gettr/p2b576l0ac0.md)
-
-2023.03.11 【你信过七哥吗？我今天问我老婆，她一直在点头流眼泪🥲，】
-
-<img src="https://media.gettr.com/group12/getter/2023/03/11/14/cc8d2dc0-2b3f-d633-c69d-91f6b58f6afb/185eb0881f44a2f3daafc168d2d89dc3.jpg" width="506" height="284">
 
 ---
 
