@@ -10,27 +10,11 @@
 
 ---
 
-[@milesguo 3/11/2023 12:23 AM UTC ](/content/gettr/p2b2q7c2f89.md)
+[@milesguo 3/12/2023 12:44 PM UTC  - :tv:直播](/content/gettr/p2b7kcm569c.md)
 
-2023.03.10 
+2023.03.12 文贵大直播
 
-【我们新中国联邦是唯一的赢家，而且是百分之百的赢家，这里面的意义大了去了，过几天你们就明白了】
-
-
-
-
-
-
-
-
-
-https://twitter.com/theinsiderpaper/status/1634345139886776322?s=46&t=RcnnAYJPup65meCawCRjNQ
-
-
-
-加利福尼亚硅谷银行的外面排起长队准备取款，中共国的挤兑现象美国也开始了，不知道未来还有几家大银行能存活，这场经济危机与中共经济超限...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/11/00/5c609363-4648-4417-0eb8-8e6a220c65be/cda3dbd251f2df69980e65ad2c242d9a.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/03/12/12/62e5520d-f9ab-c94b-3e4c-65a156735194/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
