@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/13/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bae0t7758.md)
+
+3/12/2023 Miles Guo: Only when we are strong can we take down the CCP. I will turn the memories of my younger brother and parents into bullets and forces against the CCP so that future generations of the CCP will suffer the extreme...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/13/06/07293da4-d125-81ca-aa58-0dd79acbe241/out.jpg" width="506" height="284">
+
+---
+
 [@heknows 3/13/2023 1:50 AM UTC  - :tv:直播](/content/gettr/p2ba3fg82d1.md)
 
 Mass banking crash coming?
@@ -18,11 +26,11 @@ Mass banking crash coming?
 
 ---
 
-[@milesguo 3/13/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bae0t7758.md)
+[@milesguo 3/13/2023 9:32 AM UTC  - :tv:直播](/content/gettr/p2baens6184.md)
 
-3/12/2023 Miles Guo: Only when we are strong can we take down the CCP. I will turn the memories of my younger brother and parents into bullets and forces against the CCP so that future generations of the CCP will suffer the extreme...
+3/12/2023 Miles Guo: I said a few years ago that all global financial crises must begin with the banks; the collapse of SVB, Blackstone, and the ensuing USDT, USDC would have a devastating impact equivalent to WWI and WWII combined...
 
-<img src="https://media.gettr.com/group9/getter/2023/03/13/06/07293da4-d125-81ca-aa58-0dd79acbe241/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/13/09/21f75991-ed9b-ce7c-4579-f9319e3aa3c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Pras Michel, from famous musician to CCP accomplice. (Part4)
 2023.03.12 【七哥的大胡子越看越好看😊】
 
 <img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 5:32 AM UTC  - :tv:直播](/content/gettr/p2b6uygd056.md)
-
-2023.03.12 真好……
-
-<img src="https://media.gettr.com/group11/getter/2023/03/12/05/4bc93fc7-fd9a-6024-14e6-4edb39e9b138/out.jpg" width="506" height="284">
 
 ---
 
