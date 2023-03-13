@@ -3,6 +3,8 @@
 
 ## 頁面 10/109 [**<**](/content/transcript/README-9.md) [1](/content/transcript/README.md) ... [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) **10** [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-11.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年1月29日盖特 20220129_1尊敬的战友们好！你们健身了吗？传播CCP病毒！香港危机真相了吗？共产党的冬奥会将成为共产党制造的最大体育灾难！将在世界丢尽中国人的脸！丑陋的国际形象不可思议！这个流氓政党简直就](/content/transcript/2022/01/20220129-53479301.md)
+
 [郭文贵2022年1月29日视频 20220129_2美东香草山壬寅年新春联欢](/content/transcript/2022/01/20220129-53479257.md)
 
 [郭文贵2022年1月28日盖特 20220128_2感谢战友凯莉，收藏的SNOW 的视频，一切都是如此的美好。](/content/transcript/2022/01/20220128-53479298.md)
@@ -50,8 +52,6 @@
 [郭文贵2022年1月18日盖特 20220118_2尊敬的战友们好，感谢很多战友为我和b八弟修复照片和制作的视频，万分的感谢！????????????????????????????????????共产党的内部政治斗争和冬奥会的残局……将会带来什么？太平联盟的官司五年来一直](/content/transcript/2022/01/20220118-53479206.md)
 
 [郭文贵2022年1月18日直播 20220118_1](/content/transcript/2022/01/20220118-53478923.md)
-
-[郭文贵2022年1月17日盖特 20220117_2尊敬的战友们好．征服不了自己的人……永远征服不了敌人……能让你自己不流泪，家人不流血的方式，就是必须要强大自己……强大自己的内心，坚定追求自己的信仰，才是最基本的，让你自己](/content/transcript/2022/01/20220117-53479202.md)
 
 
 ## 頁面 10/109 [**<**](/content/transcript/README-9.md) [1](/content/transcript/README.md) ... [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) **10** [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-11.md) [查看全部](/content/transcript/README-all.md)

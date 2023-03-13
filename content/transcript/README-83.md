@@ -3,6 +3,8 @@
 
 ## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月21日视频 20190121共产党号召学习王阳明的心学是对圣人的巨大侮辱](/content/transcript/2019/01/20190121-53481802.md)
+
 [郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！](/content/transcript/2019/01/20190120-53481784.md)
 
 [郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友](/content/transcript/2019/01/20190120-53478116.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年1月7日视频 20190107_2-财新再一次造谣说陈刚和郭文贵有关系；郭媒体可以定位黑客IP地址；春晚邀请凯琳女做一个节目回答网友提问。](/content/transcript/2019/01/20190107-53478496.md)
 
 [郭文贵2019年1月6日视频 20190106关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/transcript/2019/01/20190106-53481603.md)
-
-[郭文贵2019年1月5日 20190105接受庄烈宏先生美东之声访问。中共敢打台湾吗？什么叫战友？2019文贵爆料的具体战略](/content/transcript/2019/01/20190105-53481588.md)
 
 
 ## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

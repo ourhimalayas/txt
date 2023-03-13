@@ -3,6 +3,8 @@
 
 ## 頁面 66/109 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月23日视频 20191023_3 (漏網視頻)喜馬拉雅大使管正在酝酿一场世纪灭共风暴](/content/transcript/2019/10/20191023-53479084.md)
+
 [郭文贵2019年10月23日视频 20191023_2Snow練習走伸展台](/content/transcript/2019/10/20191023-53479080.md)
 
 [郭文贵2019年10月22日 20191022乌镇“污脸”网大会，BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/content/transcript/2019/10/20191022-53483218.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年10月9日视频 20191009_2文贵与战友分享与可爱的Snow和纯种松狮笨笨．在家一起渡过欢乐的时光！](/content/transcript/2019/10/20191009-53479045.md)
 
 [郭文贵2019年10月8日视频 20191008_2郭文貴先生苦口婆心地教育snow吃餐禮儀snow躺在郭先生懷裏有點犯睏不知聽進去了沒有](/content/transcript/2019/10/20191008-53479044.md)
-
-[郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了](/content/transcript/2019/10/20191008-53479042.md)
 
 
 ## 頁面 66/109 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)

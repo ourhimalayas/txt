@@ -3,6 +3,8 @@
 
 ## 頁面 63/109 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年12月4日第二次直播 20191204_2](/content/transcript/2019/12/20191204-53483630.md)
+
 [郭文贵2019年12月3日视频 20191203大量資本希望折价离开中国，有渠道的有大资金的可以联系文贵，路德](/content/transcript/2019/12/20191203-53483622.md)
 
 [郭文贵2019年12月3日视频 20191203_2Snow](/content/transcript/2019/12/20191203-53479178.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年11月20日视频 20191120_3即將開始的直播將是滅共歷史上的傳奇](/content/transcript/2019/11/20191120-53479150.md)
 
 [郭文贵2019年11月20日视频 20191120_21120王健之死全球直播馬上開始](/content/transcript/2019/11/20191120-53479147.md)
-
-[郭文贵2019年11月20日 20191120_4“纪念1120新闻发布会一周：揭秘王健之死”上部](/content/transcript/2019/11/20191120-53478038.md)
 
 
 ## 頁面 63/109 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)

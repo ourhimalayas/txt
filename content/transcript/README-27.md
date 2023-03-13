@@ -3,6 +3,8 @@
 
 ## 頁面 27/109 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年6月5日盖特 20210605_5七哥代表14亿新中国联邦人感谢．愿拜自由女神！(三)](/content/transcript/2021/06/20210605-53479320.md)
+
 [郭文贵2021年6月5日盖特 20210605_4七哥代表14亿新中国联邦人感谢．愿拜自由女神！(二)](/content/transcript/2021/06/20210605-53479314.md)
 
 [郭文贵2021年6月5日盖特 20210605_3七哥代表14亿新中国联邦人感谢．愿拜自由女神！(一)](/content/transcript/2021/06/20210605-53479310.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年5月26日盖特 20210526_2尊敬的战友好！7哥谈谈今天的开会！和关于共产党最近的疯狂⋯](/content/transcript/2021/05/20210526-53480900.md)
 
 [郭文贵2021年5月26日盖特 20210526_1尊敬的战友们好，由于一系列的特殊会议安排．上午发不了盖特．向大家表示道歉！](/content/transcript/2021/05/20210526-53480898.md)
-
-[郭文贵2021年5月25日盖特 20210525_3尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！](/content/transcript/2021/05/20210525-53480894.md)
 
 
 ## 頁面 27/109 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

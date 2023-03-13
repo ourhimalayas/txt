@@ -3,6 +3,8 @@
 
 ## 頁面 3/109 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
 
+[2022年12月6日 文贵先生父亲离世公告视频《全文字版》](/content/transcript/2022/12/20221206-53619507.md)
+
 [2022年12月4日《文贵大直播》全文字版 共产党将会如何使用核酸检测这个政治武器](/content/transcript/2022/12/20221204-53606711.md)
 
 [2022年11月30日文贵大直播全文字版：江泽民的死会不会加速习家党和共产党的彻底灭亡](/content/transcript/2022/11/20221130-53592677.md)
@@ -50,8 +52,6 @@
 [2022年10月09日《文贵大直播》中共20大的政治灾难会给新中国联邦带来什么机会？](/content/transcript/2022/10/20221009-53520894.md)
 
 [2022年10月07日《文贵大直播》Fashion秋冬回馈活动 G｜Clubs会员专享](/content/transcript/2022/10/20221007-53520893.md)
-
-[2022年10月05日郭文贵先生直播 为什么西方的情报机构认为中共近期不会打台湾？](/content/transcript/2022/10/20221005-53520891.md)
 
 
 ## 頁面 3/109 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)

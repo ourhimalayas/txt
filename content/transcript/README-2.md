@@ -3,6 +3,8 @@
 
 ## 頁面 2/109 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-3.md) [查看全部](/content/transcript/README-all.md)
 
+[2023年1月27日郭先生盖特精粹](/content/transcript/2023/01/20230127-53789191.md)
+
 [2023年1月20日 音雄之夜第三季《我是音雄》总决赛 全文字版](/content/transcript/2023/01/20230120-53804474.md)
 
 [2023年01月18日 文贵大直播全文字版： 习近平身体的迅速变坏是否会加速攻打台湾？](/content/transcript/2023/01/20230118-53804401.md)
@@ -50,8 +52,6 @@
 [2023年01月01日新中国联邦2023元旦大直播（第四部分）全文字版](/content/transcript/2023/01/20230101-53698639.md)
 
 [2022年12月29日 凤凰涅槃三度 生命浴火几重 无色无相无我 万法归于灭共 文贵闭关二十一天出关大直播  全文字版](/content/transcript/2022/12/20221229-53680587.md)
-
-[2022年12月6日 文贵先生父亲离世公告视频《全文字版》](/content/transcript/2022/12/20221206-53619507.md)
 
 
 ## 頁面 2/109 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-3.md) [查看全部](/content/transcript/README-all.md)

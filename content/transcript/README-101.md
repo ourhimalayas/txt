@@ -3,6 +3,8 @@
 
 ## 頁面 101/109 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年1月3日视频 20180103_2接受日本媒体采访说日语](/content/transcript/2018/01/20180103-53476960.md)
+
 [郭文贵2017年12月30日直播 20171230_1](/content/transcript/2017/12/20171230-53482820.md)
 
 [郭文贵2017年12月25日直播 20171225_1我们拥有世界上最棒的战斗装及战斗工具](/content/transcript/2017/12/20171225-53482818.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年11月12日第二次直播 20171112_2马阿拉哥庄园 与网友们聊聊天](/content/transcript/2017/11/20171112-53484040.md)
 
 [郭文贵2017年11月12日第一次直播 20171112_1马阿拉哥庄园 与网友们聊聊天](/content/transcript/2017/11/20171112-53483878.md)
-
-[郭文贵2017年11月10日 20171110酒后试试另一种方式的录播](/content/transcript/2017/11/20171110-53484035.md)
 
 
 ## 頁面 101/109 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)

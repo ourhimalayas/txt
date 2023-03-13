@@ -3,6 +3,8 @@
 
 ## 頁面 105/109 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月25日做客郭宝胜 20170825宗教与中国政治及社会关系](/content/transcript/2017/08/20170825-53484317.md)
+
 [郭文贵2017年8月25日视频 20170825_270天的特别之旅](/content/transcript/2017/08/20170825-53483540.md)
 
 [郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦](/content/transcript/2017/08/20170824-53483923.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年8月5日视频 20170805_1文贵试试网：回答香港商界朋友的问题．与王岐山怎么威胁范冰冰闭嘴的！](/content/transcript/2017/08/20170805-53483849.md)
 
 [郭文贵2017年8月5日视频 20170805_2](/content/transcript/2017/08/20170805-53483515.md)
-
-[郭文贵2017年8月4日 20170804关于香港警察调查郭文贵以自己的1600亿诈骗自己的360亿的案件 搞笑 搞笑](/content/transcript/2017/08/20170804-53483843.md)
 
 
 ## 頁面 105/109 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

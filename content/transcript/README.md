@@ -3,6 +3,8 @@
 
 ## 頁面 1/109 **1** [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-2.md) [查看全部](/content/transcript/README-all.md)
 
+[2023年03月12日文贵大直播全文字版：美国房倒银塌和俄乌战争及灭共的关系](/content/transcript/2023/03/20230312-53886826.md)
+
 [2023年3月8日文贵大直播：从共产党的两会看与美欧之间的较量 全文字版](/content/transcript/2023/03/20230308-53878308.md)
 
 [2023年03月05日文贵大直播全文字版：从CPAC围殴共产党来看中国共产党海外财富被查封以及他们的下场](/content/transcript/2023/03/20230305-53870425.md)
@@ -50,8 +52,6 @@
 [2023年1月30日郭先生盖特精粹（1）](/content/transcript/2023/01/20230130-53785871.md)
 
 [2023年1月28日郭先生盖特精粹](/content/transcript/2023/01/20230128-53785826.md)
-
-[2023年1月27日郭先生盖特精粹](/content/transcript/2023/01/20230127-53789191.md)
 
 
 ## 頁面 1/109 **1** [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-2.md) [查看全部](/content/transcript/README-all.md)

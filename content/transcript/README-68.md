@@ -3,6 +3,8 @@
 
 ## 頁面 68/109 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年9月25日视频 20190925_1請大家關注美國的雷霆行動](/content/transcript/2019/09/20190925-53479013.md)
+
 [2019年9月24日文贵大直播全文字版：红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.](/content/transcript/2019/09/20190924-53873277.md)
 
 [郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！](/content/transcript/2019/09/20190924-53483185.md)
@@ -50,8 +52,6 @@
 [2019年9月12号文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？过去两天的香港黑警行动的减少……将是香港重大危机爆发开始…](/content/transcript/2019/09/20190912-53845170.md)
 
 [郭文贵2019年9月12日视频 20190912_2很多战友发私信希望我吃饭直播一下……非常抱歉……由于船上有其他人和马上有很多会要开……我只能录个短的视频](/content/transcript/2019/09/20190912-53479005.md)
-
-[郭文贵2019年9月12日视频 20190912_1过去两天的香港黑警行动的减少……将是香港重大危机爆发开始……请香港朋友们要了解共产党的＂涵养杀术＂务必小心！！！！！](/content/transcript/2019/09/20190912-53479002.md)
 
 
 ## 頁面 68/109 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)

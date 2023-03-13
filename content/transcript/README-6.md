@@ -3,6 +3,8 @@
 
 ## 頁面 6/109 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年4月25日盖特 20220425_1尊敬的战友们好·应战友们的要求……录一段SNOW的视频给大家????SNOW 刚刚洗完澡????太可爱了……](/content/transcript/2022/04/20220425-53481191.md)
+
 [郭文贵2022年4月24日直播 20220424_1俄乌战争前因后果；沪京等隔离与台湾；佩洛西访台成定局；国内目前经济情况](/content/transcript/2022/04/20220424-53480866.md)
 
 [郭文贵2022年4月23日直播 20220423_1七哥乱聊](/content/transcript/2022/04/20220423-53480782.md)
@@ -50,8 +52,6 @@
 [郭文贵2022年4月9日盖特 20220409_1](/content/transcript/2022/04/20220409-53481155.md)
 
 [郭文贵2022年4月8日盖特 20220408_1尊敬的战友们好，中国共产党正在中国内部……和世界．进行的人类大屠杀，必将受到中国人民和全世界维护正义的人的．最终的审判，希望国内的同胞们．能尽快的醒来．规范这个邪恶了魔鬼组](/content/transcript/2022/04/20220408-53481151.md)
-
-[郭文贵2022年4月6日盖特 20220406_1尊敬的战友们好，刚刚的开完庭．收到了很多战友的问候……七哥在这里衷心地，感谢所有兄弟姐妹们的关心，❤️❤️❤️❤️❤️❤️❤️七哥向你们报平安了！](/content/transcript/2022/04/20220406-53481149.md)
 
 
 ## 頁面 6/109 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)

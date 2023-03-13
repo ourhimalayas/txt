@@ -3,6 +3,8 @@
 
 ## 頁面 103/109 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年10月4日 20171004在哈德森演讲延期事件后直播,谁将哈德逊蓝金黄的？](/content/transcript/2017/10/20171004-53484094.md)
+
 [郭文贵2017年10月4日视频 20171004_2在华盛顿报平安](/content/transcript/2017/10/20171004-53483611.md)
 
 [郭文贵2017年10月2日视频 20171002为拉斯维加斯悲剧受害者祈福](/content/transcript/2017/10/20171002-53483608.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年9月11日视频 20170911全力以赴准备19大我们的影子会议](/content/transcript/2017/09/20170911-53483574.md)
 
 [郭文贵2017年9月10日视频 20170910江绵恒．王岐山．孟建柱．傅政华．孙力军．马云！及我与刘彦平先生的对话](/content/transcript/2017/09/20170910-53483985.md)
-
-[郭文贵2017年9月10日视频 20170910_2马云你还记得这个东西么?180次飞行记录，200万买的录像证明一切。](/content/transcript/2017/09/20170910-53477347.md)
 
 
 ## 頁面 103/109 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)

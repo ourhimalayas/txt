@@ -3,6 +3,8 @@
 
 ## 頁面 102/109 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年11月10日 20171110酒后试试另一种方式的录播](/content/transcript/2017/11/20171110-53484035.md)
+
 [郭文贵2017年11月8日 20171108twitter再次被封7天后的报平安](/content/transcript/2017/11/20171108-53484033.md)
 
 [郭文贵2017年11月7日接受郭宝胜采访 20171107](/content/transcript/2017/11/20171107-53484192.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年10月7日视频 20171007Snow上镜了](/content/transcript/2017/10/20171007-53483616.md)
 
 [郭文贵2017年10月5日 20171005 郭文贵10月5日全球新聞發布會第02次华盛顿记者会剪輯後英語版官方版](/content/transcript/2017/10/20171005-53484102.md)
-
-[郭文贵2017年10月4日 20171004在哈德森演讲延期事件后直播,谁将哈德逊蓝金黄的？](/content/transcript/2017/10/20171004-53484094.md)
 
 
 ## 頁面 102/109 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

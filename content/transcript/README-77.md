@@ -3,6 +3,8 @@
 
 ## 頁面 77/109 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月13日视频 20190613_5测试细丝和庄烈宏](/content/transcript/2019/06/20190613-53478084.md)
+
 [郭文贵2019年6月12日与细思直播 20190612如何布局最后部分谈8964监狱风](/content/transcript/2019/06/20190612-53482624.md)
 
 [郭文贵2019年6月12日视频 20190612_5衷心的为香港的所有同胞祈愿 香港的事情还要有一定的时间发展 所有的在香港现场的同胞们朋友们战友们务必注意安全不要低估了C C P的恶魔的凶残本性](/content/transcript/2019/06/20190612-53479244.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月31日视频 20190531 林郑月娥触动中共最敏感神经 Carrie Lam put CCP on alert! 10000s banned on Twitter! Save all proofs of the ban!](/content/transcript/2019/05/20190531-53482488.md)
 
 [郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天](/content/transcript/2019/05/20190530-53478676.md)
-
-[郭文贵2019年5月30日视频 20190530_1林郑月娥亲自撰写，并要求中共中央在香港实施《遣返万能法》](/content/transcript/2019/05/20190530-53478671.md)
 
 
 ## 頁面 77/109 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

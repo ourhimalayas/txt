@@ -3,6 +3,8 @@
 
 ## 頁面 42/109 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月10日盖特 20201210_2尊敬的战友们好，请今天．都去看路德波切访谈……我们的灭共革命进入了一个新的阶段，希望大家过了24小时以后不要兴奋得都去亲自己的脸……一切都已经开始](/content/transcript/2020/12/20201210-53479542.md)
+
 [郭文贵2020年12月10日直播 20201210_1 文贵直播此时此刻有好几个战场正在同时进行着！](/content/transcript/2020/12/20201210-53479523.md)
 
 [郭文贵2020年12月9日盖特 20201209_2文貴衷心的感謝全球的懲賊滅共行動中......辛苦的戰友們......](/content/transcript/2020/12/20201209-53479539.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年11月24日直播 20201124_1](/content/transcript/2020/11/20201124-53482784.md)
 
 [郭文贵2020年11月23日盖特 20201123_1剛剛睡了6個小時 既能吃也能睡](/content/transcript/2020/11/20201123-53482710.md)
-
-[郭文贵2020年11月22日直播 20201122_3夜晚部分](/content/transcript/2020/11/20201122-53482707.md)
 
 
 ## 頁面 42/109 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)

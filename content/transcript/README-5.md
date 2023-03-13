@@ -3,6 +3,8 @@
 
 ## 頁面 5/109 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年9月11日直播 20220911_1七哥与战友们聊聊共产党会如何崩溃](/content/transcript/2022/09/20220911-53481352.md)
+
 [郭文贵2022年9月10日直播 20220910_1回響 ∙ 水调歌头 2022年中秋特别节目](/content/transcript/2022/09/20220910-53481305.md)
 
 [郭文贵2022年5月13日盖特 20220513_3尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一](/content/transcript/2022/05/20220513-53481234.md)
@@ -50,8 +52,6 @@
 [郭文贵2022年4月27日盖特 20220427_1尊敬的战友们好．七哥在开庭的路上．和战友们聊聊，我们将揭开深藏在美国的、中国共产党间谍们……在美国违法犯罪的金融政治渗透的集团。卸下P A X的邪恶的假面具！让西方的国家法律系统重](/content/transcript/2022/04/20220427-53481199.md)
 
 [郭文贵2022年4月26日盖特 20220426_1尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！](/content/transcript/2022/04/20220426-53481195.md)
-
-[郭文贵2022年4月25日盖特 20220425_1尊敬的战友们好·应战友们的要求……录一段SNOW的视频给大家????SNOW 刚刚洗完澡????太可爱了……](/content/transcript/2022/04/20220425-53481191.md)
 
 
 ## 頁面 5/109 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)

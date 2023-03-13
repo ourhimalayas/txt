@@ -3,6 +3,8 @@
 
 ## 頁面 107/109 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年7月1日直播 20170701关于王岐山和范冰冰在1808房](/content/transcript/2017/07/20170701-53483821.md)
+
 [郭文贵2017年6月30日直播 20170630关于王岐山与范冰冰的关系](/content/transcript/2017/06/20170630-53483811.md)
 
 [郭文贵2017年6月28日完整版 20170628](/content/transcript/2017/06/20170628-53483804.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年5月23日视频 20170523](/content/transcript/2017/05/20170523-53483802.md)
 
 [郭文贵2017年5月22日直播 20170522_1回覆潘石屹](/content/transcript/2017/05/20170522-53483799.md)
-
-[郭文贵2017年5月22日直播 20170522_2手机直播回应潘石屹视频](/content/transcript/2017/05/20170522-53483764.md)
 
 
 ## 頁面 107/109 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

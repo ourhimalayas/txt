@@ -3,6 +3,8 @@
 
 ## 頁面 54/109 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年5月17日视频 20200517国内战友，不要在6月4号左右有任何冲动的行动，我们要灭共．灭贼．不要反真正的好企业和我们中国人的智慧](/content/transcript/2020/05/20200517-53481691.md)
+
 [郭文贵2020年5月16日视频 20200516疯狂的共产党很有可能对台湾香港下毒手](/content/transcript/2020/05/20200516-53481666.md)
 
 [郭文贵2020年5月14日视频 20200514_2视频恢复 ： 绝不能让任何国家利用共产党犯罪来抢着中国人的财富．Gfashion将成为战友们走向世界的综合舞台！](/content/transcript/2020/05/20200514-53481645.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年4月28日视频 20200428川普总统的玫瑰园讲话开启了真正的以美灭共．以法灭共．全面查封CCP海外资产的真正的全面开始！](/content/transcript/2020/04/20200428-53481462.md)
 
 [郭文贵2020年4月27日视频 20200427](/content/transcript/2020/04/20200427-53481458.md)
-
-[郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国](/content/transcript/2020/04/20200425-53479339.md)
 
 
 ## 頁面 54/109 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)

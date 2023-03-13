@@ -3,6 +3,8 @@
 
 ## 頁面 25/109 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年7月4日直播 20210704_1世界自由独立日文贵直播，特邀嘉宾班农先生：祝贺盖特成功上线，中共疯狂攻击盖特的原因！](/content/transcript/2021/07/20210704-53481223.md)
+
 [郭文贵2021年7月4日直播 20210704_2世界自由独立日文贵第二次直播，特邀嘉宾班农先生：全世界独裁国家都害怕班农，害怕盖特的原因；投资人争相进入盖特，预计盖特将有10亿人加入；习的七一讲话官方中英文版不一致，欺骗老百](/content/transcript/2021/07/20210704-53481120.md)
 
 [郭文贵2021年7月3日盖特 20210703_2与上海老领导的通话，让我更加自信的是新中国联邦的宣言和思想……已经深入了中国共产党体制的内部](/content/transcript/2021/07/20210703-53481178.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年6月20日盖特 20210620_3来自大树林里的爆料！](/content/transcript/2021/06/20210620-53481090.md)
 
 [郭文贵2021年6月20日直播 20210620_2给Snow理发直播](/content/transcript/2021/06/20210620-53481075.md)
-
-[郭文贵2021年6月20日直播 20210620_1文贵代表爆料革命，新中国联邦向西方世界再次发出警告，希望各西方政府高度重视，做好准备！吴征，三品澜的作案工具不简单！](/content/transcript/2021/06/20210620-53481070.md)
 
 
 ## 頁面 25/109 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

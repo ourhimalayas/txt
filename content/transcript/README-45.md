@@ -3,6 +3,8 @@
 
 ## 頁面 45/109 [**<**](/content/transcript/README-44.md) [1](/content/transcript/README.md) ... [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) **45** [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-46.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年10月3日做客战斗室 20201003E419 文字整理](/content/transcript/2020/10/20201003-53482506.md)
+
 [郭文贵2020年10月2日盖特 20201002文贵在此衷心地祝福川普总统夫妇和天下所有的的人们……都能安全的度过C C P中共的潘多拉之战](/content/transcript/2020/10/20201002-53482510.md)
 
 [郭文贵2020年10月1日连线香草山 20201001美东香草山农场终共十一游行，在十八楼下连线七哥](/content/transcript/2020/10/20201001-53482541.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年9月16日盖特 20200916_3文贵万分的感谢纽约，加拿大．这几天在行动中以法灭贼的战友们！我们所有的战友眼睛都是雪亮的，每个人的付出和行动能力都会得到](/content/transcript/2020/09/20200916-53482252.md)
 
 [郭文贵2020年9月16日盖特 20200916_2文贵会议期间再与给战友们聊二会吧……只有真心真意共同灭共．有基本的勇气．和常识的．战友们才能与我们一起走到底……全球依法灭](/content/transcript/2020/09/20200916-53482250.md)
-
-[郭文贵2020年9月16日盖特 20200916_1文贵在会议期间和战友乱聊一会儿](/content/transcript/2020/09/20200916-53482246.md)
 
 
 ## 頁面 45/109 [**<**](/content/transcript/README-44.md) [1](/content/transcript/README.md) ... [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) **45** [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-46.md) [查看全部](/content/transcript/README-all.md)

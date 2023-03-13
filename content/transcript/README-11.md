@@ -3,6 +3,8 @@
 
 ## 頁面 11/109 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年1月17日盖特 20220117_2尊敬的战友们好．征服不了自己的人……永远征服不了敌人……能让你自己不流泪，家人不流血的方式，就是必须要强大自己……强大自己的内心，坚定追求自己的信仰，才是最基本的，让你自己](/content/transcript/2022/01/20220117-53479202.md)
+
 [郭文贵2022年1月17日直播 20220117_1纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格；太平联盟诉讼案未来的走向；中共对美国司法界的渗透](/content/transcript/2022/01/20220117-53478914.md)
 
 [郭文贵2022年1月16日盖特 20220116_1尊敬的战友们好……现在最重要的就是不要让病毒发生在你．和你家人的身上……共产党的邪恶力量的源泉……是西方乃至整个世界贪婪自私培养出来的结果，世界正在为此付出代价，人类中的最](/content/transcript/2022/01/20220116-53479197.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年12月30日盖特 20211230_2应战友的要求马上发一下snow的视频，有战友梦见SNOW 了](/content/transcript/2021/12/20211230-53483485.md)
 
 [郭文贵2021年12月30日盖特直播 20211230_1共产党的内部斗争已经成为共产党政治生活的主题。](/content/transcript/2021/12/20211230-53483483.md)
-
-[郭文贵2021年12月29日直播 20211229_1北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](/content/transcript/2021/12/20211229-53483481.md)
 
 
 ## 頁面 11/109 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 72/109 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月7日视频 20190807王岐山和德国前副总理 菲利浦什么关系 PAG太盟投资与海航王岐山什么关系 为什么太盟投资和林郑月娥 菲利浦 陈峰 王岐山走在一起](/content/transcript/2019/08/20190807-53482923.md)
+
 [2019年8月6日《文贵大直播》全文字版： 谈美国将中共定位汇率操纵国的意义](/content/transcript/2019/08/20190806-53741143.md)
 
 [郭文贵2019年8月6日 20190806美国将中共定位汇率操纵国的](/content/transcript/2019/08/20190806-53482971.md)
@@ -50,8 +52,6 @@
 [2019年7月28号文贵报平安全文字版](/content/transcript/2019/07/20190728-53740505.md)
 
 [郭文贵2019年7月28日视频 20190728_1双面间谍．文贵，在＂床＂上报平安！](/content/transcript/2019/07/20190728-53478848.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715693.md)
 
 
 ## 頁面 72/109 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

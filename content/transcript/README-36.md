@@ -3,6 +3,8 @@
 
 ## 頁面 36/109 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年2月20日直播 20210220_1文贵对原凤凰农场和VOG受骗战友的处理方案！战友的利益．高于一切！](/content/transcript/2021/02/20210220-53480217.md)
+
 [郭文贵2021年2月19日直播 20210219_2](/content/transcript/2021/02/20210219-53480216.md)
 
 [郭文贵2021年2月19日直播 20210219_1](/content/transcript/2021/02/20210219-53480212.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年2月5日盖特 20210205_4九指妖和龟头痒，出卖爆料革命和战友……造成的损失和伤害正在逐步显现，爆料革命和新中国联邦的成长必须面对和这样的挑战和背叛，这会让我们更加的强大……更加的健康的发展，非常抱歉](/content/transcript/2021/02/20210205-53480075.md)
 
 [郭文贵2021年2月5日盖特 20210205_3过去几周来．共产党威胁虐待和殴打的国内的战友们……几乎百分之百都是给VOG写遗书和原来在VOG打义工的战友们 !这个灾难发生后……七哥必须承担全部的责任，我们必须深刻的反思和在这个过程](/content/transcript/2021/02/20210205-53480073.md)
-
-[郭文贵2021年2月5日盖特 20210205_2每时每刻全世界都在聚焦讨论着共产党的病毒的来源！和对世界75亿人民的生命的伤害和威胁，以及共产党反人类罪种族灭绝罪……，应该怎么受到惩罚．天灭中共！全球联合灭共！无法阻挡的灭共](/content/transcript/2021/02/20210205-53480069.md)
 
 
 ## 頁面 36/109 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)

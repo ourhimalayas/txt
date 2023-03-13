@@ -3,6 +3,8 @@
 
 ## 頁面 16/109 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年10月28日盖特 20211028_2尊敬的战友们好．拜托大家涡轮腹拉器的时候，每一组千万不要做超过12个，否则会伤到身体。科学健身，快乐健身．才是新中国联邦人在追求。](/content/transcript/2021/10/20211028-53483017.md)
+
 [郭文贵2021年10月28日盖特 20211028_1尊敬的战友们好，你们健身了吗？传播C C P病毒真相和疫苗的解药了吗？一切都已经开始！](/content/transcript/2021/10/20211028-53483016.md)
 
 [郭文贵2021年10月27日盖特 20211027_2感谢玉米地大姐送的漂亮的鲜花](/content/transcript/2021/10/20211027-53483113.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年10月15日盖特 20211015_2尊敬的战友们好……非常的抱歉，很多战友给我发的信息没办法一一回复，我只能在这里，简单给大家统一回复一下，谢谢。](/content/transcript/2021/10/20211015-53483124.md)
 
 [郭文贵2021年10月15日盖特 20211015_1尊敬的战友们好，你们健身了吗？传播疫苗解药，C C P病毒的真相了吗？一切都已经开始！](/content/transcript/2021/10/20211015-53483119.md)
-
-[郭文贵2021年10月14日盖特 20211014_1大好消息来了……](/content/transcript/2021/10/20211014-53483111.md)
 
 
 ## 頁面 16/109 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)

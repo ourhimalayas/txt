@@ -3,6 +3,8 @@
 
 ## 頁面 59/109 [**<**](/content/transcript/README-58.md) [1](/content/transcript/README.md) ... [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) **59** [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-60.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年2月22日 20200222谈CCP要与世界玉石俱焚，法治基金发口罩准备解药救人](/content/transcript/2020/02/20200222-53481332.md)
+
 [郭文贵2020年2月22日视频 20200222_2文贵再次呼吁法治基金法制社会所有的爆料革命的真战友们可以向我们申请口罩，一切都是刚刚开始](/content/transcript/2020/02/20200222-53479255.md)
 
 [郭文贵2020年2月21日第一次直播 20200221_1参加班农战斗室访谈](/content/transcript/2020/02/20200221-53481346.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年2月1日第二次直播 20200201_2在马阿拉哥总统套房第二次直播西方社会将对中共在西方的沉默力量采取最严厉的打击措施](/content/transcript/2020/02/20200201-53481318.md)
 
 [郭文贵2020年2月1日第一次直播 20200201_1无能共产党救灾不利，又拒绝国际救援，百姓何去何从，一起找书记](/content/transcript/2020/02/20200201-53481295.md)
-
-[郭文贵2020年1月31日 20200131导致疫情扩大的真正原因是共](/content/transcript/2020/01/20200131-53481268.md)
 
 
 ## 頁面 59/109 [**<**](/content/transcript/README-58.md) [1](/content/transcript/README.md) ... [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) **59** [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-60.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 13/109 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年12月18日盖特 20211218_1尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211218-53483352.md)
+
 [郭文贵2021年12月17日直播 20211217_1国内经济危机与冬奥会；方正证券接管郑州裕达；彭副主席上位意图何在；各数字货币下滑与喜币](/content/transcript/2021/12/20211217-53483421.md)
 
 [郭文贵2021年12月16日盖特 20211216_1非常非常的抱歉，亲爱的战友们……刚才视频没有发出去，我再发一遍！](/content/transcript/2021/12/20211216-53483347.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年11月25日盖特 20211125_3感恩节的快乐……](/content/transcript/2021/11/20211125-53483147.md)
 
 [郭文贵2021年11月25日盖特 20211125_2祝愿感恩天下的所有人……和感恩所有的战友们和家人……感恩新中国联邦人……感恩节快乐](/content/transcript/2021/11/20211125-53483144.md)
-
-[郭文贵2021年11月25日盖特 20211125_1尊敬的战友们好，你们健身了吗？这是我昨天健身的视频忘了发了!](/content/transcript/2021/11/20211125-53483143.md)
 
 
 ## 頁面 13/109 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)

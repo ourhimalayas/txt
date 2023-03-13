@@ -3,6 +3,8 @@
 
 ## 頁面 40/109 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月31日视频 20201231_2《我是音雄》之GForever全球跨年晚会](/content/transcript/2020/12/20201231-53479738.md)
+
 [郭文贵2020年12月31日盖特 20201231_1尊敬的战友的好，我们一起度过了灭共灭役的2020庚子年，我们将一起进入到最后的灭共辛丑之年……此时此刻的文贵，不知该如何向战友们表达我现在的心情！](/content/transcript/2020/12/20201231-53479663.md)
 
 [郭文贵2020年12月30日视频 20201230_3郭先生为“G Forever我是音雄全球跨年晚会”录制视频第二弹](/content/transcript/2020/12/20201230-53479747.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年12月23日盖特 20201223_2我们成功地在天佑之下……和无数个真诚的伟大的战友的团结合作中……击败了灭爆小组的一个惊天的阴谋……给我们的爆料革命，新中国联邦又带了一次巨大的升华！，上天护佑着我们！???????](/content/transcript/2020/12/20201223-53479625.md)
 
 [郭文贵2020年12月23日盖特 20201223_1尊敬的战友们好……你们健身了吗？你们传播C C P病毒……香港危机真相了吗？一切都已经开始！](/content/transcript/2020/12/20201223-53479623.md)
-
-[郭文贵2020年12月23日盖特 20201223_3七哥在喜马拉雅大使馆群健身视频](/content/transcript/2020/12/20201223-53479218.md)
 
 
 ## 頁面 40/109 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

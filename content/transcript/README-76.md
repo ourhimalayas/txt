@@ -3,6 +3,8 @@
 
 ## 頁面 76/109 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月29日视频 20190629_1战友们的有关G20的失望情绪．就是我们反共的核心力量表现！也是检验谁是真反共的一个特别事件……一切都是刚刚开始！](/content/transcript/2019/06/20190629-53478757.md)
+
 [郭文贵2019年6月28日视频 20190628G20](/content/transcript/2019/06/20190628-53482757.md)
 
 [郭文贵2019年6月27日视频 20190627_1尊敬的战友好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！](/content/transcript/2019/06/20190627-53478753.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年6月13日视频 20190613_3班農郭文贵直播](/content/transcript/2019/06/20190613-53479249.md)
 
 [郭文贵2019年6月13日视频 20190613_4](/content/transcript/2019/06/20190613-53478747.md)
-
-[郭文贵2019年6月13日视频 20190613_5测试细丝和庄烈宏](/content/transcript/2019/06/20190613-53478084.md)
 
 
 ## 頁面 76/109 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)

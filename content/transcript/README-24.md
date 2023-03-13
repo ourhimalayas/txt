@@ -3,6 +3,8 @@
 
 ## 頁面 24/109 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年7月21日盖特 20210721_2尊敬的战友们好！郑州所谓的千年不遇的天灾人祸……正在发生巨大的人道灾难，都是因为一党独裁共产党假黑骗统治的结果！只有消灭共产党，我们的子孙和我们每个中国人才会安全……才会有](/content/transcript/2021/07/20210721-53481255.md)
+
 [郭文贵2021年7月21日盖特 20210721_1下午7点半左右．尊敬的战友们好，你们健身了吗？想不想七个马上开始乱聊直播呀……](/content/transcript/2021/07/20210721-53481254.md)
 
 [郭文贵2021年7月20日直播 20210720_1河南政府腐败，工程腐败，这次的灾难是必然，不是天灾而是人祸；传播洪水真相，死亡人数一定从万起步；世界经济会出大事](/content/transcript/2021/07/20210720-53481334.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年7月5日盖特 20210705_2海航．北大方正．滴滴打车．阿里巴巴．恒大地产，大连万达．叶簡明．肖建华．车峰，平安集团民生银行，上海银行，香港汇丰银行．等等等等．一系列红色资本运作．都将验证共产主义是人间](/content/transcript/2021/07/20210705-53481181.md)
 
 [郭文贵2021年7月5日直播 20210705_1试黑科技，科技灭共；中共内斗剧烈，习已下令彻查江家滴滴打车；Gclub即将有比Gettr更大的好消息； 昨天与班农直播意味着什么](/content/transcript/2021/07/20210705-53481141.md)
-
-[郭文贵2021年7月4日直播 20210704_1世界自由独立日文贵直播，特邀嘉宾班农先生：祝贺盖特成功上线，中共疯狂攻击盖特的原因！](/content/transcript/2021/07/20210704-53481223.md)
 
 
 ## 頁面 24/109 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)

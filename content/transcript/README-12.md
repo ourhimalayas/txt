@@ -3,6 +3,8 @@
 
 ## 頁面 12/109 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年12月29日直播 20211229_1北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](/content/transcript/2021/12/20211229-53483481.md)
+
 [郭文贵2021年12月28日视频 20211228_1彻底揭露HBO Vice险恶的攻击——HBO Vice 采访郭文贵先生全过程无剪辑录像](/content/transcript/2021/12/20211228-53484198.md)
 
 [郭文贵2021年12月28日盖特 20211228_3吃饭饭喽……荷叶蒸老鸡](/content/transcript/2021/12/20211228-53483399.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年12月19日直播 20211219_1超发货币导致的通胀、通缩对世界经济与格局的影响；中共房地产持续暴雷破产；病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至](/content/transcript/2021/12/20211219-53483478.md)
 
 [郭文贵2021年12月18日盖特 20211218_2共产党的经济的全面的即将崩溃……和到处抢劫财富的导致的社会动乱……和大量的抓朴公检法．金融部门官员！现在又要求在半年内让中国的医院和医疗企业部门上交1．5万亿支持所谓的国家战略](/content/transcript/2021/12/20211218-53483355.md)
-
-[郭文贵2021年12月18日盖特 20211218_1尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211218-53483352.md)
 
 
 ## 頁面 12/109 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)

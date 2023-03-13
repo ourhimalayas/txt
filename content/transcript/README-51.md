@@ -3,6 +3,8 @@
 
 ## 頁面 51/109 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年7月9日视频 20200709_1听说有关火鸡龚新闻……原来被BBG国会还有FBI调查涉嫌贪污造假，各种贿赂](/content/transcript/2020/07/20200709-53479393.md)
+
 [郭文贵2020年7月8日直播 20200708共产党又在美国的华尔街日报造谣文贵和班农先生！意图转移国内的重大问题打击，新中国联邦在美国和西方灭共的的大好形式](/content/transcript/2020/07/20200708-53481806.md)
 
 [郭文贵2020年7月7日盖特视频 20200707战友们情人节快乐！GTV是一个传奇同时也是共产党的恐惧](/content/transcript/2020/07/20200707-53481810.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年6月20日视频 20200620_2](/content/transcript/2020/06/20200620-53479364.md)
 
 [郭文贵2020年6月20日视频 20200620_3班农战斗室特别节目： 嘉宾郭文贵先生讲继续解读中共对全球的信息超限战 June 20，War Room Special: ‬Guest Mr Miles Guo will continue decider the CCP’s unrestricted information war against the whole world](/content/transcript/2020/06/20200620-53478522.md)
-
-[郭文贵2020年6月18日直播 20200618全世界都在关注，新中国联邦世界正在改变](/content/transcript/2020/06/20200618-53481712.md)
 
 
 ## 頁面 51/109 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)

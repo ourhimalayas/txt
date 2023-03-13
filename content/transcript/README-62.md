@@ -3,6 +3,8 @@
 
 ## 頁面 62/109 [**<**](/content/transcript/README-61.md) [1](/content/transcript/README.md) ... [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) **62** [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-63.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年12月23日视频 20191223_2郭文贵先生突袭美东之声 与战友们连线 直播(1:27:44~2:08:40)](/content/transcript/2019/12/20191223-53479209.md)
+
 [郭文贵2019年12月22日 20191222在亚利桑那州凤凰城报平安](/content/transcript/2019/12/20191222-53483578.md)
 
 [郭文贵2019年12月21日视频 20191221谈谈欺诈犯郭宝胜庭审细节和海外华人形象的危机](/content/transcript/2019/12/20191221-53483570.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年12月5日视频 20191205_1火鸡龚在美国国会到底有啥本事！](/content/transcript/2019/12/20191205-53479181.md)
 
 [郭文贵2019年12月4日第一次直播 20191204_1谈香港律政司长郑若骅被绑架](/content/transcript/2019/12/20191204-53483635.md)
-
-[郭文贵2019年12月4日第二次直播 20191204_2](/content/transcript/2019/12/20191204-53483630.md)
 
 
 ## 頁面 62/109 [**<**](/content/transcript/README-61.md) [1](/content/transcript/README.md) ... [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) **62** [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-63.md) [查看全部](/content/transcript/README-all.md)

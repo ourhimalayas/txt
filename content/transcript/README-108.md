@@ -3,6 +3,8 @@
 
 ## 頁面 108/109 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月22日直播 20170522_2手机直播回应潘石屹视频](/content/transcript/2017/05/20170522-53483764.md)
+
 [郭文贵2017年5月21日第一次直播 20170521_1](/content/transcript/2017/05/20170521-53483996.md)
 
 [郭文贵2017年5月21日第三次直播 20170521_3](/content/transcript/2017/05/20170521-53483794.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年5月4日视频 20170504_1](/content/transcript/2017/05/20170504-53483749.md)
 
 [郭文贵2017年5月3日视频 20170503_1](/content/transcript/2017/05/20170503-53483733.md)
-
-[郭文贵2017年5月3日第二次直播 20170503_2小狗狗生日礼物](/content/transcript/2017/05/20170503-53483724.md)
 
 
 ## 頁面 108/109 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

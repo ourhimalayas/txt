@@ -3,6 +3,8 @@
 
 ## 頁面 15/109 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年11月11日盖特 20211111_1尊敬的战友们好！共产党的光棍节骗局，彻底破产，共产党的房地产骗局将给世界的经济带来巨大的灾难……莘县阳谷县达县咱走着看！](/content/transcript/2021/11/20211111-53483077.md)
+
 [郭文贵2021年11月10日盖特 20211110_2尊敬的战友们好……你们健身了吗？战友们有钱了是不是就不应该健身了呢？](/content/transcript/2021/11/20211110-53483072.md)
 
 [郭文贵2021年11月10日直播 20211110_1中共六中全会内部报告：中国癌症发病人数第一，与病毒相关性死亡1370万人；香港外籍人士撤离历史新高，大量外汇移出，香港在6个月内成为金融空港；对病毒真相的掩盖造成医疗行业医务人员流](/content/transcript/2021/11/20211110-53483045.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年10月29日直播 20211029_1格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦](/content/transcript/2021/10/20211029-53483192.md)
 
 [郭文贵2021年10月28日盖特 20211028_3尊敬的战友们好……当被欺骗统治了几十年的灵魂和生活。去面对真相的时候．是无法适应的，这是悲剧，这也是我们中国人过去七十年的悲哀，新世界的到来．将改变全地球的所有的这一切！](/content/transcript/2021/10/20211028-53483022.md)
-
-[郭文贵2021年10月28日盖特 20211028_2尊敬的战友们好．拜托大家涡轮腹拉器的时候，每一组千万不要做超过12个，否则会伤到身体。科学健身，快乐健身．才是新中国联邦人在追求。](/content/transcript/2021/10/20211028-53483017.md)
 
 
 ## 頁面 15/109 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

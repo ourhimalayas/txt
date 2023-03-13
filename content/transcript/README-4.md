@@ -3,6 +3,8 @@
 
 ## 頁面 4/109 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
 
+[2022年10月05日郭文贵先生直播 为什么西方的情报机构认为中共近期不会打台湾？](/content/transcript/2022/10/20221005-53520891.md)
+
 [2022年10月2日 《文贵大直播》政教合一的伊朗将走向何方？](/content/transcript/2022/10/20221002-53520760.md)
 
 [郭文贵2022年9月30日盖特 20220930_1七哥今日小视频](/content/transcript/2022/09/20220930-53481377.md)
@@ -50,8 +52,6 @@
 [郭文贵2022年9月13日直播 20220913_1习近平出访将会发生什么](/content/transcript/2022/09/20220913-53481417.md)
 
 [郭文贵2022年9月12日盖特 20220912_1尊敬的战友们好……共产党经济的崩溃，会给普通老百姓带来什么样的后果呢？](/content/transcript/2022/09/20220912-53481804.md)
-
-[郭文贵2022年9月11日直播 20220911_1七哥与战友们聊聊共产党会如何崩溃](/content/transcript/2022/09/20220911-53481352.md)
 
 
 ## 頁面 4/109 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)

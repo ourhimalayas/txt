@@ -3,6 +3,8 @@
 
 ## 頁面 64/109 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年11月20日 20191120_4“纪念1120新闻发布会一周：揭秘王健之死”上部](/content/transcript/2019/11/20191120-53478038.md)
+
 [郭文贵2019年11月19日第一次直播 20191119_1香港人权和民主法案参议院通过 连线班农先生庆祝香港人权和民主法案全票通过！](/content/transcript/2019/11/20191119-53483477.md)
 
 [郭文贵2019年11月19日第二次直播 20191119_2一整天直播的大概安排和香港理工大的背后故事。](/content/transcript/2019/11/20191119-53483469.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年11月6日第二次直播 20191106_2共产党创造了几个荒唐政治事件(1)](/content/transcript/2019/11/20191106-53483346.md)
 
 [郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦](/content/transcript/2019/11/20191105-53479126.md)
-
-[郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位](/content/transcript/2019/11/20191104-53483340.md)
 
 
 ## 頁面 64/109 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)

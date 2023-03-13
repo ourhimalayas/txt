@@ -3,6 +3,8 @@
 
 ## 頁面 31/109 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年4月20日盖特 20210420_1尊敬的战友们好．美中刚刚 想了环境天气的双休高潮后！共产党为什么又在这个病毒肆虐的时候．高调的开启BGY海南论坛，再再推出老妈咪．大老仟．王岐山出来公关？( (习大神，三天不学习，赶](/content/transcript/2021/04/20210420-53480671.md)
+
 [郭文贵2021年4月19日盖特 20210419_2灭共的行动，新的战场即将开始！这是由完全由战友们主导控制的新的战斗灭共新方式！新领域！](/content/transcript/2021/04/20210419-53480669.md)
 
 [郭文贵2021年4月19日直播 20210419_1美国媒体从自由灯塔，堕落到今天的黑暗灯塔，由五大家族控制；媒体的力量，拥有定义权，定价权；社交媒体是第一武器；中共用武器新闻企图控制世界；GTV的价值在稀缺性，是情报交易平台](/content/transcript/2021/04/20210419-53480660.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年4月7日盖特 20210407_2上次穿这件衣服的时候，我们新中国联邦还没有诞生，爆料革命的所处的环境和形势和今天大不相同，我们如何从这些变化和过去的时光里．得到和学到我们的经验……午餐后和战友们乱聊，7哥第](/content/transcript/2021/04/20210407-53480615.md)
 
 [郭文贵2021年4月7日盖特 20210407_1如果美国将中国共产党踢出sDWIFT支付系统，世界贸易组织，世界银行．世界货币组织．并将比特币变成美国中心化．或监督．全球100个以上的国家成立了联合查清C C P病毒的组织．要求你们提供所有](/content/transcript/2021/04/20210407-53480611.md)
-
-[郭文贵2021年4月6日盖特 20210406_1文贵被昨天在华盛顿I DC抗议的GTV投资者……和战友们的行为．表现出来的新中国联邦人．的素质！多次感动！文贵昨天的直播在世界的政治舞台上，引起了巨大的反响！为什么呢？](/content/transcript/2021/04/20210406-53480606.md)
 
 
 ## 頁面 31/109 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 52/109 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年6月18日直播 20200618全世界都在关注，新中国联邦世界正在改变](/content/transcript/2020/06/20200618-53481712.md)
+
 [郭文贵2020年6月18日视频 20200618_2郭文貴參加班农战斗室特别节目：中共在美国的信息超限战中文版](/content/transcript/2020/06/20200618-53479358.md)
 
 [郭文贵2020年6月18日视频 20200618_3谢谢很多战友发来问询夏威夷会议的各种信息](/content/transcript/2020/06/20200618-53479341.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年6月4日新中国联邦成立 20200604_1郭先生宣布新中国联邦正式成立，郝海东先生班农先生宣读新中国联邦宣言](/content/transcript/2020/06/20200604-53483703.md)
 
 [郭文贵2020年6月4日 20200604_3新中国联邦宣言的历史意义](/content/transcript/2020/06/20200604-53481934.md)
-
-[郭文贵2020年6月4日视频 20200604_4新中國聯邦成立後大雨傾盆](/content/transcript/2020/06/20200604-53479359.md)
 
 
 ## 頁面 52/109 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)

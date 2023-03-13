@@ -3,6 +3,8 @@
 
 ## 頁面 57/109 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年4月1日 20200401文贵为什么在3月31号要谈世界第二次大战．如何看待…Inty,庄列红．曾宏．天津大驴牙脸…的丑恶嘴脸！](/content/transcript/2020/04/20200401-53481443.md)
+
 [郭文贵2020年3月31日 20200331直播谈亚洲耶路撒冷香港，喜马拉雅大使馆农场，GTV GNews GFasion，不接受染病的人](/content/transcript/2020/03/20200331-53481434.md)
 
 [郭文贵2020年3月31日gtv 20200331_2乱聊直播](/content/transcript/2020/03/20200331-53478403.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年3月21日GTV直播 20200321_2文贵重要直播](/content/transcript/2020/03/20200321-53478396.md)
 
 [郭文贵2020年3月20日 20200320船上直播呼吁绝对不能把CCP病毒跟中国人联系到一起！](/content/transcript/2020/03/20200320-53481733.md)
-
-[郭文贵2020年3月20日视频 20200320_2尊敬的战友们好，所有给法治基金捐款的战友们，你们所有的申请，已全部发出，这是新到的另外一批的口罩，还有防护服，还有洗手液，给战友们准备的，谁需要的话请给Sara和木兰联系。一切都](/content/transcript/2020/03/20200320-53478503.md)
 
 
 ## 頁面 57/109 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)

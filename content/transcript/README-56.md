@@ -3,6 +3,8 @@
 
 ## 頁面 56/109 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年4月8日视频 20200408_3誠徵寫代碼的工程師](/content/transcript/2020/04/20200408-53479294.md)
+
 [郭文贵2020年4月8日GTV直播 20200408_1与木兰，连线聊天．听木兰哆聊欺民贼……家天下](/content/transcript/2020/04/20200408-53478480.md)
 
 [郭文贵2020年4月7日视频 20200407我们已经处在世界第三次战争中！](/content/transcript/2020/04/20200407-53481594.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年4月2日GTV第二次直播 20200402_2共产党员该如何考虑自救了](/content/transcript/2020/04/20200402-53481459.md)
 
 [郭文贵2020年4月2日GTV第三次直播 20200402_3文贵战友们一起聊聊中国的乐器和曾经儿时的一些经历](/content/transcript/2020/04/20200402-53478408.md)
-
-[郭文贵2020年4月1日 20200401文贵为什么在3月31号要谈世界第二次大战．如何看待…Inty,庄列红．曾宏．天津大驴牙脸…的丑恶嘴脸！](/content/transcript/2020/04/20200401-53481443.md)
 
 
 ## 頁面 56/109 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)

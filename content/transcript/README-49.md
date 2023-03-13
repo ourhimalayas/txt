@@ -3,6 +3,8 @@
 
 ## 頁面 49/109 [**<**](/content/transcript/README-48.md) [1](/content/transcript/README.md) ... [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) **49** [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-50.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年8月1日视频 20200801_2戰鬥室312期【中英字幕】病毒是中共制造的廉价“核武器”；只有中美脱钩才能阻止中共腐蚀全球；新中国联邦会给全世界健康的中国市场与和平的未来！ 1](/content/transcript/2020/08/20200801-53479498.md)
+
 [郭文贵2020年7月31日视频 20200731_1](/content/transcript/2020/07/20200731-53479493.md)
 
 [郭文贵2020年7月31日直播 20200731_2【中英字幕】文贵先生连线战斗室：美国只有放弃官僚和个人利益，通过证据找到真相，才能让美国更加安全！[Chinese-English subtitled] Mr. Miles Guo on War Room: Only if the US officials and individuals give up perso](/content/transcript/2020/07/20200731-53478523.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年7月17日视频 20200717_3将在半小时内开始乱聊直播](/content/transcript/2020/07/20200717-53479455.md)
 
 [郭文贵2020年7月16日视频 20200716_2文贵收到了好多战友问询．如何帮助战友们在美国．脱共](/content/transcript/2020/07/20200716-53479452.md)
-
-[郭文贵2020年7月16日视频 20200716_1请大家一定去看．司法部长．巴斯的发布会](/content/transcript/2020/07/20200716-53479450.md)
 
 
 ## 頁面 49/109 [**<**](/content/transcript/README-48.md) [1](/content/transcript/README.md) ... [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) **49** [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-50.md) [查看全部](/content/transcript/README-all.md)

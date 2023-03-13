@@ -3,6 +3,8 @@
 
 ## 頁面 50/109 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年7月16日视频 20200716_1请大家一定去看．司法部长．巴斯的发布会](/content/transcript/2020/07/20200716-53479450.md)
+
 [郭文贵2020年7月15日直播 20200715为什么卡尔巴斯．离开GTV董事会？接下来的新中国联邦将与各国合作有重大的行动](/content/transcript/2020/07/20200715-53481867.md)
 
 [郭文贵2020年7月15日视频 20200715_2川普总统的头发．从过去的金发为什么一夜变成了灰白发呢？](/content/transcript/2020/07/20200715-53479446.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）](/content/transcript/2020/07/20200710-53479395.md)
 
 [郭文贵2020年7月9日视频 20200709_2等了一天了今天200的公告和今天福克斯的节目共匪很空疯狂但是他们必须亡](/content/transcript/2020/07/20200709-53479394.md)
-
-[郭文贵2020年7月9日视频 20200709_1听说有关火鸡龚新闻……原来被BBG国会还有FBI调查涉嫌贪污造假，各种贿赂](/content/transcript/2020/07/20200709-53479393.md)
 
 
 ## 頁面 50/109 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)

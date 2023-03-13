@@ -3,6 +3,8 @@
 
 ## 頁面 74/109 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月22日 直播全文字版](/content/transcript/2019/07/20190722-53673045.md)
+
 [2019年7月21日直播全文字版：爆料革命进入全球灭共的新时代](/content/transcript/2019/07/20190721-53627486.md)
 
 [郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版](/content/transcript/2019/07/20190721-53478837.md)
@@ -50,8 +52,6 @@
 [2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集](/content/transcript/2019/07/20190708-53578169.md)
 
 [郭文贵2019年7月8日视频 20190708文贵是双面间谍？？](/content/transcript/2019/07/20190708-53482874.md)
-
-[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天](/content/transcript/2019/07/20190708-53478795.md)
 
 
 ## 頁面 74/109 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)

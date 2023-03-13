@@ -3,6 +3,8 @@
 
 ## 頁面 39/109 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年1月16日盖特 20210116_1人类进入了最大的变革时代……共产党的灭亡是人类重新走向新生的开始，全世界的各种力量都在盘算着，没有共产党时代到来的日子！，只有新中国联邦和爆料革命，让人类和世界更安全，让人](/content/transcript/2021/01/20210116-53479868.md)
+
 [郭文贵2021年1月15日音频聊天 20210115_2](/content/transcript/2021/01/20210115-53479883.md)
 
 [郭文贵2021年1月15日盖特 20210115_1辛丑年是全人类．找共产党要钱，要命……要责任．的灭共年，新中国联邦中国人……是1月6号到1月20号最大的受益者……智慧的战友，要充分的看到和利用这种危机中的机会。新中国联邦将创造你](/content/transcript/2021/01/20210115-53479864.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年1月1日直播 20210101_1](/content/transcript/2021/01/20210101-53479744.md)
 
 [郭文贵2020年12月31日音频聊天 20201231_3郭先生喜马拉雅大使馆discord群答疑录音](/content/transcript/2020/12/20201231-53479751.md)
-
-[郭文贵2020年12月31日视频 20201231_2《我是音雄》之GForever全球跨年晚会](/content/transcript/2020/12/20201231-53479738.md)
 
 
 ## 頁面 39/109 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

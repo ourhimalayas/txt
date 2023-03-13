@@ -3,6 +3,8 @@
 
 ## 頁面 47/109 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年8月29日连线旧金山 20200829_5](/content/transcript/2020/08/20200829-53482163.md)
+
 [郭文贵2020年8月29日连线温哥华 20200829_48月29日温哥华游行 - 连线文贵先生](/content/transcript/2020/08/20200829-53482149.md)
 
 [郭文贵2020年8月29日连线慕尼黑 20200829_3新中国联邦欧洲战友829慕尼黑游行抗议下午场](/content/transcript/2020/08/20200829-53482137.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年8月17日视频 20200817_3与战友们分享今天的午餐](/content/transcript/2020/08/20200817-53479504.md)
 
 [郭文贵2020年8月16日直播 20200816與新西蘭站連線直播](/content/transcript/2020/08/20200816-53482135.md)
-
-[郭文贵2020年8月15日盖特 20200815_215日：文贵莲花刀法．与班农先生分吃，我太太在我家菜园里种的哈密瓜！](/content/transcript/2020/08/20200815-53482206.md)
 
 
 ## 頁面 47/109 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)

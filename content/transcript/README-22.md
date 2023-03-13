@@ -3,6 +3,8 @@
 
 ## 頁面 22/109 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年8月10日盖特 20210810_1尊敬的战友．美国朋友们好！很多人给我发信息．问我每天做多少个这个推拉器？我有时连续做12组．每一组做12个，有时候．做六组每一组，12到15个．每天一定做超过12组．我做得还很不好，还在](/content/transcript/2021/08/20210810-53481563.md)
+
 [郭文贵2021年8月9日盖特 20210809_2尊敬的战友们好·你们健身了吗？传播C C P病毒！郑州人祸·香港危机真相了吗？一切都已经开始！](/content/transcript/2021/08/20210809-53481557.md)
 
 [郭文贵2021年8月9日直播 20210809_1为染病毒的战友和家人祈福；联盟农场第一首要任务备药防毒；文贵给世界的警告再次被验证；中共的邪恶计划，杀富，用疫苗杀死老年人和有缺陷的人; 新中国联邦人拯救世界](/content/transcript/2021/08/20210809-53481538.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年8月1日直播 20210801_1背叛是成功的必然经历；对待坏人，采用法律红线范围内的任何手段；如何理解财富和财富的属性；习灭王的亲信蔡鄂生的故事；7月11-17，中共对西方发动了珍珠岛式的袭击；中共5500亿美元投资沙](/content/transcript/2021/08/20210801-53481419.md)
 
 [郭文贵2021年7月31日盖特 20210731_2真心觉得自己真的很棒！](/content/transcript/2021/07/20210731-53482812.md)
-
-[郭文贵2021年7月31日盖特 20210731_1有的行为都是因果的轮回，没必要勉强也不能勉强，这几天欧洲美国从金融脱钩．准备热战．以毒灭共……全面的高速进行，这说明了什么？](/content/transcript/2021/07/20210731-53481619.md)
 
 
 ## 頁面 22/109 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 38/109 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年1月25日直播 20210125_2中共一定会实施双龙计划，统战台湾！中国东北的疫情比我们想象的严重得多！孙力军已被送到秦城监狱！](/content/transcript/2021/01/20210125-53479950.md)
+
 [郭文贵2021年1月25日直播 20210125_1当灾难到来时，就不让听党话了；国内疫情严重地区战友们要自救，各农场做好救济准备；台湾同胞需要新中国联邦，不能相信台政府，做好战争准备](/content/transcript/2021/01/20210125-53479937.md)
 
 [郭文贵2021年1月24日直播 20210124_1拜登政府最想合法干掉的是谁？！ 美国政府如开放数字货币，G系列将成为最大受益者！](/content/transcript/2021/01/20210124-53479931.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年1月17日直播 20210117_1拒绝中共的谎言和洗脑！G-Fashion新品全面上线！G翻身是时尚文化运动！人类的终极之战，CCP的灭亡不可逆转！](/content/transcript/2021/01/20210117-53479879.md)
 
 [郭文贵2021年1月16日盖特 20210116_2文贵第二次发盖特……明天也就是1月17号上午．9:30乱聊直播，很多战友发信息给文贵……了解关于要求做G系列全球代理和购买各种G翻身的一些的问题……在这里的统一回复一下！](/content/transcript/2021/01/20210116-53479871.md)
-
-[郭文贵2021年1月16日盖特 20210116_1人类进入了最大的变革时代……共产党的灭亡是人类重新走向新生的开始，全世界的各种力量都在盘算着，没有共产党时代到来的日子！，只有新中国联邦和爆料革命，让人类和世界更安全，让人](/content/transcript/2021/01/20210116-53479868.md)
 
 
 ## 頁面 38/109 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

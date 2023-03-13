@@ -3,6 +3,8 @@
 
 ## 頁面 44/109 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年11月10日盖特 20201110_2很多战友发信息……问文贵，现在辉瑞公司药的防冠疫苗，是不是可靠？可信？可用？文贵在这里给大家一个回复！](/content/transcript/2020/11/20201110-53482639.md)
+
 [郭文贵2020年11月10日盖特 20201110_1尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机真相了，一切都已经开始！](/content/transcript/2020/11/20201110-53482627.md)
 
 [郭文贵2020年11月10日视频 20201110_5有人過段時間要在這做個節目 現在先佈置佈置](/content/transcript/2020/11/20201110-53479513.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年10月5日直播 20201005全球惩贼行动，为正义牺牲，要坚持到底；为被洗脑的同胞感到悲愤，CCP病毒毒害人心；美国准备好了行动](/content/transcript/2020/10/20201005-53482552.md)
 
 [郭文贵2020年10月5日盖特 20201005_2为了揭发在美国和西方共产党的建立的间谍系统……和沉默的力量，让西方知到共产党的潜伏的真相。在德州和加拿大．纽约的战友们……](/content/transcript/2020/10/20201005-53482443.md)
-
-[郭文贵2020年10月3日做客战斗室 20201003E419 文字整理](/content/transcript/2020/10/20201003-53482506.md)
 
 
 ## 頁面 44/109 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)

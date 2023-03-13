@@ -3,6 +3,8 @@
 
 ## 頁面 48/109 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年8月15日盖特 20200815_215日：文贵莲花刀法．与班农先生分吃，我太太在我家菜园里种的哈密瓜！](/content/transcript/2020/08/20200815-53482206.md)
+
 [郭文贵2020年8月15日直播 20200815玛莎Masha连线七哥谈Gclub和Gfashion](/content/transcript/2020/08/20200815-53482122.md)
 
 [郭文贵2020年8月14日盖特 202008148月14号刚刚的直播．被黑断播了…文贵几个小时内．不再继续直播，今天GTV升级后再回复直播，大概在今天下午的时间吧…衷心的感谢日本战友](/content/transcript/2020/08/20200814-53482102.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年8月2日直播 20200802展示G—fashion时装以及共产党对GTV和战友的攻击](/content/transcript/2020/08/20200802-53481993.md)
 
 [郭文贵2020年8月1日盖特 20200801尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？文贵在下面的视频中将回答很多战友的一些问题](/content/transcript/2020/08/20200801-53481977.md)
-
-[郭文贵2020年8月1日视频 20200801_2戰鬥室312期【中英字幕】病毒是中共制造的廉价“核武器”；只有中美脱钩才能阻止中共腐蚀全球；新中国联邦会给全世界健康的中国市场与和平的未来！ 1](/content/transcript/2020/08/20200801-53479498.md)
 
 
 ## 頁面 48/109 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)

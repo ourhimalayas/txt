@@ -3,6 +3,8 @@
 
 ## 頁面 46/109 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年9月16日盖特 20200916_1文贵在会议期间和战友乱聊一会儿](/content/transcript/2020/09/20200916-53482246.md)
+
 [郭文贵2020年9月14日盖特 20200914尊敬的战友们好……我们的英雄科学家的有关．中共开发的生化武器冠状病毒的．真相的报告，将重为拯救世界唯一的雅典娜希望！今天刚](/content/transcript/2020/09/20200914-53482242.md)
 
 [郭文贵2020年9月13日直播 20200913_2文贵唱播：以歌灭共；明天有大事；路德，闫博士都是灭共者；下周会有让中共意想不到的开战](/content/transcript/2020/09/20200913-53482309.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年8月30日盖特 202008308月30日 坏了坏了……文贵唱歌上瘾了，上大瘾了，咋办呢？咋办呢？兄弟姐妹们????????????????????????我要去唐平的，巜我是音雄》打擩台了](/content/transcript/2020/08/20200830-53482179.md)
 
 [郭文贵2020年8月29日连线台湾 20200829_6sara和郭先生与台湾连线](/content/transcript/2020/08/20200829-53482177.md)
-
-[郭文贵2020年8月29日连线旧金山 20200829_5](/content/transcript/2020/08/20200829-53482163.md)
 
 
 ## 頁面 46/109 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)

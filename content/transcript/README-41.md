@@ -3,6 +3,8 @@
 
 ## 頁面 41/109 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月23日盖特 20201223_3七哥在喜马拉雅大使馆群健身视频](/content/transcript/2020/12/20201223-53479218.md)
+
 [郭文贵2020年12月22日盖特 20201222_2尊敬的战友们，????????????文贵在这里回答很多战友……在过去几个小时．发信息咨询文贵一些问题……一切都已经开始！](/content/transcript/2020/12/20201222-53479615.md)
 
 [郭文贵2020年12月22日盖特 20201222_1尊敬的战友们好．灭共……新中国联邦，维护中国人的尊严．和安全利益，这几条原则……必须要清楚和绝对的坚持与否……决定了我们每个人的未来！](/content/transcript/2020/12/20201222-53479611.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年12月10日盖特 20201210_4衷心的感谢那些在共产党的体制内……默默无闻的战友们……感谢你们提供的在美国被渗透的法官和律师事务所的腐败信息……对文贵在美国案子用蓝金黄手段办黑案的事实，这是非常重要的](/content/transcript/2020/12/20201210-53479546.md)
 
 [郭文贵2020年12月10日盖特 20201210_3尊敬的战友们好……任何农场和战友对救助战友的承诺……和履行承诺非常之重要，一定要坚持唯真不破．真善对战友……要真情实意……并敢于承担](/content/transcript/2020/12/20201210-53479543.md)
-
-[郭文贵2020年12月10日盖特 20201210_2尊敬的战友们好，请今天．都去看路德波切访谈……我们的灭共革命进入了一个新的阶段，希望大家过了24小时以后不要兴奋得都去亲自己的脸……一切都已经开始](/content/transcript/2020/12/20201210-53479542.md)
 
 
 ## 頁面 41/109 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)

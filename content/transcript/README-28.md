@@ -3,6 +3,8 @@
 
 ## 頁面 28/109 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年5月25日盖特 20210525_3尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！](/content/transcript/2021/05/20210525-53480894.md)
+
 [郭文贵2021年5月25日盖特 20210525_2尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！](/content/transcript/2021/05/20210525-53480893.md)
 
 [郭文贵2021年5月25日视频 20210525_1喜联盟GNEWS64文宣大赛颁奖典礼](/content/transcript/2021/05/20210525-53480890.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年5月15日盖特 20210515_4G翻身正在一场新的革命当中．即将给Gclub会员带来一些福利惊喜！](/content/transcript/2021/05/20210515-53480821.md)
 
 [郭文贵2021年5月15日盖特 20210515_3衷心地希望台湾同胞．能团结一致，消灭共产党的这次的以毒攻台．以毒灭台的恶毒计划！](/content/transcript/2021/05/20210515-53480818.md)
-
-[郭文贵2021年5月15日盖特 20210515_2尊敬的战友们好！数字加密货币就是人类进入 数字时代的真正的核心！美中在数字时代加密货币时代争夺的是什么？共产党在巴勒斯坦巴以冲突当中扮演什么角色？](/content/transcript/2021/05/20210515-53480816.md)
 
 
 ## 頁面 28/109 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

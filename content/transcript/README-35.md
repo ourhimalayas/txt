@@ -3,6 +3,8 @@
 
 ## 頁面 35/109 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年3月4日盖特 20210304_1七哥和战友分享关于和GTV投资了椅子战友的沟通，被千次感动高潮后的感受](/content/transcript/2021/03/20210304-53480312.md)
+
 [郭文贵2021年3月3日盖特 20210303_2开会期间摘下口罩乱聊发视频……￼以毒灭共……以钱灭共，真是上天赐给我们的最伟大的机会和法宝……共产党，你完了](/content/transcript/2021/03/20210303-53480310.md)
 
 [郭文贵2021年3月3日直播 20210303_1中共与拜登政府给中兴的“回头汤”，中美沼泽地从中得利；Ｇ系列再次遇难成祥，让战友们真正成为江山的主人，最大的受益者，这就是爆料革命](/content/transcript/2021/03/20210303-53480309.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年2月21日盖特 20210221_2很多战友发信息问七哥的腿疼痛好了……是用什么办法治好的……七哥录制一个视频．展示一下！大家在视频中，你们看到我的腿不是直的没有问题，腿，但只要你坚持住加强腿部的这个肌肉……](/content/transcript/2021/02/20210221-53480221.md)
 
 [郭文贵2021年2月21日盖特 20210221_1尊敬的这么好．很多战友给我发的信息．无法一一回复．今天无法按照你们要求直播，因为今天太忙了……真的没有时间了……万分的抱歉……亲爱的兄弟姐妹们！](/content/transcript/2021/02/20210221-53480220.md)
-
-[郭文贵2021年2月20日直播 20210220_1文贵对原凤凰农场和VOG受骗战友的处理方案！战友的利益．高于一切！](/content/transcript/2021/02/20210220-53480217.md)
 
 
 ## 頁面 35/109 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)

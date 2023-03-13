@@ -3,6 +3,8 @@
 
 ## 頁面 43/109 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年11月22日直播 20201122_3夜晚部分](/content/transcript/2020/11/20201122-53482707.md)
+
 [郭文贵2020年11月22日盖特 20201122_2尊敬的战友们好，你们健身了吗？你们传统播C C B病毒——香港危机真相了吗？一切都已经开始！](/content/transcript/2020/11/20201122-53482694.md)
 
 [郭文贵2020年11月22日直播 20201122_1](/content/transcript/2020/11/20201122-53482691.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年11月11日直播 20201111_3网页版试直播 - 第二部分](/content/transcript/2020/11/20201111-53482636.md)
 
 [郭文贵2020年11月11日直播 20201111_1](/content/transcript/2020/11/20201111-53482633.md)
-
-[郭文贵2020年11月10日盖特 20201110_2很多战友发信息……问文贵，现在辉瑞公司药的防冠疫苗，是不是可靠？可信？可用？文贵在这里给大家一个回复！](/content/transcript/2020/11/20201110-53482639.md)
 
 
 ## 頁面 43/109 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 61/109 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年1月10日视频 20200110_2最受郭文貴信賴尊敬的西服師傅 從不欺騙從不坑人](/content/transcript/2020/01/20200110-53479243.md)
+
 [郭文贵2020年1月9日视频 20200109_1看房子啦！](/content/transcript/2020/01/20200109-53479241.md)
 
 [郭文贵2020年1月8日 20200108跟战友们分享在小飞机上吃鸡](/content/transcript/2020/01/20200108-53481273.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年12月24日 20191224在亚利桑那州凤凰城保平安直播中共大肆杀狗真相竟是因为迷信！](/content/transcript/2019/12/20191224-53483602.md)
 
 [郭文贵2019年12月23日 20191223提醒香港同胞一定不要被共產黨的陰謀詭計分散人心](/content/transcript/2019/12/20191223-53483591.md)
-
-[郭文贵2019年12月23日视频 20191223_2郭文贵先生突袭美东之声 与战友们连线 直播(1:27:44~2:08:40)](/content/transcript/2019/12/20191223-53479209.md)
 
 
 ## 頁面 61/109 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)

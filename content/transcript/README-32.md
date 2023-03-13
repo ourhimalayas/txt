@@ -3,6 +3,8 @@
 
 ## 頁面 32/109 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年4月6日盖特 20210406_1文贵被昨天在华盛顿I DC抗议的GTV投资者……和战友们的行为．表现出来的新中国联邦人．的素质！多次感动！文贵昨天的直播在世界的政治舞台上，引起了巨大的反响！为什么呢？](/content/transcript/2021/04/20210406-53480606.md)
+
 [郭文贵2021年4月5日直播 20210405_1共产党的清明经济，清明政治，清明关系，挣死人钱，回老家搞关系，升官发财； 共产党实施的以钱灭美计划，美元经济崩溃，黄金一定大涨](/content/transcript/2021/04/20210405-53480603.md)
 
 [郭文贵2021年4月4日盖特 20210404_3尊敬的战友们好，明天上午9:30文贵乱聊直播！谈谈共产党的以钱灭美的计划．和共产党为什么提倡过清明节？共产党病毒在武汉．中国．世界．到底杀了多少人？](/content/transcript/2021/04/20210404-53480594.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年3月24日直播 20210324_1欧盟已经查出多个辛普森夫人，中共在世界多国实施了辛普森计划，实际是现代义和团；中共病毒白皮书即将出台](/content/transcript/2021/03/20210324-53480510.md)
 
 [郭文贵2021年3月23日盖特 20210323_3在国内被喝荼．甚至受到伤害……或者被威胁的战友们的未来的补偿，以及对过去义工的时长的确定????和认证．的所有的最终决定权．在喜马拉雅联盟委员会，而且我本人会一个一个地确定．任何](/content/transcript/2021/03/20210323-53480499.md)
-
-[郭文贵2021年3月23日盖特 20210323_2文贵紧急的呼吁所有的战友们……一定要严肃对待．以各种名义的假战友的欺骗行为……任何战友再上当受骗．文贵不会再承担任何责任，防止九指妖事件的重演．我们必须要为自己的行为负责…](/content/transcript/2021/03/20210323-53480497.md)
 
 
 ## 頁面 32/109 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 30/109 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年5月3日盖特 20210503_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危急真相了吗，接下来的几周……全世界将在各领域．对共产党发起一次病毒真相．责任的大追讨！将是灭共的一个小风暴时刻！](/content/transcript/2021/05/20210503-53480735.md)
+
 [郭文贵2021年5月2日盖特 20210502_2吃大花卷喽……](/content/transcript/2021/05/20210502-53480730.md)
 
 [郭文贵2021年5月2日直播 20210502_1国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](/content/transcript/2021/05/20210502-53480726.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年4月21日盖特 20210421_1尊敬的戰友們好！你們健身了嗎⋯⋯你們傳播CCp病毒．香港危機真相了嗎！](/content/transcript/2021/04/20210421-53480676.md)
 
 [郭文贵2021年4月20日盖特 20210420_2向战友们嘚瑟一下·G翻身新的帽子……一切都已经开始！](/content/transcript/2021/04/20210420-53480674.md)
-
-[郭文贵2021年4月20日盖特 20210420_1尊敬的战友们好．美中刚刚 想了环境天气的双休高潮后！共产党为什么又在这个病毒肆虐的时候．高调的开启BGY海南论坛，再再推出老妈咪．大老仟．王岐山出来公关？( (习大神，三天不学习，赶](/content/transcript/2021/04/20210420-53480671.md)
 
 
 ## 頁面 30/109 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

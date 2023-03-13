@@ -3,6 +3,8 @@
 
 ## 頁面 33/109 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年3月23日盖特 20210323_2文贵紧急的呼吁所有的战友们……一定要严肃对待．以各种名义的假战友的欺骗行为……任何战友再上当受骗．文贵不会再承担任何责任，防止九指妖事件的重演．我们必须要为自己的行为负责…](/content/transcript/2021/03/20210323-53480497.md)
+
 [郭文贵2021年3月23日盖特 20210323_1衷心地感谢澳喜农场！和全球的农场战友的努力在GTV上所做的这些真实自然精美的视频直播！七哥明天上午直播乱聊，一切都已经开始！](/content/transcript/2021/03/20210323-53480492.md)
 
 [郭文贵2021年3月22日盖特 20210322_2很多战友都发信息问．文贵阻止了一场什么样的战争……我现在就严肃地给大家解开这个谜题！共产党的战狼外交政策，将使我们的同胞们一起走向地狱……一个十几亿人的国家被几个流氓无知的](/content/transcript/2021/03/20210322-53480488.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年3月15日盖特 20210315_4尊敬的战友们好，今天第三次发盖特，回答很多很多战友．问文贵如何与父母和家人．更好的相处的方式！](/content/transcript/2021/03/20210315-53480410.md)
 
 [郭文贵2021年3月15日盖特 20210315_3今天第二个盖特．回答很多战友对家庭和父母的关系的一些问题，为什么文贵说！ 家 人 生 根 地， 国 权 命 本 天 父母和你之间的磁场的联系，就是你的风水．就是你的运气，就是你的健康，也是](/content/transcript/2021/03/20210315-53480407.md)
-
-[郭文贵2021年3月15日盖特 20210315_2尊敬的战友们好……文贵与大家回顾一下，1月5号至16号间中美之间险些发生真正的战争的背后的故事…](/content/transcript/2021/03/20210315-53480404.md)
 
 
 ## 頁面 33/109 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)

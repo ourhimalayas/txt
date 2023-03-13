@@ -3,6 +3,8 @@
 
 ## 頁面 67/109 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了](/content/transcript/2019/10/20191008-53479042.md)
+
 [郭文贵2019年10月7日 20191007谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/transcript/2019/10/20191007-53483676.md)
 
 [郭文贵2019年10月6日 20191006试直播](/content/transcript/2019/10/20191006-53478046.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年9月27日 20190927_2江泽民：中国要出事，你们都跑路吧](/content/transcript/2019/09/20190927-53478064.md)
 
 [郭文贵2019年9月26日视频 20190926_1教大家怎麼吃金槍魚 這是我的午餐 大家知道我今天要幹嘛了吧](/content/transcript/2019/09/20190926-53479015.md)
-
-[郭文贵2019年9月25日视频 20190925_1請大家關注美國的雷霆行動](/content/transcript/2019/09/20190925-53479013.md)
 
 
 ## 頁面 67/109 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)

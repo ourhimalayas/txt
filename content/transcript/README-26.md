@@ -3,6 +3,8 @@
 
 ## 頁面 26/109 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年6月20日直播 20210620_1文贵代表爆料革命，新中国联邦向西方世界再次发出警告，希望各西方政府高度重视，做好准备！吴征，三品澜的作案工具不简单！](/content/transcript/2021/06/20210620-53481070.md)
+
 [郭文贵2021年6月19日盖特 20210619_2聊聊昨天接到了国内被以黄灭共吓破胆人的电话……！](/content/transcript/2021/06/20210619-53481088.md)
 
 [郭文贵2021年6月19日盖特 20210619_1](/content/transcript/2021/06/20210619-53481081.md)
@@ -50,8 +52,6 @@
 [郭文贵2021年6月5日盖特 20210605_2与SNOW 玩对食！](/content/transcript/2021/06/20210605-53480995.md)
 
 [郭文贵2021年6月5日直播 20210605_1 感恩自由女神！天佑新中国联邦！](/content/transcript/2021/06/20210605-53480984.md)
-
-[郭文贵2021年6月5日盖特 20210605_5七哥代表14亿新中国联邦人感谢．愿拜自由女神！(三)](/content/transcript/2021/06/20210605-53479320.md)
 
 
 ## 頁面 26/109 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
