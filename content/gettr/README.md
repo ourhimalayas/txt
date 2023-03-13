@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/12/2023 11:28 PM UTC  - :tv:直播](/content/gettr/p2b9x8jf2e8.md)
+
+3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/12/23/9de0b2c6-6940-6987-8115-846ecdcd4d96/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/12/2023 10:00 PM UTC  - :tv:直播](/content/gettr/p2b94i3029a.md)
 
 3/12/2023 Miles Guo: Wang Qishan, Neil Shen, and Alvin Jiang deposited their money in the Silicon Valley Bank, whereas Silvergate Bank is No. 1 in the digital currency sector, and nearly 20% of its deposits belong to the CCP. So, w...
@@ -24,11 +32,11 @@
 
 ---
 
-[@milesguo 3/12/2023 11:28 PM UTC  - :tv:直播](/content/gettr/p2b9x8jf2e8.md)
+[@milesguo 3/13/2023 1:24 AM UTC  - :tv:直播](/content/gettr/p2b9doxc0ab.md)
 
-3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
+3/12/2023 Miles Guo: America will not be able to save itself from this financial crisis! The CCP made it clear in 2000 that there would be a war between the US and Communist China! The US is setting itself up for a massive disaster...
 
-<img src="https://media.gettr.com/group5/getter/2023/03/12/23/9de0b2c6-6940-6987-8115-846ecdcd4d96/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/13/01/f1f1d690-66c1-b979-c659-15c1c222b017/out.jpg" width="506" height="284">
 
 ---
 
@@ -125,14 +133,6 @@ Pras Michel, from famous musician to CCP accomplice. (Part4)
 2023.03.12 【七哥的大胡子越看越好看😊】
 
 <img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 3:30 PM UTC  - :tv:直播](/content/gettr/p2b51772fdb.md)
-
-2023.03.11 尊敬的战友们好！在今天这个311共产党对全世界发动发动的第三次全面综合性的战争日。新中国联邦是拥有上天的恩赐的人群，我们是唯一拥有希望，安全，健康，财富，和使命．的全人类希望的群体，一切已经开始！
-
-<img src="https://media.gettr.com/group9/getter/2023/03/11/15/601ad42f-379d-af6d-8f35-027d9db4f01b/out.jpg" width="506" height="284">
 
 ---
 
