@@ -2,6 +2,38 @@
 ---
 
 
+[@heknows 3/13/2023 1:50 AM UTC  - :tv:直播](/content/gettr/p2ba3fg82d1.md)
+
+Mass banking crash coming?
+
+
+
+#heknows 
+
+#rockenglish
+
+#chrisc1776
+
+<img src="https://media.gettr.com/group8/getter/2023/03/13/01/3cc14d18-a456-561d-ea20-b6eff951964d/2fef4990fdb89b9fc814533c5b0ee19f.png" width="506" height="284">
+
+---
+
+[@milesguo 3/13/2023 2:52 AM UTC  - :tv:直播](/content/gettr/p2baer6fbe5.md)
+
+2023.03.12【 万分感谢天圆地方战友的视频制作】
+
+<img src="https://media.gettr.com/group12/getter/2023/03/13/02/5fa824b6-79c1-4562-f406-320f09ca2725/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/13/2023 1:24 AM UTC  - :tv:直播](/content/gettr/p2b9doxc0ab.md)
+
+3/12/2023 Miles Guo: America will not be able to save itself from this financial crisis! The CCP made it clear in 2000 that there would be a war between the US and Communist China! The US is setting itself up for a massive disaster...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/13/01/f1f1d690-66c1-b979-c659-15c1c222b017/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/12/2023 11:28 PM UTC  - :tv:直播](/content/gettr/p2b9x8jf2e8.md)
 
 3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
@@ -32,11 +64,11 @@
 
 ---
 
-[@milesguo 3/13/2023 1:24 AM UTC  - :tv:直播](/content/gettr/p2b9doxc0ab.md)
+[@milesguo 3/13/2023 2:52 AM UTC  - :tv:直播](/content/gettr/p2baety1e5e.md)
 
-3/12/2023 Miles Guo: America will not be able to save itself from this financial crisis! The CCP made it clear in 2000 that there would be a war between the US and Communist China! The US is setting itself up for a massive disaster...
+3/12/2023 Miles Guo: all Chinese people would be involved after the investigation of the origin of CCP virus and vaccine disaster, including overseas Chinese; those oversea Chinese people who have helped the CCP set up underground ...
 
-<img src="https://media.gettr.com/group9/getter/2023/03/13/01/f1f1d690-66c1-b979-c659-15c1c222b017/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/13/02/f0358c2f-e539-40eb-3ded-5e74553f0554/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,30 +165,6 @@ Pras Michel, from famous musician to CCP accomplice. (Part4)
 2023.03.12 【七哥的大胡子越看越好看😊】
 
 <img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 3:40 PM UTC  - :tv:直播](/content/gettr/p2b5ig37f42.md)
-
-2023.03.11 The US must investigate the relationship between Fauci and WIV's director Wang Yanyi and her husband. That's the key to find out the true origin of the Covid. Mr. Grant talked about Miles Guo's 2017 news release on the C...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/11/15/8ebe5c52-145e-a59f-d283-e7efdabaf81c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 9:42 PM UTC  - :tv:直播](/content/gettr/p2b6bgs199c.md)
-
-3/11/2023 Miles Guo: What is happening on 311 (March 11) is much worse than that of 911; Silvergate Bank, Silicon Valley Bank, USDC and USDT are collapsing one after another … behind the scenes, the Communist Party has been withdra...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/11/21/2fd12957-399d-89d9-4606-d6ebd2ad7ccc/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/11/2023 10:11 PM UTC  - :tv:直播](/content/gettr/p2b5zjk8f3d.md)
-
-3/11/2023 Miles Guo: Why did Saudi Arabia and Iran suddenly announce the re-establishment of their diplomatic relations right after the completion of the Two Sessions of the CCP? How come the Russian missiles have suddenly become s...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/11/22/4a3db9e1-0eff-831c-6526-960a3abdcb4c/out.jpg" width="506" height="284">
 
 ---
 
