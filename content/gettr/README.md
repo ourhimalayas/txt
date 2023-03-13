@@ -2,15 +2,19 @@
 ---
 
 
-[@newyorkrock 3/13/2023 8:03 PM UTC  - :tv:直播](/content/gettr/p2bct20a3c5.md)
+[@milesguo 3/12/2023 7:49 PM UTC  - 6圖](/content/gettr/p2b98xwd6fb.md)
 
-《时间点Time Line》第三十六期：从福奇与王延轶的奸情到美国对中共的病毒溯源
+2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（四）
 
-主持：青藤
+<img src="https://media.gettr.com/group6/getter/2023/03/12/19/7cc17fe1-21d9-14f3-38bb-c6e4a707e459/08c6cd05fe1cefcbebffc4e548be2378.JPG" width="506" height="284">
 
-嘉宾：QMAY、苍天饶过誰64
+---
 
-<img src="https://media.gettr.com/group10/origin/2023/03/06/15/1db2d400-db04-d970-23d2-fde764161f06/b13ff02416380e2d2f0f697fb939379c.jpeg" width="506" height="284">
+[@milesguo 3/13/2023 8:41 PM UTC ](/content/gettr/p2bcz2k738c.md)
+
+2023.03.13 尊敬的战友们好......由于七哥有一系列的事情要忙......原定美东时间周二早上的直播改成美东时间周三早上直播......一切都已经开始🙏
+
+<img src="https://media.gettr.com/group10/getter/2023/03/13/20/76b5ccee-5692-7fed-eaaa-d0b455a63c75/1188e3c988620556f7135106c32719a4.JPG" width="506" height="284">
 
 ---
 
@@ -53,14 +57,6 @@
 3/12/2023 文贵直播:  ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/13/12/91f43ac3-b031-3197-a34a-adf492ac4466/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 8:41 PM UTC ](/content/gettr/p2bcz2k738c.md)
-
-2023.03.13 尊敬的战友们好......由于七哥有一系列的事情要忙......原定美东时间周二早上的直播改成美东时间周三早上直播......一切都已经开始🙏
-
-<img src="https://media.gettr.com/group10/getter/2023/03/13/20/76b5ccee-5692-7fed-eaaa-d0b455a63c75/1188e3c988620556f7135106c32719a4.JPG" width="506" height="284">
 
 ---
 
