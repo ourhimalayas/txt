@@ -18,11 +18,27 @@ Mass banking crash coming?
 
 ---
 
+[@milesguo 3/13/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bae0t7758.md)
+
+3/12/2023 Miles Guo: Only when we are strong can we take down the CCP. I will turn the memories of my younger brother and parents into bullets and forces against the CCP so that future generations of the CCP will suffer the extreme...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/13/06/07293da4-d125-81ca-aa58-0dd79acbe241/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/13/2023 2:52 AM UTC  - :tv:直播](/content/gettr/p2baer6fbe5.md)
 
 2023.03.12【 万分感谢天圆地方战友的视频制作】
 
 <img src="https://media.gettr.com/group12/getter/2023/03/13/02/5fa824b6-79c1-4562-f406-320f09ca2725/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/13/2023 2:52 AM UTC  - :tv:直播](/content/gettr/p2baety1e5e.md)
+
+3/12/2023 Miles Guo: all Chinese people would be involved after the investigation of the origin of CCP virus and vaccine disaster, including overseas Chinese; those oversea Chinese people who have helped the CCP set up underground ...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/13/02/f0358c2f-e539-40eb-3ded-5e74553f0554/out.jpg" width="506" height="284">
 
 ---
 
@@ -61,14 +77,6 @@ Mass banking crash coming?
 3/12/2023 文贵直播：韩正不会像王岐山一样等死，他...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/12/21/10bec369-ba9f-a6c8-f688-bf8adafa4f06/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 2:52 AM UTC  - :tv:直播](/content/gettr/p2baety1e5e.md)
-
-3/12/2023 Miles Guo: all Chinese people would be involved after the investigation of the origin of CCP virus and vaccine disaster, including overseas Chinese; those oversea Chinese people who have helped the CCP set up underground ...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/13/02/f0358c2f-e539-40eb-3ded-5e74553f0554/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,38 +173,6 @@ Pras Michel, from famous musician to CCP accomplice. (Part4)
 2023.03.12 【七哥的大胡子越看越好看😊】
 
 <img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
-
----
-
-[@longwood 3/11/2023 9:22 PM UTC ](/content/gettr/p2b5vofe932.md)
-
-高盛表示，逢低买入银行股，因为硅谷银行危机不太可能蔓延
-
-
-
-BILL ACKMAN 表示，如果我们不救助 SVB——这将摧毁 65,000 家创新公司 
-
-
-
-在硅谷银行的1610亿美元存款中，超过93%没有得到FDIC的保险。
-
-
-
-哈里和梅根将在硅谷银行倒闭中损失数百万美元。
-
-
-
-奥普拉将损失 5.9 亿美元。
-
-
-
-好莱坞精英、气候变化公司和亿万富翁将因唤醒银行的倒闭而毁于一旦。 
-
-
-
-*SVB PAID OUT BONUSES AHEAD OF...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/11/21/a2b7b4f2-5ed8-ef3a-3cef-682fa0eb7b4f/4a7338f438babc3e52a0f4ab36f0ba60.png" width="506" height="284">
 
 ---
 
