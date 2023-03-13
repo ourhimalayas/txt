@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/13/2023 3:38 PM UTC  - :tv:直播](/content/gettr/p2bbizx1e1e.md)
+
+2023.03.13 尊敬的战友们好……快忙疯了，感触太多了感恩万福万神对新中国联邦的照顾恩赐，珍惜吧兄弟姐妹吗！
+
+<img src="https://media.gettr.com/group4/getter/2023/03/13/15/9f020f19-aa2b-6033-c6c9-bac62ca8da6a/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/13/2023 1:53 PM UTC  - :tv:直播](/content/gettr/p2bb87b0bc9.md)
 
 3/12/2023 Miles Guo: The U.S. and Communist China are fighting over the power to establish future blockchain standards. The New Federal of China will benefit from the fight and emerge as the ultimate winner.
@@ -36,11 +44,15 @@
 
 ---
 
-[@milesguo 3/13/2023 3:38 PM UTC  - :tv:直播](/content/gettr/p2bbizx1e1e.md)
+[@newyorkrock 3/13/2023 8:03 PM UTC  - :tv:直播](/content/gettr/p2bct20a3c5.md)
 
-2023.03.13 尊敬的战友们好……快忙疯了，感触太多了感恩万福万神对新中国联邦的照顾恩赐，珍惜吧兄弟姐妹吗！
+《时间点Time Line》第三十六期：从福奇与王延轶的奸情到美国对中共的病毒溯源
 
-<img src="https://media.gettr.com/group4/getter/2023/03/13/15/9f020f19-aa2b-6033-c6c9-bac62ca8da6a/out.jpg" width="506" height="284">
+主持：青藤
+
+嘉宾：QMAY、苍天饶过誰64
+
+<img src="https://media.gettr.com/group10/origin/2023/03/06/15/1db2d400-db04-d970-23d2-fde764161f06/b13ff02416380e2d2f0f697fb939379c.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +157,6 @@ Mass banking crash coming?
 #endingOfXitheDeadEmperor #huclearWar #KingofMiddleEast #RussiaUkrain...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/12/21/b02c0320-844f-7ba8-4a74-5e7fb8f18fe2/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 7:49 PM UTC  - 6圖](/content/gettr/p2b9fn195f7.md)
-
-2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（三）
-
-<img src="https://media.gettr.com/group6/getter/2023/03/12/19/843b280e-9dc1-a107-5cbf-7c9be07c1ed4/3f0d6bc7460e080ba4ff7489de212dee.JPG" width="506" height="284">
 
 ---
 
