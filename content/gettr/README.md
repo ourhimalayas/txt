@@ -2,6 +2,16 @@
 ---
 
 
+[@milesguo 3/13/2023 12:41 PM UTC  - :tv:直播](/content/gettr/p2bbf0w8f0f.md)
+
+2023.03.13 The vast majority of Silicon Valley Bank's clients are collaborators of the Communist Party, and its collapse means that all their money has been wiped out.
+
+硅谷银行的绝大多数的客户都是共产党的合作者，它的倒闭意味着这些人的钱都灰飞烟灭了。
+
+<img src="https://media.gettr.com/group4/getter/2023/03/13/12/26799566-8af4-e2f9-bedf-562208ef43b1/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/13/2023 12:16 PM UTC  - :tv:直播](/content/gettr/p2bbapre299.md)
 
 3/12/2023 Miles Guo: Xi Jinping and the CCP leave the world only one option: you let me be the boss; otherwise, I will destroy you completely!
@@ -16,13 +26,13 @@
 
 ---
 
-[@milesguo 3/13/2023 12:41 PM UTC  - :tv:直播](/content/gettr/p2bbf0w8f0f.md)
+[@milesguo 3/13/2023 1:53 PM UTC  - :tv:直播](/content/gettr/p2bb87b0bc9.md)
 
-2023.03.13 The vast majority of Silicon Valley Bank's clients are collaborators of the Communist Party, and its collapse means that all their money has been wiped out.
+3/12/2023 Miles Guo: The U.S. and Communist China are fighting over the power to establish future blockchain standards. The New Federal of China will benefit from the fight and emerge as the ultimate winner.
 
-硅谷银行的绝大多数的客户都是共产党的合作者，它的倒闭意味着这些人的钱都灰飞烟灭了。
+#blockchain #digitalcu...
 
-<img src="https://media.gettr.com/group4/getter/2023/03/13/12/26799566-8af4-e2f9-bedf-562208ef43b1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/13/13/4c844518-6d97-553c-ffee-6322b6eaa217/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +191,6 @@ Mass banking crash coming?
 应战友们的要求……发个小SEVEN视频！
 
 <img src="https://media.gettr.com/group5/getter/2023/03/12/19/4cfccd70-1a1a-11c6-3719-3b1e80cd9e1a/out.jpg" width="506" height="284">
-
----
-
-[@michaelyhon 3/12/2023 6:27 PM UTC  - :tv:直播](/content/gettr/p2b8xjfcf06.md)
-
-Pras Michel, from famous musician to CCP accomplice. (Part4)
-
-<img src="https://media.gettr.com/group11/getter/2023/03/12/18/ff570d49-ad47-1a8a-8adb-62ea54b775fe/3cdfffbe492ce43c869b072db784a191.png" width="506" height="284">
 
 ---
 
