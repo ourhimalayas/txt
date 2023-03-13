@@ -2,6 +2,16 @@
 ---
 
 
+[@milesguo 3/13/2023 1:53 PM UTC  - :tv:直播](/content/gettr/p2bb87b0bc9.md)
+
+3/12/2023 Miles Guo: The U.S. and Communist China are fighting over the power to establish future blockchain standards. The New Federal of China will benefit from the fight and emerge as the ultimate winner.
+
+#blockchain #digitalcu...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/13/13/4c844518-6d97-553c-ffee-6322b6eaa217/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/13/2023 12:41 PM UTC  - :tv:直播](/content/gettr/p2bbf0w8f0f.md)
 
 2023.03.13 The vast majority of Silicon Valley Bank's clients are collaborators of the Communist Party, and its collapse means that all their money has been wiped out.
@@ -26,13 +36,11 @@
 
 ---
 
-[@milesguo 3/13/2023 1:53 PM UTC  - :tv:直播](/content/gettr/p2bb87b0bc9.md)
+[@milesguo 3/13/2023 3:38 PM UTC  - :tv:直播](/content/gettr/p2bbizx1e1e.md)
 
-3/12/2023 Miles Guo: The U.S. and Communist China are fighting over the power to establish future blockchain standards. The New Federal of China will benefit from the fight and emerge as the ultimate winner.
+2023.03.13 尊敬的战友们好……快忙疯了，感触太多了感恩万福万神对新中国联邦的照顾恩赐，珍惜吧兄弟姐妹吗！
 
-#blockchain #digitalcu...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/13/13/4c844518-6d97-553c-ffee-6322b6eaa217/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/13/15/9f020f19-aa2b-6033-c6c9-bac62ca8da6a/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,14 +145,6 @@ Mass banking crash coming?
 #endingOfXitheDeadEmperor #huclearWar #KingofMiddleEast #RussiaUkrain...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/12/21/b02c0320-844f-7ba8-4a74-5e7fb8f18fe2/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 7:48 PM UTC  - 6圖](/content/gettr/p2b8jrma2f6.md)
-
-2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（一）
-
-<img src="https://media.gettr.com/group9/getter/2023/03/12/19/164e25af-b0c3-171b-7758-f5e7f3c60447/e654591ef4c2cc6fa907ae49c77adf84.JPG" width="506" height="284">
 
 ---
 
