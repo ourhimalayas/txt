@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/13/2023 9:32 AM UTC  - :tv:直播](/content/gettr/p2baens6184.md)
+
+3/12/2023 Miles Guo: I said a few years ago that all global financial crises must begin with the banks; the collapse of SVB, Blackstone, and the ensuing USDT, USDC would have a devastating impact equivalent to WWI and WWII combined...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/13/09/21f75991-ed9b-ce7c-4579-f9319e3aa3c3/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/13/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bae0t7758.md)
 
 3/12/2023 Miles Guo: Only when we are strong can we take down the CCP. I will turn the memories of my younger brother and parents into bullets and forces against the CCP so that future generations of the CCP will suffer the extreme...
@@ -26,11 +34,11 @@ Mass banking crash coming?
 
 ---
 
-[@milesguo 3/13/2023 9:32 AM UTC  - :tv:直播](/content/gettr/p2baens6184.md)
+[@milesguo 3/13/2023 12:03 PM UTC  - :tv:直播](/content/gettr/p2bawe25f4c.md)
 
-3/12/2023 Miles Guo: I said a few years ago that all global financial crises must begin with the banks; the collapse of SVB, Blackstone, and the ensuing USDT, USDC would have a devastating impact equivalent to WWI and WWII combined...
+3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/13/09/21f75991-ed9b-ce7c-4579-f9319e3aa3c3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/13/12/c89774ff-b018-f397-69c9-51cf12bc02ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -55,14 +63,6 @@ Mass banking crash coming?
 3/12/2023 Miles Guo: America will not be able to save itself from this financial crisis! The CCP made it clear in 2000 that there would be a war between the US and Communist China! The US is setting itself up for a massive disaster...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/13/01/f1f1d690-66c1-b979-c659-15c1c222b017/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 11:28 PM UTC  - :tv:直播](/content/gettr/p2b9x8jf2e8.md)
-
-3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/12/23/9de0b2c6-6940-6987-8115-846ecdcd4d96/out.jpg" width="506" height="284">
 
 ---
 
