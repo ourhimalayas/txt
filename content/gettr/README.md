@@ -16,6 +16,24 @@
 
 ---
 
+[@milesguo 3/13/2023 12:41 PM UTC  - :tv:直播](/content/gettr/p2bbf0w8f0f.md)
+
+2023.03.13 The vast majority of Silicon Valley Bank's clients are collaborators of the Communist Party, and its collapse means that all their money has been wiped out.
+
+硅谷银行的绝大多数的客户都是共产党的合作者，它的倒闭意味着这些人的钱都灰飞烟灭了。
+
+<img src="https://media.gettr.com/group4/getter/2023/03/13/12/26799566-8af4-e2f9-bedf-562208ef43b1/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/13/2023 12:29 PM UTC  - :tv:直播](/content/gettr/p2bapb5f0d2.md)
+
+2023.03.13 The collapse of Silicon Valley Bank opened the prelude to a global financial crisis. Looking into history, many Americans starved to death during the Great Depression after World War I. USDC, USDT and Black Rock are the ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/13/12/4a1fd3d4-e905-440c-c0fd-213051c134ef/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/13/2023 12:03 PM UTC  - :tv:直播](/content/gettr/p2bawe25f4c.md)
 
 3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
@@ -53,14 +71,6 @@ Mass banking crash coming?
 #chrisc1776
 
 <img src="https://media.gettr.com/group8/getter/2023/03/13/01/3cc14d18-a456-561d-ea20-b6eff951964d/2fef4990fdb89b9fc814533c5b0ee19f.png" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 12:29 PM UTC  - :tv:直播](/content/gettr/p2bapb5f0d2.md)
-
-2023.03.13 The collapse of Silicon Valley Bank opened the prelude to a global financial crisis. Looking into history, many Americans starved to death during the Great Depression after World War I. USDC, USDT and Black Rock are the ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/13/12/4a1fd3d4-e905-440c-c0fd-213051c134ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +189,6 @@ Mass banking crash coming?
 Pras Michel, from famous musician to CCP accomplice. (Part4)
 
 <img src="https://media.gettr.com/group11/getter/2023/03/12/18/ff570d49-ad47-1a8a-8adb-62ea54b775fe/3cdfffbe492ce43c869b072db784a191.png" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 3:38 PM UTC  - 6圖](/content/gettr/p2b8hsh6307.md)
-
-2023.03.12 无处不在的Gfashion．新中国联邦……
-
-<img src="https://media.gettr.com/group3/getter/2023/03/12/15/cd6c30ab-a696-daef-3fcd-932cbab8c860/bd2fec7f81a03e5bb22cc56e9ff6f4da.jpg" width="506" height="284">
 
 ---
 
