@@ -2,6 +2,28 @@
 ---
 
 
+[@milesguo 3/13/2023 12:16 PM UTC  - :tv:直播](/content/gettr/p2bbapre299.md)
+
+3/12/2023 Miles Guo: Xi Jinping and the CCP leave the world only one option: you let me be the boss; otherwise, I will destroy you completely!
+
+#XiJinping #middleeast #originofcovid #decouple #RussiaUkraineWar
+
+ 
+
+3/12/2023 文贵直播:  ...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/13/12/91f43ac3-b031-3197-a34a-adf492ac4466/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/13/2023 12:03 PM UTC  - :tv:直播](/content/gettr/p2bawe25f4c.md)
+
+3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/13/12/c89774ff-b018-f397-69c9-51cf12bc02ff/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/13/2023 9:32 AM UTC  - :tv:直播](/content/gettr/p2baens6184.md)
 
 3/12/2023 Miles Guo: I said a few years ago that all global financial crises must begin with the banks; the collapse of SVB, Blackstone, and the ensuing USDT, USDC would have a devastating impact equivalent to WWI and WWII combined...
@@ -34,11 +56,11 @@ Mass banking crash coming?
 
 ---
 
-[@milesguo 3/13/2023 12:03 PM UTC  - :tv:直播](/content/gettr/p2bawe25f4c.md)
+[@milesguo 3/13/2023 12:29 PM UTC  - :tv:直播](/content/gettr/p2bapb5f0d2.md)
 
-3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
+2023.03.13 The collapse of Silicon Valley Bank opened the prelude to a global financial crisis. Looking into history, many Americans starved to death during the Great Depression after World War I. USDC, USDT and Black Rock are the ...
 
-<img src="https://media.gettr.com/group5/getter/2023/03/13/12/c89774ff-b018-f397-69c9-51cf12bc02ff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/13/12/4a1fd3d4-e905-440c-c0fd-213051c134ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +187,6 @@ Pras Michel, from famous musician to CCP accomplice. (Part4)
 2023.03.12 无处不在的Gfashion．新中国联邦……
 
 <img src="https://media.gettr.com/group3/getter/2023/03/12/15/cd6c30ab-a696-daef-3fcd-932cbab8c860/bd2fec7f81a03e5bb22cc56e9ff6f4da.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 12:44 PM UTC  - :tv:直播](/content/gettr/p2b7kcm569c.md)
-
-2023.03.12 文贵大直播
-
-<img src="https://media.gettr.com/group12/origin/2023/03/12/12/62e5520d-f9ab-c94b-3e4c-65a156735194/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 5:47 AM UTC  - :tv:直播](/content/gettr/p2b76i641f8.md)
-
-2023.03.12 【七哥的大胡子越看越好看😊】
-
-<img src="https://media.gettr.com/group10/getter/2023/03/12/05/f8918795-d156-3003-bd8c-114f5ac46e78/out.jpg" width="506" height="284">
 
 ---
 
