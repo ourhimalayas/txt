@@ -2,11 +2,11 @@
 ---
 
 
-[@milesguo 3/12/2023 7:49 PM UTC  - 6圖](/content/gettr/p2b98xwd6fb.md)
+[@milesguo 3/13/2023 10:22 PM UTC  - :tv:直播](/content/gettr/p2bdjkda320.md)
 
-2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（四）
+3/12/2023 Miles Guo: The Communist Party was so stupid and ignorant that it demanded that the US senator drop the investigation into the origin of COVID. If Chinese people still do not disassociate themselves from the CCP now, they...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/12/19/7cc17fe1-21d9-14f3-38bb-c6e4a707e459/08c6cd05fe1cefcbebffc4e548be2378.JPG" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/13/22/dbe1c401-feab-3e94-0733-8727b3c11407/out.jpg" width="506" height="284">
 
 ---
 
