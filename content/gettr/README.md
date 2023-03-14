@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/14/2023 1:24 PM UTC  - :tv:直播](/content/gettr/p2bf15r196e.md)
+
+2023.03.14 Xi sent someone to deliver a message to Tsai Ing-wen by threatening her not to allow McCarthy to visit Taiwan. Xi is ready in all aspects to attack Taiwan at any time. He believes that the current unprecedented internati...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/14/13/b2445b6b-ebce-dfb4-feef-91bf1a8caf4a/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/14/2023 4:20 AM UTC  - :tv:直播](/content/gettr/p2bdpyjca12.md)
 
 2023.03.14 The United States single-handedly raised the wolf pup of the CCP, and now it is starting to counterattack under the leadership of Xi, the Dead Emperor. The United States cannot save itself in this financial war, and the ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@milesguo 3/14/2023 1:24 PM UTC  - :tv:直播](/content/gettr/p2bf15r196e.md)
+[@milesguo 3/14/2023 1:50 PM UTC  - :tv:直播](/content/gettr/p2bexmi7ac8.md)
 
-2023.03.14 Xi sent someone to deliver a message to Tsai Ing-wen by threatening her not to allow McCarthy to visit Taiwan. Xi is ready in all aspects to attack Taiwan at any time. He believes that the current unprecedented internati...
+2023.03.14 尊敬的战友，们好、很多战友都在问？未来人类的最安全货币和银行是那家？
 
-<img src="https://media.gettr.com/group5/getter/2023/03/14/13/b2445b6b-ebce-dfb4-feef-91bf1a8caf4a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/14/13/a1e29366-8676-a038-658d-794cc9b989b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +165,6 @@
 3/12/2023 Miles Guo: Only when we are strong can we take down the CCP. I will turn the memories of my younger brother and parents into bullets and forces against the CCP so that future generations of the CCP will suffer the extreme...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/13/06/07293da4-d125-81ca-aa58-0dd79acbe241/out.jpg" width="506" height="284">
-
----
-
-[@heknows 3/13/2023 1:50 AM UTC  - :tv:直播](/content/gettr/p2ba3fg82d1.md)
-
-Mass banking crash coming?
-
-
-
-#heknows 
-
-#rockenglish
-
-#chrisc1776
-
-<img src="https://media.gettr.com/group8/getter/2023/03/13/01/3cc14d18-a456-561d-ea20-b6eff951964d/2fef4990fdb89b9fc814533c5b0ee19f.png" width="506" height="284">
 
 ---
 
