@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/14/2023 3:09 AM UTC  - :tv:直播](/content/gettr/p2bdu3k25bd.md)
+
+3/13/2023 Miles Guo: Communist China accelerated the implementation of “Common Prosperity” policy after the “Two Sessions”; “Xi the Dead Emperor” sent a messenger to Tsai Ing-wen warning her not to invite McCarthy to Taiwan; the CC...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/14/03/0c304415-2ceb-87e7-1fe7-8b4e47d4503f/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/14/2023 1:55 AM UTC  - :tv:直播](/content/gettr/p2bdm5r0c51.md)
+
+3/13/2023 Miles Guo: We are living in two different worlds in the past few days: so many wealthy people lost all their investments and committed suicide; on the other hand, citizens of the New Federal State of China are striding in...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/14/01/42d4c52c-3cc4-539a-b949-7b0e787ef559/out.jpg" width="506" height="284">
+
+---
+
 [@hpay_athenafarm 3/11/2023 7:39 AM UTC  - :tv:直播](/content/gettr/p2b3zuk9c28.md)
 
 《美莉时刻》2023-03-11 周末娱乐版
@@ -33,14 +49,6 @@
 3/12/2023 Miles Guo: The Communist Party was so stupid and ignorant that it demanded that the US senator drop the investigation into the origin of COVID. If Chinese people still do not disassociate themselves from the CCP now, they...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/13/22/dbe1c401-feab-3e94-0733-8727b3c11407/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 1:55 AM UTC  - :tv:直播](/content/gettr/p2bdm5r0c51.md)
-
-3/13/2023 Miles Guo: We are living in two different worlds in the past few days: so many wealthy people lost all their investments and committed suicide; on the other hand, citizens of the New Federal State of China are striding in...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/14/01/42d4c52c-3cc4-539a-b949-7b0e787ef559/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,20 +179,6 @@ Mass banking crash coming?
 3/12/2023 Miles Guo: Wang Qishan, Neil Shen, and Alvin Jiang deposited their money in the Silicon Valley Bank, whereas Silvergate Bank is No. 1 in the digital currency sector, and nearly 20% of its deposits belong to the CCP. So, w...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/12/21/e2c8f41a-1b77-c504-a242-3386be11473c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 9:57 PM UTC  - :tv:直播](/content/gettr/p2b9l23e02f.md)
-
-3/12/2023 Miles Guo: Han Zheng won’t stay idle and wait to be killed like what Wang Qishan did, and he is absolutely capable of eliminating Xi!
-
-#HanZheng #WangQishan #XiJinping #eliminateXiJinping
-
- 
-
-3/12/2023 文贵直播：韩正不会像王岐山一样等死，他...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/12/21/10bec369-ba9f-a6c8-f688-bf8adafa4f06/out.jpg" width="506" height="284">
 
 ---
 
