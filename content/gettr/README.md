@@ -14,6 +14,32 @@
 
 ---
 
+[@milesguo 3/14/2023 4:44 PM UTC  - 6圖](/content/gettr/p2bfsgh2b4c.md)
+
+2023.03.14 尊敬的战友们好......应战友们的要求...七哥和战友们分享几张照片
+
+<img src="https://media.gettr.com/group9/getter/2023/03/14/16/148fcf48-a0c3-a37c-53e7-613deae9f77a/e8bab83b3b08f984ac5d98fa80bbd167.JPG" width="506" height="284">
+
+---
+
+[@milesguo 3/14/2023 3:38 PM UTC ](/content/gettr/p2bfhnhd8c9.md)
+
+2023.03.14 【Dr. Arne Burkhardt 展示了一个医学幻灯片，其中证实刺突蛋白几乎完全替代了精子。
+
+
+
+ 28 岁男子在疫苗注射后 140 天死亡。
+
+
+
+ 刺突蛋白在测试中显示这里几乎没有精母细胞。
+
+
+
+他说： “如果我是生育年龄的女性，我不会让一个接种过疫苗的男性让我受孕。”】
+
+---
+
 [@milesguo 3/14/2023 1:50 PM UTC  - :tv:直播](/content/gettr/p2bexmi7ac8.md)
 
 2023.03.14 尊敬的战友，们好、很多战友都在问？未来人类的最安全货币和银行是那家？
@@ -35,24 +61,6 @@
 2023.03.14 The United States single-handedly raised the wolf pup of the CCP, and now it is starting to counterattack under the leadership of Xi, the Dead Emperor. The United States cannot save itself in this financial war, and the ...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/14/04/908d264d-3cc6-5abe-f8ab-c76e919262f3/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 3:38 PM UTC ](/content/gettr/p2bfhnhd8c9.md)
-
-2023.03.14 【Dr. Arne Burkhardt 展示了一个医学幻灯片，其中证实刺突蛋白几乎完全替代了精子。
-
-
-
- 28 岁男子在疫苗注射后 140 天死亡。
-
-
-
- 刺突蛋白在测试中显示这里几乎没有精母细胞。
-
-
-
-他说： “如果我是生育年龄的女性，我不会让一个接种过疫苗的男性让我受孕。”】
 
 ---
 
@@ -187,14 +195,6 @@
 3/12/2023 Miles Guo: I said a few years ago that all global financial crises must begin with the banks; the collapse of SVB, Blackstone, and the ensuing USDT, USDC would have a devastating impact equivalent to WWI and WWII combined...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/13/09/21f75991-ed9b-ce7c-4579-f9319e3aa3c3/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bae0t7758.md)
-
-3/12/2023 Miles Guo: Only when we are strong can we take down the CCP. I will turn the memories of my younger brother and parents into bullets and forces against the CCP so that future generations of the CCP will suffer the extreme...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/13/06/07293da4-d125-81ca-aa58-0dd79acbe241/out.jpg" width="506" height="284">
 
 ---
 
