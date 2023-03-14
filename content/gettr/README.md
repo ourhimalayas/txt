@@ -2,6 +2,26 @@
 ---
 
 
+[@newyorkrock 3/14/2023 2:30 PM UTC  - :tv:直播](/content/gettr/p2bfg0yc9e6.md)
+
+《时间点Time Line》第三十六期：从福奇与王延轶的奸情到美国对中共的病毒溯源
+
+主持：青藤
+
+嘉宾：QMAY、苍天饶过誰64
+
+<img src="https://media.gettr.com/group10/origin/2023/03/06/15/1db2d400-db04-d970-23d2-fde764161f06/11e09f8c793c7245d765e80f2e9dc5eb.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/14/2023 1:50 PM UTC  - :tv:直播](/content/gettr/p2bexmi7ac8.md)
+
+2023.03.14 尊敬的战友，们好、很多战友都在问？未来人类的最安全货币和银行是那家？
+
+<img src="https://media.gettr.com/group9/getter/2023/03/14/13/a1e29366-8676-a038-658d-794cc9b989b2/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/14/2023 1:24 PM UTC  - :tv:直播](/content/gettr/p2bf15r196e.md)
 
 2023.03.14 Xi sent someone to deliver a message to Tsai Ing-wen by threatening her not to allow McCarthy to visit Taiwan. Xi is ready in all aspects to attack Taiwan at any time. He believes that the current unprecedented internati...
@@ -18,11 +38,21 @@
 
 ---
 
-[@milesguo 3/14/2023 1:50 PM UTC  - :tv:直播](/content/gettr/p2bexmi7ac8.md)
+[@milesguo 3/14/2023 3:38 PM UTC ](/content/gettr/p2bfhnhd8c9.md)
 
-2023.03.14 尊敬的战友，们好、很多战友都在问？未来人类的最安全货币和银行是那家？
+2023.03.14 【Dr. Arne Burkhardt 展示了一个医学幻灯片，其中证实刺突蛋白几乎完全替代了精子。
 
-<img src="https://media.gettr.com/group9/getter/2023/03/14/13/a1e29366-8676-a038-658d-794cc9b989b2/out.jpg" width="506" height="284">
+
+
+ 28 岁男子在疫苗注射后 140 天死亡。
+
+
+
+ 刺突蛋白在测试中显示这里几乎没有精母细胞。
+
+
+
+他说： “如果我是生育年龄的女性，我不会让一个接种过疫苗的男性让我受孕。”】
 
 ---
 
@@ -165,22 +195,6 @@
 3/12/2023 Miles Guo: Only when we are strong can we take down the CCP. I will turn the memories of my younger brother and parents into bullets and forces against the CCP so that future generations of the CCP will suffer the extreme...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/13/06/07293da4-d125-81ca-aa58-0dd79acbe241/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 2:52 AM UTC  - :tv:直播](/content/gettr/p2baer6fbe5.md)
-
-2023.03.12【 万分感谢天圆地方战友的视频制作】
-
-<img src="https://media.gettr.com/group12/getter/2023/03/13/02/5fa824b6-79c1-4562-f406-320f09ca2725/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 2:52 AM UTC  - :tv:直播](/content/gettr/p2baety1e5e.md)
-
-3/12/2023 Miles Guo: all Chinese people would be involved after the investigation of the origin of CCP virus and vaccine disaster, including overseas Chinese; those oversea Chinese people who have helped the CCP set up underground ...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/13/02/f0358c2f-e539-40eb-3ded-5e74553f0554/out.jpg" width="506" height="284">
 
 ---
 
