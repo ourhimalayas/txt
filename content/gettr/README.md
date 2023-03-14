@@ -10,6 +10,24 @@
 
 ---
 
+[@milesguo 3/14/2023 1:24 PM UTC  - :tv:直播](/content/gettr/p2bf15r196e.md)
+
+2023.03.14 Xi sent someone to deliver a message to Tsai Ing-wen by threatening her not to allow McCarthy to visit Taiwan. Xi is ready in all aspects to attack Taiwan at any time. He believes that the current unprecedented internati...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/14/13/b2445b6b-ebce-dfb4-feef-91bf1a8caf4a/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/14/2023 4:21 AM UTC  - :tv:直播](/content/gettr/p2be21x67ab.md)
+
+2023.03.14 XI is acting like YUAN Shikai while HAN Zheng is pretty much today’s SIMA Yi!
+
+习起到了袁世凯的作用，韩正是当今的司马懿。
+
+<img src="https://media.gettr.com/group8/getter/2023/03/14/04/06870e57-5708-4743-2fff-b6483b1e19d7/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/14/2023 3:09 AM UTC  - :tv:直播](/content/gettr/p2bdu3k25bd.md)
 
 3/13/2023 Miles Guo: Communist China accelerated the implementation of “Common Prosperity” policy after the “Two Sessions”; “Xi the Dead Emperor” sent a messenger to Tsai Ing-wen warning her not to invite McCarthy to Taiwan; the CC...
@@ -23,16 +41,6 @@
 2023.03.13  The modern Chinese history includes three generations of Chinese. Mao the first generation led China into a disaster. The generation born in the 40's and 50's is a warped generation and they are in control of China righ...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/14/01/c5052d1f-6d2c-7e90-db1f-0df2d93e4177/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 4:21 AM UTC  - :tv:直播](/content/gettr/p2be21x67ab.md)
-
-2023.03.14 XI is acting like YUAN Shikai while HAN Zheng is pretty much today’s SIMA Yi!
-
-习起到了袁世凯的作用，韩正是当今的司马懿。
-
-<img src="https://media.gettr.com/group8/getter/2023/03/14/04/06870e57-5708-4743-2fff-b6483b1e19d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Mass banking crash coming?
 3/12/2023 Miles Guo: all Chinese people would be involved after the investigation of the origin of CCP virus and vaccine disaster, including overseas Chinese; those oversea Chinese people who have helped the CCP set up underground ...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/13/02/f0358c2f-e539-40eb-3ded-5e74553f0554/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 1:24 AM UTC  - :tv:直播](/content/gettr/p2b9doxc0ab.md)
-
-3/12/2023 Miles Guo: America will not be able to save itself from this financial crisis! The CCP made it clear in 2000 that there would be a war between the US and Communist China! The US is setting itself up for a massive disaster...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/13/01/f1f1d690-66c1-b979-c659-15c1c222b017/out.jpg" width="506" height="284">
 
 ---
 
