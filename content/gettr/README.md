@@ -2,11 +2,11 @@
 ---
 
 
-[@milesguo 3/14/2023 1:47 AM UTC  - :tv:直播](/content/gettr/p2bdxdza3c2.md)
+[@milesguo 3/14/2023 4:20 AM UTC  - :tv:直播](/content/gettr/p2bdpyjca12.md)
 
-2023.03.13  The modern Chinese history includes three generations of Chinese. Mao the first generation led China into a disaster. The generation born in the 40's and 50's is a warped generation and they are in control of China righ...
+2023.03.14 The United States single-handedly raised the wolf pup of the CCP, and now it is starting to counterattack under the leadership of Xi, the Dead Emperor. The United States cannot save itself in this financial war, and the ...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/14/01/c5052d1f-6d2c-7e90-db1f-0df2d93e4177/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/14/04/908d264d-3cc6-5abe-f8ab-c76e919262f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,24 @@
 3/13/2023 Miles Guo: Communist China accelerated the implementation of “Common Prosperity” policy after the “Two Sessions”; “Xi the Dead Emperor” sent a messenger to Tsai Ing-wen warning her not to invite McCarthy to Taiwan; the CC...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/14/03/0c304415-2ceb-87e7-1fe7-8b4e47d4503f/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/14/2023 1:47 AM UTC  - :tv:直播](/content/gettr/p2bdxdza3c2.md)
+
+2023.03.13  The modern Chinese history includes three generations of Chinese. Mao the first generation led China into a disaster. The generation born in the 40's and 50's is a warped generation and they are in control of China righ...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/14/01/c5052d1f-6d2c-7e90-db1f-0df2d93e4177/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/14/2023 4:21 AM UTC  - :tv:直播](/content/gettr/p2be21x67ab.md)
+
+2023.03.14 XI is acting like YUAN Shikai while HAN Zheng is pretty much today’s SIMA Yi!
+
+习起到了袁世凯的作用，韩正是当今的司马懿。
+
+<img src="https://media.gettr.com/group8/getter/2023/03/14/04/06870e57-5708-4743-2fff-b6483b1e19d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,24 +189,6 @@ Mass banking crash coming?
 3/12/2023 Miles Guo: America will not be able to save itself from this financial crisis! The CCP made it clear in 2000 that there would be a war between the US and Communist China! The US is setting itself up for a massive disaster...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/13/01/f1f1d690-66c1-b979-c659-15c1c222b017/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 10:00 PM UTC  - :tv:直播](/content/gettr/p2b94i3029a.md)
-
-3/12/2023 Miles Guo: Wang Qishan, Neil Shen, and Alvin Jiang deposited their money in the Silicon Valley Bank, whereas Silvergate Bank is No. 1 in the digital currency sector, and nearly 20% of its deposits belong to the CCP. So, w...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/12/21/e2c8f41a-1b77-c504-a242-3386be11473c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 9:58 PM UTC  - :tv:直播](/content/gettr/p2b9hcy8be6.md)
-
-3/12/2023 Miles Guo: “Xi the Dead Emperor” won’t survive beyond the year 2025, but the disasters that he brings to humanity will go beyond anyone’s imagination!
-
-#endingOfXitheDeadEmperor #huclearWar #KingofMiddleEast #RussiaUkrain...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/12/21/b02c0320-844f-7ba8-4a74-5e7fb8f18fe2/out.jpg" width="506" height="284">
 
 ---
 
