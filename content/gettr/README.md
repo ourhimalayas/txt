@@ -10,6 +10,24 @@
 
 ---
 
+[@hpay_athenafarm 3/11/2023 7:39 AM UTC  - :tv:直播](/content/gettr/p2b3zuk9c28.md)
+
+《美莉时刻》2023-03-11 周末娱乐版
+
+歌曲：我只在乎你，甜蜜蜜，恰似你的溫柔，拜訪春天，鳳飛飛組曲，深情難忘
+
+主播：Emily艾美莉
+
+嘉宾：進撃の番茄，心靈
+
+导播：Janek
+
+海报：614
+
+<img src="https://media.gettr.com/group11/origin/2023/03/11/07/33791fa6-e34c-b319-a883-bce1485c80c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/13/2023 8:41 PM UTC ](/content/gettr/p2bcz2k738c.md)
 
 2023.03.13 尊敬的战友们好......由于七哥有一系列的事情要忙......原定美东时间周二早上的直播改成美东时间周三早上直播......一切都已经开始🙏
@@ -161,14 +179,6 @@ Mass banking crash coming?
 #endingOfXitheDeadEmperor #huclearWar #KingofMiddleEast #RussiaUkrain...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/12/21/b02c0320-844f-7ba8-4a74-5e7fb8f18fe2/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 7:50 PM UTC  - 6圖](/content/gettr/p2b94v8d2b0.md)
-
-2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（五）
-
-<img src="https://media.gettr.com/group11/getter/2023/03/12/19/9bc12b42-4a62-55dc-3d4f-9bfc2d8ca9df/bb3b3ae9eee0c9b3c62389da86ca60e6.JPG" width="506" height="284">
 
 ---
 
