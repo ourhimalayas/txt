@@ -2,11 +2,11 @@
 ---
 
 
-[@milesguo 3/13/2023 10:22 PM UTC  - :tv:直播](/content/gettr/p2bdjkda320.md)
+[@milesguo 3/14/2023 1:47 AM UTC  - :tv:直播](/content/gettr/p2bdxdza3c2.md)
 
-3/12/2023 Miles Guo: The Communist Party was so stupid and ignorant that it demanded that the US senator drop the investigation into the origin of COVID. If Chinese people still do not disassociate themselves from the CCP now, they...
+2023.03.13  The modern Chinese history includes three generations of Chinese. Mao the first generation led China into a disaster. The generation born in the 40's and 50's is a warped generation and they are in control of China righ...
 
-<img src="https://media.gettr.com/group7/getter/2023/03/13/22/dbe1c401-feab-3e94-0733-8727b3c11407/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/14/01/c5052d1f-6d2c-7e90-db1f-0df2d93e4177/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,22 @@
 海报：614
 
 <img src="https://media.gettr.com/group11/origin/2023/03/11/07/33791fa6-e34c-b319-a883-bce1485c80c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/13/2023 10:22 PM UTC  - :tv:直播](/content/gettr/p2bdjkda320.md)
+
+3/12/2023 Miles Guo: The Communist Party was so stupid and ignorant that it demanded that the US senator drop the investigation into the origin of COVID. If Chinese people still do not disassociate themselves from the CCP now, they...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/13/22/dbe1c401-feab-3e94-0733-8727b3c11407/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/14/2023 1:55 AM UTC  - :tv:直播](/content/gettr/p2bdm5r0c51.md)
+
+3/13/2023 Miles Guo: We are living in two different worlds in the past few days: so many wealthy people lost all their investments and committed suicide; on the other hand, citizens of the New Federal State of China are striding in...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/14/01/42d4c52c-3cc4-539a-b949-7b0e787ef559/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,28 +195,6 @@ Mass banking crash coming?
 #endingOfXitheDeadEmperor #huclearWar #KingofMiddleEast #RussiaUkrain...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/12/21/b02c0320-844f-7ba8-4a74-5e7fb8f18fe2/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 7:50 PM UTC  - 5圖](/content/gettr/p2b9461c834.md)
-
-2023.03.12 尊敬的战友们好.......七哥和战友们分享今日几组照片（六）
-
-<img src="https://media.gettr.com/group7/getter/2023/03/12/19/d22276fa-cd8b-ac2f-23be-50b8c6ce7e8c/cb3fcbbcfde4c39e4ca942bc1084eaf8.JPG" width="506" height="284">
-
----
-
-[@milesguo 3/12/2023 7:51 PM UTC  - :tv:直播](/content/gettr/p2b9e6d864b.md)
-
-2023.03.12 
-
-
-
-
-
-应战友们的要求……发个小SEVEN视频！
-
-<img src="https://media.gettr.com/group5/getter/2023/03/12/19/4cfccd70-1a1a-11c6-3719-3b1e80cd9e1a/out.jpg" width="506" height="284">
 
 ---
 
