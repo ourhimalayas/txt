@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/14/2023 10:19 PM UTC  - :tv:直播](/content/gettr/p2bg9paa363.md)
+
+3/14/2023 Miles Guo: CCP is the root cause for all chaos around the world … the world disasters have not been started yet … economic warfare and financial warfare … till the ultimate decoupling from CCP China … has a long way to go...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/14/22/edeebf44-543d-2126-a2aa-1dfea4bb5a22/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/14/2023 4:44 PM UTC  - 6圖](/content/gettr/p2bfsgh2b4c.md)
 
 2023.03.14 尊敬的战友们好......应战友们的要求...七哥和战友们分享几张照片
@@ -22,11 +30,13 @@
 
 ---
 
-[@milesguo 3/14/2023 10:19 PM UTC  - :tv:直播](/content/gettr/p2bg9paa363.md)
+[@milesguo 3/15/2023 2:25 AM UTC  - :tv:直播](/content/gettr/p2bhapd9ce7.md)
 
-3/14/2023 Miles Guo: CCP is the root cause for all chaos around the world … the world disasters have not been started yet … economic warfare and financial warfare … till the ultimate decoupling from CCP China … has a long way to go...
+2023.03.14  In the future, the biggest problem with this virus will be accountability, how many years will this last? Will the Chinese take 100 years or 200 years to pay the money and pay for the cost?
 
-<img src="https://media.gettr.com/group5/getter/2023/03/14/22/edeebf44-543d-2126-a2aa-1dfea4bb5a22/out.jpg" width="506" height="284">
+这个病毒未来最大的问题就是追责，追多少年？中国人是100...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/15/02/5866f741-911c-bd83-ee4b-91e3852707df/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +197,6 @@
 2023.03.13 The collapse of Silicon Valley Bank opened the prelude to a global financial crisis. Looking into history, many Americans starved to death during the Great Depression after World War I. USDC, USDT and Black Rock are the ...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/13/12/4a1fd3d4-e905-440c-c0fd-213051c134ef/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 12:03 PM UTC  - :tv:直播](/content/gettr/p2bawe25f4c.md)
-
-3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/13/12/c89774ff-b018-f397-69c9-51cf12bc02ff/out.jpg" width="506" height="284">
 
 ---
 
