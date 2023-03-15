@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/15/2023 12:40 PM UTC ](/content/gettr/p2bipx0ac19.md)
+
+2023.03.15 尊敬的战友们好......向战友们报告......七哥将无法进行今天的直播，万分的抱歉🙏🙏🙏......由于美东时间3月15日早上5点多，有超过百名FBI探员大声呼喊，敲门进行搜查，要求七哥强制被带去法院出庭审问，七哥在被FBI带上手拷，近超过一个多小时的盘审搜身后，面带微笑中带离18楼......请战友们放心🙏❤️......
+
+<img src="https://media.gettr.com/group6/getter/2023/03/15/12/b13b8c7f-d1e7-3982-9e56-ee55b10fb72f/253bdf4843d31348b62a140f5fa18168.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/15/2023 9:53 AM UTC  - :tv:直播](/content/gettr/p2bi6sp06d3.md)
 
 2023.03.15 
@@ -58,11 +66,11 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 
 ---
 
-[@milesguo 3/15/2023 12:40 PM UTC ](/content/gettr/p2bipx0ac19.md)
+[@milesguo 3/15/2023 2:31 PM UTC  - :tv:直播](/content/gettr/p2bio4da0d7.md)
 
-2023.03.15 尊敬的战友们好......向战友们报告......七哥将无法进行今天的直播，万分的抱歉🙏🙏🙏......由于美东时间3月15日早上5点多，有超过百名FBI探员大声呼喊，敲门进行搜查，要求七哥强制被带去法院出庭审问，七哥在被FBI带上手拷，近超过一个多小时的盘审搜身后，面带微笑中带离18楼......请战友们放心🙏❤️......
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back
 
-<img src="https://media.gettr.com/group6/getter/2023/03/15/12/b13b8c7f-d1e7-3982-9e56-ee55b10fb72f/253bdf4843d31348b62a140f5fa18168.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/15/14/fae6102f-fd68-8ac8-3539-936863cfebb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,16 +199,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 #blockchain #digitalcu...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/13/13/4c844518-6d97-553c-ffee-6322b6eaa217/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 12:41 PM UTC  - :tv:直播](/content/gettr/p2bbf0w8f0f.md)
-
-2023.03.13 The vast majority of Silicon Valley Bank's clients are collaborators of the Communist Party, and its collapse means that all their money has been wiped out.
-
-硅谷银行的绝大多数的客户都是共产党的合作者，它的倒闭意味着这些人的钱都灰飞烟灭了。
-
-<img src="https://media.gettr.com/group4/getter/2023/03/13/12/26799566-8af4-e2f9-bedf-562208ef43b1/out.jpg" width="506" height="284">
 
 ---
 
