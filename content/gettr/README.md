@@ -2,6 +2,16 @@
 ---
 
 
+[@milesguo 3/15/2023 2:25 AM UTC  - :tv:直播](/content/gettr/p2bhapd9ce7.md)
+
+2023.03.14  In the future, the biggest problem with this virus will be accountability, how many years will this last? Will the Chinese take 100 years or 200 years to pay the money and pay for the cost?
+
+这个病毒未来最大的问题就是追责，追多少年？中国人是100...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/15/02/5866f741-911c-bd83-ee4b-91e3852707df/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/14/2023 10:19 PM UTC  - :tv:直播](/content/gettr/p2bg9paa363.md)
 
 3/14/2023 Miles Guo: CCP is the root cause for all chaos around the world … the world disasters have not been started yet … economic warfare and financial warfare … till the ultimate decoupling from CCP China … has a long way to go...
@@ -30,13 +40,21 @@
 
 ---
 
-[@milesguo 3/15/2023 2:25 AM UTC  - :tv:直播](/content/gettr/p2bhapd9ce7.md)
+[@milesguo 3/15/2023 9:53 AM UTC  - :tv:直播](/content/gettr/p2bi6sp06d3.md)
 
-2023.03.14  In the future, the biggest problem with this virus will be accountability, how many years will this last? Will the Chinese take 100 years or 200 years to pay the money and pay for the cost?
+2023.03.15 
 
-这个病毒未来最大的问题就是追责，追多少年？中国人是100...
 
-<img src="https://media.gettr.com/group8/getter/2023/03/15/02/5866f741-911c-bd83-ee4b-91e3852707df/out.jpg" width="506" height="284">
+
+尊敬的战友们好，这不是炒作，这是逃脱，这是逃避犯罪……这些媒体是百分之百的帮凶……是协助犯罪，我要去睡一会儿了……二小时后，开始我们今天的大直播，今天是个好日子【美国主流新闻也开始炒作新冠病毒起源了，福奇危险了啊】
+
+
+
+
+
+https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-organizations-double-billi...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/15/09/35188968-85dc-543a-342e-1d346647a442/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,20 +193,6 @@
 硅谷银行的绝大多数的客户都是共产党的合作者，它的倒闭意味着这些人的钱都灰飞烟灭了。
 
 <img src="https://media.gettr.com/group4/getter/2023/03/13/12/26799566-8af4-e2f9-bedf-562208ef43b1/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 12:16 PM UTC  - :tv:直播](/content/gettr/p2bbapre299.md)
-
-3/12/2023 Miles Guo: Xi Jinping and the CCP leave the world only one option: you let me be the boss; otherwise, I will destroy you completely!
-
-#XiJinping #middleeast #originofcovid #decouple #RussiaUkraineWar
-
- 
-
-3/12/2023 文贵直播:  ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/13/12/91f43ac3-b031-3197-a34a-adf492ac4466/out.jpg" width="506" height="284">
 
 ---
 
