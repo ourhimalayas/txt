@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/15/2023 9:18 PM UTC ](/content/gettr/p2bkdqj86f2.md)
+
+2023.03.15 战友们大家好 我是郭美。半小时前接到了爸爸打来的电话 他让我向大家转达：“我很想念大家，但是请战友们不要到法院门口去等，天太冷不要冻着了，都回去吧。要谨记，所有的事情不能停！该干啥干啥。今天我回不去，但请大家放心，我很好，非常安全！” 谢谢大家的惦念，有消息会及时通知大家🙏
+
+---
+
+[@milesguo 3/15/2023 8:57 PM UTC  - :tv:直播](/content/gettr/p2bkoyv1917.md)
+
+2023.03.15  Xi, the Dead Emperor, had formed the Xi United Nations, and they confronted the Western world head-on. His madness will bring eternal disaster to humanity.
+
+习死皇组建习联合国开始与西方世界正面对抗，他的疯狂将给人类带来永不消逝的灾难。
+
+<img src="https://media.gettr.com/group10/getter/2023/03/15/20/786251ba-996c-6a95-85ec-8be0ae0e9bdb/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/15/2023 8:15 PM UTC  - :tv:直播](/content/gettr/p2bjt3e0603.md)
 
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
@@ -87,16 +103,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 嘉宾：QMAY、苍天饶过誰64
 
 <img src="https://media.gettr.com/group10/origin/2023/03/06/15/1db2d400-db04-d970-23d2-fde764161f06/11e09f8c793c7245d765e80f2e9dc5eb.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/15/2023 8:57 PM UTC  - :tv:直播](/content/gettr/p2bkoyv1917.md)
-
-2023.03.15  Xi, the Dead Emperor, had formed the Xi United Nations, and they confronted the Western world head-on. His madness will bring eternal disaster to humanity.
-
-习死皇组建习联合国开始与西方世界正面对抗，他的疯狂将给人类带来永不消逝的灾难。
-
-<img src="https://media.gettr.com/group10/getter/2023/03/15/20/786251ba-996c-6a95-85ec-8be0ae0e9bdb/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +197,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 海报：614
 
 <img src="https://media.gettr.com/group11/origin/2023/03/11/07/33791fa6-e34c-b319-a883-bce1485c80c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 10:22 PM UTC  - :tv:直播](/content/gettr/p2bdjkda320.md)
-
-3/12/2023 Miles Guo: The Communist Party was so stupid and ignorant that it demanded that the US senator drop the investigation into the origin of COVID. If Chinese people still do not disassociate themselves from the CCP now, they...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/13/22/dbe1c401-feab-3e94-0733-8727b3c11407/out.jpg" width="506" height="284">
 
 ---
 
