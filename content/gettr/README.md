@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/15/2023 8:55 PM UTC  - :tv:直播](/content/gettr/p2bkji47292.md)
+
+2023.03.15  The Middle East, which accounts for 80% of the world's oil supply, is already controlled by the CCP. The CCP’s involvement in the Russia-Ukraine war would be a disaster for the West. Xi, the dying emperor’s ambition is ...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/15/20/e29e6919-ceb4-b17a-409f-4199ff7b8758/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/15/2023 8:15 PM UTC  - :tv:直播](/content/gettr/p2bjt3e0603.md)
+
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/15/2023 2:31 PM UTC  - :tv:直播](/content/gettr/p2bio4da0d7.md)
 
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back
@@ -74,11 +90,13 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 
 ---
 
-[@milesguo 3/15/2023 8:15 PM UTC  - :tv:直播](/content/gettr/p2bjt3e0603.md)
+[@milesguo 3/15/2023 8:57 PM UTC  - :tv:直播](/content/gettr/p2bkoyv1917.md)
 
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
+2023.03.15  Xi, the Dead Emperor, had formed the Xi United Nations, and they confronted the Western world head-on. His madness will bring eternal disaster to humanity.
 
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+习死皇组建习联合国开始与西方世界正面对抗，他的疯狂将给人类带来永不消逝的灾难。
+
+<img src="https://media.gettr.com/group10/getter/2023/03/15/20/786251ba-996c-6a95-85ec-8be0ae0e9bdb/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +199,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 3/12/2023 Miles Guo: The Communist Party was so stupid and ignorant that it demanded that the US senator drop the investigation into the origin of COVID. If Chinese people still do not disassociate themselves from the CCP now, they...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/13/22/dbe1c401-feab-3e94-0733-8727b3c11407/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 8:41 PM UTC ](/content/gettr/p2bcz2k738c.md)
-
-2023.03.13 尊敬的战友们好......由于七哥有一系列的事情要忙......原定美东时间周二早上的直播改成美东时间周三早上直播......一切都已经开始🙏
-
-<img src="https://media.gettr.com/group10/getter/2023/03/13/20/76b5ccee-5692-7fed-eaaa-d0b455a63c75/1188e3c988620556f7135106c32719a4.JPG" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 3:38 PM UTC  - :tv:直播](/content/gettr/p2bbizx1e1e.md)
-
-2023.03.13 尊敬的战友们好……快忙疯了，感触太多了感恩万福万神对新中国联邦的照顾恩赐，珍惜吧兄弟姐妹吗！
-
-<img src="https://media.gettr.com/group4/getter/2023/03/13/15/9f020f19-aa2b-6033-c6c9-bac62ca8da6a/out.jpg" width="506" height="284">
 
 ---
 
