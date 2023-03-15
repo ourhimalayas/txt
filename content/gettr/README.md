@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/15/2023 2:31 PM UTC  - :tv:直播](/content/gettr/p2bio4da0d7.md)
+
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back
+
+<img src="https://media.gettr.com/group11/origin/2023/03/15/14/fae6102f-fd68-8ac8-3539-936863cfebb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/15/2023 12:40 PM UTC ](/content/gettr/p2bipx0ac19.md)
 
 2023.03.15 尊敬的战友们好......向战友们报告......七哥将无法进行今天的直播，万分的抱歉🙏🙏🙏......由于美东时间3月15日早上5点多，有超过百名FBI探员大声呼喊，敲门进行搜查，要求七哥强制被带去法院出庭审问，七哥在被FBI带上手拷，近超过一个多小时的盘审搜身后，面带微笑中带离18楼......请战友们放心🙏❤️......
@@ -66,11 +74,11 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 
 ---
 
-[@milesguo 3/15/2023 2:31 PM UTC  - :tv:直播](/content/gettr/p2bio4da0d7.md)
+[@milesguo 3/15/2023 8:15 PM UTC  - :tv:直播](/content/gettr/p2bjt3e0603.md)
 
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
 
-<img src="https://media.gettr.com/group11/origin/2023/03/15/14/fae6102f-fd68-8ac8-3539-936863cfebb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,16 +197,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 2023.03.13 尊敬的战友们好……快忙疯了，感触太多了感恩万福万神对新中国联邦的照顾恩赐，珍惜吧兄弟姐妹吗！
 
 <img src="https://media.gettr.com/group4/getter/2023/03/13/15/9f020f19-aa2b-6033-c6c9-bac62ca8da6a/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 1:53 PM UTC  - :tv:直播](/content/gettr/p2bb87b0bc9.md)
-
-3/12/2023 Miles Guo: The U.S. and Communist China are fighting over the power to establish future blockchain standards. The New Federal of China will benefit from the fight and emerge as the ultimate winner.
-
-#blockchain #digitalcu...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/13/13/4c844518-6d97-553c-ffee-6322b6eaa217/out.jpg" width="506" height="284">
 
 ---
 
