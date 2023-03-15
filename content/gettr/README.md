@@ -2,6 +2,24 @@
 ---
 
 
+[@milesguo 3/15/2023 9:53 AM UTC  - :tv:直播](/content/gettr/p2bi6sp06d3.md)
+
+2023.03.15 
+
+
+
+尊敬的战友们好，这不是炒作，这是逃脱，这是逃避犯罪……这些媒体是百分之百的帮凶……是协助犯罪，我要去睡一会儿了……二小时后，开始我们今天的大直播，今天是个好日子【美国主流新闻也开始炒作新冠病毒起源了，福奇危险了啊】
+
+
+
+
+
+https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-organizations-double-billi...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/15/09/35188968-85dc-543a-342e-1d346647a442/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/15/2023 2:25 AM UTC  - :tv:直播](/content/gettr/p2bhapd9ce7.md)
 
 2023.03.14  In the future, the biggest problem with this virus will be accountability, how many years will this last? Will the Chinese take 100 years or 200 years to pay the money and pay for the cost?
@@ -40,21 +58,11 @@
 
 ---
 
-[@milesguo 3/15/2023 9:53 AM UTC  - :tv:直播](/content/gettr/p2bi6sp06d3.md)
+[@milesguo 3/15/2023 12:40 PM UTC ](/content/gettr/p2bipx0ac19.md)
 
-2023.03.15 
+2023.03.15 尊敬的战友们好......向战友们报告......七哥将无法进行今天的直播，万分的抱歉🙏🙏🙏......由于美东时间3月15日早上5点多，有超过百名FBI探员大声呼喊，敲门进行搜查，要求七哥强制被带去法院出庭审问，七哥在被FBI带上手拷，近超过一个多小时的盘审搜身后，面带微笑中带离18楼......请战友们放心🙏❤️......
 
-
-
-尊敬的战友们好，这不是炒作，这是逃脱，这是逃避犯罪……这些媒体是百分之百的帮凶……是协助犯罪，我要去睡一会儿了……二小时后，开始我们今天的大直播，今天是个好日子【美国主流新闻也开始炒作新冠病毒起源了，福奇危险了啊】
-
-
-
-
-
-https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-organizations-double-billi...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/15/09/35188968-85dc-543a-342e-1d346647a442/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/15/12/b13b8c7f-d1e7-3982-9e56-ee55b10fb72f/253bdf4843d31348b62a140f5fa18168.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 硅谷银行的绝大多数的客户都是共产党的合作者，它的倒闭意味着这些人的钱都灰飞烟灭了。
 
 <img src="https://media.gettr.com/group4/getter/2023/03/13/12/26799566-8af4-e2f9-bedf-562208ef43b1/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 12:29 PM UTC  - :tv:直播](/content/gettr/p2bapb5f0d2.md)
-
-2023.03.13 The collapse of Silicon Valley Bank opened the prelude to a global financial crisis. Looking into history, many Americans starved to death during the Great Depression after World War I. USDC, USDT and Black Rock are the ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/13/12/4a1fd3d4-e905-440c-c0fd-213051c134ef/out.jpg" width="506" height="284">
 
 ---
 
