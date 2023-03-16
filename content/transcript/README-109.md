@@ -3,6 +3,8 @@
 
 ## 頁面 109/109 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月3日视频 20170503_1](/content/transcript/2017/05/20170503-53483733.md)
+
 [郭文贵2017年5月3日第二次直播 20170503_2小狗狗生日礼物](/content/transcript/2017/05/20170503-53483724.md)
 
 [郭文贵2017年5月2日视频 20170502_2推友過15.2萬](/content/transcript/2017/05/20170502-53483532.md)

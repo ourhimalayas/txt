@@ -3,6 +3,8 @@
 
 ## 頁面 95/109 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年5月5日视频第一部分 20180505_1陈氏兄弟及盟相关机密文件内幕](/content/transcript/2018/05/20180505-53483844.md)
+
 [郭文贵2018年5月5日视频第三部分 20180505_3陈氏兄弟及盟相关机密文件内幕](/content/transcript/2018/05/20180505-53483675.md)
 
 [郭文贵2018年5月5日视频第二部分 20180505_2陈氏兄弟及盟相关机密文件内幕](/content/transcript/2018/05/20180505-53483665.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！](/content/transcript/2018/04/20180420-53482348.md)
 
 [郭文贵2018年4月19日第一次直播 20180419_1419VOA断播门一周年回顾](/content/transcript/2018/04/20180419-53482341.md)
-
-[郭文贵2018年4月19日第二次直播 20180419_2谈明镜](/content/transcript/2018/04/20180419-53482305.md)
 
 
 ## 頁面 95/109 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

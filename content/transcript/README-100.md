@@ -3,6 +3,8 @@
 
 ## 頁面 100/109 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月5日第二次直播 20180205_2文贵浅谈，曹长青先生被断访．这是上天赐给我们的又一个礼物！](/content/transcript/2018/02/20180205-53484208.md)
+
 [郭文贵2018年2月5日第三次直播 20180205_3文贵现金悬赏．提供假民运分子利用假证屁文件．欺骗同胞．违法美国法律．给同胞造成伤害和损失证据！希望所有的战友们口口相传共同打击假民运！假政庇！](/content/transcript/2018/02/20180205-53484044.md)
 
 [郭文贵2018年2月5日第一次直播 20180205_1假民运分子利用真正英雄的死亡，和他们付出生命的代价，发财的时代必须结束！我们必须要让这些无人性的伪类们付出代价，一切都是刚刚开始！](/content/transcript/2018/02/20180205-53483958.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年1月11日直播 20180111_1](/content/transcript/2018/01/20180111-53482823.md)
 
 [郭文贵2018年1月4日 20180104郭先生谈习近平李克强的女儿进北大背后的故事](/content/transcript/2018/01/20180104-53483978.md)
-
-[郭文贵2018年1月3日视频 20180103郭文贵先生遥㊗️澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅！](/content/transcript/2018/01/20180103-53484197.md)
 
 
 ## 頁面 100/109 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)

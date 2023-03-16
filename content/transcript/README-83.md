@@ -3,6 +3,8 @@
 
 ## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始](/content/transcript/2019/01/20190122-53478534.md)
+
 [郭文贵2019年1月21日视频 20190121共产党号召学习王阳明的心学是对圣人的巨大侮辱](/content/transcript/2019/01/20190121-53481802.md)
 
 [郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！](/content/transcript/2019/01/20190120-53481784.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年1月7日视频 20190107报平安直播被黑客掉未成功的视频。谈马云和被双规的成钢以及懒人郭宝胜的案子](/content/transcript/2019/01/20190107-53481879.md)
 
 [郭文贵2019年1月7日视频 20190107_2-财新再一次造谣说陈刚和郭文贵有关系；郭媒体可以定位黑客IP地址；春晚邀请凯琳女做一个节目回答网友提问。](/content/transcript/2019/01/20190107-53478496.md)
-
-[郭文贵2019年1月6日视频 20190106关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/transcript/2019/01/20190106-53481603.md)
 
 
 ## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

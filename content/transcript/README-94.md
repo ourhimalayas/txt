@@ -3,6 +3,8 @@
 
 ## 頁面 94/109 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年6月16日直播 20180616_1万分感激网络侠客联盟．正义黑客小哥．大侠保罗先生的拨剑相助．给大家一个真相](/content/transcript/2018/06/20180616-53477914.md)
+
 [郭文贵2018年6月15日直播 20180615_1谈只有中国正道主义可以救中国．只有与西方和平共处才能让中国长治久安！](/content/transcript/2018/06/20180615-53477910.md)
 
 [郭文贵2018年6月13日直播 20180613_1郭战装与什么是习主席的政治轮轴效应！](/content/transcript/2018/06/20180613-53477894.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年5月11日直播 20180511_1马航事件很快会水落石出！](/content/transcript/2018/05/20180511-53477801.md)
 
 [郭文贵2018年5月10日视频 20180510生日直播，盗国贼不亡，独狼行动不止](/content/transcript/2018/05/20180510-53478375.md)
-
-[郭文贵2018年5月5日视频第一部分 20180505_1陈氏兄弟及盟相关机密文件内幕](/content/transcript/2018/05/20180505-53483844.md)
 
 
 ## 頁面 94/109 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)

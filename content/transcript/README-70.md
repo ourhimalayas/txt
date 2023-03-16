@@ -3,6 +3,8 @@
 
 ## 頁面 70/109 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年9月2日图桑报平安 20190902](/content/transcript/2019/09/20190902-53482993.md)
+
 [2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版](/content/transcript/2019/09/20190901-53839486.md)
 
 [郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划](/content/transcript/2019/09/20190901-53482988.md)
@@ -50,8 +52,6 @@
 [2019年8月20日文贵大直播：王岐山的侄子抢夺盘古大观的「斩龙刀」](/content/transcript/2019/08/20190820-53795571.md)
 
 [郭文贵2019年8月20日视频 20190820王岐山的侄子搶奪盤古大關的 “斬龍刀”！和西方媒體面對的司法審判的改變！](/content/transcript/2019/08/20190820-53483158.md)
-
-[郭文贵2019年8月18日视频 20190818从‘818’的170万港人再上街 来看大湾区的吞港计划](/content/transcript/2019/08/20190818-53483141.md)
 
 
 ## 頁面 70/109 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 82/109 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡](/content/transcript/2019/02/20190219-53482340.md)
+
 [郭文贵2019年2月17日 20190217文贵再谈法治基金的目的和中美之间即将发生的大事。](/content/transcript/2019/02/20190217-53482295.md)
 
 [郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读](/content/transcript/2019/02/20190216-53482266.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大](/content/transcript/2019/01/20190124-53481827.md)
 
 [郭文贵2019年1月23日视频 20190123华盛顿上空弥漫这共同的目标：灭共](/content/transcript/2019/01/20190123-53481812.md)
-
-[郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始](/content/transcript/2019/01/20190122-53478534.md)
 
 
 ## 頁面 82/109 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

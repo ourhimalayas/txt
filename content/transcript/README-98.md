@@ -3,6 +3,8 @@
 
 ## 頁面 98/109 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年3月12日视频第一部分 20180312_1向给文贵邮寄盗国贼材料的战友们致敬](/content/transcript/2018/03/20180312-53481670.md)
+
 [郭文贵2018年3月12日视频第二部分 20180312_2文贵拜托战友们的新行动．推特拉黑．YouTube 取关不打盗国贼的任何人任何媒体！全力以赴支持自由中国．爆料！支持路上德就是无尚功德！](/content/transcript/2018/03/20180312-53481554.md)
 
 [郭文贵2018年3月11日报平安视频 20180311谈5.1共振看法及昨天发错误文件和陈军下一步的行动](/content/transcript/2018/03/20180311-53481508.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年2月21日直播 20180221_2幾秒前被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ V](/content/transcript/2018/02/20180221-53477225.md)
 
 [郭文贵2018年2月21日直播 20180221_1被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ Via：郭媒体](/content/transcript/2018/02/20180221-53477220.md)
-
-[郭文贵2018年2月19日直播 20180219_2Snow咋这么可爱呢](/content/transcript/2018/02/20180219-53477216.md)
 
 
 ## 頁面 98/109 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)

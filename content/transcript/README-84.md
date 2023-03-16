@@ -3,6 +3,8 @@
 
 ## 頁面 84/109 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月6日视频 20190106关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/transcript/2019/01/20190106-53481603.md)
+
 [郭文贵2019年1月5日 20190105接受庄烈宏先生美东之声访问。中共敢打台湾吗？什么叫战友？2019文贵爆料的具体战略](/content/transcript/2019/01/20190105-53481588.md)
 
 [郭文贵2019年1月5日视频 20190105_2-保镖告诉我，林宝坚尼为我特制的SUV已经到我的停车场了，我都快忘了这个车了](/content/transcript/2019/01/20190105-53478482.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年12月17日视频 20181217关于昨天被删除的视频和路德Sara女](/content/transcript/2018/12/20181217-53481431.md)
 
 [郭文贵2018年12月16日 20181216郭文贵回答战友之声的问题，聊天，怎么看待习江斗。](/content/transcript/2018/12/20181216-53481424.md)
-
-[郭文贵2018年12月14日视频 20181214肖建华的资产被分的差不多了，很快就会消失了](/content/transcript/2018/12/20181214-53481390.md)
 
 
 ## 頁面 84/109 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 85/109 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年12月14日视频 20181214肖建华的资产被分的差不多了，很快就会消失了](/content/transcript/2018/12/20181214-53481390.md)
+
 [郭文贵2018年12月12日视频 20181212](/content/transcript/2018/12/20181212-53481240.md)
 
 [郭文贵2018年12月11日视频 20181211_2回到了美麗的藍天白雲的紐約](/content/transcript/2018/12/20181211-53478565.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年11月20日直播 20181120_1信息发布会（中英文版）Miles Guo Press Briefing on 11/20/2018 (English & Mandarin)](/content/transcript/2018/11/20181120-53481319.md)
 
 [郭文贵2018年11月20日视频 20181120_5(官方版後段)郭文贵2018年11月20日信息发布会](/content/transcript/2018/11/20181120-53478533.md)
-
-[郭文贵2018年11月20日视频 20181120_4路德访谈班农、文贵先生：谈谈未来制裁中共王岐山盗国贼的一系列行为](/content/transcript/2018/11/20181120-53478527.md)
 
 
 ## 頁面 85/109 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 92/109 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月12日视频 20180812_2在Riek Owes取今年秋季服装（合成版）](/content/transcript/2018/08/20180812-53477237.md)
+
 [郭文贵2018年8月11日直播 20180811_1在与川普总统同一家定制西装店直播](/content/transcript/2018/08/20180811-53478146.md)
 
 [郭文贵2018年8月10日直播 20180810_1尊敬的战友们你们健身了吗！今天我将与刑事律师团开会．关于王健被杀的案件！一切都是刚刚开始！](/content/transcript/2018/08/20180810-53478143.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！](/content/transcript/2018/07/20180722-53482397.md)
 
 [郭文贵2018年7月21日直播 20180721_2王健的妻子,和王伟处境都很危险,吴征去法国见谁了](/content/transcript/2018/07/20180721-53478059.md)
-
-[郭文贵2018年7月21日直播 20180721_1老领导又来电话了 王建夫人请保存好手机上的证据](/content/transcript/2018/07/20180721-53478049.md)
 
 
 ## 頁面 92/109 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)

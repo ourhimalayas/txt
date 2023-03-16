@@ -3,6 +3,8 @@
 
 ## 頁面 91/109 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月31日直播 20180831_1感谢昨天为盘古公寓和写字楼被非法拍卖而流泪担心我的战友们你们的爱惜担心文贵更加让我精进反盗为战友而战为正义而战一切都是刚刚开始](/content/transcript/2018/08/20180831-53478192.md)
+
 [郭文贵2018年8月30日视频 20180830关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！](/content/transcript/2018/08/20180830-53482551.md)
 
 [郭文贵2018年8月30日直播 20180830_3](/content/transcript/2018/08/20180830-53478188.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年8月13日视频 20180813_3健身视频](/content/transcript/2018/08/20180813-53477246.md)
 
 [郭文贵2018年8月12日 20180812王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！](/content/transcript/2018/08/20180812-53483720.md)
-
-[郭文贵2018年8月12日视频 20180812_2在Riek Owes取今年秋季服装（合成版）](/content/transcript/2018/08/20180812-53477237.md)
 
 
 ## 頁面 91/109 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

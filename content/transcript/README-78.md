@@ -3,6 +3,8 @@
 
 ## 頁面 78/109 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天](/content/transcript/2019/05/20190530-53478676.md)
+
 [郭文贵2019年5月30日视频 20190530_1林郑月娥亲自撰写，并要求中共中央在香港实施《遣返万能法》](/content/transcript/2019/05/20190530-53478671.md)
 
 [郭文贵2019年5月27日视频 20190527_1文貴又出來浪了](/content/transcript/2019/05/20190527-53478666.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people](/content/transcript/2019/05/20190510-53482540.md)
 
 [郭文贵2019年5月9日 20190509中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/transcript/2019/05/20190509-53483684.md)
-
-[郭文贵2019年5月8日视频 20190508尊敬的战友们好，你们健身了吗？文贵聊聊．为什么中方要求美方不能公开中美的贸易协议内容！为什么文贵的梦语．郭九条．在国内引起了巨大的反响！一切都是刚刚开始！](/content/transcript/2019/05/20190508-53482532.md)
 
 
 ## 頁面 78/109 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

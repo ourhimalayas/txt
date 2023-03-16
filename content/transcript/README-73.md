@@ -3,6 +3,8 @@
 
 ## 頁面 73/109 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月28日视频 20190728_1双面间谍．文贵，在＂床＂上报平安！](/content/transcript/2019/07/20190728-53478848.md)
+
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715693.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715653.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年7月23日第一次直播 20190723_1李鹏89年在哪里Why did Li Peng always ask whoever he met "Back in 1989, where were you when it ...](/content/transcript/2019/07/20190723-53482868.md)
 
 [郭文贵2019年7月23日第二次直播 20190723_2尊敬的战友们好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！](/content/transcript/2019/07/20190723-53482853.md)
-
-[郭文贵2019年7月23日直播 20190723_3黑客后第二段高清版](/content/transcript/2019/07/20190723-53478078.md)
 
 
 ## 頁面 73/109 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

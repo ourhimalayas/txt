@@ -3,6 +3,8 @@
 
 ## 頁面 105/109 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月26日视频 20170826老兵通过新加坡发来视频 翻墙软件偷信息 美政府对海航的关注达到我们的目的](/content/transcript/2017/08/20170826-53483541.md)
+
 [郭文贵2017年8月25日做客郭宝胜 20170825宗教与中国政治及社会关系](/content/transcript/2017/08/20170825-53484317.md)
 
 [郭文贵2017年8月25日视频 20170825_270天的特别之旅](/content/transcript/2017/08/20170825-53483540.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年8月6日直播 20170806党内已怨声载道，北戴河会议群魔乱咬.](/content/transcript/2017/08/20170806-53483511.md)
 
 [郭文贵2017年8月5日视频 20170805_1文贵试试网：回答香港商界朋友的问题．与王岐山怎么威胁范冰冰闭嘴的！](/content/transcript/2017/08/20170805-53483849.md)
-
-[郭文贵2017年8月5日视频 20170805_2](/content/transcript/2017/08/20170805-53483515.md)
 
 
 ## 頁面 105/109 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

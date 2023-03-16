@@ -3,6 +3,8 @@
 
 ## 頁面 75/109 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月8日视频 20190708文贵是双面间谍？？](/content/transcript/2019/07/20190708-53482874.md)
+
 [郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天](/content/transcript/2019/07/20190708-53478795.md)
 
 [郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着](/content/transcript/2019/07/20190708-53478790.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年6月30日与班农直播 20190630班农 文贵谈 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-53482770.md)
 
 [郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-53478759.md)
-
-[2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜](/content/transcript/2019/06/20190629-53560626.md)
 
 
 ## 頁面 75/109 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)

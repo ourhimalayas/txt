@@ -3,6 +3,8 @@
 
 ## 頁面 81/109 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月2日视频 20190402尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵向战友们报告在加洲开会的感受．和睡在帐篷的原因与地点！一切都是刚刚开始！【挺郭小妹】](/content/transcript/2019/04/20190402-53482200.md)
+
 [郭文贵2019年4月2日视频 20190402_2万分感谢潜伏的战友们的重大贡献](/content/transcript/2019/04/20190402-53478575.md)
 
 [郭文贵2019年4月1日视频 20190401_1郭文贵先生美国加州报平安：帐内论灭共，血誓定决心！](/content/transcript/2019/04/20190401-53478660.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2](/content/transcript/2019/02/20190220-53478633.md)
 
 [郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1](/content/transcript/2019/02/20190220-53478620.md)
-
-[郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡](/content/transcript/2019/02/20190219-53482340.md)
 
 
 ## 頁面 81/109 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 99/109 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月19日直播 20180219_2Snow咋这么可爱呢](/content/transcript/2018/02/20180219-53477216.md)
+
 [郭文贵2018年2月19日直播 20180219_1Snow 也上桌了…… Via：郭媒体](/content/transcript/2018/02/20180219-53477210.md)
 
 [郭文贵2018年2月15日《文贵看春晚》 20180215爆料正式整理](/content/transcript/2018/02/20180215-53482204.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明](/content/transcript/2018/02/20180206-53483964.md)
 
 [郭文贵2018年2月6日第二次直播 20180206_2再次呼吁战友们提供有关韦石、西诺、陈闯创、胡平利用办理假政庇骗钱的证据！一个把老婆放在大街上让人“乱干”的人不可能为大家“干出”民主自由！](/content/transcript/2018/02/20180206-53483959.md)
-
-[郭文贵2018年2月5日第二次直播 20180205_2文贵浅谈，曹长青先生被断访．这是上天赐给我们的又一个礼物！](/content/transcript/2018/02/20180205-53484208.md)
 
 
 ## 頁面 99/109 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)
