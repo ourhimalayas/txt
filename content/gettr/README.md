@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/16/2023 12:41 AM UTC  - :tv:直播](/content/gettr/p2bkzy9ba3e.md)
+
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/15/2023 9:18 PM UTC ](/content/gettr/p2bkdqj86f2.md)
 
 2023.03.15 战友们大家好 我是郭美。半小时前接到了爸爸打来的电话 他让我向大家转达：“我很想念大家，但是请战友们不要到法院门口去等，天太冷不要冻着了，都回去吧。要谨记，所有的事情不能停！该干啥干啥。今天我回不去，但请大家放心，我很好，非常安全！” 谢谢大家的惦念，有消息会及时通知大家🙏
@@ -171,14 +179,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 3/13/2023 Miles Guo: Communist China accelerated the implementation of “Common Prosperity” policy after the “Two Sessions”; “Xi the Dead Emperor” sent a messenger to Tsai Ing-wen warning her not to invite McCarthy to Taiwan; the CC...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/14/03/0c304415-2ceb-87e7-1fe7-8b4e47d4503f/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 1:47 AM UTC  - :tv:直播](/content/gettr/p2bdxdza3c2.md)
-
-2023.03.13  The modern Chinese history includes three generations of Chinese. Mao the first generation led China into a disaster. The generation born in the 40's and 50's is a warped generation and they are in control of China righ...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/14/01/c5052d1f-6d2c-7e90-db1f-0df2d93e4177/out.jpg" width="506" height="284">
 
 ---
 
