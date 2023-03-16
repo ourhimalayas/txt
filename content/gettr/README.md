@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/16/2023 12:01 PM UTC  - :tv:直播](/content/gettr/p2bmrhb1a6a.md)
+
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第六场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/16/2023 9:06 AM UTC  - :tv:直播](/content/gettr/p2bn0jk39af.md)
 
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
@@ -50,9 +58,9 @@
 
 ---
 
-[@milesguo 3/16/2023 12:01 PM UTC  - :tv:直播](/content/gettr/p2bmrhb1a6a.md)
+[@milesguo 3/16/2023 4:16 PM UTC  - :tv:直播](/content/gettr/p2bncj3896a.md)
 
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第六场）
+2023.03.16 全球战友等着七哥回来 Waiting for Miles to Come back（第七场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -177,14 +185,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 
 
 他说： “如果我是生育年龄的女性，我不会让一个接种过疫苗的男性让我受孕。”】
-
----
-
-[@milesguo 3/14/2023 1:50 PM UTC  - :tv:直播](/content/gettr/p2bexmi7ac8.md)
-
-2023.03.14 尊敬的战友，们好、很多战友都在问？未来人类的最安全货币和银行是那家？
-
-<img src="https://media.gettr.com/group9/getter/2023/03/14/13/a1e29366-8676-a038-658d-794cc9b989b2/out.jpg" width="506" height="284">
 
 ---
 
