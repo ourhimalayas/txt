@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/16/2023 9:06 AM UTC  - :tv:直播](/content/gettr/p2bn0jk39af.md)
+
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/16/2023 6:49 AM UTC  - :tv:直播](/content/gettr/p2bm61t6178.md)
 
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
@@ -42,9 +50,9 @@
 
 ---
 
-[@milesguo 3/16/2023 9:06 AM UTC  - :tv:直播](/content/gettr/p2bn0jk39af.md)
+[@milesguo 3/16/2023 12:01 PM UTC  - :tv:直播](/content/gettr/p2bmrhb1a6a.md)
 
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第六场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -177,14 +185,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 2023.03.14 尊敬的战友，们好、很多战友都在问？未来人类的最安全货币和银行是那家？
 
 <img src="https://media.gettr.com/group9/getter/2023/03/14/13/a1e29366-8676-a038-658d-794cc9b989b2/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 1:24 PM UTC  - :tv:直播](/content/gettr/p2bf15r196e.md)
-
-2023.03.14 Xi sent someone to deliver a message to Tsai Ing-wen by threatening her not to allow McCarthy to visit Taiwan. Xi is ready in all aspects to attack Taiwan at any time. He believes that the current unprecedented internati...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/14/13/b2445b6b-ebce-dfb4-feef-91bf1a8caf4a/out.jpg" width="506" height="284">
 
 ---
 
