@@ -2,21 +2,11 @@
 ---
 
 
-[@hpay_athenafarm 3/11/2023 7:39 AM UTC  - :tv:直播](/content/gettr/p2b3zuk9c28.md)
+[@milesguo 3/16/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2bkobf16ff.md)
 
-《美莉时刻》2023-03-11 周末娱乐版
+03/15/2023 Mr. Miles Guo’s Sherry Netherland hotel apartment caught on fire after he was arrested earlier today, but no one is injured. Fire officials on the scene would not disclose who called 911. It was called in shortly after 1...
 
-歌曲：我只在乎你，甜蜜蜜，恰似你的溫柔，拜訪春天，鳳飛飛組曲，深情難忘
-
-主播：Emily艾美莉
-
-嘉宾：進撃の番茄，心靈
-
-导播：Janek
-
-海报：614
-
-<img src="https://media.gettr.com/group11/origin/2023/03/11/07/33791fa6-e34c-b319-a883-bce1485c80c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/16/00/ec969e17-0fe3-3191-987f-15ecf6101519/out.jpg" width="506" height="284">
 
 ---
 
