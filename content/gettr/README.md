@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/16/2023 2:45 AM UTC  - :tv:直播](/content/gettr/p2blbor7d63.md)
+
+3/15/2023 Nicole: All allegations leveled against Miles Guo by the CCP-weaponized SEC and DOJ are false! The filing of these false allegations, the FBI raid on Mr. Guo's home, and the fire on the 18th floor of the Sherry-Netherland...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/16/02/b79545a3-dcee-f488-3497-b8fdd706d7bc/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/16/2023 2:31 AM UTC  - :tv:直播](/content/gettr/p2bkyz9c4a1.md)
 
 03/15/2023 Nicole Tsai, a representative from the New Federal State of China, says that the FBI today raided the house of CCP’s No.1 enemy, Mr. Miles Guo, in New York, and handcuffed him to court for interrogation. The DOJ, FBI and...
@@ -26,11 +34,11 @@
 
 ---
 
-[@milesguo 3/16/2023 2:45 AM UTC  - :tv:直播](/content/gettr/p2blbor7d63.md)
+[@milesguo 3/16/2023 6:49 AM UTC  - :tv:直播](/content/gettr/p2bm61t6178.md)
 
-3/15/2023 Nicole: All allegations leveled against Miles Guo by the CCP-weaponized SEC and DOJ are false! The filing of these false allegations, the FBI raid on Mr. Guo's home, and the fire on the 18th floor of the Sherry-Netherland...
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
 
-<img src="https://media.gettr.com/group5/getter/2023/03/16/02/b79545a3-dcee-f488-3497-b8fdd706d7bc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 2023.03.14 Xi sent someone to deliver a message to Tsai Ing-wen by threatening her not to allow McCarthy to visit Taiwan. Xi is ready in all aspects to attack Taiwan at any time. He believes that the current unprecedented internati...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/14/13/b2445b6b-ebce-dfb4-feef-91bf1a8caf4a/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 4:20 AM UTC  - :tv:直播](/content/gettr/p2bdpyjca12.md)
-
-2023.03.14 The United States single-handedly raised the wolf pup of the CCP, and now it is starting to counterattack under the leadership of Xi, the Dead Emperor. The United States cannot save itself in this financial war, and the ...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/14/04/908d264d-3cc6-5abe-f8ab-c76e919262f3/out.jpg" width="506" height="284">
 
 ---
 
