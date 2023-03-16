@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/16/2023 2:31 AM UTC  - :tv:直播](/content/gettr/p2bkyz9c4a1.md)
+
+03/15/2023 Nicole Tsai, a representative from the New Federal State of China, says that the FBI today raided the house of CCP’s No.1 enemy, Mr. Miles Guo, in New York, and handcuffed him to court for interrogation. The DOJ, FBI and...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/16/02/74fb7ed9-cad9-6d75-405c-621ff6abe750/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/16/2023 12:41 AM UTC  - :tv:直播](/content/gettr/p2bkzy9ba3e.md)
 
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
@@ -18,11 +26,11 @@
 
 ---
 
-[@milesguo 3/16/2023 2:31 AM UTC  - :tv:直播](/content/gettr/p2bkyz9c4a1.md)
+[@milesguo 3/16/2023 2:45 AM UTC  - :tv:直播](/content/gettr/p2blbor7d63.md)
 
-03/15/2023 Nicole Tsai, a representative from the New Federal State of China, says that the FBI today raided the house of CCP’s No.1 enemy, Mr. Miles Guo, in New York, and handcuffed him to court for interrogation. The DOJ, FBI and...
+3/15/2023 Nicole: All allegations leveled against Miles Guo by the CCP-weaponized SEC and DOJ are false! The filing of these false allegations, the FBI raid on Mr. Guo's home, and the fire on the 18th floor of the Sherry-Netherland...
 
-<img src="https://media.gettr.com/group7/getter/2023/03/16/02/74fb7ed9-cad9-6d75-405c-621ff6abe750/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/16/02/b79545a3-dcee-f488-3497-b8fdd706d7bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 习起到了袁世凯的作用，韩正是当今的司马懿。
 
 <img src="https://media.gettr.com/group8/getter/2023/03/14/04/06870e57-5708-4743-2fff-b6483b1e19d7/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 3:09 AM UTC  - :tv:直播](/content/gettr/p2bdu3k25bd.md)
-
-3/13/2023 Miles Guo: Communist China accelerated the implementation of “Common Prosperity” policy after the “Two Sessions”; “Xi the Dead Emperor” sent a messenger to Tsai Ing-wen warning her not to invite McCarthy to Taiwan; the CC...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/14/03/0c304415-2ceb-87e7-1fe7-8b4e47d4503f/out.jpg" width="506" height="284">
 
 ---
 
