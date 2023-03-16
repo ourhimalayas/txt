@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/16/2023 12:41 AM UTC  - :tv:直播](/content/gettr/p2bkzy9ba3e.md)
+
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/16/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2bkobf16ff.md)
 
 03/15/2023 Mr. Miles Guo’s Sherry Netherland hotel apartment caught on fire after he was arrested earlier today, but no one is injured. Fire officials on the scene would not disclose who called 911. It was called in shortly after 1...
@@ -10,11 +18,11 @@
 
 ---
 
-[@milesguo 3/16/2023 12:41 AM UTC  - :tv:直播](/content/gettr/p2bkzy9ba3e.md)
+[@milesguo 3/16/2023 2:31 AM UTC  - :tv:直播](/content/gettr/p2bkyz9c4a1.md)
 
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
+03/15/2023 Nicole Tsai, a representative from the New Federal State of China, says that the FBI today raided the house of CCP’s No.1 enemy, Mr. Miles Guo, in New York, and handcuffed him to court for interrogation. The DOJ, FBI and...
 
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/16/02/74fb7ed9-cad9-6d75-405c-621ff6abe750/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 3/13/2023 Miles Guo: Communist China accelerated the implementation of “Common Prosperity” policy after the “Two Sessions”; “Xi the Dead Emperor” sent a messenger to Tsai Ing-wen warning her not to invite McCarthy to Taiwan; the CC...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/14/03/0c304415-2ceb-87e7-1fe7-8b4e47d4503f/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 1:55 AM UTC  - :tv:直播](/content/gettr/p2bdm5r0c51.md)
-
-3/13/2023 Miles Guo: We are living in two different worlds in the past few days: so many wealthy people lost all their investments and committed suicide; on the other hand, citizens of the New Federal State of China are striding in...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/14/01/42d4c52c-3cc4-539a-b949-7b0e787ef559/out.jpg" width="506" height="284">
 
 ---
 
