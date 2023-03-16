@@ -2,6 +2,24 @@
 ---
 
 
+[@hpay_athenafarm 3/11/2023 7:39 AM UTC  - :tv:直播](/content/gettr/p2b3zuk9c28.md)
+
+《美莉时刻》2023-03-11 周末娱乐版
+
+歌曲：我只在乎你，甜蜜蜜，恰似你的溫柔，拜訪春天，鳳飛飛組曲，深情難忘
+
+主播：Emily艾美莉
+
+嘉宾：進撃の番茄，心靈
+
+导播：Janek
+
+海报：614
+
+<img src="https://media.gettr.com/group11/origin/2023/03/11/07/33791fa6-e34c-b319-a883-bce1485c80c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/15/2023 9:18 PM UTC ](/content/gettr/p2bkdqj86f2.md)
 
 2023.03.15 战友们大家好 我是郭美。半小时前接到了爸爸打来的电话 他让我向大家转达：“我很想念大家，但是请战友们不要到法院门口去等，天太冷不要冻着了，都回去吧。要谨记，所有的事情不能停！该干啥干啥。今天我回不去，但请大家放心，我很好，非常安全！” 谢谢大家的惦念，有消息会及时通知大家🙏
@@ -13,14 +31,6 @@
 2023.03.15  The Middle East, which accounts for 80% of the world's oil supply, is already controlled by the CCP. The CCP’s involvement in the Russia-Ukraine war would be a disaster for the West. Xi, the dying emperor’s ambition is ...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/15/20/e29e6919-ceb4-b17a-409f-4199ff7b8758/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/15/2023 11:14 PM UTC  - :tv:直播](/content/gettr/p2bkag63b5e.md)
-
-03/15/2023 Mr. Miles Guo’s Sherry Netherland hotel apartment caught on fire after he was arrested earlier today, but no one is injured. Fire officials on the scene would not disclose who called 911. It was called in shortly after 1...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/15/23/1cd0c90a-3893-d510-2f8f-654e378e5b8c/out.jpg" width="506" height="284">
 
 ---
 
