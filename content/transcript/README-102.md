@@ -3,6 +3,8 @@
 
 ## 頁面 102/109 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年11月12日第二次直播 20171112_2马阿拉哥庄园 与网友们聊聊天](/content/transcript/2017/11/20171112-53484040.md)
+
 [郭文贵2017年11月12日第一次直播 20171112_1马阿拉哥庄园 与网友们聊聊天](/content/transcript/2017/11/20171112-53483878.md)
 
 [郭文贵2017年11月10日 20171110酒后试试另一种方式的录播](/content/transcript/2017/11/20171110-53484035.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料](/content/transcript/2017/10/20171010-53476924.md)
 
 [郭文贵2017年10月8日 20171008吴征杨澜将引爆中美巨大政治丑闻](/content/transcript/2017/10/20171008-53484107.md)
-
-[郭文贵2017年10月7日视频 20171007Snow上镜了](/content/transcript/2017/10/20171007-53483616.md)
 
 
 ## 頁面 102/109 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

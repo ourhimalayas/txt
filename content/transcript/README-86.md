@@ -3,6 +3,8 @@
 
 ## 頁面 86/109 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月20日视频 20181120_5(官方版後段)郭文贵2018年11月20日信息发布会](/content/transcript/2018/11/20181120-53478533.md)
+
 [郭文贵2018年11月20日视频 20181120_4路德访谈班农、文贵先生：谈谈未来制裁中共王岐山盗国贼的一系列行为](/content/transcript/2018/11/20181120-53478527.md)
 
 [郭文贵2018年11月20日视频 20181120_3(曾宏版)郭文贵2018年11月20日王健之死與海航背後真相信息发布会](/content/transcript/2018/11/20181120-53478406.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年10月28日视频 20181028欧洲对CCP的看法正在改变！](/content/transcript/2018/10/20181028-53479380.md)
 
 [郭文贵2018年10月28日视频 20181028_2 法國政府對王健之死案的判決](/content/transcript/2018/10/20181028-53478346.md)
-
-[郭文贵2018年10月27日视频 20181027_1基金经理Kyle Bass网站被共匪攻击；王健发布会场地被共匪骚扰（提出用N倍价钱来取消发布会）](/content/transcript/2018/10/20181027-53478344.md)
 
 
 ## 頁面 86/109 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)

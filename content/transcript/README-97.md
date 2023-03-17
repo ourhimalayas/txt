@@ -3,6 +3,8 @@
 
 ## 頁面 97/109 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年3月29日视频第一部分 20180329_1回答战友们香港警察查封各银行账号用的什么法律手续](/content/transcript/2018/03/20180329-53481942.md)
+
 [郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体](/content/transcript/2018/03/20180329-53477161.md)
 
 [郭文贵2018年3月28日第二次直播 20180328_2谈香港黑警察与金正恩访华](/content/transcript/2018/03/20180328-53482002.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年3月13日直播 20180313_1上天赐予的又一个巨大的礼物 —美国新国务卿！对盗国贼将是巨大打击](/content/transcript/2018/03/20180313-53477331.md)
 
 [郭文贵2018年3月12日视频第四部分 20180312_4关于将对吴征．杨澜．陈军等．谋害谣言威胁文贵等行为釆取的行动……感恩上天与战友．和这场天大的灾难．给了文贵一个新生命！](/content/transcript/2018/03/20180312-53481877.md)
-
-[郭文贵2018年3月12日视频第三部分 20180312_3请战友们不要被谣言、八卦和盗国贼控制的媒体所利用](/content/transcript/2018/03/20180312-53481731.md)
 
 
 ## 頁面 97/109 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 107/109 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年7月3日第二次直播 20170703_2第二次讲述王岐山和傅政华的威胁](/content/transcript/2017/07/20170703-53483853.md)
+
 [郭文贵2017年7月3日第一次直播 20170703_1王岐山和傅政华将如何毁掉中国](/content/transcript/2017/07/20170703-53483830.md)
 
 [郭文贵2017年7月1日直播 20170701关于王岐山和范冰冰在1808房](/content/transcript/2017/07/20170701-53483821.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔](/content/transcript/2017/05/20170525-53483826.md)
 
 [郭文贵2017年5月24日 20170524呼吁推友不要冲动](/content/transcript/2017/05/20170524-53483816.md)
-
-[郭文贵2017年5月23日视频 20170523](/content/transcript/2017/05/20170523-53483802.md)
 
 
 ## 頁面 107/109 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

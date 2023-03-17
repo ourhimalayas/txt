@@ -3,6 +3,8 @@
 
 ## 頁面 104/109 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月11日视频 20170911全力以赴准备19大我们的影子会议](/content/transcript/2017/09/20170911-53483574.md)
+
 [郭文贵2017年9月10日视频 20170910江绵恒．王岐山．孟建柱．傅政华．孙力军．马云！及我与刘彦平先生的对话](/content/transcript/2017/09/20170910-53483985.md)
 
 [郭文贵2017年9月10日视频 20170910_2马云你还记得这个东西么?180次飞行记录，200万买的录像证明一切。](/content/transcript/2017/09/20170910-53477347.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实](/content/transcript/2017/08/20170827-53483547.md)
 
 [郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技](/content/transcript/2017/08/20170827-53483544.md)
-
-[郭文贵2017年8月27日直播 20170827_1](/content/transcript/2017/08/20170827-53482786.md)
 
 
 ## 頁面 104/109 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)

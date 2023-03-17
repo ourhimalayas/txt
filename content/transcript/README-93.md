@@ -3,6 +3,8 @@
 
 ## 頁面 93/109 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年7月21日直播 20180721_2王健的妻子,和王伟处境都很危险,吴征去法国见谁了](/content/transcript/2018/07/20180721-53478059.md)
+
 [郭文贵2018年7月21日直播 20180721_1老领导又来电话了 王建夫人请保存好手机上的证据](/content/transcript/2018/07/20180721-53478049.md)
 
 [郭文贵2018年7月20日直播 20180720_1文贵携SN0W向所有的战友们问好，一切都是刚刚开始！](/content/transcript/2018/07/20180720-53478035.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠](/content/transcript/2018/06/20180623-53477204.md)
 
 [郭文贵2018年6月21日视频 20180621世界大局正在向反盗国贼的趋势发展](/content/transcript/2018/06/20180621-53477199.md)
-
-[郭文贵2018年6月17日 20180617父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/content/transcript/2018/06/20180617-53483815.md)
 
 
 ## 頁面 93/109 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

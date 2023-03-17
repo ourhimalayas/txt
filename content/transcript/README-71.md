@@ -3,6 +3,8 @@
 
 ## 頁面 71/109 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月20日视频 20190820王岐山的侄子搶奪盤古大關的 “斬龍刀”！和西方媒體面對的司法審判的改變！](/content/transcript/2019/08/20190820-53483158.md)
+
 [郭文贵2019年8月18日视频 20190818从‘818’的170万港人再上街 来看大湾区的吞港计划](/content/transcript/2019/08/20190818-53483141.md)
 
 [2019年8月17号文贵大直播全文字版：回复有关今早直播后，大家发来的私信问题……](/content/transcript/2019/08/20190817-53795601.md)
@@ -50,8 +52,6 @@
 [2019年8月8日《文贵大直播》全文字版： 中共对世界布下的天罗地网，并不能阻止中共灭亡的步伐](/content/transcript/2019/08/20190808-53739868.md)
 
 [郭文贵2019年8月8日视频 201908088th Aug Mr. Guo's broadcast: CCP's sophisticated plan to take over the world will...](/content/transcript/2019/08/20190808-53482953.md)
-
-[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系](/content/transcript/2019/08/20190807-53733539.md)
 
 
 ## 頁面 71/109 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)

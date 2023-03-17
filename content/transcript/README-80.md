@@ -3,6 +3,8 @@
 
 ## 頁面 80/109 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月22日 20190422伊朗的石油制栽意味着共产党推行独栽盗国制度．将受到法治．民主社会制度的全面反击！](/content/transcript/2019/04/20190422-53482374.md)
+
 [郭文贵2019年4月22日视频 20190422_2半小时后，纽约时间上午1000北京时间晚上1000．文贵直播报平安．谈谈对伊朗石油的制裁意味着什么？和盗国贼有什么关系](/content/transcript/2019/04/20190422-53478637.md)
 
 [郭文贵2019年4月21日 20190421文贵为什么要揭穿．李嘉诚．马云．郭台铭．江志诚！](/content/transcript/2019/04/20190421-53482358.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年4月6日视频 20190406班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/transcript/2019/04/20190406-53482234.md)
 
 [郭文贵2019年4月6日视频 20190406_2应战友们的要求．展示一下喜马拉雅大使馆直播间！这是战友们在美国纽约的家的的9分之一！](/content/transcript/2019/04/20190406-53478577.md)
-
-[郭文贵2019年4月3日视频 20190403_1万分感谢科罗拉洲的战友们……你们的勇敢与智慧……让文贵感动至极……一切都要看结果！](/content/transcript/2019/04/20190403-53478662.md)
 
 
 ## 頁面 80/109 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 78/109 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月31日视频 20190531 林郑月娥触动中共最敏感神经 Carrie Lam put CCP on alert! 10000s banned on Twitter! Save all proofs of the ban!](/content/transcript/2019/05/20190531-53482488.md)
+
 [郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天](/content/transcript/2019/05/20190530-53478676.md)
 
 [郭文贵2019年5月30日视频 20190530_1林郑月娥亲自撰写，并要求中共中央在香港实施《遣返万能法》](/content/transcript/2019/05/20190530-53478671.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow](/content/transcript/2019/05/20190511-53478706.md)
 
 [郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people](/content/transcript/2019/05/20190510-53482540.md)
-
-[郭文贵2019年5月9日 20190509中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/transcript/2019/05/20190509-53483684.md)
 
 
 ## 頁面 78/109 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

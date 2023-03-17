@@ -3,6 +3,8 @@
 
 ## 頁面 72/109 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系](/content/transcript/2019/08/20190807-53733539.md)
+
 [2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系](/content/transcript/2019/08/20190807-53733537.md)
 
 [郭文贵2019年8月7日视频 20190807王岐山和德国前副总理 菲利浦什么关系 PAG太盟投资与海航王岐山什么关系 为什么太盟投资和林郑月娥 菲利浦 陈峰 王岐山走在一起](/content/transcript/2019/08/20190807-53482923.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年7月29日第一次直播 20190729_1尊敬的战友们好你们健身了吗？你们往身上泼水了吗？为什么在曼哈顿举行的国际经济会议改变了议程？一切都是刚刚开始！](/content/transcript/2019/07/20190729-53482905.md)
 
 [郭文贵2019年7月29日第二次直播 20190729_2香港发生了什么情况 中共在以日计的步伐奔向灭亡](/content/transcript/2019/07/20190729-53482904.md)
-
-[2019年7月28号文贵报平安全文字版](/content/transcript/2019/07/20190728-53740505.md)
 
 
 ## 頁面 72/109 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

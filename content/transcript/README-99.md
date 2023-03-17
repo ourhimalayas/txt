@@ -3,6 +3,8 @@
 
 ## 頁面 99/109 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月21日直播 20180221_1被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ Via：郭媒体](/content/transcript/2018/02/20180221-53477220.md)
+
 [郭文贵2018年2月19日直播 20180219_2Snow咋这么可爱呢](/content/transcript/2018/02/20180219-53477216.md)
 
 [郭文贵2018年2月19日直播 20180219_1Snow 也上桌了…… Via：郭媒体](/content/transcript/2018/02/20180219-53477210.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年2月6日第三次直播 20180206_3向大家报告关于今天2月6日取消与陈军先生见面的过程！](/content/transcript/2018/02/20180206-53484050.md)
 
 [郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明](/content/transcript/2018/02/20180206-53483964.md)
-
-[郭文贵2018年2月6日第二次直播 20180206_2再次呼吁战友们提供有关韦石、西诺、陈闯创、胡平利用办理假政庇骗钱的证据！一个把老婆放在大街上让人“乱干”的人不可能为大家“干出”民主自由！](/content/transcript/2018/02/20180206-53483959.md)
 
 
 ## 頁面 99/109 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)
