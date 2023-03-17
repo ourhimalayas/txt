@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/17/2023 5:57 AM UTC  - :tv:直播](/content/gettr/p2bpj1634a0.md)
+
+03/16/2023 At the press conference of the Ministry of Foreign Affairs of China, the spokesperson paused for a few seconds when asked by Reuters about Mr. Miles Guo's so-called "$1 billion fraud". Subsequently, they also twisted a f...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/17/05/98ca17ad-41b8-768b-46d7-deeb6175d10e/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/17/2023 1:47 AM UTC  - 2圖](/content/gettr/p2botjyb0a8.md)
 
 2023年3月17日 G|FASHION 全新上线
@@ -94,11 +102,11 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 
 ---
 
-[@milesguo 3/17/2023 5:57 AM UTC  - :tv:直播](/content/gettr/p2bpj1634a0.md)
+[@milesguo 3/17/2023 6:21 AM UTC  - :tv:直播](/content/gettr/p2bpbebf9bc.md)
 
-03/16/2023 At the press conference of the Ministry of Foreign Affairs of China, the spokesperson paused for a few seconds when asked by Reuters about Mr. Miles Guo's so-called "$1 billion fraud". Subsequently, they also twisted a f...
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
 
-<img src="https://media.gettr.com/group7/getter/2023/03/17/05/98ca17ad-41b8-768b-46d7-deeb6175d10e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 这个病毒未来最大的问题就是追责，追多少年？中国人是100...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/15/02/5866f741-911c-bd83-ee4b-91e3852707df/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 10:19 PM UTC  - :tv:直播](/content/gettr/p2bg9paa363.md)
-
-3/14/2023 Miles Guo: CCP is the root cause for all chaos around the world … the world disasters have not been started yet … economic warfare and financial warfare … till the ultimate decoupling from CCP China … has a long way to go...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/14/22/edeebf44-543d-2126-a2aa-1dfea4bb5a22/out.jpg" width="506" height="284">
 
 ---
 
