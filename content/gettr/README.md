@@ -2,6 +2,26 @@
 ---
 
 
+[@milesguo 3/17/2023 1:47 AM UTC  - 2圖](/content/gettr/p2botjyb0a8.md)
+
+2023年3月17日 G|FASHION 全新上线
+
+
+
+上线时间：美东 7:07 AM
+
+直播时间：美东 7:00 AM
+
+直播频道：NFSCTV
+
+
+
+NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
+
+<img src="https://media.gettr.com/group10/getter/2023/03/17/01/c383fd8f-6e5a-e4c2-f5b1-b2dc7dab8afc/d30b76624c255014ddd34a72ddf96fe1.png" width="506" height="284">
+
+---
+
 [@milesguo 3/17/2023 12:16 AM UTC  - :tv:直播](/content/gettr/p2bowwu3c7e.md)
 
 2023.03.16 全球战友等着七哥回来 Waiting for Miles to Come back（第八场）
@@ -74,23 +94,11 @@
 
 ---
 
-[@milesguo 3/17/2023 1:47 AM UTC  - 2圖](/content/gettr/p2botjyb0a8.md)
+[@milesguo 3/17/2023 5:57 AM UTC  - :tv:直播](/content/gettr/p2bpj1634a0.md)
 
-2023年3月17日 G|FASHION 全新上线
+03/16/2023 At the press conference of the Ministry of Foreign Affairs of China, the spokesperson paused for a few seconds when asked by Reuters about Mr. Miles Guo's so-called "$1 billion fraud". Subsequently, they also twisted a f...
 
-
-
-上线时间：美东 7:07 AM
-
-直播时间：美东 7:00 AM
-
-直播频道：NFSCTV
-
-
-
-NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
-
-<img src="https://media.gettr.com/group10/getter/2023/03/17/01/c383fd8f-6e5a-e4c2-f5b1-b2dc7dab8afc/d30b76624c255014ddd34a72ddf96fe1.png" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/17/05/98ca17ad-41b8-768b-46d7-deeb6175d10e/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 3/14/2023 Miles Guo: CCP is the root cause for all chaos around the world … the world disasters have not been started yet … economic warfare and financial warfare … till the ultimate decoupling from CCP China … has a long way to go...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/14/22/edeebf44-543d-2126-a2aa-1dfea4bb5a22/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 4:44 PM UTC  - 6圖](/content/gettr/p2bfsgh2b4c.md)
-
-2023.03.14 尊敬的战友们好......应战友们的要求...七哥和战友们分享几张照片
-
-<img src="https://media.gettr.com/group9/getter/2023/03/14/16/148fcf48-a0c3-a37c-53e7-613deae9f77a/e8bab83b3b08f984ac5d98fa80bbd167.JPG" width="506" height="284">
 
 ---
 
