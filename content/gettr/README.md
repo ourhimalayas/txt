@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/17/2023 8:59 AM UTC  - :tv:直播](/content/gettr/p2bq0i0d0bb.md)
+
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/17/2023 8:13 AM UTC  - :tv:直播](/content/gettr/p2bpsy7a4fa.md)
 
 3/16/2023 Last November, Miles Guo said the CCP had long held a grudge against him for living on the 18th floor of the Sherry-Netherland Hotel to carry out the mission of taking down the CCP. Today, by issuing an emergency order re...
@@ -118,11 +126,11 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 
 ---
 
-[@milesguo 3/17/2023 8:59 AM UTC  - :tv:直播](/content/gettr/p2bq0i0d0bb.md)
+[@milesguo 3/17/2023 12:02 PM UTC  - :tv:直播](/content/gettr/p2bqehg83dd.md)
 
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十场）
 
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back
 
 <img src="https://media.gettr.com/group11/origin/2023/03/15/14/fae6102f-fd68-8ac8-3539-936863cfebb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/15/2023 12:40 PM UTC ](/content/gettr/p2bipx0ac19.md)
-
-2023.03.15 尊敬的战友们好......向战友们报告......七哥将无法进行今天的直播，万分的抱歉🙏🙏🙏......由于美东时间3月15日早上5点多，有超过百名FBI探员大声呼喊，敲门进行搜查，要求七哥强制被带去法院出庭审问，七哥在被FBI带上手拷，近超过一个多小时的盘审搜身后，面带微笑中带离18楼......请战友们放心🙏❤️......
-
-<img src="https://media.gettr.com/group6/getter/2023/03/15/12/b13b8c7f-d1e7-3982-9e56-ee55b10fb72f/253bdf4843d31348b62a140f5fa18168.jpg" width="506" height="284">
 
 ---
 
