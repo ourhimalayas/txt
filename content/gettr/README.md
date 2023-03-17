@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/17/2023 12:16 AM UTC  - :tv:直播](/content/gettr/p2bowwu3c7e.md)
+
+2023.03.16 全球战友等着七哥回来 Waiting for Miles to Come back（第八场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/16/2023 4:16 PM UTC  - :tv:直播](/content/gettr/p2bncj3896a.md)
 
 2023.03.16 全球战友等着七哥回来 Waiting for Miles to Come back（第七场）
@@ -66,11 +74,23 @@
 
 ---
 
-[@milesguo 3/17/2023 12:16 AM UTC  - :tv:直播](/content/gettr/p2bowwu3c7e.md)
+[@milesguo 3/17/2023 1:47 AM UTC  - 2圖](/content/gettr/p2botjyb0a8.md)
 
-2023.03.16 全球战友等着七哥回来 Waiting for Miles to Come back（第八场）
+2023年3月17日 G|FASHION 全新上线
 
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+上线时间：美东 7:07 AM
+
+直播时间：美东 7:00 AM
+
+直播频道：NFSCTV
+
+
+
+NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
+
+<img src="https://media.gettr.com/group10/getter/2023/03/17/01/c383fd8f-6e5a-e4c2-f5b1-b2dc7dab8afc/d30b76624c255014ddd34a72ddf96fe1.png" width="506" height="284">
 
 ---
 
@@ -163,24 +183,6 @@ https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-org
 2023.03.14 尊敬的战友们好......应战友们的要求...七哥和战友们分享几张照片
 
 <img src="https://media.gettr.com/group9/getter/2023/03/14/16/148fcf48-a0c3-a37c-53e7-613deae9f77a/e8bab83b3b08f984ac5d98fa80bbd167.JPG" width="506" height="284">
-
----
-
-[@milesguo 3/14/2023 3:38 PM UTC ](/content/gettr/p2bfhnhd8c9.md)
-
-2023.03.14 【Dr. Arne Burkhardt 展示了一个医学幻灯片，其中证实刺突蛋白几乎完全替代了精子。
-
-
-
- 28 岁男子在疫苗注射后 140 天死亡。
-
-
-
- 刺突蛋白在测试中显示这里几乎没有精母细胞。
-
-
-
-他说： “如果我是生育年龄的女性，我不会让一个接种过疫苗的男性让我受孕。”】
 
 ---
 
