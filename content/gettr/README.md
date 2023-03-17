@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/17/2023 6:21 AM UTC  - :tv:直播](/content/gettr/p2bpbebf9bc.md)
+
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/17/2023 5:57 AM UTC  - :tv:直播](/content/gettr/p2bpj1634a0.md)
 
 03/16/2023 At the press conference of the Ministry of Foreign Affairs of China, the spokesperson paused for a few seconds when asked by Reuters about Mr. Miles Guo's so-called "$1 billion fraud". Subsequently, they also twisted a f...
@@ -102,11 +110,11 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 
 ---
 
-[@milesguo 3/17/2023 6:21 AM UTC  - :tv:直播](/content/gettr/p2bpbebf9bc.md)
+[@milesguo 3/17/2023 8:13 AM UTC  - :tv:直播](/content/gettr/p2bpsy7a4fa.md)
 
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
+3/16/2023 Last November, Miles Guo said the CCP had long held a grudge against him for living on the 18th floor of the Sherry-Netherland Hotel to carry out the mission of taking down the CCP. Today, by issuing an emergency order re...
 
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/17/08/8f2a3c85-0b1b-d488-1b22-5a5f63fa7f4f/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-organizations-double-billi...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/15/09/35188968-85dc-543a-342e-1d346647a442/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/15/2023 2:25 AM UTC  - :tv:直播](/content/gettr/p2bhapd9ce7.md)
-
-2023.03.14  In the future, the biggest problem with this virus will be accountability, how many years will this last? Will the Chinese take 100 years or 200 years to pay the money and pay for the cost?
-
-这个病毒未来最大的问题就是追责，追多少年？中国人是100...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/15/02/5866f741-911c-bd83-ee4b-91e3852707df/out.jpg" width="506" height="284">
 
 ---
 
