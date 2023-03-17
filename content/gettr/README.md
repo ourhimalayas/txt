@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/17/2023 8:13 AM UTC  - :tv:直播](/content/gettr/p2bpsy7a4fa.md)
+
+3/16/2023 Last November, Miles Guo said the CCP had long held a grudge against him for living on the 18th floor of the Sherry-Netherland Hotel to carry out the mission of taking down the CCP. Today, by issuing an emergency order re...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/17/08/8f2a3c85-0b1b-d488-1b22-5a5f63fa7f4f/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/17/2023 6:21 AM UTC  - :tv:直播](/content/gettr/p2bpbebf9bc.md)
 
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
@@ -110,11 +118,11 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 
 ---
 
-[@milesguo 3/17/2023 8:13 AM UTC  - :tv:直播](/content/gettr/p2bpsy7a4fa.md)
+[@milesguo 3/17/2023 8:59 AM UTC  - :tv:直播](/content/gettr/p2bq0i0d0bb.md)
 
-3/16/2023 Last November, Miles Guo said the CCP had long held a grudge against him for living on the 18th floor of the Sherry-Netherland Hotel to carry out the mission of taking down the CCP. Today, by issuing an emergency order re...
+2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
 
-<img src="https://media.gettr.com/group11/getter/2023/03/17/08/8f2a3c85-0b1b-d488-1b22-5a5f63fa7f4f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,24 +171,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 2023.03.15 尊敬的战友们好......向战友们报告......七哥将无法进行今天的直播，万分的抱歉🙏🙏🙏......由于美东时间3月15日早上5点多，有超过百名FBI探员大声呼喊，敲门进行搜查，要求七哥强制被带去法院出庭审问，七哥在被FBI带上手拷，近超过一个多小时的盘审搜身后，面带微笑中带离18楼......请战友们放心🙏❤️......
 
 <img src="https://media.gettr.com/group6/getter/2023/03/15/12/b13b8c7f-d1e7-3982-9e56-ee55b10fb72f/253bdf4843d31348b62a140f5fa18168.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/15/2023 9:53 AM UTC  - :tv:直播](/content/gettr/p2bi6sp06d3.md)
-
-2023.03.15 
-
-
-
-尊敬的战友们好，这不是炒作，这是逃脱，这是逃避犯罪……这些媒体是百分之百的帮凶……是协助犯罪，我要去睡一会儿了……二小时后，开始我们今天的大直播，今天是个好日子【美国主流新闻也开始炒作新冠病毒起源了，福奇危险了啊】
-
-
-
-
-
-https://www.cbsnews.com/video/following-the-money-to-wuhan-labs-records-show-organizations-double-billi...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/15/09/35188968-85dc-543a-342e-1d346647a442/out.jpg" width="506" height="284">
 
 ---
 
