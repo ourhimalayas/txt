@@ -2,6 +2,44 @@
 ---
 
 
+[@milesguo 3/17/2023 12:44 PM UTC ](/content/gettr/p2bqh3k2b93.md)
+
+2023.03.17 
+
+在这美丽世界
+
+愿我是风  你是雨 
+
+让微风浸在细雨里
+
+
+
+🌹抢听最新单曲《微风细雨》
+
+———Miles Guo ft.QMAY    
+
+iTunes即将上线 打榜预热中
+
+
+
+已上线平台：
+
+
+
+Spotify
+
+https://open.spotify.com/track/5rktXSwEM27Q547FuRC8Xk?si=8e85c1b9660249eb
+
+
+
+Amazon Music
+
+https://music....
+
+<img src="https://media.gettr.com/group8/getter/2023/03/17/12/8db5e819-d870-ee9a-253d-ae09d1efa318/cb7e16ce518c55bd6f515b16096b61f1.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/17/2023 12:02 PM UTC  - :tv:直播](/content/gettr/p2bqehg83dd.md)
 
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十场）
@@ -134,41 +172,11 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 
 ---
 
-[@milesguo 3/17/2023 12:44 PM UTC ](/content/gettr/p2bqh3k2b93.md)
+[@milesguo 3/17/2023 1:13 PM UTC  - :tv:直播](/content/gettr/p2bq33fcf1c.md)
 
-2023.03.17 
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十场）
 
-在这美丽世界
-
-愿我是风  你是雨 
-
-让微风浸在细雨里
-
-
-
-🌹抢听最新单曲《微风细雨》
-
-———Miles Guo ft.QMAY    
-
-iTunes即将上线 打榜预热中
-
-
-
-已上线平台：
-
-
-
-Spotify
-
-https://open.spotify.com/track/5rktXSwEM27Q547FuRC8Xk?si=8e85c1b9660249eb
-
-
-
-Amazon Music
-
-https://music....
-
-<img src="https://media.gettr.com/group8/getter/2023/03/17/12/8db5e819-d870-ee9a-253d-ae09d1efa318/cb7e16ce518c55bd6f515b16096b61f1.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ https://music....
 习死皇组建习联合国开始与西方世界正面对抗，他的疯狂将给人类带来永不消逝的灾难。
 
 <img src="https://media.gettr.com/group10/getter/2023/03/15/20/786251ba-996c-6a95-85ec-8be0ae0e9bdb/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/15/2023 8:15 PM UTC  - :tv:直播](/content/gettr/p2bjt3e0603.md)
-
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
