@@ -2,13 +2,27 @@
 ---
 
 
-[@milesguo 3/15/2023 8:57 PM UTC  - :tv:直播](/content/gettr/p2bkoyv1917.md)
+[@milesguo 3/17/2023 11:06 PM UTC  - :tv:直播](/content/gettr/p2bt4abaaf6.md)
 
-2023.03.15  Xi, the Dead Emperor, had formed the Xi United Nations, and they confronted the Western world head-on. His madness will bring eternal disaster to humanity.
+03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: There are too many suspicious things that have happened to Mr. Guo in the past few months to believe that they are all coincidences. The Chinese Communist Party has r...
 
-习死皇组建习联合国开始与西方世界正面对抗，他的疯狂将给人类带来永不消逝的灾难。
+<img src="https://media.gettr.com/group4/getter/2023/03/17/23/b2b52f83-fbf4-f7f8-c294-c2ee9f09d1c4/out.jpg" width="506" height="284">
 
-<img src="https://media.gettr.com/group10/getter/2023/03/15/20/786251ba-996c-6a95-85ec-8be0ae0e9bdb/out.jpg" width="506" height="284">
+---
+
+[@milesguo 3/17/2023 11:07 PM UTC  - :tv:直播](/content/gettr/p2bsqk6bbf2.md)
+
+03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: Who's really perpetrating the fraud here? Who's really capturing the money of the GTV investors?  It sounds like the evil people in the United States government who w...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/17/23/c4a827f5-4d7b-9a88-feee-6659041c6744/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/17/2023 11:13 PM UTC  - :tv:直播](/content/gettr/p2bs4jxdc08.md)
+
+03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: Mr. Miles Guo understands that alternative media sources must be created to tell the truth and shine light into the darkness. The CCP understands that they are one re...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/17/23/0d7087e7-ad84-7257-e5e9-7e9e412819ea/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,20 +201,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/16/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2bkobf16ff.md)
-
-03/15/2023 Mr. Miles Guo’s Sherry Netherland hotel apartment caught on fire after he was arrested earlier today, but no one is injured. Fire officials on the scene would not disclose who called 911. It was called in shortly after 1...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/16/00/ec969e17-0fe3-3191-987f-15ecf6101519/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/15/2023 9:18 PM UTC ](/content/gettr/p2bkdqj86f2.md)
-
-2023.03.15 战友们大家好 我是郭美。半小时前接到了爸爸打来的电话 他让我向大家转达：“我很想念大家，但是请战友们不要到法院门口去等，天太冷不要冻着了，都回去吧。要谨记，所有的事情不能停！该干啥干啥。今天我回不去，但请大家放心，我很好，非常安全！” 谢谢大家的惦念，有消息会及时通知大家🙏
 
 ---
 
