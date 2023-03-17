@@ -2,11 +2,13 @@
 ---
 
 
-[@milesguo 3/17/2023 3:59 PM UTC  - :tv:直播](/content/gettr/p2bqs8cfd16.md)
+[@milesguo 3/15/2023 8:57 PM UTC  - :tv:直播](/content/gettr/p2bkoyv1917.md)
 
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十一场）
+2023.03.15  Xi, the Dead Emperor, had formed the Xi United Nations, and they confronted the Western world head-on. His madness will bring eternal disaster to humanity.
 
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+习死皇组建习联合国开始与西方世界正面对抗，他的疯狂将给人类带来永不消逝的灾难。
+
+<img src="https://media.gettr.com/group10/getter/2023/03/15/20/786251ba-996c-6a95-85ec-8be0ae0e9bdb/out.jpg" width="506" height="284">
 
 ---
 
