@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/17/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2bs8nd1c84.md)
+
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十一场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/17/2023 1:13 PM UTC  - :tv:直播](/content/gettr/p2bq33fcf1c.md)
 
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十场）
@@ -185,14 +193,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 03/15/2023 Mr. Miles Guo’s Sherry Netherland hotel apartment caught on fire after he was arrested earlier today, but no one is injured. Fire officials on the scene would not disclose who called 911. It was called in shortly after 1...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/16/00/ec969e17-0fe3-3191-987f-15ecf6101519/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 3:59 PM UTC  - :tv:直播](/content/gettr/p2br6pw2284.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十一场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
