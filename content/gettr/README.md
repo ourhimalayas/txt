@@ -2,11 +2,75 @@
 ---
 
 
+[@gmusic 3/18/2023 10:17 AM UTC ](/content/gettr/p2btjrp7326.md)
+
+写在新中国联邦Gmusic首款灭共徽章投放之日
+
+《序》
+
+六年前的那只蝴蝶，煽动着翅膀，来到世间
+
+五年前的那种孤独，触动着内心，静静等待
+
+四年前的那种愤怒，凝聚着渴望，展开双臂
+
+三年前的那种悸动，承受着打击，感天动地
+
+两年前的那种深邃，背负着背叛，涅槃重生
+
+一年前的那种自信，面对着阳光，挽救苍生
+
+今天，我们再一次完胜！
+
+今天，再一次创造历史！
+
+今天，业已天成！
+
+#Gmusic #灭共者徽章
+
+#NFT #烈阳石 #音乐灭共
+
+#Opens...
+
+---
+
+[@gmusic 3/18/2023 10:35 AM UTC  - 2圖](/content/gettr/p2bu4971796.md)
+
+今天对于新中国联邦来说是个重要历史时刻，在七哥的庭审现场，美国法官Katharine H.Parker 担心检方政府，隐瞒 "对被告有利 "的关键信息，在庭上告诉纽约南区法院的检察官Damian Williams：你们有法律义务，持续和肯定地向郭先生披露所有可能有助于弹劾政府提供的证人、证词，以及对郭先生有利的信息，其中包括你们与外国政府的接触、或其他参与起诉、调查郭先生案件中可能有利益冲突人的接触。
+
+检察官Damian Williams当庭承认：我们在调...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/18/10/329a073e-f50f-837d-75c8-00147f49a4ee/89a9055433957b8ba746a570603a52c1.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 1:38 PM UTC  - :tv:直播](/content/gettr/p2buvsa10ba.md)
 
 2023.03.18 揭露CCP渗透美国 抗议迫害Miles大游行
 
 <img src="https://media.gettr.com/group11/origin/2023/03/18/12/3765bb11-cfc9-2a4d-f6d7-f4799af536eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@gmusic 3/17/2023 5:11 PM UTC ](/content/gettr/p2brxrp114c.md)
+
+滅共者勇士們：魔道為禍人間，生灵涂炭，快集齊七顆寶石，除魔衛道。
+
+
+
+3月24日7:07”豐盈石”降臨人間。
+
+
+
+在此找到傳送門：https://www.gmusic7.com/
+
+---
+
+[@gtranslators_1 3/18/2023 1:44 PM UTC  - :tv:直播](/content/gettr/p2bu8z1aaba.md)
+
+#FreeMilesGuoNow⎢#立即释放郭文贵先生⎢SIMULTANEOUS INTERPRETATION⎢
+
+<img src="https://media.gettr.com/group4/origin/2023/03/18/12/13c3e44a-1797-f40b-4009-97199f041f22/8cf1442f6ae2aa72d7b3a83890be5130.jpeg" width="506" height="284">
 
 ---
 
@@ -63,14 +127,6 @@
 03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: There are too many suspicious things that have happened to Mr. Guo in the past few months to believe that they are all coincidences. The Chinese Communist Party has r...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/17/23/b2b52f83-fbf4-f7f8-c294-c2ee9f09d1c4/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 3/18/2023 1:44 PM UTC  - :tv:直播](/content/gettr/p2bu8z1aaba.md)
-
-#FreeMilesGuoNow⎢#立即释放郭文贵先生⎢SIMULTANEOUS INTERPRETATION⎢
-
-<img src="https://media.gettr.com/group4/origin/2023/03/18/12/13c3e44a-1797-f40b-4009-97199f041f22/8cf1442f6ae2aa72d7b3a83890be5130.jpeg" width="506" height="284">
 
 ---
 
@@ -165,42 +221,6 @@ https://music....
 3/16/2023 Last November, Miles Guo said the CCP had long held a grudge against him for living on the 18th floor of the Sherry-Netherland Hotel to carry out the mission of taking down the CCP. Today, by issuing an emergency order re...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/17/08/8f2a3c85-0b1b-d488-1b22-5a5f63fa7f4f/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 6:21 AM UTC  - :tv:直播](/content/gettr/p2bpbebf9bc.md)
-
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 5:57 AM UTC  - :tv:直播](/content/gettr/p2bpj1634a0.md)
-
-03/16/2023 At the press conference of the Ministry of Foreign Affairs of China, the spokesperson paused for a few seconds when asked by Reuters about Mr. Miles Guo's so-called "$1 billion fraud". Subsequently, they also twisted a f...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/17/05/98ca17ad-41b8-768b-46d7-deeb6175d10e/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 1:47 AM UTC  - 2圖](/content/gettr/p2botjyb0a8.md)
-
-2023年3月17日 G|FASHION 全新上线
-
-
-
-上线时间：美东 7:07 AM
-
-直播时间：美东 7:00 AM
-
-直播频道：NFSCTV
-
-
-
-NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
-
-<img src="https://media.gettr.com/group10/getter/2023/03/17/01/c383fd8f-6e5a-e4c2-f5b1-b2dc7dab8afc/d30b76624c255014ddd34a72ddf96fe1.png" width="506" height="284">
 
 ---
 
