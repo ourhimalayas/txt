@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/18/2023 7:38 PM UTC  - :tv:直播](/content/gettr/p2buzp8b332.md)
+
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back（第十四场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gmusic 3/18/2023 10:17 AM UTC ](/content/gettr/p2btjrp7326.md)
 
 写在新中国联邦Gmusic首款灭共徽章投放之日
@@ -34,11 +42,11 @@
 
 ---
 
-[@milesguo 3/18/2023 7:38 PM UTC  - :tv:直播](/content/gettr/p2buzp8b332.md)
+[@milesguo 3/18/2023 9:25 PM UTC  - :tv:直播](/content/gettr/p2bvur58d43.md)
 
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back（第十四场）
+【#FreeMilesGuoNow】03/18/2023  On March 15, hundreds of FBI agents swarmed Miles Guo's 18’s floor residence at The Sherry-Netherland Hotel. 6 hours after they had taken Mr. Gore into detention, the FBI lit a fire that burned down th...
 
-<img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/18/21/3fc4bec8-98c3-3a24-51dd-9afa8ffe5f77/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ https://music....
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 8:59 AM UTC  - :tv:直播](/content/gettr/p2bq0i0d0bb.md)
-
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
