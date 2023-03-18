@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 96/109 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 96/110 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年4月22日视频1 20180422_1要射向明镜的10个问彈！](/content/transcript/2018/04/20180422-53482315.md)
+
+[郭文贵2018年4月22日视频2 20180422_2盗国贼新的一波行动](/content/transcript/2018/04/20180422-53478125.md)
+
+[郭文贵2018年4月22日视频2 20180422_3那一天的美东战友聚会多么的美好！](/content/transcript/2018/04/20180422-53477176.md)
 
 [郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/transcript/2018/04/20180421-53482360.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2018年4月3日第一次直播 20180403_1-在未来的几天我将向大家谈一下关于吴晓辉和向俊波以及他背后的真实故事他也是香港警察与盗国贼的谋害者之一他的黑幕会也让大家震惊万分](/content/transcript/2018/04/20180403-53482108.md)
 
-[郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180402-53483683.md)
 
-[郭文贵2018年4月2日视频 20180402_2我将向大家谈一下关于吴小晖和项俊波以及他们背后的真实故事](/content/transcript/2018/04/20180402-53477166.md)
-
-[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）](/content/transcript/2018/03/20180331-53482084.md)
-
-
-## 頁面 96/109 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 96/110 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)

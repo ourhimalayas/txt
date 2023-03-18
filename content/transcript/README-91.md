@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 91/109 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年9月6日直播 20180906_1](/content/transcript/2018/09/20180906-53478195.md)
+
+[郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】](/content/transcript/2018/09/20180905-53482623.md)
+
+[郭文贵2018年9月5日视频第二部分 20180905_2黄河边性无能造成严重后果。林肯中心被取消发布会 2](/content/transcript/2018/09/20180905-53482514.md)
 
 [郭文贵2018年9月3日视频 20180903为了员工，家人文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180903-53482587.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2018年8月16日第二次直播 20180816_2台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）](/content/transcript/2018/08/20180816-53482467.md)
 
-[郭文贵2018年8月15日直播 20180815_1聊聊人民币汇率的问题,美中战略重新定义的内涵和大连政法委的恶行](/content/transcript/2018/08/20180815-53478164.md)
 
-[郭文贵2018年8月15日视频 20180815_2做平板撑 坚持才能胜利！](/content/transcript/2018/08/20180815-53477251.md)
-
-[郭文贵2018年8月13日第一次直播 20180813_1大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/content/transcript/2018/08/20180813-53482491.md)
-
-
-## 頁面 91/109 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

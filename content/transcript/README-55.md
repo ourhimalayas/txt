@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 55/109 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 55/110 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国](/content/transcript/2020/04/20200425-53479339.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2020年4月8日GTV直播 20200408_2关于G-TV战友们关心的问题和现在国内疫情的真实现状。](/content/transcript/2020/04/20200408-53481600.md)
 
 
-## 頁面 55/109 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 55/110 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)

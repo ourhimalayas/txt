@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 103/109 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 103/110 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年10月13日视频 20171013_2准备明天的全球发布会，谈盗国贼的事](/content/transcript/2017/10/20171013-53476935.md)
+
+[郭文贵2017年10月12日 20171012分享纽约城市天际线，想大家](/content/transcript/2017/10/20171012-53484111.md)
+
+[郭文贵2017年10月12日视频 20171012_2准备资料避开郭七条里不反的人，国内人不要冲动](/content/transcript/2017/10/20171012-53476929.md)
 
 [郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料](/content/transcript/2017/10/20171010-53476924.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2017年9月18日视频 20170918在安全屋准备全球发布会资料 担心中国大乱](/content/transcript/2017/09/20170918-53483583.md)
 
-[郭文贵2017年9月15日 20170915第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习](/content/transcript/2017/09/20170915-53484004.md)
 
-[郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一](/content/transcript/2017/09/20170914-53483579.md)
-
-[郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？](/content/transcript/2017/09/20170913-53483986.md)
-
-
-## 頁面 103/109 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 103/110 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)

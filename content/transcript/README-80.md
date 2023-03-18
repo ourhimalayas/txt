@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 80/109 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年4月27日视频 20190427_2-(文貴完整版) 文贵、班农、路德直播：班农先生谈关于当前委的众多问题? 文貴談当前委在美国有什么重要影响力？揭露一带一路的本质](/content/transcript/2019/04/20190427-53478656.md)
+
+[郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊](/content/transcript/2019/04/20190426-53478648.md)
+
+[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）](/content/transcript/2019/04/20190425-53478643.md)
 
 [郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！](/content/transcript/2019/04/20190424-53482382.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2019年4月10日视频 20190410_1 很多战友发给我说Larry King还有俄罗斯美女Dolgva Anastasia又开始找我们事了……造我们谣了，还有很多基金打电话取消跟我的合作！](/content/transcript/2019/04/20190410-53478583.md)
 
-[郭文贵2019年4月9日视频 20190409谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事！](/content/transcript/2019/04/20190409-53482255.md)
 
-[郭文贵2019年4月9日视频 20190409_2现在向战友们分享喜马拉雅大使馆内部的法制基金的办公室的一小部分．战友餐厅．以及法制基金的办公区](/content/transcript/2019/04/20190409-53478579.md)
-
-[郭文贵2019年4月7日视频 20190407美．欧．日．等将对中资国营．香港自贸协定．中共及香港官员的一系列的立法制栽．或调查．或列入黑名单．行动．将是中共灭亡的第一步！](/content/transcript/2019/04/20190407-53482253.md)
-
-
-## 頁面 80/109 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

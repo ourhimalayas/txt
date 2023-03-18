@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 64/109 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 64/110 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年11月20日 20191120_4“纪念1120新闻发布会一周：揭秘王健之死”上部](/content/transcript/2019/11/20191120-53478038.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦](/content/transcript/2019/11/20191105-53479126.md)
 
 
-## 頁面 64/109 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 64/110 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)

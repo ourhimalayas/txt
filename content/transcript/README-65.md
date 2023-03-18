@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 65/109 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 65/110 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位](/content/transcript/2019/11/20191104-53483340.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2019年10月23日视频 20191023中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！](/content/transcript/2019/10/20191023-53483226.md)
 
 
-## 頁面 65/109 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 65/110 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)

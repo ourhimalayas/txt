@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 46/109 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 46/110 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年9月16日盖特 20200916_1文贵在会议期间和战友乱聊一会儿](/content/transcript/2020/09/20200916-53482246.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2020年8月29日连线台湾 20200829_6sara和郭先生与台湾连线](/content/transcript/2020/08/20200829-53482177.md)
 
 
-## 頁面 46/109 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 46/110 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)

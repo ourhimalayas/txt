@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 7/109 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 7/110 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年4月6日盖特 20220406_1尊敬的战友们好，刚刚的开完庭．收到了很多战友的问候……七哥在这里衷心地，感谢所有兄弟姐妹们的关心，❤️❤️❤️❤️❤️❤️❤️七哥向你们报平安了！](/content/transcript/2022/04/20220406-53481149.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2022年3月12日盖特 20220312_1尊敬的战友们好，新中国联邦人……正在乌克兰战场……中东的能源市场，全世界的数字货币领域，向世界展示爱好和平，聪明，智慧无私新中国人的国际形象。正在全世界阻止由于共产党，在全](/content/transcript/2022/03/20220312-53480967.md)
 
 
-## 頁面 7/109 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 7/110 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)

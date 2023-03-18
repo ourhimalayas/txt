@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 72/109 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
+
+[2019年8月9日《郭文贵大直播》全文字版：船上报平安直播](/content/transcript/2019/08/20190809-53739787.md)
+
+[郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe](/content/transcript/2019/08/20190809-53482977.md)
+
+[郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事](/content/transcript/2019/08/20190809-53478896.md)
 
 [2019年8月8日《文贵大直播》全文字版： 中共对世界布下的天罗地网，并不能阻止中共灭亡的步伐](/content/transcript/2019/08/20190808-53739868.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着](/content/transcript/2019/07/20190731-53478869.md)
 
-[郭文贵2019年7月30日视频 20190730_1(精華自26分04秒起至35分27秒)习近平上位、必灭薄熙来、贾庆林出场、李源潮书生、南普陀计划](/content/transcript/2019/07/20190730-53478867.md)
 
-[2019年7月29日文贵大直播全文字版：共产党已经进入倒计时](/content/transcript/2019/07/20190729-53805567.md)
-
-[2019年7月29日文贵大直播全文字版：共产党已经进入倒计时](/content/transcript/2019/07/20190729-53805587.md)
-
-
-## 頁面 72/109 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

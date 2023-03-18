@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 5/109 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 5/110 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年9月11日直播 20220911_1七哥与战友们聊聊共产党会如何崩溃](/content/transcript/2022/09/20220911-53481352.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2022年4月26日盖特 20220426_1尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！](/content/transcript/2022/04/20220426-53481195.md)
 
 
-## 頁面 5/109 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 5/110 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)

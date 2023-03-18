@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 105/109 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年8月29日视频 20170829船上健身](/content/transcript/2017/08/20170829-53483553.md)
+
+[郭文贵2017年8月28日 20170828文贵到底是不是国安特务，文贵与王艳平到底有没有乱伦](/content/transcript/2017/08/20170828-53483924.md)
+
+[郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午](/content/transcript/2017/08/20170828-53483549.md)
 
 [郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实](/content/transcript/2017/08/20170827-53483547.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2017年8月11日直播 20170811_1船上那天说多了，刘呈杰，贯君的爹们正在北戴河夺权呢](/content/transcript/2017/08/20170811-53483508.md)
 
-[郭文贵2017年8月9日第一次直播 20170809_1试试网络：一个台湾老朋友一个国内老领导与我通过电话后的感受](/content/transcript/2017/08/20170809-53483912.md)
 
-[郭文贵2017年8月9日第二次直播 20170809_2报平安直播---关于四川地震 &#124; 海航贯军刘呈杰的爹](/content/transcript/2017/08/20170809-53483909.md)
-
-[郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！](/content/transcript/2017/08/20170807-53483893.md)
-
-
-## 頁面 105/109 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

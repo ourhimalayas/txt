@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 77/109 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年6月15日视频 20190615郭先生緊急喊話香港616必須上街](/content/transcript/2019/06/20190615-53482758.md)
+
+[2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”](/content/transcript/2019/06/20190614-53537318.md)
+
+[郭文贵2019年6月14日 20190614林郑月娥提出辞职，取消”逃犯条例”；叶刘淑仪提出硬挺通过”逃犯条例”](/content/transcript/2019/06/20190614-53482749.md)
 
 [郭文贵2019年6月13日第一次直播 20190613_1郭文贵直播喜马拉雅大使馆呼吁关注香港的明天，私家车可以帮助香港人民费用文贵出](/content/transcript/2019/06/20190613-53482738.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2019年6月7日视频 20190607香港的事真搞大了](/content/transcript/2019/06/20190607-53482525.md)
 
-[郭文贵2019年6月5日视频 20190605庞皮奥的讲话与香港6.9日大游行……](/content/transcript/2019/06/20190605-53482517.md)
 
-[郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街](/content/transcript/2019/06/20190603-53478685.md)
-
-[郭文贵2019年6月2日谈林郑卖港 20190602班农与郭文贵谈林郑卖港、6月4日新中国建国日、欧洲反共革命](/content/transcript/2019/06/20190602-53482509.md)
-
-
-## 頁面 77/109 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

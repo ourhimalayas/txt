@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 9/109 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 9/110 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年2月18日直播 20220218_1乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭](/content/transcript/2022/02/20220218-53479586.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2022年1月30日直播 20220130_1怎样看待俄罗斯侵略乌克兰，习帝打台湾这两场战争；中共资助俄罗斯助长俄打乌克兰，将加快全球灭共；疫苗经济，政治，军事灾难的爆发，会让很多欧洲国家走向战争；2022是最困难一年，中共](/content/transcript/2022/01/20220130-53479410.md)
 
 
-## 頁面 9/109 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 9/110 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)

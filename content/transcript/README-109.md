@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 109/109 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [查看全部](/content/transcript/README-all.md)
+## 頁面 109/110 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年5月7日 20170507_2向大家报平安的小视频 2](/content/transcript/2017/05/20170507-53483781.md)
+
+[郭文贵2017年5月7日 20170507_1向大家报平安的小视频 1](/content/transcript/2017/05/20170507-53483777.md)
+
+[郭文贵2017年5月6日视频 20170506](/content/transcript/2017/05/20170506-53483774.md)
 
 [郭文贵2017年5月5日视频 20170505](/content/transcript/2017/05/20170505-53483763.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2017年3月5日视频 20170305韦石与郭文贵会面全程实拍](/content/transcript/2017/03/20170305-53477270.md)
 
-[郭文贵2017年1月26日明镜专访第一期 20170126《法治與社會》第1期](/content/transcript/2017/01/20170126-53484434.md)
 
-[郭文贵2015年视频 2015_1傅政华威胁郭文贵先生的秘密通话⎟The secret phone conversation between Miles Guo and Fu Zhenghua in 2015](/content/transcript/2014/12/20141231-53482947.md)
-
-[郭文贵2004年8月1日视频 20040801北顶娘娘庙附近的龙卷风](/content/transcript/2004/08/20040801-53483539.md)
-
-
-## 頁面 109/109 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [查看全部](/content/transcript/README-all.md)
+## 頁面 109/110 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 83/110 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年1月29日视频 20190129_3文贵看春晚特别定制的八套西装，11件衬衣，今天已经全部到了，这是劳．瑞奇特别为我们定做的！](/content/transcript/2019/01/20190129-53478544.md)
+
+[郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。](/content/transcript/2019/01/20190128-53478537.md)
+
+[郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！](/content/transcript/2019/01/20190127-53481853.md)
 
 [郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉](/content/transcript/2019/01/20190125-53481844.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2019年1月11日视频 20190111中央電視台大樓整個設計本人全面參與, 班農將在春晚講述在白宮的親身經歷](/content/transcript/2019/01/20190111-53482075.md)
 
-[郭文贵2019年1月11日视频 20190111_2國內現在都明白了, 甚麼反腐運動, 王八蛋反腐, 實際上都是滅口運動](/content/transcript/2019/01/20190111-53478504.md)
 
-[郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...](/content/transcript/2019/01/20190110-53481644.md)
-
-[郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案](/content/transcript/2019/01/20190109-53478498.md)
-
-
-## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 83/110 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

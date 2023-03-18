@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 93/109 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年8月4日视频 20180804出发去会晤一位刚与王岐山见过面的重要朋友，感叹水上美景](/content/transcript/2018/08/20180804-53477224.md)
+
+[郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家](/content/transcript/2018/07/20180730-53477219.md)
+
+[郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！](/content/transcript/2018/07/20180728-53478063.md)
 
 [郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！](/content/transcript/2018/07/20180722-53482468.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2018年6月27日直播 20180627_3一边抽雪茄一边直播（第二段）](/content/transcript/2018/06/20180627-53477960.md)
 
-[郭文贵2018年6月27日直播 20180627_2一边抽雪茄一边直播（第一段）](/content/transcript/2018/06/20180627-53477951.md)
 
-[郭文贵2018年6月27日视频 20180627_4在船上远眺曼哈顿](/content/transcript/2018/06/20180627-53477208.md)
-
-[郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！](/content/transcript/2018/06/20180625-53483818.md)
-
-
-## 頁面 93/109 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

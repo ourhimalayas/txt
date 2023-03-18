@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 40/109 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 40/110 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年12月31日视频 20201231_2《我是音雄》之GForever全球跨年晚会](/content/transcript/2020/12/20201231-53479738.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2020年12月23日盖特 20201223_1尊敬的战友们好……你们健身了吗？你们传播C C P病毒……香港危机真相了吗？一切都已经开始！](/content/transcript/2020/12/20201223-53479623.md)
 
 
-## 頁面 40/109 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 40/110 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

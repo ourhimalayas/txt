@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 85/109 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 85/110 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年12月21日视频 20181221_1昨天美國司法部的行動還不是特別大的事 大事還沒開始呢 明年三月才開始 那時候可就不是亂扔刀叉這個級別的了](/content/transcript/2018/12/20181221-53478449.md)
+
+[郭文贵2018年12月20日视频 20181220要對你的嫂子好 對你的弟妹好 你的運氣才會好](/content/transcript/2018/12/20181220-53483696.md)
+
+[郭文贵2018年12月19日视频 20181219改革開放40年大會確定要往回走 大家準備吃草吧](/content/transcript/2018/12/20181219-53483694.md)
 
 [郭文贵2018年12月18日视频 20181218_1某部門已開始對過去在網路上造我的謠的人那個那個那個](/content/transcript/2018/12/20181218-53478424.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2018年11月25日视频 20181125_1](/content/transcript/2018/11/20181125-53478541.md)
 
-[郭文贵2018年11月24日视频 20181124_1](/content/transcript/2018/11/20181124-53478538.md)
 
-[郭文贵2018年11月22日视频 20181122_1应很多战友的要求．录一个SNOW小视频！祝大家感恩节快乐！](/content/transcript/2018/11/20181122-53478536.md)
-
-[郭文贵2018年11月21日视频 20181121丢掉放弃幻想，只要共产党存在一天我们就没有安全之日... 亲人员工们忘掉过去的文贵吧，现在的文贵，是承负着上天的使命和十四亿人民对我的寄托，我不能只为你们活着](/content/transcript/2018/11/20181121-53482337.md)
-
-
-## 頁面 85/109 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 85/110 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

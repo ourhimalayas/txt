@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 106/109 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 106/110 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年8月9日第一次直播 20170809_1试试网络：一个台湾老朋友一个国内老领导与我通过电话后的感受](/content/transcript/2017/08/20170809-53483912.md)
+
+[郭文贵2017年8月9日第二次直播 20170809_2报平安直播---关于四川地震 &#124; 海航贯军刘呈杰的爹](/content/transcript/2017/08/20170809-53483909.md)
+
+[郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！](/content/transcript/2017/08/20170807-53483893.md)
 
 [郭文贵2017年8月7日直播 20170807_2马英九是...](/content/transcript/2017/08/20170807-53483510.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2017年7月10日王岐山家族 20170710王岐山家族与海航787等多架私人飞机的关系，及千次飞行记录的真实来由！](/content/transcript/2017/07/20170710-53484116.md)
 
-[郭文贵2017年7月9日直播试网络 20170709文贵爆的王岐山傅政华盗国贼们的事情大陆人的真实感受](/content/transcript/2017/07/20170709-53483895.md)
 
-[郭文贵2017年7月8日 20170708文贵与王岐山的啪啪啪的能力比较](/content/transcript/2017/07/20170708-53483892.md)
-
-[郭文贵2017年7月6日 20170706王岐山的新豪宅．及孟建柱傅政华的真实关系与丰富多彩的性生活！](/content/transcript/2017/07/20170706-53483885.md)
-
-
-## 頁面 106/109 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 106/110 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)

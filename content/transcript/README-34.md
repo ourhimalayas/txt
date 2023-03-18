@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 34/109 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 34/110 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年3月15日盖特 20210315_2尊敬的战友们好……文贵与大家回顾一下，1月5号至16号间中美之间险些发生真正的战争的背后的故事…](/content/transcript/2021/03/20210315-53480404.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2021年3月4日盖特 20210304_2尊敬的战友们好！G俱乐部的会员卡．从今天起．任何人都可以买多张卡的新政策开始实施](/content/transcript/2021/03/20210304-53480314.md)
 
 
-## 頁面 34/109 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 34/110 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)

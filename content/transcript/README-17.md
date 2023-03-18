@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 17/109 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 17/110 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年10月14日盖特 20211014_1大好消息来了……](/content/transcript/2021/10/20211014-53483111.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2021年9月30日盖特 20210930_1尊敬的战友们好．以疫苗灭共．我们全球战友的合作效果显著，我们大家一定全力以赴，传播疫苗灾难的真相……全面的开始疫苗灭共的国际大决战！](/content/transcript/2021/09/20210930-53482932.md)
 
 
-## 頁面 17/109 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 17/110 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)

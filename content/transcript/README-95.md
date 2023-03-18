@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 95/109 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年5月17日视频 20180517谈马来西亚、委内瑞拉、信仰和理想](/content/transcript/2018/05/20180517-53482402.md)
+
+[郭文贵2018年5月13日直播 20180513_1文贵的人生导师之一昨晚上仙鹤而去！！！????????????](/content/transcript/2018/05/20180513-53477806.md)
+
+[郭文贵2018年5月12日视频 20180512在路德访谈节目中与95后海军陆战队队员深入交流](/content/transcript/2018/05/20180512-53477185.md)
 
 [郭文贵2018年5月11日视频2 20180511_2这是文贵首次挂出，我与刘彦平先生在2017年5月1日至2日斗沟通．有关来美国的过程！这些视频将成为西方看中国．看文贵的最好的事实样版！](/content/transcript/2018/05/20180511-53483011.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2018年4月23日视频 20180423与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写](/content/transcript/2018/04/20180423-53482324.md)
 
-[郭文贵2018年4月22日视频1 20180422_1要射向明镜的10个问彈！](/content/transcript/2018/04/20180422-53482315.md)
 
-[郭文贵2018年4月22日视频2 20180422_2盗国贼新的一波行动](/content/transcript/2018/04/20180422-53478125.md)
-
-[郭文贵2018年4月22日视频2 20180422_3那一天的美东战友聚会多么的美好！](/content/transcript/2018/04/20180422-53477176.md)
-
-
-## 頁面 95/109 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

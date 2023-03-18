@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 42/109 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 42/110 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年12月10日盖特 20201210_2尊敬的战友们好，请今天．都去看路德波切访谈……我们的灭共革命进入了一个新的阶段，希望大家过了24小时以后不要兴奋得都去亲自己的脸……一切都已经开始](/content/transcript/2020/12/20201210-53479542.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2020年11月23日盖特 20201123_1剛剛睡了6個小時 既能吃也能睡](/content/transcript/2020/11/20201123-53482710.md)
 
 
-## 頁面 42/109 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 42/110 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 90/109 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 90/110 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年9月18日视频 20180918_2選購西裝布料](/content/transcript/2018/09/20180918-53478272.md)
+
+[郭文贵2018年9月18日视频 20180918_1](/content/transcript/2018/09/20180918-53478268.md)
+
+[郭文贵2018年9月17日视频 20180917(全程無駭客干擾版)王健死亡事件真相有重大进展，法国司法部已经正式立案全面重新调查！](/content/transcript/2018/09/20180917-53482563.md)
 
 [郭文贵2018年9月17日视频 20180917_3今天是个好日子……本来过5不食的！现在吃点粗茶淡饭！喝点中年茅台！奖励自己一下……二十几个小时连续的工作！唯独美中不足缺战友！](/content/transcript/2018/09/20180917-53478265.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2018年9月7日视频 20180907文贵申请政庇一周年！与战友们分享香港司法的危害与黑暗的事实！](/content/transcript/2018/09/20180907-53482528.md)
 
-[郭文贵2018年9月6日直播 20180906_1](/content/transcript/2018/09/20180906-53478195.md)
 
-[郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】](/content/transcript/2018/09/20180905-53482623.md)
-
-[郭文贵2018年9月5日视频第二部分 20180905_2黄河边性无能造成严重后果。林肯中心被取消发布会 2](/content/transcript/2018/09/20180905-53482514.md)
-
-
-## 頁面 90/109 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 90/110 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

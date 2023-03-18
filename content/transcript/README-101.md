@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 101/109 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 101/110 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年1月18日视频 20180118时间飞逝 文贵先生宠物狗snow的成长全记录](/content/transcript/2018/01/20180118-53477351.md)
+
+[郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富](/content/transcript/2018/01/20180115-53483963.md)
+
+[郭文贵2018年1月13日 20180113加拿大挺郭后援会2018年首次挺郭聚会（2）](/content/transcript/2018/01/20180113-53484199.md)
 
 [郭文贵2018年1月11日直播 20180111_2](/content/transcript/2018/01/20180111-53482825.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2017年11月16日直播 20171116_1自称“领袖”级人物要把川普介绍给郭文贵](/content/transcript/2017/11/20171116-53482813.md)
 
-[郭文贵2017年11月15日第一次直播 20171115_1在Instagram直播痛斥唐柏桥](/content/transcript/2017/11/20171115-53484194.md)
 
-[郭文贵2017年11月15日第二次直播 20171115_2文贵与网友分享迈 阿密的穷人区新发展出来的新的设计区，这 才是真正地产开发商该干的事！创造财富以 报社会！并该恶帮穷从善！](/content/transcript/2017/11/20171115-53483880.md)
-
-[郭文贵2017年11月15日视频 20171115_4HBO專訪 Exiled Chinese Billionaire Uses YouTube To Wage A War On Corruption HBO](/content/transcript/2017/11/20171115-53477394.md)
-
-
-## 頁面 101/109 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 101/110 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)

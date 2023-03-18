@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 6/109 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 6/110 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年4月25日盖特 20220425_1尊敬的战友们好·应战友们的要求……录一段SNOW的视频给大家????SNOW 刚刚洗完澡????太可爱了……](/content/transcript/2022/04/20220425-53481191.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2022年4月8日盖特 20220408_1尊敬的战友们好，中国共产党正在中国内部……和世界．进行的人类大屠杀，必将受到中国人民和全世界维护正义的人的．最终的审判，希望国内的同胞们．能尽快的醒来．规范这个邪恶了魔鬼组](/content/transcript/2022/04/20220408-53481151.md)
 
 
-## 頁面 6/109 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 6/110 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 3/109 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 3/110 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
 
 [2022年12月6日 文贵先生父亲离世公告视频《全文字版》](/content/transcript/2022/12/20221206-53619507.md)
 
@@ -54,4 +54,4 @@
 [2022年10月07日《文贵大直播》Fashion秋冬回馈活动 G｜Clubs会员专享](/content/transcript/2022/10/20221007-53520893.md)
 
 
-## 頁面 3/109 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 3/110 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)

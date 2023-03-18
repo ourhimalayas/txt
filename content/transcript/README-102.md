@@ -1,7 +1,13 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 102/109 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年11月15日第一次直播 20171115_1在Instagram直播痛斥唐柏桥](/content/transcript/2017/11/20171115-53484194.md)
+
+[郭文贵2017年11月15日第二次直播 20171115_2文贵与网友分享迈 阿密的穷人区新发展出来的新的设计区，这 才是真正地产开发商该干的事！创造财富以 报社会！并该恶帮穷从善！](/content/transcript/2017/11/20171115-53483880.md)
+
+[郭文贵2017年11月15日视频 20171115_4HBO專訪 Exiled Chinese Billionaire Uses YouTube To Wage A War On Corruption HBO](/content/transcript/2017/11/20171115-53477394.md)
 
 [郭文贵2017年11月15日视频 20171115_3在游艇上早餐 Instagram直播](/content/transcript/2017/11/20171115-53477196.md)
 
@@ -47,11 +53,5 @@
 
 [郭文贵2017年10月13日视频 20171013分享纽约城市天际线！想大家了．没有爆料．千万别影响大家睡觉．工作！](/content/transcript/2017/10/20171013-53483529.md)
 
-[郭文贵2017年10月13日视频 20171013_2准备明天的全球发布会，谈盗国贼的事](/content/transcript/2017/10/20171013-53476935.md)
 
-[郭文贵2017年10月12日 20171012分享纽约城市天际线，想大家](/content/transcript/2017/10/20171012-53484111.md)
-
-[郭文贵2017年10月12日视频 20171012_2准备资料避开郭七条里不反的人，国内人不要冲动](/content/transcript/2017/10/20171012-53476929.md)
-
-
-## 頁面 102/109 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

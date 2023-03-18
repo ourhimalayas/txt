@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 11/109 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 11/110 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年1月17日盖特 20220117_2尊敬的战友们好．征服不了自己的人……永远征服不了敌人……能让你自己不流泪，家人不流血的方式，就是必须要强大自己……强大自己的内心，坚定追求自己的信仰，才是最基本的，让你自己](/content/transcript/2022/01/20220117-53479202.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2021年12月30日盖特直播 20211230_1共产党的内部斗争已经成为共产党政治生活的主题。](/content/transcript/2021/12/20211230-53483483.md)
 
 
-## 頁面 11/109 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 11/110 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)

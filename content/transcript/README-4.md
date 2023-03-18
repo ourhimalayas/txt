@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 4/109 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 4/110 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
 
 [2022年10月05日郭文贵先生直播 为什么西方的情报机构认为中共近期不会打台湾？](/content/transcript/2022/10/20221005-53520891.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2022年9月12日盖特 20220912_1尊敬的战友们好……共产党经济的崩溃，会给普通老百姓带来什么样的后果呢？](/content/transcript/2022/09/20220912-53481804.md)
 
 
-## 頁面 4/109 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 4/110 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
