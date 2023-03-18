@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/18/2023 4:14 AM UTC  - :tv:直播](/content/gettr/p2btlvj59c0.md)
+
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 3:35 AM UTC  - :tv:直播](/content/gettr/p2bt5cj6608.md)
 
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
@@ -34,9 +42,9 @@
 
 ---
 
-[@milesguo 3/18/2023 4:14 AM UTC  - :tv:直播](/content/gettr/p2btlvj59c0.md)
+[@milesguo 3/18/2023 6:40 AM UTC  - :tv:直播](/content/gettr/p2btnwh266d.md)
 
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十三场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -191,14 +199,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 [@milesguo 3/16/2023 12:01 PM UTC  - :tv:直播](/content/gettr/p2bmrhb1a6a.md)
 
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第六场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/16/2023 9:06 AM UTC  - :tv:直播](/content/gettr/p2bn0jk39af.md)
-
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
