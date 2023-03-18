@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/18/2023 3:35 AM UTC  - :tv:直播](/content/gettr/p2bt5cj6608.md)
+
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 1:50 AM UTC  - :tv:直播](/content/gettr/p2bsurl73c2.md)
 
 03/17/2023 Founder/CEO of America First News Joshua Feuerstein prayed on behalf of America First News and the American people for Mr. Miles Guo, GTV, and all members of the NFSC: that Heavenly Father would touch Mr. Guo and his cas...
@@ -26,7 +34,7 @@
 
 ---
 
-[@milesguo 3/18/2023 3:35 AM UTC  - :tv:直播](/content/gettr/p2bt5cj6608.md)
+[@milesguo 3/18/2023 4:14 AM UTC  - :tv:直播](/content/gettr/p2btlvj59c0.md)
 
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
 
@@ -189,14 +197,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 ---
 
 [@milesguo 3/16/2023 9:06 AM UTC  - :tv:直播](/content/gettr/p2bn0jk39af.md)
-
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/16/2023 6:49 AM UTC  - :tv:直播](/content/gettr/p2bm61t6178.md)
 
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
 
