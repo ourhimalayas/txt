@@ -34,6 +34,14 @@
 
 ---
 
+[@milesguo 3/18/2023 7:38 PM UTC  - :tv:直播](/content/gettr/p2buzp8b332.md)
+
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back（第十四场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gmusic 3/18/2023 10:35 AM UTC  - 2圖](/content/gettr/p2bu4971796.md)
 
 今天对于新中国联邦来说是个重要历史时刻，在七哥的庭审现场，美国法官Katharine H.Parker 担心检方政府，隐瞒 "对被告有利 "的关键信息，在庭上告诉纽约南区法院的检察官Damian Williams：你们有法律义务，持续和肯定地向郭先生披露所有可能有助于弹劾政府提供的证人、证词，以及对郭先生有利的信息，其中包括你们与外国政府的接触、或其他参与起诉、调查郭先生案件中可能有利益冲突人的接触。
@@ -41,14 +49,6 @@
 检察官Damian Williams当庭承认：我们在调...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/18/10/329a073e-f50f-837d-75c8-00147f49a4ee/89a9055433957b8ba746a570603a52c1.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 1:38 PM UTC  - :tv:直播](/content/gettr/p2buvsa10ba.md)
-
-2023.03.18 揭露CCP渗透美国 抗议迫害Miles大游行
-
-<img src="https://media.gettr.com/group11/origin/2023/03/18/12/3765bb11-cfc9-2a4d-f6d7-f4799af536eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -63,6 +63,14 @@
 
 
 在此找到傳送門：https://www.gmusic7.com/
+
+---
+
+[@milesguo 3/18/2023 1:38 PM UTC  - :tv:直播](/content/gettr/p2buvsa10ba.md)
+
+2023.03.18 揭露CCP渗透美国 抗议迫害Miles大游行
+
+<img src="https://media.gettr.com/group11/origin/2023/03/18/12/3765bb11-cfc9-2a4d-f6d7-f4799af536eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ https://music....
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第九场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 8:13 AM UTC  - :tv:直播](/content/gettr/p2bpsy7a4fa.md)
-
-3/16/2023 Last November, Miles Guo said the CCP had long held a grudge against him for living on the 18th floor of the Sherry-Netherland Hotel to carry out the mission of taking down the CCP. Today, by issuing an emergency order re...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/17/08/8f2a3c85-0b1b-d488-1b22-5a5f63fa7f4f/out.jpg" width="506" height="284">
 
 ---
 
