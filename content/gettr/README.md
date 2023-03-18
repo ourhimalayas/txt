@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/18/2023 9:55 PM UTC  - :tv:直播](/content/gettr/p2bvnmj33fe.md)
+
+【#FreeMilesGuoNow】03/18/2023 Prince Li: The DOJ has been weaponized against Mr. Miles Guo and the New Federal State of China by the Chinese Communist Party. All of us here today are investors of GTV Media Group, are donors of the R...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/18/21/b8038da9-b8c6-0074-7d40-ea9e15efc645/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/18/2023 9:40 PM UTC  - :tv:直播](/content/gettr/p2bv5tc4084.md)
+
+【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/18/21/f05f2c59-7522-a805-9d3d-481fc2f47143/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 9:25 PM UTC  - :tv:直播](/content/gettr/p2bvur58d43.md)
 
 【#FreeMilesGuoNow】03/18/2023  On March 15, hundreds of FBI agents swarmed Miles Guo's 18’s floor residence at The Sherry-Netherland Hotel. 6 hours after they had taken Mr. Gore into detention, the FBI lit a fire that burned down th...
@@ -50,11 +66,13 @@
 
 ---
 
-[@milesguo 3/18/2023 9:40 PM UTC  - :tv:直播](/content/gettr/p2bv5tc4084.md)
+[@milesguo 3/18/2023 9:59 PM UTC  - :tv:直播](/content/gettr/p2bw2oq636e.md)
 
-【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
+【#FreeMilesGuoNow】 3/18/2023 Zhongyuan Foshou: The honorable judge, I have no reason to doubt Mr. Miles Guo’s great love and to worry if his love would jeopardize my safety, wealth, and faith. I swear it in the name of God!”
 
-<img src="https://media.gettr.com/group12/getter/2023/03/18/21/f05f2c59-7522-a805-9d3d-481fc2f47143/out.jpg" width="506" height="284">
+#DOJ ...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/18/21/85a2cdb6-3a9a-19a0-7be4-21b4ef1eed22/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,52 +193,6 @@
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十一场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 1:13 PM UTC  - :tv:直播](/content/gettr/p2bq33fcf1c.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 12:44 PM UTC ](/content/gettr/p2bqh3k2b93.md)
-
-2023.03.17 
-
-在这美丽世界
-
-愿我是风  你是雨 
-
-让微风浸在细雨里
-
-
-
-🌹抢听最新单曲《微风细雨》
-
-———Miles Guo ft.QMAY    
-
-iTunes即将上线 打榜预热中
-
-
-
-已上线平台：
-
-
-
-Spotify
-
-https://open.spotify.com/track/5rktXSwEM27Q547FuRC8Xk?si=8e85c1b9660249eb
-
-
-
-Amazon Music
-
-https://music....
-
-<img src="https://media.gettr.com/group8/getter/2023/03/17/12/8db5e819-d870-ee9a-253d-ae09d1efa318/cb7e16ce518c55bd6f515b16096b61f1.jpg" width="506" height="284">
 
 ---
 
