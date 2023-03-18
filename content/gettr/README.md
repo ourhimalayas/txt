@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/18/2023 12:31 AM UTC  - :tv:直播](/content/gettr/p2bsqku2c3f.md)
+
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/17/2023 11:07 PM UTC  - :tv:直播](/content/gettr/p2bsqk6bbf2.md)
 
 03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: Who's really perpetrating the fraud here? Who's really capturing the money of the GTV investors?  It sounds like the evil people in the United States government who w...
@@ -193,14 +201,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 03/15/2023 Nicole Tsai, a representative from the New Federal State of China, says that the FBI today raided the house of CCP’s No.1 enemy, Mr. Miles Guo, in New York, and handcuffed him to court for interrogation. The DOJ, FBI and...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/16/02/74fb7ed9-cad9-6d75-405c-621ff6abe750/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/16/2023 12:41 AM UTC  - :tv:直播](/content/gettr/p2bkzy9ba3e.md)
-
-2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（下半场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
