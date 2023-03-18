@@ -10,6 +10,24 @@
 
 ---
 
+[@milesguo 3/18/2023 10:13 PM UTC  - :tv:直播](/content/gettr/p2bvugh19ae.md)
+
+【#FreeMilesGuoNow】03/18/2023 Prince Li: The hallmark of a tyranny is the corruption of the justice system, and that's what's happening right now in the United States of America. No one is safe from the CCP’s persecution. The CCP is...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/18/22/8611de59-7674-26cd-a711-4e5f6c155288/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/18/2023 9:59 PM UTC  - :tv:直播](/content/gettr/p2bw2oq636e.md)
+
+【#FreeMilesGuoNow】 3/18/2023 Zhongyuan Foshou: The honorable judge, I have no reason to doubt Mr. Miles Guo’s great love and to worry if his love would jeopardize my safety, wealth, and faith. I swear it in the name of God!”
+
+#DOJ ...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/18/21/85a2cdb6-3a9a-19a0-7be4-21b4ef1eed22/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 9:40 PM UTC  - :tv:直播](/content/gettr/p2bv5tc4084.md)
 
 【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
@@ -63,16 +81,6 @@
 #NFT #烈阳石 #音乐灭共
 
 #Opens...
-
----
-
-[@milesguo 3/18/2023 9:59 PM UTC  - :tv:直播](/content/gettr/p2bw2oq636e.md)
-
-【#FreeMilesGuoNow】 3/18/2023 Zhongyuan Foshou: The honorable judge, I have no reason to doubt Mr. Miles Guo’s great love and to worry if his love would jeopardize my safety, wealth, and faith. I swear it in the name of God!”
-
-#DOJ ...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/18/21/85a2cdb6-3a9a-19a0-7be4-21b4ef1eed22/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@
 03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: Mr. Miles Guo understands that alternative media sources must be created to tell the truth and shine light into the darkness. The CCP understands that they are one re...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/17/23/0d7087e7-ad84-7257-e5e9-7e9e412819ea/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2bs8nd1c84.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十一场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
