@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/18/2023 9:25 PM UTC  - :tv:直播](/content/gettr/p2bvur58d43.md)
+
+【#FreeMilesGuoNow】03/18/2023  On March 15, hundreds of FBI agents swarmed Miles Guo's 18’s floor residence at The Sherry-Netherland Hotel. 6 hours after they had taken Mr. Gore into detention, the FBI lit a fire that burned down th...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/18/21/3fc4bec8-98c3-3a24-51dd-9afa8ffe5f77/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 7:38 PM UTC  - :tv:直播](/content/gettr/p2buzp8b332.md)
 
 2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back（第十四场）
@@ -42,11 +50,11 @@
 
 ---
 
-[@milesguo 3/18/2023 9:25 PM UTC  - :tv:直播](/content/gettr/p2bvur58d43.md)
+[@milesguo 3/18/2023 9:40 PM UTC  - :tv:直播](/content/gettr/p2bv5tc4084.md)
 
-【#FreeMilesGuoNow】03/18/2023  On March 15, hundreds of FBI agents swarmed Miles Guo's 18’s floor residence at The Sherry-Netherland Hotel. 6 hours after they had taken Mr. Gore into detention, the FBI lit a fire that burned down th...
+【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/18/21/3fc4bec8-98c3-3a24-51dd-9afa8ffe5f77/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/18/21/f05f2c59-7522-a805-9d3d-481fc2f47143/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ Amazon Music
 https://music....
 
 <img src="https://media.gettr.com/group8/getter/2023/03/17/12/8db5e819-d870-ee9a-253d-ae09d1efa318/cb7e16ce518c55bd6f515b16096b61f1.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 12:02 PM UTC  - :tv:直播](/content/gettr/p2bqehg83dd.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
