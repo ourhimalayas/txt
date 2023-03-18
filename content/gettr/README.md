@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/18/2023 1:50 AM UTC  - :tv:直播](/content/gettr/p2bsurl73c2.md)
+
+03/17/2023 Founder/CEO of America First News Joshua Feuerstein prayed on behalf of America First News and the American people for Mr. Miles Guo, GTV, and all members of the NFSC: that Heavenly Father would touch Mr. Guo and his cas...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/18/01/d847398c-24f3-abd7-7965-42fac35ca689/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 12:31 AM UTC  - :tv:直播](/content/gettr/p2bsqku2c3f.md)
 
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
@@ -18,11 +26,11 @@
 
 ---
 
-[@milesguo 3/18/2023 1:50 AM UTC  - :tv:直播](/content/gettr/p2bsurl73c2.md)
+[@milesguo 3/18/2023 3:35 AM UTC  - :tv:直播](/content/gettr/p2bt5cj6608.md)
 
-03/17/2023 Founder/CEO of America First News Joshua Feuerstein prayed on behalf of America First News and the American people for Mr. Miles Guo, GTV, and all members of the NFSC: that Heavenly Father would touch Mr. Guo and his cas...
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
 
-<img src="https://media.gettr.com/group11/getter/2023/03/18/01/d847398c-24f3-abd7-7965-42fac35ca689/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ NEW G|FASHION LAUNCH  3.17.2023｜7:07 AM EST
 2023.03.15 全球战友等着七哥回来 Waiting for Miles to Come back（第四场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/16/2023 2:45 AM UTC  - :tv:直播](/content/gettr/p2blbor7d63.md)
-
-3/15/2023 Nicole: All allegations leveled against Miles Guo by the CCP-weaponized SEC and DOJ are false! The filing of these false allegations, the FBI raid on Mr. Guo's home, and the fire on the 18th floor of the Sherry-Netherland...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/16/02/b79545a3-dcee-f488-3497-b8fdd706d7bc/out.jpg" width="506" height="284">
 
 ---
 
