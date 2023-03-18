@@ -3,6 +3,10 @@
 
 ## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉](/content/transcript/2019/01/20190125-53481844.md)
+
+[郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大](/content/transcript/2019/01/20190124-53481827.md)
+
 [郭文贵2019年1月23日视频 20190123华盛顿上空弥漫这共同的目标：灭共](/content/transcript/2019/01/20190123-53481812.md)
 
 [郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始](/content/transcript/2019/01/20190122-53478534.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...](/content/transcript/2019/01/20190110-53481644.md)
 
 [郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案](/content/transcript/2019/01/20190109-53478498.md)
-
-[郭文贵2019年1月8日视频 20190108春晚搞不搞，听听战友们的心声](/content/transcript/2019/01/20190108-53481905.md)
-
-[郭文贵2019年1月7日视频 20190107报平安直播被黑客掉未成功的视频。谈马云和被双规的成钢以及懒人郭宝胜的案子](/content/transcript/2019/01/20190107-53481879.md)
 
 
 ## 頁面 83/109 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

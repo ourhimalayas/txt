@@ -3,6 +3,10 @@
 
 ## 頁面 106/109 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月7日直播 20170807_2马英九是...](/content/transcript/2017/08/20170807-53483510.md)
+
+[郭文贵2017年8月6日直播 20170806党内已怨声载道，北戴河会议群魔乱咬.](/content/transcript/2017/08/20170806-53483511.md)
+
 [郭文贵2017年8月5日视频 20170805_1文贵试试网：回答香港商界朋友的问题．与王岐山怎么威胁范冰冰闭嘴的！](/content/transcript/2017/08/20170805-53483849.md)
 
 [郭文贵2017年8月5日视频 20170805_2](/content/transcript/2017/08/20170805-53483515.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年7月8日 20170708文贵与王岐山的啪啪啪的能力比较](/content/transcript/2017/07/20170708-53483892.md)
 
 [郭文贵2017年7月6日 20170706王岐山的新豪宅．及孟建柱傅政华的真实关系与丰富多彩的性生活！](/content/transcript/2017/07/20170706-53483885.md)
-
-[郭文贵2017年7月5日 20170705文贵又要试试网络了！谈谈王岐山．孟建柱．傅政华．在十九大到底想要什么？](/content/transcript/2017/07/20170705-53483879.md)
-
-[郭文贵2017年7月4日 20170704文贵个人如何看美国与中国不同！美国为什么没有王岐山傅政华这样的盗国贼？](/content/transcript/2017/07/20170704-53483857.md)
 
 
 ## 頁面 106/109 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)

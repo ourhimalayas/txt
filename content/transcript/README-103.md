@@ -3,6 +3,10 @@
 
 ## 頁面 103/109 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料](/content/transcript/2017/10/20171010-53476924.md)
+
+[郭文贵2017年10月8日 20171008吴征杨澜将引爆中美巨大政治丑闻](/content/transcript/2017/10/20171008-53484107.md)
+
 [郭文贵2017年10月7日视频 20171007Snow上镜了](/content/transcript/2017/10/20171007-53483616.md)
 
 [郭文贵2017年10月5日 20171005 郭文贵10月5日全球新聞發布會第02次华盛顿记者会剪輯後英語版官方版](/content/transcript/2017/10/20171005-53484102.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一](/content/transcript/2017/09/20170914-53483579.md)
 
 [郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？](/content/transcript/2017/09/20170913-53483986.md)
-
-[郭文贵2017年9月13日视频 20170913_2一小时后爆盗国贼们的生殖器治国首篇](/content/transcript/2017/09/20170913-53483577.md)
-
-[郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当](/content/transcript/2017/09/20170912-53483575.md)
 
 
 ## 頁面 103/109 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)

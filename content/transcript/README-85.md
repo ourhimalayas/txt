@@ -3,6 +3,10 @@
 
 ## 頁面 85/109 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年12月18日视频 20181218_1某部門已開始對過去在網路上造我的謠的人那個那個那個](/content/transcript/2018/12/20181218-53478424.md)
+
+[郭文贵2018年12月17日视频 20181217关于昨天被删除的视频和路德Sara女](/content/transcript/2018/12/20181217-53481431.md)
+
 [郭文贵2018年12月16日 20181216郭文贵回答战友之声的问题，聊天，怎么看待习江斗。](/content/transcript/2018/12/20181216-53481424.md)
 
 [郭文贵2018年12月14日视频 20181214肖建华的资产被分的差不多了，很快就会消失了](/content/transcript/2018/12/20181214-53481390.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年11月22日视频 20181122_1应很多战友的要求．录一个SNOW小视频！祝大家感恩节快乐！](/content/transcript/2018/11/20181122-53478536.md)
 
 [郭文贵2018年11月21日视频 20181121丢掉放弃幻想，只要共产党存在一天我们就没有安全之日... 亲人员工们忘掉过去的文贵吧，现在的文贵，是承负着上天的使命和十四亿人民对我的寄托，我不能只为你们活着](/content/transcript/2018/11/20181121-53482337.md)
-
-[郭文贵2018年11月20日第二次直播 20181120_2信息发布会 : Miles Guo Press Briefing on 11/20/2018](/content/transcript/2018/11/20181120-53483704.md)
-
-[郭文贵2018年11月20日直播 20181120_1信息发布会（中英文版）Miles Guo Press Briefing on 11/20/2018 (English & Mandarin)](/content/transcript/2018/11/20181120-53481319.md)
 
 
 ## 頁面 85/109 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

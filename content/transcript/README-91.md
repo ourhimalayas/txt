@@ -3,6 +3,10 @@
 
 ## 頁面 91/109 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月3日视频 20180903为了员工，家人文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180903-53482587.md)
+
+[郭文贵2018年9月3日视频 20180903_2高清版 为了员工和家人，文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180903-53478158.md)
+
 [郭文贵2018年9月2日视频 20180902文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/content/transcript/2018/09/20180902-53482566.md)
 
 [郭文贵2018年8月31日直播 20180831_1感谢昨天为盘古公寓和写字楼被非法拍卖而流泪担心我的战友们你们的爱惜担心文贵更加让我精进反盗为战友而战为正义而战一切都是刚刚开始](/content/transcript/2018/08/20180831-53478192.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年8月15日视频 20180815_2做平板撑 坚持才能胜利！](/content/transcript/2018/08/20180815-53477251.md)
 
 [郭文贵2018年8月13日第一次直播 20180813_1大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/content/transcript/2018/08/20180813-53482491.md)
-
-[郭文贵2018年8月13日第二次直播 20180813_2西方国家正在形成正义联盟共同反击中共的纳谇主义扩张！](/content/transcript/2018/08/20180813-53482486.md)
-
-[郭文贵2018年8月13日视频 20180813_3健身视频](/content/transcript/2018/08/20180813-53477246.md)
 
 
 ## 頁面 91/109 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

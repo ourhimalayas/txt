@@ -3,6 +3,10 @@
 
 ## 頁面 101/109 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年1月11日直播 20180111_2](/content/transcript/2018/01/20180111-53482825.md)
+
+[郭文贵2018年1月11日直播 20180111_1](/content/transcript/2018/01/20180111-53482823.md)
+
 [郭文贵2018年1月4日 20180104郭先生谈习近平李克强的女儿进北大背后的故事](/content/transcript/2018/01/20180104-53483978.md)
 
 [郭文贵2018年1月3日视频 20180103郭文贵先生遥㊗️澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅！](/content/transcript/2018/01/20180103-53484197.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年11月15日第二次直播 20171115_2文贵与网友分享迈 阿密的穷人区新发展出来的新的设计区，这 才是真正地产开发商该干的事！创造财富以 报社会！并该恶帮穷从善！](/content/transcript/2017/11/20171115-53483880.md)
 
 [郭文贵2017年11月15日视频 20171115_4HBO專訪 Exiled Chinese Billionaire Uses YouTube To Wage A War On Corruption HBO](/content/transcript/2017/11/20171115-53477394.md)
-
-[郭文贵2017年11月15日视频 20171115_3在游艇上早餐 Instagram直播](/content/transcript/2017/11/20171115-53477196.md)
-
-[郭文贵2017年11月13日直播 20171113_1](/content/transcript/2017/11/20171113-53482807.md)
 
 
 ## 頁面 101/109 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)

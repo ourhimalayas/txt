@@ -3,6 +3,10 @@
 
 ## 頁面 77/109 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月13日第一次直播 20190613_1郭文贵直播喜马拉雅大使馆呼吁关注香港的明天，私家车可以帮助香港人民费用文贵出](/content/transcript/2019/06/20190613-53482738.md)
+
+[郭文贵2019年6月13日第二次直播 20190613_2尊敬的战友们好，你们健身了吗？从香港反送中抗议运动看到了．人心．信仰．虚假．欺骗．各种人性的表演，共产党的邪恶远远超出人们的想象，对14亿同胞和香港人民的威胁和残害程度……](/content/transcript/2019/06/20190613-53482630.md)
+
 [郭文贵2019年6月13日视频 20190613_3班農郭文贵直播](/content/transcript/2019/06/20190613-53479249.md)
 
 [郭文贵2019年6月13日视频 20190613_4](/content/transcript/2019/06/20190613-53478747.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街](/content/transcript/2019/06/20190603-53478685.md)
 
 [郭文贵2019年6月2日谈林郑卖港 20190602班农与郭文贵谈林郑卖港、6月4日新中国建国日、欧洲反共革命](/content/transcript/2019/06/20190602-53482509.md)
-
-[郭文贵2019年6月1日视频 20190601文贵报平安直播！无论任何方式的任何人的＂偷＂都是错的．都应感到可耻……我们今天的爆料革命！就是为了我们中国儿童！有一个美好的健康的国家和未来](/content/transcript/2019/06/20190601-53482496.md)
-
-[郭文贵2019年6月1日视频 20190601_2两狗相遇勇者胜，snow与笨笨的抢食之战，输赢不在大小](/content/transcript/2019/06/20190601-53478678.md)
 
 
 ## 頁面 77/109 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

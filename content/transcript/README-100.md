@@ -3,6 +3,10 @@
 
 ## 頁面 100/109 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月6日第三次直播 20180206_3向大家报告关于今天2月6日取消与陈军先生见面的过程！](/content/transcript/2018/02/20180206-53484050.md)
+
+[郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明](/content/transcript/2018/02/20180206-53483964.md)
+
 [郭文贵2018年2月6日第二次直播 20180206_2再次呼吁战友们提供有关韦石、西诺、陈闯创、胡平利用办理假政庇骗钱的证据！一个把老婆放在大街上让人“乱干”的人不可能为大家“干出”民主自由！](/content/transcript/2018/02/20180206-53483959.md)
 
 [郭文贵2018年2月5日第二次直播 20180205_2文贵浅谈，曹长青先生被断访．这是上天赐给我们的又一个礼物！](/content/transcript/2018/02/20180205-53484208.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富](/content/transcript/2018/01/20180115-53483963.md)
 
 [郭文贵2018年1月13日 20180113加拿大挺郭后援会2018年首次挺郭聚会（2）](/content/transcript/2018/01/20180113-53484199.md)
-
-[郭文贵2018年1月11日直播 20180111_2](/content/transcript/2018/01/20180111-53482825.md)
-
-[郭文贵2018年1月11日直播 20180111_1](/content/transcript/2018/01/20180111-53482823.md)
 
 
 ## 頁面 100/109 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 98/109 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年3月13日直播 20180313_1上天赐予的又一个巨大的礼物 —美国新国务卿！对盗国贼将是巨大打击](/content/transcript/2018/03/20180313-53477331.md)
+
+[郭文贵2018年3月12日视频第四部分 20180312_4关于将对吴征．杨澜．陈军等．谋害谣言威胁文贵等行为釆取的行动……感恩上天与战友．和这场天大的灾难．给了文贵一个新生命！](/content/transcript/2018/03/20180312-53481877.md)
+
 [郭文贵2018年3月12日视频第三部分 20180312_3请战友们不要被谣言、八卦和盗国贼控制的媒体所利用](/content/transcript/2018/03/20180312-53481731.md)
 
 [郭文贵2018年3月12日视频第一部分 20180312_1向给文贵邮寄盗国贼材料的战友们致敬](/content/transcript/2018/03/20180312-53481670.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年2月26日直播 20180226_5晚餐时有人恭祝我赢了](/content/transcript/2018/02/20180226-53477157.md)
 
 [郭文贵2018年2月25日直播 20180225_1郭文贵先生的船过总统桥小视频](/content/transcript/2018/02/20180225-53477245.md)
-
-[郭文贵2018年2月23日直播 20180223_1谈Steve Wynn的价值两亿八千万美元的船](/content/transcript/2018/02/20180223-53477236.md)
-
-[郭文贵2018年2月21日直播 20180221_2幾秒前被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ V](/content/transcript/2018/02/20180221-53477225.md)
 
 
 ## 頁面 98/109 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)

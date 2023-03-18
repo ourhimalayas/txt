@@ -3,6 +3,10 @@
 
 ## 頁面 90/109 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月17日视频 20180917_3今天是个好日子……本来过5不食的！现在吃点粗茶淡饭！喝点中年茅台！奖励自己一下……二十几个小时连续的工作！唯独美中不足缺战友！](/content/transcript/2018/09/20180917-53478265.md)
+
+[郭文贵2018年9月17日视频 20180917_2](/content/transcript/2018/09/20180917-53478260.md)
+
 [郭文贵2018年9月16日视频第二部分 20180916_2我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！](/content/transcript/2018/09/20180916-53482634.md)
 
 [郭文贵2018年9月16日视频第一部分 20180916_1我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/content/transcript/2018/09/20180916-53482603.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】](/content/transcript/2018/09/20180905-53482623.md)
 
 [郭文贵2018年9月5日视频第二部分 20180905_2黄河边性无能造成严重后果。林肯中心被取消发布会 2](/content/transcript/2018/09/20180905-53482514.md)
-
-[郭文贵2018年9月3日视频 20180903为了员工，家人文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180903-53482587.md)
-
-[郭文贵2018年9月3日视频 20180903_2高清版 为了员工和家人，文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180903-53478158.md)
 
 
 ## 頁面 90/109 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

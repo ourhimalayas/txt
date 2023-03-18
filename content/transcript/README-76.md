@@ -3,6 +3,10 @@
 
 ## 頁面 76/109 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
+[2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜](/content/transcript/2019/06/20190630-53557790.md)
+
+[郭文贵2019年6月30日与班农直播 20190630班农 文贵谈 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-53482770.md)
+
 [郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-53478759.md)
 
 [2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜](/content/transcript/2019/06/20190629-53560626.md)
@@ -48,10 +52,6 @@
 [2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”](/content/transcript/2019/06/20190614-53537318.md)
 
 [郭文贵2019年6月14日 20190614林郑月娥提出辞职，取消”逃犯条例”；叶刘淑仪提出硬挺通过”逃犯条例”](/content/transcript/2019/06/20190614-53482749.md)
-
-[郭文贵2019年6月13日第一次直播 20190613_1郭文贵直播喜马拉雅大使馆呼吁关注香港的明天，私家车可以帮助香港人民费用文贵出](/content/transcript/2019/06/20190613-53482738.md)
-
-[郭文贵2019年6月13日第二次直播 20190613_2尊敬的战友们好，你们健身了吗？从香港反送中抗议运动看到了．人心．信仰．虚假．欺骗．各种人性的表演，共产党的邪恶远远超出人们的想象，对14亿同胞和香港人民的威胁和残害程度……](/content/transcript/2019/06/20190613-53482630.md)
 
 
 ## 頁面 76/109 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)

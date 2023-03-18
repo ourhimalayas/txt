@@ -3,6 +3,10 @@
 
 ## 頁面 75/109 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-53576475.md)
+
+[郭文贵2019年7月9日视频 20190709香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-53482880.md)
+
 [2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集](/content/transcript/2019/07/20190708-53578169.md)
 
 [郭文贵2019年7月8日视频 20190708文贵是双面间谍？？](/content/transcript/2019/07/20190708-53482874.md)
@@ -48,10 +52,6 @@
 [2019年7月1日文贵在DC直播全文字版：讲香港七一大游行合集](/content/transcript/2019/07/20190701-53563928.md)
 
 [郭文贵2019年7月1日视频 20190701_2香港昨天的游行，更加证明了港人不是靠黑手推动追求正义，而是港人抗拒共产党的恶法、和追求法治、自由、民主的力量，而自发的运动](/content/transcript/2019/07/20190701-53478761.md)
-
-[2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜](/content/transcript/2019/06/20190630-53557790.md)
-
-[郭文贵2019年6月30日与班农直播 20190630班农 文贵谈 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-53482770.md)
 
 
 ## 頁面 75/109 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)

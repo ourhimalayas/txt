@@ -3,6 +3,10 @@
 
 ## 頁面 86/109 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月20日第二次直播 20181120_2信息发布会 : Miles Guo Press Briefing on 11/20/2018](/content/transcript/2018/11/20181120-53483704.md)
+
+[郭文贵2018年11月20日直播 20181120_1信息发布会（中英文版）Miles Guo Press Briefing on 11/20/2018 (English & Mandarin)](/content/transcript/2018/11/20181120-53481319.md)
+
 [郭文贵2018年11月20日视频 20181120_5(官方版後段)郭文贵2018年11月20日信息发布会](/content/transcript/2018/11/20181120-53478533.md)
 
 [郭文贵2018年11月20日视频 20181120_4路德访谈班农、文贵先生：谈谈未来制裁中共王岐山盗国贼的一系列行为](/content/transcript/2018/11/20181120-53478527.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年10月30日视频 20181030_1](/content/transcript/2018/10/20181030-53478381.md)
 
 [郭文贵2018年10月29日视频 20181029文貴應邀擔任全球反CCP聯盟獨立顧問](/content/transcript/2018/10/20181029-53479582.md)
-
-[郭文贵2018年10月28日视频 20181028欧洲对CCP的看法正在改变！](/content/transcript/2018/10/20181028-53479380.md)
-
-[郭文贵2018年10月28日视频 20181028_2 法國政府對王健之死案的判決](/content/transcript/2018/10/20181028-53478346.md)
 
 
 ## 頁面 86/109 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)

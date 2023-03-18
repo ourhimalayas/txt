@@ -3,6 +3,10 @@
 
 ## 頁面 104/109 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月13日视频 20170913_2一小时后爆盗国贼们的生殖器治国首篇](/content/transcript/2017/09/20170913-53483577.md)
+
+[郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当](/content/transcript/2017/09/20170912-53483575.md)
+
 [郭文贵2017年9月11日视频 20170911全力以赴准备19大我们的影子会议](/content/transcript/2017/09/20170911-53483574.md)
 
 [郭文贵2017年9月10日视频 20170910江绵恒．王岐山．孟建柱．傅政华．孙力军．马云！及我与刘彦平先生的对话](/content/transcript/2017/09/20170910-53483985.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年8月28日 20170828文贵到底是不是国安特务，文贵与王艳平到底有没有乱伦](/content/transcript/2017/08/20170828-53483924.md)
 
 [郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午](/content/transcript/2017/08/20170828-53483549.md)
-
-[郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实](/content/transcript/2017/08/20170827-53483547.md)
-
-[郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技](/content/transcript/2017/08/20170827-53483544.md)
 
 
 ## 頁面 104/109 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
