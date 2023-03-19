@@ -2,11 +2,19 @@
 ---
 
 
-[@milesguo 3/18/2023 6:40 AM UTC  - :tv:直播](/content/gettr/p2btnwh266d.md)
+[@milesguo 3/19/2023 2:00 AM UTC  - :tv:直播](/content/gettr/p2bw6ilcfa1.md)
 
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十三场）
+【#FreeMilesGuoNow】3/18/2023 A fellow fighter, who is among those who were qualified to invest in the G-series private equity, bravely stood up to protest. Here is his message to the CCP: "Screw you! Let’s see who can hold on to the...
 
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/19/01/22a3d801-94d9-a44f-04b8-8bf9933e557c/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 2:01 AM UTC  - :tv:直播](/content/gettr/p2bvyt72659.md)
+
+【#FreeMilesGuoNow】03/18/2023 The fellow fighters of the New Federal State of China, together with our supporters from the States and the rest of the world, are demanding that the DOJ, FBI and SEC must free Miles Guo immediately; th...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/19/02/911c62ad-5865-efd5-e565-938ce6051657/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@
 #FreeMilesGuoNow⎢#立即释放郭文贵先生⎢SIMULTANEOUS INTERPRETATION⎢
 
 <img src="https://media.gettr.com/group4/origin/2023/03/18/12/13c3e44a-1797-f40b-4009-97199f041f22/8cf1442f6ae2aa72d7b3a83890be5130.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 9:00 AM UTC  - :tv:直播](/content/gettr/p2bts8r7481.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十三场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
