@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/19/2023 12:43 PM UTC  - :tv:直播](/content/gettr/p2bxkqp6405.md)
+
+3/17/2023  Miles Guo’s prosecutors in the Southern District of New York admitted to working with the CCP! Judge Parker not only gave a verbal warning but also issued a written court order, explicitly requiring the prosecutors to di...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/19/12/ea5a3e24-ceb2-60be-f61a-857e1eeb1e0c/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 12:09 PM UTC  - :tv:直播](/content/gettr/p2bxh1e4a90.md)
+
+【#FreeMilesGuoNow】03/18/2023 Joy: My friends and I are here today to show support for NFSC. I've met its people a couple of months ago and it was one of the best experiences. The reason we fight is because God has given us freedom....
+
+<img src="https://media.gettr.com/group7/getter/2023/03/19/12/843a9c81-4673-9670-c7f5-507ad3aef301/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 10:07 AM UTC  - :tv:直播](/content/gettr/p2bwz7t1a22.md)
 
 【#FreeMilesGuoNow】03/18/2023 Prince calls out to the American public: Please pick up your phone, your laptop, text, call, email your congressman, even come to Capitol Hill and tell your congressman, tell the People's House that the...
@@ -47,14 +63,6 @@
 【#FreeMilesGuoNow】03/18/2023  Prince spoke out against the collusion between the DOJ and FBI in the investigation of Mr. Miles Guo's case with the Chinese Communist Party. As he observed the arraignment, he saw the federal investig...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/19/06/f54d8776-6060-db1f-91fb-f19fe7108f9c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:09 PM UTC  - :tv:直播](/content/gettr/p2bxh1e4a90.md)
-
-【#FreeMilesGuoNow】03/18/2023 Joy: My friends and I are here today to show support for NFSC. I've met its people a couple of months ago and it was one of the best experiences. The reason we fight is because God has given us freedom....
-
-<img src="https://media.gettr.com/group7/getter/2023/03/19/12/843a9c81-4673-9670-c7f5-507ad3aef301/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@
 2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 2:01 AM UTC  - :tv:直播](/content/gettr/p2bvyt72659.md)
-
-【#FreeMilesGuoNow】03/18/2023 The fellow fighters of the New Federal State of China, together with our supporters from the States and the rest of the world, are demanding that the DOJ, FBI and SEC must free Miles Guo immediately; th...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/19/02/911c62ad-5865-efd5-e565-938ce6051657/out.jpg" width="506" height="284">
 
 ---
 
