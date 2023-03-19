@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 2:59 AM UTC  - :tv:直播](/content/gettr/p2bwixf066d.md)
+
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 2:00 AM UTC  - :tv:直播](/content/gettr/p2bw6ilcfa1.md)
 
 【#FreeMilesGuoNow】3/18/2023 A fellow fighter, who is among those who were qualified to invest in the G-series private equity, bravely stood up to protest. Here is his message to the CCP: "Screw you! Let’s see who can hold on to the...
@@ -10,11 +18,13 @@
 
 ---
 
-[@milesguo 3/19/2023 2:59 AM UTC  - :tv:直播](/content/gettr/p2bwixf066d.md)
+[@milesguo 3/19/2023 3:17 AM UTC  - :tv:直播](/content/gettr/p2bw9oy9a5c.md)
 
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
+【#FreeMilesGuoNow】 3/18/2023 Brother Changdao: Right from now on, every one of us is Miles Guo! All of us will keep fighting the CCP until its demise. CCP, are you scared of us?
 
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#NFSC #takedowntheCCP #CCPyouarefinished #FreeMilesG...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/19/03/ca36b7be-8afa-56e0-e469-c61a74ad553e/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +195,6 @@
 
 
 在此找到傳送門：https://www.gmusic7.com/
-
----
-
-[@gtranslators_1 3/18/2023 1:44 PM UTC  - :tv:直播](/content/gettr/p2bu8z1aaba.md)
-
-#FreeMilesGuoNow⎢#立即释放郭文贵先生⎢SIMULTANEOUS INTERPRETATION⎢
-
-<img src="https://media.gettr.com/group4/origin/2023/03/18/12/13c3e44a-1797-f40b-4009-97199f041f22/8cf1442f6ae2aa72d7b3a83890be5130.jpeg" width="506" height="284">
 
 ---
 
