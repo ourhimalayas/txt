@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/18/2023 10:13 PM UTC  - :tv:直播](/content/gettr/p2bvugh19ae.md)
+
+【#FreeMilesGuoNow】03/18/2023 Prince Li: The hallmark of a tyranny is the corruption of the justice system, and that's what's happening right now in the United States of America. No one is safe from the CCP’s persecution. The CCP is...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/18/22/8611de59-7674-26cd-a711-4e5f6c155288/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 9:55 PM UTC  - :tv:直播](/content/gettr/p2bvnmj33fe.md)
 
 【#FreeMilesGuoNow】03/18/2023 Prince Li: The DOJ has been weaponized against Mr. Miles Guo and the New Federal State of China by the Chinese Communist Party. All of us here today are investors of GTV Media Group, are donors of the R...
@@ -10,11 +18,11 @@
 
 ---
 
-[@milesguo 3/18/2023 10:13 PM UTC  - :tv:直播](/content/gettr/p2bvugh19ae.md)
+[@milesguo 3/19/2023 12:01 AM UTC  - :tv:直播](/content/gettr/p2bw2jz4282.md)
 
-【#FreeMilesGuoNow】03/18/2023 Prince Li: The hallmark of a tyranny is the corruption of the justice system, and that's what's happening right now in the United States of America. No one is safe from the CCP’s persecution. The CCP is...
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
 
-<img src="https://media.gettr.com/group7/getter/2023/03/18/22/8611de59-7674-26cd-a711-4e5f6c155288/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 11:06 PM UTC  - :tv:直播](/content/gettr/p2bt4abaaf6.md)
-
-03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: There are too many suspicious things that have happened to Mr. Guo in the past few months to believe that they are all coincidences. The Chinese Communist Party has r...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/17/23/b2b52f83-fbf4-f7f8-c294-c2ee9f09d1c4/out.jpg" width="506" height="284">
 
 ---
 
