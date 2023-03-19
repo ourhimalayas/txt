@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/19/2023 4:11 AM UTC  - :tv:直播](/content/gettr/p2bwmsh200e.md)
+
+【#FreeMilesGuoNow】 3/18/2023: The time has come to separate Americans from traitors to America! Politicians should stand up and bring back America a bright future! What happened to Mr. Miles Guo could happen to former President Tru...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/19/04/dce27d2b-678e-c9de-bff5-1b0b3578f76b/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 3:31 AM UTC  - :tv:直播](/content/gettr/p2bwf8m2734.md)
+
+【#FreeMilesGuoNow】03/18/2023 Brother David’s speech: Every single fellow fighter, every NFSC citizen is Miles Guo and a whistleblower. The CCP learns the real new Chinese people are totally different from those living under the CCP...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/19/03/b5bc0618-e825-92b7-2c82-461303863377/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 3:17 AM UTC  - :tv:直播](/content/gettr/p2bw9oy9a5c.md)
 
 【#FreeMilesGuoNow】 3/18/2023 Brother Changdao: Right from now on, every one of us is Miles Guo! All of us will keep fighting the CCP until its demise. CCP, are you scared of us?
@@ -28,11 +44,11 @@
 
 ---
 
-[@milesguo 3/19/2023 3:31 AM UTC  - :tv:直播](/content/gettr/p2bwf8m2734.md)
+[@milesguo 3/19/2023 4:11 AM UTC  - :tv:直播](/content/gettr/p2bwfpi5750.md)
 
-【#FreeMilesGuoNow】03/18/2023 Brother David’s speech: Every single fellow fighter, every NFSC citizen is Miles Guo and a whistleblower. The CCP learns the real new Chinese people are totally different from those living under the CCP...
+【#FreeMilesGuoNow】 3/18/2023：Fellow fighter “Pei Lian”: “I would like to say to Mr. Guo’s wife and Guo Mei, we are all your family, and we won’t let anybody hurt our brother Miles! I also have a few words to American patriots, plea...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/19/03/b5bc0618-e825-92b7-2c82-461303863377/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/19/04/4ce78914-b72a-721c-778d-5d0294017b08/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,30 +163,6 @@
 2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back（第十四场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gmusic 3/18/2023 10:35 AM UTC  - 2圖](/content/gettr/p2bu4971796.md)
-
-今天对于新中国联邦来说是个重要历史时刻，在七哥的庭审现场，美国法官Katharine H.Parker 担心检方政府，隐瞒 "对被告有利 "的关键信息，在庭上告诉纽约南区法院的检察官Damian Williams：你们有法律义务，持续和肯定地向郭先生披露所有可能有助于弹劾政府提供的证人、证词，以及对郭先生有利的信息，其中包括你们与外国政府的接触、或其他参与起诉、调查郭先生案件中可能有利益冲突人的接触。
-
-检察官Damian Williams当庭承认：我们在调...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/18/10/329a073e-f50f-837d-75c8-00147f49a4ee/89a9055433957b8ba746a570603a52c1.jpg" width="506" height="284">
-
----
-
-[@gmusic 3/17/2023 5:11 PM UTC ](/content/gettr/p2brxrp114c.md)
-
-滅共者勇士們：魔道為禍人間，生灵涂炭，快集齊七顆寶石，除魔衛道。
-
-
-
-3月24日7:07”豐盈石”降臨人間。
-
-
-
-在此找到傳送門：https://www.gmusic7.com/
 
 ---
 
