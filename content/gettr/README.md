@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 12:48 AM UTC  - :tv:直播](/content/gettr/p2bwj526779.md)
+
+【#FreeMilesGuoNow】3/18/2023 Without eliminating the CCP, no one can guarantee that our children's healthy organs will not be harvested by the CCP. We are here to protest Miles Guo’s wrongful arrest by the FBI because we are all Mil...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/19/00/bed4ef1c-8b78-9eae-22a6-d4bce71cee62/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2bwequ7a61.md)
 
 【#FreeMilesGuoNow】03/18/2023 Mr. Miles Guo revealed CCP’s 13579 plan to manufacture and release a bioweapon against America within three years back in 2017. Many insiders and military scientists that the New Federal State of China ...
@@ -10,11 +18,27 @@
 
 ---
 
+[@milesguo 3/19/2023 12:56 AM UTC  - :tv:直播](/content/gettr/p2bvu6t615c.md)
+
+【#立即释放郭文贵先生】3/18/2023 A fellow fighter, who is among those who were qualified to invest in the G-series private equity, bravely stood up to protest. Here is his message to the CCP: "Screw you! Let’s see who can hold on to the end!"...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/19/00/1054c24b-eb3d-e8d3-449d-fd533ef59d34/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2bw195663d.md)
 
 【#FreeMilesGuoNow】03/18/2023  Miles Guo is a real man in court, he's in very good spirits. He told us not to worry. He's doing well.  But America is not doing well.  It is the darkest moment of history. Because the very institution...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/19/00/6e78fee2-c5ce-1404-5ba5-7ea0c94814a9/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 12:28 AM UTC  - :tv:直播](/content/gettr/p2bwdqi6de5.md)
+
+【#FreeMilesGuoNow】 3/18/2023: Zhongyuan Foshou: “Your Honor, I am convinced that Mr. Miles Guo is innocent. I guarantee, based on my personal true stories and information, that the evidence you have received is fabricated and inval...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/19/00/c32bf907-5663-8332-f164-3ccefbbf8bf0/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,14 +63,6 @@
 【#FreeMilesGuoNow】03/18/2023 Prince Li: The DOJ has been weaponized against Mr. Miles Guo and the New Federal State of China by the Chinese Communist Party. All of us here today are investors of GTV Media Group, are donors of the R...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/18/21/b8038da9-b8c6-0074-7d40-ea9e15efc645/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:28 AM UTC  - :tv:直播](/content/gettr/p2bwdqi6de5.md)
-
-【#FreeMilesGuoNow】 3/18/2023: Zhongyuan Foshou: “Your Honor, I am convinced that Mr. Miles Guo is innocent. I guarantee, based on my personal true stories and information, that the evidence you have received is fabricated and inval...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/19/00/c32bf907-5663-8332-f164-3ccefbbf8bf0/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,22 +193,6 @@
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 3:35 AM UTC  - :tv:直播](/content/gettr/p2bt5cj6608.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 1:50 AM UTC  - :tv:直播](/content/gettr/p2bsurl73c2.md)
-
-03/17/2023 Founder/CEO of America First News Joshua Feuerstein prayed on behalf of America First News and the American people for Mr. Miles Guo, GTV, and all members of the NFSC: that Heavenly Father would touch Mr. Guo and his cas...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/18/01/d847398c-24f3-abd7-7965-42fac35ca689/out.jpg" width="506" height="284">
 
 ---
 
