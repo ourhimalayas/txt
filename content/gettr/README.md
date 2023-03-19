@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/19/2023 11:17 PM UTC  - :tv:直播](/content/gettr/p2bz1ua3e5e.md)
+
+【#FreeMilesGuoNow】03/18/2023 Lao Banzhang denounced the so-called Chinese pro-democracy bigwigs, pseudo-anti-CCP self-media, and the so-called neutral and serious media's satire of Mr. Miles Guo: Mr. Guo broke the story of the CCP'...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/19/23/cea9219b-84cc-f095-6b7d-feeb83c662ca/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 11:14 PM UTC  - :tv:直播](/content/gettr/p2bz7xlf922.md)
+
+【#FreeMilesGuoNow】03/18/2023 Rossangel is a freedom fighter from Puerto Rico. She joins our protest with a framed photo of Mr. Miles Guo to thank for saving millions of lives by exposing the truth about the coronavirus. What has ha...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/19/23/1baab3f8-be06-1c92-e57f-55960907d47c/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 8:16 PM UTC  - :tv:直播](/content/gettr/p2bz9vzb630.md)
 
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
@@ -69,14 +85,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 11:14 PM UTC  - :tv:直播](/content/gettr/p2bz7xlf922.md)
-
-【#FreeMilesGuoNow】03/18/2023 Rossangel is a freedom fighter from Puerto Rico. She joins our protest with a framed photo of Mr. Miles Guo to thank for saving millions of lives by exposing the truth about the coronavirus. What has ha...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/19/23/1baab3f8-be06-1c92-e57f-55960907d47c/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 5:54 AM UTC  - :tv:直播](/content/gettr/p2bx4498842.md)
-
-【#FreeMilesGuoNow】03/18/2023 Aila (XiaoFeiXiang): Our fellow supporters from the New Federal State of China are standing here and protesting for Mr. Miles Guo. We are telling the world that we are the new Chinese people, and the ev...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/19/05/f2e31fa2-3a9f-f2af-2f16-eb0beda97b22/out.jpg" width="506" height="284">
 
 ---
 
