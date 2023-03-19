@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 7:04 AM UTC  - :tv:直播](/content/gettr/p2bwsvx80fe.md)
+
+【#FreeMilesGuoNow】3/18/2023 Fellow Fighter Sylvia: The US DOJ, FBI, and SEC, all weaponized by the CCP, are banding together to persecute Mr. Guo and the Chinese people! Citizens of the New Federal State of China are calling for de...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/19/07/e924682b-c550-9712-02b9-1143f26779c7/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 6:32 AM UTC  - :tv:直播](/content/gettr/p2bwokv47c6.md)
 
 【#FreeMilesGuoNow】03/18/2023  Prince spoke out against the collusion between the DOJ and FBI in the investigation of Mr. Miles Guo's case with the Chinese Communist Party. As he observed the arraignment, he saw the federal investig...
@@ -10,11 +18,11 @@
 
 ---
 
-[@milesguo 3/19/2023 7:04 AM UTC  - :tv:直播](/content/gettr/p2bwsvx80fe.md)
+[@milesguo 3/19/2023 7:52 AM UTC  - :tv:直播](/content/gettr/p2bwoqx705c.md)
 
-【#FreeMilesGuoNow】3/18/2023 Fellow Fighter Sylvia: The US DOJ, FBI, and SEC, all weaponized by the CCP, are banding together to persecute Mr. Guo and the Chinese people! Citizens of the New Federal State of China are calling for de...
+【#FreeMilesGuoNow】03/18/2023 Roy found that Bloomberg actually released the news of the arrest of Miles Guo half an hour earlier than the DOJ.  Joy thinks there are deeper connections, that everyone who wants freedom should go and ...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/19/07/e924682b-c550-9712-02b9-1143f26779c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/19/07/6fd73553-629f-d0bf-c103-3ee19a5f3638/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@
 【#FreeMilesGuoNow】3/18/2023 Without eliminating the CCP, no one can guarantee that our children's healthy organs will not be harvested by the CCP. We are here to protest Miles Guo’s wrongful arrest by the FBI because we are all Mil...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/19/00/bed4ef1c-8b78-9eae-22a6-d4bce71cee62/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:28 AM UTC  - :tv:直播](/content/gettr/p2bwdqi6de5.md)
-
-【#FreeMilesGuoNow】 3/18/2023: Zhongyuan Foshou: “Your Honor, I am convinced that Mr. Miles Guo is innocent. I guarantee, based on my personal true stories and information, that the evidence you have received is fabricated and inval...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/19/00/c32bf907-5663-8332-f164-3ccefbbf8bf0/out.jpg" width="506" height="284">
 
 ---
 
