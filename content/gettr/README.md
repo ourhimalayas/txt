@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/19/2023 2:59 AM UTC  - :tv:直播](/content/gettr/p2bwixf066d.md)
+
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 2:01 AM UTC  - :tv:直播](/content/gettr/p2bvyt72659.md)
 
 【#FreeMilesGuoNow】03/18/2023 The fellow fighters of the New Federal State of China, together with our supporters from the States and the rest of the world, are demanding that the DOJ, FBI and SEC must free Miles Guo immediately; th...
@@ -177,14 +185,6 @@
 
 
 在此找到傳送門：https://www.gmusic7.com/
-
----
-
-[@milesguo 3/18/2023 1:38 PM UTC  - :tv:直播](/content/gettr/p2buvsa10ba.md)
-
-2023.03.18 揭露CCP渗透美国 抗议迫害Miles大游行
-
-<img src="https://media.gettr.com/group11/origin/2023/03/18/12/3765bb11-cfc9-2a4d-f6d7-f4799af536eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
