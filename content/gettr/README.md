@@ -2,6 +2,16 @@
 ---
 
 
+[@milesguo 3/19/2023 3:17 AM UTC  - :tv:直播](/content/gettr/p2bw9oy9a5c.md)
+
+【#FreeMilesGuoNow】 3/18/2023 Brother Changdao: Right from now on, every one of us is Miles Guo! All of us will keep fighting the CCP until its demise. CCP, are you scared of us?
+
+#NFSC #takedowntheCCP #CCPyouarefinished #FreeMilesG...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/19/03/ca36b7be-8afa-56e0-e469-c61a74ad553e/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 2:59 AM UTC  - :tv:直播](/content/gettr/p2bwixf066d.md)
 
 2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
@@ -18,13 +28,11 @@
 
 ---
 
-[@milesguo 3/19/2023 3:17 AM UTC  - :tv:直播](/content/gettr/p2bw9oy9a5c.md)
+[@milesguo 3/19/2023 3:31 AM UTC  - :tv:直播](/content/gettr/p2bwf8m2734.md)
 
-【#FreeMilesGuoNow】 3/18/2023 Brother Changdao: Right from now on, every one of us is Miles Guo! All of us will keep fighting the CCP until its demise. CCP, are you scared of us?
+【#FreeMilesGuoNow】03/18/2023 Brother David’s speech: Every single fellow fighter, every NFSC citizen is Miles Guo and a whistleblower. The CCP learns the real new Chinese people are totally different from those living under the CCP...
 
-#NFSC #takedowntheCCP #CCPyouarefinished #FreeMilesG...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/19/03/ca36b7be-8afa-56e0-e469-c61a74ad553e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/19/03/b5bc0618-e825-92b7-2c82-461303863377/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,38 +147,6 @@
 2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back（第十四场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gmusic 3/18/2023 10:17 AM UTC ](/content/gettr/p2btjrp7326.md)
-
-写在新中国联邦Gmusic首款灭共徽章投放之日
-
-《序》
-
-六年前的那只蝴蝶，煽动着翅膀，来到世间
-
-五年前的那种孤独，触动着内心，静静等待
-
-四年前的那种愤怒，凝聚着渴望，展开双臂
-
-三年前的那种悸动，承受着打击，感天动地
-
-两年前的那种深邃，背负着背叛，涅槃重生
-
-一年前的那种自信，面对着阳光，挽救苍生
-
-今天，我们再一次完胜！
-
-今天，再一次创造历史！
-
-今天，业已天成！
-
-#Gmusic #灭共者徽章
-
-#NFT #烈阳石 #音乐灭共
-
-#Opens...
 
 ---
 
