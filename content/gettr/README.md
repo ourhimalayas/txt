@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 7:52 AM UTC  - :tv:直播](/content/gettr/p2bwoqx705c.md)
+
+【#FreeMilesGuoNow】03/18/2023 Roy found that Bloomberg actually released the news of the arrest of Miles Guo half an hour earlier than the DOJ.  Joy thinks there are deeper connections, that everyone who wants freedom should go and ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/19/07/6fd73553-629f-d0bf-c103-3ee19a5f3638/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 7:04 AM UTC  - :tv:直播](/content/gettr/p2bwsvx80fe.md)
 
 【#FreeMilesGuoNow】3/18/2023 Fellow Fighter Sylvia: The US DOJ, FBI, and SEC, all weaponized by the CCP, are banding together to persecute Mr. Guo and the Chinese people! Citizens of the New Federal State of China are calling for de...
@@ -18,11 +26,11 @@
 
 ---
 
-[@milesguo 3/19/2023 7:52 AM UTC  - :tv:直播](/content/gettr/p2bwoqx705c.md)
+[@milesguo 3/19/2023 8:16 AM UTC  - :tv:直播](/content/gettr/p2bwnio75b2.md)
 
-【#FreeMilesGuoNow】03/18/2023 Roy found that Bloomberg actually released the news of the arrest of Miles Guo half an hour earlier than the DOJ.  Joy thinks there are deeper connections, that everyone who wants freedom should go and ...
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
 
-<img src="https://media.gettr.com/group3/getter/2023/03/19/07/6fd73553-629f-d0bf-c103-3ee19a5f3638/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@
 【#FreeMilesGuoNow】3/18/2023 We are not the victims of Mr. Guo, but the victims of U.S. federal government agencies infiltrated by the CCP! Wake up, Americans! The CCP has infiltrated the DOJ, the SEC, and the IRS. None of you are s...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/19/01/280965b8-9392-52ba-ad04-f37437c079ac/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:48 AM UTC  - :tv:直播](/content/gettr/p2bwj526779.md)
-
-【#FreeMilesGuoNow】3/18/2023 Without eliminating the CCP, no one can guarantee that our children's healthy organs will not be harvested by the CCP. We are here to protest Miles Guo’s wrongful arrest by the FBI because we are all Mil...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/19/00/bed4ef1c-8b78-9eae-22a6-d4bce71cee62/out.jpg" width="506" height="284">
 
 ---
 
