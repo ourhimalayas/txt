@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 8:16 AM UTC  - :tv:直播](/content/gettr/p2bwnio75b2.md)
+
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 7:52 AM UTC  - :tv:直播](/content/gettr/p2bwoqx705c.md)
 
 【#FreeMilesGuoNow】03/18/2023 Roy found that Bloomberg actually released the news of the arrest of Miles Guo half an hour earlier than the DOJ.  Joy thinks there are deeper connections, that everyone who wants freedom should go and ...
@@ -26,11 +34,11 @@
 
 ---
 
-[@milesguo 3/19/2023 8:16 AM UTC  - :tv:直播](/content/gettr/p2bwnio75b2.md)
+[@milesguo 3/19/2023 10:07 AM UTC  - :tv:直播](/content/gettr/p2bwz7t1a22.md)
 
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
+【#FreeMilesGuoNow】03/18/2023 Prince calls out to the American public: Please pick up your phone, your laptop, text, call, email your congressman, even come to Capitol Hill and tell your congressman, tell the People's House that the...
 
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/19/10/4a01d545-7767-692e-7db0-d381e752b1b8/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@
 【#FreeMilesGuoNow】03/18/2023 The fellow fighters of the New Federal State of China, together with our supporters from the States and the rest of the world, are demanding that the DOJ, FBI and SEC must free Miles Guo immediately; th...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/19/02/911c62ad-5865-efd5-e565-938ce6051657/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 1:02 AM UTC  - :tv:直播](/content/gettr/p2bwcfgb8e5.md)
-
- 【#FreeMilesGuoNow】3/18/2023 Fellow fighter in red: It is Miles Guo who let us understand why the Chinese people can’t live a decent life no matter how hard we work; it is Miles Guo who told the world COVID was released by the CCP,...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/19/01/7ad3f7f8-2a9a-fcd9-ef40-79ea35666aaf/out.jpg" width="506" height="284">
 
 ---
 
