@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 4:33 AM UTC  - :tv:直播](/content/gettr/p2bwfbze104.md)
+
+【#FreeMilesGuoNow】 3/18/2023 Fellow fighter “Pei Lian”: “I would like to say to Mr. Guo’s wife and Guo Mei, we are all your family, and we won’t let anybody hurt our brother Miles! I also have a few words to American patriots, plea...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/19/04/a7975118-ea8f-085a-89a8-3c93e7905ccc/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 4:11 AM UTC  - :tv:直播](/content/gettr/p2bwmsh200e.md)
 
 【#FreeMilesGuoNow】 3/18/2023: The time has come to separate Americans from traitors to America! Politicians should stand up and bring back America a bright future! What happened to Mr. Miles Guo could happen to former President Tru...
@@ -10,11 +18,17 @@
 
 ---
 
-[@milesguo 3/19/2023 4:33 AM UTC  - :tv:直播](/content/gettr/p2bwfbze104.md)
+[@milesguo 3/19/2023 5:24 AM UTC  - :tv:直播](/content/gettr/p2bwgk9d850.md)
 
-【#FreeMilesGuoNow】 3/18/2023 Fellow fighter “Pei Lian”: “I would like to say to Mr. Guo’s wife and Guo Mei, we are all your family, and we won’t let anybody hurt our brother Miles! I also have a few words to American patriots, plea...
+3/17/2023 马特·帕伦博在《Gateway Pundit》发布的重磅文章表示，美国司法部与中共合作诬告文贵先生，相当于二战期间美国政府与纳粹合作迫害美国犹太人的现代版本！
 
-<img src="https://media.gettr.com/group6/getter/2023/03/19/04/a7975118-ea8f-085a-89a8-3c93e7905ccc/out.jpg" width="506" height="284">
+#郭文贵 #中共 #美国政府 #司法部 #纳粹 #司法超限战
+
+
+
+3/17/2023 In a bombshell article published in Gateway Pundit, Matthew Palumbo said that the DOJ collaborat...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/19/05/d0155508-f648-92ca-0e4a-5ca44a319c7d/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +169,6 @@
 【#FreeMilesGuoNow】03/18/2023  On March 15, hundreds of FBI agents swarmed Miles Guo's 18’s floor residence at The Sherry-Netherland Hotel. 6 hours after they had taken Mr. Gore into detention, the FBI lit a fire that burned down th...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/18/21/3fc4bec8-98c3-3a24-51dd-9afa8ffe5f77/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 7:38 PM UTC  - :tv:直播](/content/gettr/p2buzp8b332.md)
-
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back（第十四场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/15/23/0039063c-84bf-d809-a4d5-a8a815ae86c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
