@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 4:07 PM UTC  - :tv:直播](/content/gettr/p2bxueua681.md)
+
+2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十七场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 3:45 PM UTC  - :tv:直播](/content/gettr/p2bxzh2d486.md)
 
 【#FreeMilesGuoNow】03/18/2023 Lao Banzhang: Our protest is to tell the world that we refuse to let the Chinese Communist Party represent the Chinese people or the SEC represent the investors of the New Federal State of China. We pro...
@@ -48,11 +56,11 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 
 ---
 
-[@milesguo 3/19/2023 4:07 PM UTC  - :tv:直播](/content/gettr/p2bxueua681.md)
+[@milesguo 3/19/2023 8:16 PM UTC  - :tv:直播](/content/gettr/p2bz9vzb630.md)
 
-2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十七场）
+2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
 
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】 3/18/2023 Fellow fighter “Pei Lian”: “I would like to say to Mr. Guo’s wife and Guo Mei, we are all your family, and we won’t let anybody hurt our brother Miles! I also have a few words to American patriots, plea...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/19/04/a7975118-ea8f-085a-89a8-3c93e7905ccc/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 4:11 AM UTC  - :tv:直播](/content/gettr/p2bwmsh200e.md)
-
-【#FreeMilesGuoNow】 3/18/2023: The time has come to separate Americans from traitors to America! Politicians should stand up and bring back America a bright future! What happened to Mr. Miles Guo could happen to former President Tru...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/19/04/dce27d2b-678e-c9de-bff5-1b0b3578f76b/out.jpg" width="506" height="284">
 
 ---
 
