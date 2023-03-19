@@ -2,11 +2,37 @@
 ---
 
 
+[@milesguo 3/19/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bwy400a63.md)
+
+【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/19/06/485f012a-5396-bb21-0cc6-5be06f13e455/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 6:10 AM UTC  - :tv:直播](/content/gettr/p2bx5i9c81c.md)
+
+【#FreeMilesGuoNow】 3/18/2023 Zhongyuan Foshou: The honorable judge, I have no reason to doubt Mr. Miles Guo’s great love and to worry if his love would jeopardize my safety, wealth, and faith. I swear it in the name of God!”
+
+#DOJ ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/19/06/eac78dd0-8424-e4df-b6a8-c2d667a8d492/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 5:54 AM UTC  - :tv:直播](/content/gettr/p2bx4498842.md)
 
 【#FreeMilesGuoNow】03/18/2023 Aila (XiaoFeiXiang): Our fellow supporters from the New Federal State of China are standing here and protesting for Mr. Miles Guo. We are telling the world that we are the new Chinese people, and the ev...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/19/05/f2e31fa2-3a9f-f2af-2f16-eb0beda97b22/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 6:11 AM UTC  - :tv:直播](/content/gettr/p2bxad2c7d2.md)
+
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -37,16 +63,6 @@
 【#FreeMilesGuoNow】 3/18/2023: The time has come to separate Americans from traitors to America! Politicians should stand up and bring back America a bright future! What happened to Mr. Miles Guo could happen to former President Tru...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/19/04/dce27d2b-678e-c9de-bff5-1b0b3578f76b/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 5:55 AM UTC  - :tv:直播](/content/gettr/p2bx39xd4c1.md)
-
-【#FreeMilesGuoNow】 3/18/2023 Zhongyuan Foshou: The honorable judge, I have no reason to doubt Mr. Miles Guo’s great love and to worry if his love would jeopardize my safety, wealth, and faith. I swear it in the name of God!”
-
-#DOJ ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/19/05/ff7a5aa4-368f-459d-0a57-d85027c3a877/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,22 +169,6 @@
 【#FreeMilesGuoNow】03/18/2023 Prince Li: The hallmark of a tyranny is the corruption of the justice system, and that's what's happening right now in the United States of America. No one is safe from the CCP’s persecution. The CCP is...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/18/22/8611de59-7674-26cd-a711-4e5f6c155288/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 9:55 PM UTC  - :tv:直播](/content/gettr/p2bvnmj33fe.md)
-
-【#FreeMilesGuoNow】03/18/2023 Prince Li: The DOJ has been weaponized against Mr. Miles Guo and the New Federal State of China by the Chinese Communist Party. All of us here today are investors of GTV Media Group, are donors of the R...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/18/21/b8038da9-b8c6-0074-7d40-ea9e15efc645/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 9:40 PM UTC  - :tv:直播](/content/gettr/p2bv5tc4084.md)
-
-【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/18/21/f05f2c59-7522-a805-9d3d-481fc2f47143/out.jpg" width="506" height="284">
 
 ---
 
