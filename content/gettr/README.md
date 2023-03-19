@@ -2,11 +2,35 @@
 ---
 
 
+[@milesguo 3/19/2023 6:32 AM UTC  - :tv:直播](/content/gettr/p2bwokv47c6.md)
+
+【#FreeMilesGuoNow】03/18/2023  Prince spoke out against the collusion between the DOJ and FBI in the investigation of Mr. Miles Guo's case with the Chinese Communist Party. As he observed the arraignment, he saw the federal investig...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/19/06/f54d8776-6060-db1f-91fb-f19fe7108f9c/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 6:34 AM UTC  - :tv:直播](/content/gettr/p2bwrth390d.md)
+
+【#FreeMilesGuoNow】03/18/2023 Prince publicly clarifies the facts of the GTV investment and questions the SEC: Since 2017, the media, social media and Big Media have been controlled by the CCP to silence the New Federal State of Chi...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/19/06/c8ad3b9f-0f16-24b4-ab33-0ff9d1b4a1c9/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bwy400a63.md)
 
 【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/19/06/485f012a-5396-bb21-0cc6-5be06f13e455/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 6:42 AM UTC  - :tv:直播](/content/gettr/p2bw9uzd700.md)
+
+【#FreeMilesGuoNow】03/18/2023 A Jewish attorney Elliot Dordick stands with members of the NFSC, to support Miles Guo. The US attorney of the Southern District of New York office, admitted in court to working extensively with the CCP...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/19/06/dab2793e-8ba1-7e42-c64d-fc0a21ed9249/out.jpg" width="506" height="284">
 
 ---
 
@@ -20,19 +44,19 @@
 
 ---
 
-[@milesguo 3/19/2023 5:54 AM UTC  - :tv:直播](/content/gettr/p2bx4498842.md)
-
-【#FreeMilesGuoNow】03/18/2023 Aila (XiaoFeiXiang): Our fellow supporters from the New Federal State of China are standing here and protesting for Mr. Miles Guo. We are telling the world that we are the new Chinese people, and the ev...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/19/05/f2e31fa2-3a9f-f2af-2f16-eb0beda97b22/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 3/19/2023 6:11 AM UTC  - :tv:直播](/content/gettr/p2bxad2c7d2.md)
 
 2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 5:54 AM UTC  - :tv:直播](/content/gettr/p2bx4498842.md)
+
+【#FreeMilesGuoNow】03/18/2023 Aila (XiaoFeiXiang): Our fellow supporters from the New Federal State of China are standing here and protesting for Mr. Miles Guo. We are telling the world that we are the new Chinese people, and the ev...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/19/05/f2e31fa2-3a9f-f2af-2f16-eb0beda97b22/out.jpg" width="506" height="284">
 
 ---
 
@@ -132,14 +156,6 @@
 
 ---
 
-[@milesguo 3/19/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2bwequ7a61.md)
-
-【#FreeMilesGuoNow】03/18/2023 Mr. Miles Guo revealed CCP’s 13579 plan to manufacture and release a bioweapon against America within three years back in 2017. Many insiders and military scientists that the New Federal State of China ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/19/00/61ecd822-62ba-d6cc-69c8-3490a5284d84/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 3/19/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2bw195663d.md)
 
 【#FreeMilesGuoNow】03/18/2023  Miles Guo is a real man in court, he's in very good spirits. He told us not to worry. He's doing well.  But America is not doing well.  It is the darkest moment of history. Because the very institution...
@@ -153,22 +169,6 @@
 【#FreeMilesGuoNow】 3/18/2023: Zhongyuan Foshou: “Your Honor, I am convinced that Mr. Miles Guo is innocent. I guarantee, based on my personal true stories and information, that the evidence you have received is fabricated and inval...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/19/00/c32bf907-5663-8332-f164-3ccefbbf8bf0/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:01 AM UTC  - :tv:直播](/content/gettr/p2bw2jz4282.md)
-
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 10:13 PM UTC  - :tv:直播](/content/gettr/p2bvugh19ae.md)
-
-【#FreeMilesGuoNow】03/18/2023 Prince Li: The hallmark of a tyranny is the corruption of the justice system, and that's what's happening right now in the United States of America. No one is safe from the CCP’s persecution. The CCP is...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/18/22/8611de59-7674-26cd-a711-4e5f6c155288/out.jpg" width="506" height="284">
 
 ---
 
