@@ -2,6 +2,28 @@
 ---
 
 
+[@milesguo 3/19/2023 5:54 AM UTC  - :tv:直播](/content/gettr/p2bx4498842.md)
+
+【#FreeMilesGuoNow】03/18/2023 Aila (XiaoFeiXiang): Our fellow supporters from the New Federal State of China are standing here and protesting for Mr. Miles Guo. We are telling the world that we are the new Chinese people, and the ev...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/19/05/f2e31fa2-3a9f-f2af-2f16-eb0beda97b22/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 5:24 AM UTC  - :tv:直播](/content/gettr/p2bwgk9d850.md)
+
+3/17/2023 马特·帕伦博在《Gateway Pundit》发布的重磅文章表示，美国司法部与中共合作诬告文贵先生，相当于二战期间美国政府与纳粹合作迫害美国犹太人的现代版本！
+
+#郭文贵 #中共 #美国政府 #司法部 #纳粹 #司法超限战
+
+
+
+3/17/2023 In a bombshell article published in Gateway Pundit, Matthew Palumbo said that the DOJ collaborat...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/19/05/d0155508-f648-92ca-0e4a-5ca44a319c7d/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 4:33 AM UTC  - :tv:直播](/content/gettr/p2bwfbze104.md)
 
 【#FreeMilesGuoNow】 3/18/2023 Fellow fighter “Pei Lian”: “I would like to say to Mr. Guo’s wife and Guo Mei, we are all your family, and we won’t let anybody hurt our brother Miles! I also have a few words to American patriots, plea...
@@ -18,17 +40,13 @@
 
 ---
 
-[@milesguo 3/19/2023 5:24 AM UTC  - :tv:直播](/content/gettr/p2bwgk9d850.md)
+[@milesguo 3/19/2023 5:55 AM UTC  - :tv:直播](/content/gettr/p2bx39xd4c1.md)
 
-3/17/2023 马特·帕伦博在《Gateway Pundit》发布的重磅文章表示，美国司法部与中共合作诬告文贵先生，相当于二战期间美国政府与纳粹合作迫害美国犹太人的现代版本！
+【#FreeMilesGuoNow】 3/18/2023 Zhongyuan Foshou: The honorable judge, I have no reason to doubt Mr. Miles Guo’s great love and to worry if his love would jeopardize my safety, wealth, and faith. I swear it in the name of God!”
 
-#郭文贵 #中共 #美国政府 #司法部 #纳粹 #司法超限战
+#DOJ ...
 
-
-
-3/17/2023 In a bombshell article published in Gateway Pundit, Matthew Palumbo said that the DOJ collaborat...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/19/05/d0155508-f648-92ca-0e4a-5ca44a319c7d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/19/05/ff7a5aa4-368f-459d-0a57-d85027c3a877/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,29 +164,11 @@
 
 ---
 
-[@milesguo 3/18/2023 9:59 PM UTC  - :tv:直播](/content/gettr/p2bw2oq636e.md)
-
-【#FreeMilesGuoNow】 3/18/2023 Zhongyuan Foshou: The honorable judge, I have no reason to doubt Mr. Miles Guo’s great love and to worry if his love would jeopardize my safety, wealth, and faith. I swear it in the name of God!”
-
-#DOJ ...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/18/21/85a2cdb6-3a9a-19a0-7be4-21b4ef1eed22/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 3/18/2023 9:40 PM UTC  - :tv:直播](/content/gettr/p2bv5tc4084.md)
 
 【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/18/21/f05f2c59-7522-a805-9d3d-481fc2f47143/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 9:25 PM UTC  - :tv:直播](/content/gettr/p2bvur58d43.md)
-
-【#FreeMilesGuoNow】03/18/2023  On March 15, hundreds of FBI agents swarmed Miles Guo's 18’s floor residence at The Sherry-Netherland Hotel. 6 hours after they had taken Mr. Gore into detention, the FBI lit a fire that burned down th...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/18/21/3fc4bec8-98c3-3a24-51dd-9afa8ffe5f77/out.jpg" width="506" height="284">
 
 ---
 
