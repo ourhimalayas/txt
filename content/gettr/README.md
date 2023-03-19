@@ -2,19 +2,19 @@
 ---
 
 
+[@milesguo 3/18/2023 6:40 AM UTC  - :tv:直播](/content/gettr/p2btnwh266d.md)
+
+2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十三场）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 1:02 AM UTC  - :tv:直播](/content/gettr/p2bwcfgb8e5.md)
 
  【#FreeMilesGuoNow】3/18/2023 Fellow fighter in red: It is Miles Guo who let us understand why the Chinese people can’t live a decent life no matter how hard we work; it is Miles Guo who told the world COVID was released by the CCP,...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/19/01/7ad3f7f8-2a9a-fcd9-ef40-79ea35666aaf/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:48 AM UTC  - :tv:直播](/content/gettr/p2bwj526779.md)
-
-【#FreeMilesGuoNow】3/18/2023 Without eliminating the CCP, no one can guarantee that our children's healthy organs will not be harvested by the CCP. We are here to protest Miles Guo’s wrongful arrest by the FBI because we are all Mil...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/19/00/bed4ef1c-8b78-9eae-22a6-d4bce71cee62/out.jpg" width="506" height="284">
 
 ---
 
@@ -26,11 +26,11 @@
 
 ---
 
-[@milesguo 3/19/2023 12:56 AM UTC  - :tv:直播](/content/gettr/p2bvu6t615c.md)
+[@milesguo 3/19/2023 12:48 AM UTC  - :tv:直播](/content/gettr/p2bwj526779.md)
 
-【#立即释放郭文贵先生】3/18/2023 A fellow fighter, who is among those who were qualified to invest in the G-series private equity, bravely stood up to protest. Here is his message to the CCP: "Screw you! Let’s see who can hold on to the end!"...
+【#FreeMilesGuoNow】3/18/2023 Without eliminating the CCP, no one can guarantee that our children's healthy organs will not be harvested by the CCP. We are here to protest Miles Guo’s wrongful arrest by the FBI because we are all Mil...
 
-<img src="https://media.gettr.com/group5/getter/2023/03/19/00/1054c24b-eb3d-e8d3-449d-fd533ef59d34/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/19/00/bed4ef1c-8b78-9eae-22a6-d4bce71cee62/out.jpg" width="506" height="284">
 
 ---
 
