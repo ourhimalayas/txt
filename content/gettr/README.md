@@ -2,6 +2,30 @@
 ---
 
 
+[@milesguo 3/19/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2bwequ7a61.md)
+
+【#FreeMilesGuoNow】03/18/2023 Mr. Miles Guo revealed CCP’s 13579 plan to manufacture and release a bioweapon against America within three years back in 2017. Many insiders and military scientists that the New Federal State of China ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/19/00/61ecd822-62ba-d6cc-69c8-3490a5284d84/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2bw195663d.md)
+
+【#FreeMilesGuoNow】03/18/2023  Miles Guo is a real man in court, he's in very good spirits. He told us not to worry. He's doing well.  But America is not doing well.  It is the darkest moment of history. Because the very institution...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/19/00/6e78fee2-c5ce-1404-5ba5-7ea0c94814a9/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 12:01 AM UTC  - :tv:直播](/content/gettr/p2bw2jz4282.md)
+
+2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/18/2023 10:13 PM UTC  - :tv:直播](/content/gettr/p2bvugh19ae.md)
 
 【#FreeMilesGuoNow】03/18/2023 Prince Li: The hallmark of a tyranny is the corruption of the justice system, and that's what's happening right now in the United States of America. No one is safe from the CCP’s persecution. The CCP is...
@@ -18,11 +42,11 @@
 
 ---
 
-[@milesguo 3/19/2023 12:01 AM UTC  - :tv:直播](/content/gettr/p2bw2jz4282.md)
+[@milesguo 3/19/2023 12:28 AM UTC  - :tv:直播](/content/gettr/p2bwdqi6de5.md)
 
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
+【#FreeMilesGuoNow】 3/18/2023: Zhongyuan Foshou: “Your Honor, I am convinced that Mr. Miles Guo is innocent. I guarantee, based on my personal true stories and information, that the evidence you have received is fabricated and inval...
 
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/19/00/c32bf907-5663-8332-f164-3ccefbbf8bf0/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,30 +193,6 @@
 03/17/2023 Founder/CEO of America First News Joshua Feuerstein prayed on behalf of America First News and the American people for Mr. Miles Guo, GTV, and all members of the NFSC: that Heavenly Father would touch Mr. Guo and his cas...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/18/01/d847398c-24f3-abd7-7965-42fac35ca689/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 12:31 AM UTC  - :tv:直播](/content/gettr/p2bsqku2c3f.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 11:07 PM UTC  - :tv:直播](/content/gettr/p2bsqk6bbf2.md)
-
-03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: Who's really perpetrating the fraud here? Who's really capturing the money of the GTV investors?  It sounds like the evil people in the United States government who w...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/17/23/c4a827f5-4d7b-9a88-feee-6659041c6744/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/17/2023 11:13 PM UTC  - :tv:直播](/content/gettr/p2bs4jxdc08.md)
-
-03/17/2023 Founder/CEO of America First News, Joshua Feuerstein: Mr. Miles Guo understands that alternative media sources must be created to tell the truth and shine light into the darkness. The CCP understands that they are one re...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/17/23/0d7087e7-ad84-7257-e5e9-7e9e412819ea/out.jpg" width="506" height="284">
 
 ---
 
