@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 1:02 AM UTC  - :tv:直播](/content/gettr/p2bwcfgb8e5.md)
+
+ 【#FreeMilesGuoNow】3/18/2023 Fellow fighter in red: It is Miles Guo who let us understand why the Chinese people can’t live a decent life no matter how hard we work; it is Miles Guo who told the world COVID was released by the CCP,...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/19/01/7ad3f7f8-2a9a-fcd9-ef40-79ea35666aaf/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 12:48 AM UTC  - :tv:直播](/content/gettr/p2bwj526779.md)
 
 【#FreeMilesGuoNow】3/18/2023 Without eliminating the CCP, no one can guarantee that our children's healthy organs will not be harvested by the CCP. We are here to protest Miles Guo’s wrongful arrest by the FBI because we are all Mil...
@@ -10,11 +18,11 @@
 
 ---
 
-[@milesguo 3/19/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2bwequ7a61.md)
+[@milesguo 3/19/2023 1:09 AM UTC  - :tv:直播](/content/gettr/p2bwnj2dd3d.md)
 
-【#FreeMilesGuoNow】03/18/2023 Mr. Miles Guo revealed CCP’s 13579 plan to manufacture and release a bioweapon against America within three years back in 2017. Many insiders and military scientists that the New Federal State of China ...
+【#FreeMilesGuoNow】3/18/2023 We are not the victims of Mr. Guo, but the victims of U.S. federal government agencies infiltrated by the CCP! Wake up, Americans! The CCP has infiltrated the DOJ, the SEC, and the IRS. None of you are s...
 
-<img src="https://media.gettr.com/group5/getter/2023/03/19/00/61ecd822-62ba-d6cc-69c8-3490a5284d84/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/19/01/280965b8-9392-52ba-ad04-f37437c079ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@
 【#立即释放郭文贵先生】3/18/2023 A fellow fighter, who is among those who were qualified to invest in the G-series private equity, bravely stood up to protest. Here is his message to the CCP: "Screw you! Let’s see who can hold on to the end!"...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/19/00/1054c24b-eb3d-e8d3-449d-fd533ef59d34/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2bwequ7a61.md)
+
+【#FreeMilesGuoNow】03/18/2023 Mr. Miles Guo revealed CCP’s 13579 plan to manufacture and release a bioweapon against America within three years back in 2017. Many insiders and military scientists that the New Federal State of China ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/19/00/61ecd822-62ba-d6cc-69c8-3490a5284d84/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,22 +191,6 @@
 [@milesguo 3/18/2023 9:00 AM UTC  - :tv:直播](/content/gettr/p2bts8r7481.md)
 
 2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十三场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 6:40 AM UTC  - :tv:直播](/content/gettr/p2btnwh266d.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十三场）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/18/2023 4:14 AM UTC  - :tv:直播](/content/gettr/p2btlvj59c0.md)
-
-2023.03.17 全球战友等着七哥回来 Waiting for Miles to Come back（第十二场）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/15/20/ea578554-47a2-70de-b3f7-05f03c2cb47c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
