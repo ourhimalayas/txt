@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 3:45 PM UTC  - :tv:直播](/content/gettr/p2bxzh2d486.md)
+
+【#FreeMilesGuoNow】03/18/2023 Lao Banzhang: Our protest is to tell the world that we refuse to let the Chinese Communist Party represent the Chinese people or the SEC represent the investors of the New Federal State of China. We pro...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/19/15/1bf89847-8483-1879-865e-e6b008f178dd/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 12:45 PM UTC  - :tv:直播](/content/gettr/p2bxjq951ff.md)
 
 2023.03.19 
@@ -40,11 +48,11 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 
 ---
 
-[@milesguo 3/19/2023 3:45 PM UTC  - :tv:直播](/content/gettr/p2bxzh2d486.md)
+[@milesguo 3/19/2023 4:07 PM UTC  - :tv:直播](/content/gettr/p2bxueua681.md)
 
-【#FreeMilesGuoNow】03/18/2023 Lao Banzhang: Our protest is to tell the world that we refuse to let the Chinese Communist Party represent the Chinese people or the SEC represent the investors of the New Federal State of China. We pro...
+2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十七场）
 
-<img src="https://media.gettr.com/group6/getter/2023/03/19/15/1bf89847-8483-1879-865e-e6b008f178dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】 3/18/2023: The time has come to separate Americans from traitors to America! Politicians should stand up and bring back America a bright future! What happened to Mr. Miles Guo could happen to former President Tru...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/19/04/dce27d2b-678e-c9de-bff5-1b0b3578f76b/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 3:31 AM UTC  - :tv:直播](/content/gettr/p2bwf8m2734.md)
-
-【#FreeMilesGuoNow】03/18/2023 Brother David’s speech: Every single fellow fighter, every NFSC citizen is Miles Guo and a whistleblower. The CCP learns the real new Chinese people are totally different from those living under the CCP...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/19/03/b5bc0618-e825-92b7-2c82-461303863377/out.jpg" width="506" height="284">
 
 ---
 
