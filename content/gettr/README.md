@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/19/2023 7:04 AM UTC  - :tv:直播](/content/gettr/p2bwsvx80fe.md)
+
+【#FreeMilesGuoNow】3/18/2023 Fellow Fighter Sylvia: The US DOJ, FBI, and SEC, all weaponized by the CCP, are banding together to persecute Mr. Guo and the Chinese people! Citizens of the New Federal State of China are calling for de...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/19/07/e924682b-c550-9712-02b9-1143f26779c7/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 6:34 AM UTC  - :tv:直播](/content/gettr/p2bwrth390d.md)
 
 【#FreeMilesGuoNow】03/18/2023 Prince publicly clarifies the facts of the GTV investment and questions the SEC: Since 2017, the media, social media and Big Media have been controlled by the CCP to silence the New Federal State of Chi...
@@ -18,19 +26,19 @@
 
 ---
 
-[@milesguo 3/19/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bwy400a63.md)
-
-【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/19/06/485f012a-5396-bb21-0cc6-5be06f13e455/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 3/19/2023 6:42 AM UTC  - :tv:直播](/content/gettr/p2bw9uzd700.md)
 
 【#FreeMilesGuoNow】03/18/2023 A Jewish attorney Elliot Dordick stands with members of the NFSC, to support Miles Guo. The US attorney of the Southern District of New York office, admitted in court to working extensively with the CCP...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/19/06/dab2793e-8ba1-7e42-c64d-fc0a21ed9249/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bwy400a63.md)
+
+【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/19/06/485f012a-5396-bb21-0cc6-5be06f13e455/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@
 【#FreeMilesGuoNow】3/18/2023 Without eliminating the CCP, no one can guarantee that our children's healthy organs will not be harvested by the CCP. We are here to protest Miles Guo’s wrongful arrest by the FBI because we are all Mil...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/19/00/bed4ef1c-8b78-9eae-22a6-d4bce71cee62/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2bw195663d.md)
-
-【#FreeMilesGuoNow】03/18/2023  Miles Guo is a real man in court, he's in very good spirits. He told us not to worry. He's doing well.  But America is not doing well.  It is the darkest moment of history. Because the very institution...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/19/00/6e78fee2-c5ce-1404-5ba5-7ea0c94814a9/out.jpg" width="506" height="284">
 
 ---
 
