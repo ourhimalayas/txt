@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 12:43 PM UTC  - :tv:直播](/content/gettr/p2bxkqp6405.md)
+
+3/17/2023  Miles Guo’s prosecutors in the Southern District of New York admitted to working with the CCP! Judge Parker not only gave a verbal warning but also issued a written court order, explicitly requiring the prosecutors to di...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/19/12/ea5a3e24-ceb2-60be-f61a-857e1eeb1e0c/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 12:03 PM UTC  - :tv:直播](/content/gettr/p2bxtkn596c.md)
 
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
@@ -10,11 +18,25 @@
 
 ---
 
-[@milesguo 3/19/2023 12:43 PM UTC  - :tv:直播](/content/gettr/p2bxkqp6405.md)
+[@milesguo 3/19/2023 12:45 PM UTC  - :tv:直播](/content/gettr/p2bxjq951ff.md)
 
-3/17/2023  Miles Guo’s prosecutors in the Southern District of New York admitted to working with the CCP! Judge Parker not only gave a verbal warning but also issued a written court order, explicitly requiring the prosecutors to di...
+2023.03.19 
 
-<img src="https://media.gettr.com/group11/getter/2023/03/19/12/ea5a3e24-ceb2-60be-f61a-857e1eeb1e0c/out.jpg" width="506" height="284">
+
+
+大爱必公  恒情必义
+
+
+
+Miles Guo 最新单曲《微风细雨》
+
+上线iTunes：
+
+
+
+https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may/1677522290?i=1677522296&l=zh
+
+<img src="https://media.gettr.com/group9/getter/2023/03/19/12/fbbf1947-99c5-3d15-b5fe-35dc18228df8/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +183,6 @@
 #NFSC #takedowntheCCP #CCPyouarefinished #FreeMilesG...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/19/03/ca36b7be-8afa-56e0-e469-c61a74ad553e/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 2:59 AM UTC  - :tv:直播](/content/gettr/p2bwixf066d.md)
-
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十五场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
