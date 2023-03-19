@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/19/2023 11:10 PM UTC  - :tv:直播](/content/gettr/p2bzhm6754d.md)
+
+【#FreeMilesGuoNow】03/18/2023 Mulan: Brother Seven (Miles) was smiling when he was taken away by hundreds of FBI agents. And after he left, the 18th floor was severely damaged by a strange fire, and Luc Despins took the opportunity ...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/19/23/79b0a0b6-6740-6f99-5c3f-4c07d3958367/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/19/2023 8:16 PM UTC  - :tv:直播](/content/gettr/p2bz9vzb630.md)
+
+2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
+
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 4:07 PM UTC  - :tv:直播](/content/gettr/p2bxueua681.md)
 
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十七场）
@@ -56,11 +72,11 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 
 ---
 
-[@milesguo 3/19/2023 8:16 PM UTC  - :tv:直播](/content/gettr/p2bz9vzb630.md)
+[@milesguo 3/19/2023 11:14 PM UTC  - :tv:直播](/content/gettr/p2bz7xlf922.md)
 
-2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
+【#FreeMilesGuoNow】03/18/2023 Rossangel is a freedom fighter from Puerto Rico. She joins our protest with a framed photo of Mr. Miles Guo to thank for saving millions of lives by exposing the truth about the coronavirus. What has ha...
 
-<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/19/23/1baab3f8-be06-1c92-e57f-55960907d47c/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,28 +175,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】03/18/2023 Aila (XiaoFeiXiang): Our fellow supporters from the New Federal State of China are standing here and protesting for Mr. Miles Guo. We are telling the world that we are the new Chinese people, and the ev...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/19/05/f2e31fa2-3a9f-f2af-2f16-eb0beda97b22/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 5:24 AM UTC  - :tv:直播](/content/gettr/p2bwgk9d850.md)
-
-3/17/2023 马特·帕伦博在《Gateway Pundit》发布的重磅文章表示，美国司法部与中共合作诬告文贵先生，相当于二战期间美国政府与纳粹合作迫害美国犹太人的现代版本！
-
-#郭文贵 #中共 #美国政府 #司法部 #纳粹 #司法超限战
-
-
-
-3/17/2023 In a bombshell article published in Gateway Pundit, Matthew Palumbo said that the DOJ collaborat...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/19/05/d0155508-f648-92ca-0e4a-5ca44a319c7d/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 4:33 AM UTC  - :tv:直播](/content/gettr/p2bwfbze104.md)
-
-【#FreeMilesGuoNow】 3/18/2023 Fellow fighter “Pei Lian”: “I would like to say to Mr. Guo’s wife and Guo Mei, we are all your family, and we won’t let anybody hurt our brother Miles! I also have a few words to American patriots, plea...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/19/04/a7975118-ea8f-085a-89a8-3c93e7905ccc/out.jpg" width="506" height="284">
 
 ---
 
