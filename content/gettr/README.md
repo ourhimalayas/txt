@@ -2,6 +2,30 @@
 ---
 
 
+[@gmusic 3/20/2023 4:59 PM UTC ](/content/gettr/p2c1ef34e9a.md)
+
+郭文贵歌曲iTunes打榜记录 - 2023年3月20号
+
+https://gnews.org/articles/1030286
+
+
+
+《微风细雨》登榜iTunes  
+
+新西兰🇳🇿、新加坡🇸🇬、斐济🇫🇯热门歌曲榜第一名🥇  
+
+阿联酋🇦🇪、台湾🇹🇼热门歌曲榜第二名🥈  
+
+德国🇩🇪、波兰🇵🇱热门歌曲榜第三名🥉  
+
+
+
+新西兰🇳🇿、新加坡🇸🇬、斐济🇫🇯流行歌曲榜第一名🥇  
+
+阿联酋🇦🇪、台湾🇹🇼流行...
+
+---
+
 [@milesguo 3/20/2023 3:07 PM UTC  - :tv:直播](/content/gettr/p2c1m5y726f.md)
 
 2023.03.20 《时间点Time Line》第三十七期：文贵先生被美国司法黑手陷害 主持：青藤 嘉宾：QMAY、苍天饶过誰64
@@ -58,27 +82,11 @@
 
 ---
 
-[@gmusic 3/20/2023 4:59 PM UTC ](/content/gettr/p2c1ef34e9a.md)
+[@nsfcspeaksoffical 3/20/2023 5:16 PM UTC  - :tv:直播](/content/gettr/p2c1rfra3bd.md)
 
-郭文贵歌曲iTunes打榜记录 - 2023年3月20号
+2023.03.20 NFSC SPEAKS MONDAY WITH RET. COL. JOHN MILLS #FREEMILESGUO
 
-https://gnews.org/articles/1030286
-
-
-
-《微风细雨》登榜iTunes  
-
-新西兰🇳🇿、新加坡🇸🇬、斐济🇫🇯热门歌曲榜第一名🥇  
-
-阿联酋🇦🇪、台湾🇹🇼热门歌曲榜第二名🥈  
-
-德国🇩🇪、波兰🇵🇱热门歌曲榜第三名🥉  
-
-
-
-新西兰🇳🇿、新加坡🇸🇬、斐济🇫🇯流行歌曲榜第一名🥇  
-
-阿联酋🇦🇪、台湾🇹🇼流行...
+<img src="https://media.gettr.com/group5/origin/2023/03/20/17/ba23a34b-6ead-06f9-0036-77d27249b600/dcd586532c1c9ce8243d2d0e991f9ddc.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 3/17/2023  Miles Guo’s prosecutors in the Southern District of New York admitted to working with the CCP! Judge Parker not only gave a verbal warning but also issued a written court order, explicitly requiring the prosecutors to di...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/19/12/ea5a3e24-ceb2-60be-f61a-857e1eeb1e0c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:03 PM UTC  - :tv:直播](/content/gettr/p2bxtkn596c.md)
-
-2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
