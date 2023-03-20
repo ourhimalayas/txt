@@ -3,6 +3,10 @@
 
 ## 頁面 100/110 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月9日第二次直播 20180209_2关于陈军在推特上的公开造假……说谎．文贵将在近日直播有关他的欺骗及骗人真！](/content/transcript/2018/02/20180209-53484071.md)
+
+[郭文贵2018年2月8日 20180208文贵报平安视频，再谈陈军的虚伪与荒唐，及现在各方形势表明，中国的经济出现大问题，中国未来的一年将出现巨大的变数和不稳定; 习主席危险，盗国贼可能将成功，我们](/content/transcript/2018/02/20180208-53484070.md)
+
 [郭文贵2018年2月8日直播 20180208_2温哥华援郭会上的激情演讲、首次披露与王岐山见面详情](/content/transcript/2018/02/20180208-53476965.md)
 
 [郭文贵2018年2月7日第二次直播 20180207_2再谈陈军先生和流氓袁健斌，吴征陷害文贵！再次感谢战友们发来的有关河北高院和政法委书记犯罪腐败证据](/content/transcript/2018/02/20180207-53484054.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗](/content/transcript/2018/01/20180127-53477366.md)
 
 [郭文贵2018年1月21日直播 20180121_1](/content/transcript/2018/01/20180121-53482787.md)
-
-[郭文贵2018年1月19日视频 20180119_2文贵现在回答很多战友们关心文贵看春晚的节目的安排．的大概情况．谢谢大家的关心关注](/content/transcript/2018/01/20180119-53477387.md)
-
-[郭文贵2018年1月19日视频 20180119_1文贵现在回答很多战友关心的．我刚刚起诉了吴征先生先生的代表律师事务所．为什么用的是达赖喇嘛尊者和中国南海争议的代表同一家律师事务所！](/content/transcript/2018/01/20180119-53477382.md)
 
 
 ## 頁面 100/110 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)

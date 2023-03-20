@@ -3,6 +3,10 @@
 
 ## 頁面 68/110 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年9月29日 郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年 全文字版](/content/transcript/2019/09/20190929-53899713.md)
+
+[郭文贵2019年9月29日 20190929郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/content/transcript/2019/09/20190929-53483297.md)
+
 [郭文贵2019年9月29日 20190929_2连线北京姑娘聊天室](/content/transcript/2019/09/20190929-53478061.md)
 
 [2019年9月28郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临全文字版](/content/transcript/2019/09/20190928-53863711.md)
@@ -48,10 +52,6 @@
 [《文贵大直播》全文听写组](/content/transcript/2019/09/20190916-53845233.md)
 
 [2019年9月16日郭文贵先生直播全文字版](/content/transcript/2019/09/20190916-53847091.md)
-
-[郭文贵2019年9月16日视频 20190916](/content/transcript/2019/09/20190916-53483100.md)
-
-[2019年9月15日 香港已成为恐惧之港全文字版](/content/transcript/2019/09/20190915-53865978.md)
 
 
 ## 頁面 68/110 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)

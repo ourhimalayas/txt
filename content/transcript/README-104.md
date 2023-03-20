@@ -3,6 +3,10 @@
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月19日明镜专访第六期 20170919](/content/transcript/2017/09/20170919-53484075.md)
+
+[郭文贵2017年9月18日视频 20170918在安全屋准备全球发布会资料 担心中国大乱](/content/transcript/2017/09/20170918-53483583.md)
+
 [郭文贵2017年9月15日 20170915第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习](/content/transcript/2017/09/20170915-53484004.md)
 
 [郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一](/content/transcript/2017/09/20170914-53483579.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年9月1日视频 20170901_2让盗国贼看看把我们当猪狗的代价是什么！](/content/transcript/2017/09/20170901-53483558.md)
 
 [郭文贵2017年8月31日 20170831就近况回答明镜电视追问](/content/transcript/2017/08/20170831-53484302.md)
-
-[郭文贵2017年8月31日视频 20170831_2明天直播政法王第一集](/content/transcript/2017/08/20170831-53483555.md)
-
-[郭文贵2017年8月30日 20170830关于盗国贼的盗脸手段与乱伦彪的动机](/content/transcript/2017/08/20170830-53483928.md)
 
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月5日视频 20180805王健被杀的过程和涉及的人](/content/transcript/2018/08/20180805-53482446.md)
+
+[郭文贵2018年8月5日直播 20180805_2早上大爆料後去划船 划船回来了 试试直播聊聊天 再談王健之死](/content/transcript/2018/08/20180805-53478099.md)
+
 [郭文贵2018年8月4日视频 20180804出发去会晤一位刚与王岐山见过面的重要朋友，感叹水上美景](/content/transcript/2018/08/20180804-53477224.md)
 
 [郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家](/content/transcript/2018/07/20180730-53477219.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年6月29日直播 20180629_1谈刘刚与屎诺．王岐山与错功胜为什么救海航！](/content/transcript/2018/06/20180629-53477980.md)
 
 [郭文贵2018年6月28日直播 20180628_1](/content/transcript/2018/06/20180628-53477965.md)
-
-[郭文贵2018年6月27日视频 20180627](/content/transcript/2018/06/20180627-53483833.md)
-
-[郭文贵2018年6月27日直播 20180627_3一边抽雪茄一边直播（第二段）](/content/transcript/2018/06/20180627-53477960.md)
 
 
 ## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

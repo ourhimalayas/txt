@@ -3,6 +3,10 @@
 
 ## 頁面 84/110 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月12日视频 20190112_2早起準備接受90後的戰友楚門世界的採訪](/content/transcript/2019/01/20190112-53478507.md)
+
+[郭文贵2019年1月11日视频 20190111中央電視台大樓整個設計本人全面參與, 班農將在春晚講述在白宮的親身經歷](/content/transcript/2019/01/20190111-53482075.md)
+
 [郭文贵2019年1月11日视频 20190111_2國內現在都明白了, 甚麼反腐運動, 王八蛋反腐, 實際上都是滅口運動](/content/transcript/2019/01/20190111-53478504.md)
 
 [郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...](/content/transcript/2019/01/20190110-53481644.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐](/content/transcript/2018/12/20181224-53478457.md)
 
 [郭文贵2018年12月23日视频 20181223_1我们这两天加班，完成了对Sam Nunberg 和吴征的重新起诉，索赔，这是个大事！媒体高度关注！](/content/transcript/2018/12/20181223-53478453.md)
-
-[郭文贵2018年12月22日直播 20181222谈中美两国夫妻关系及刘特佐是否会被孟建柱做掉 共产党在香港所谓的商政双轨制的控制手段](/content/transcript/2018/12/20181222-53481456.md)
-
-[郭文贵2018年12月22日视频 20181222_2我與Snow和大家聊聊天](/content/transcript/2018/12/20181222-53478450.md)
 
 
 ## 頁面 84/110 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

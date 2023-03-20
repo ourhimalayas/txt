@@ -3,6 +3,10 @@
 
 ## 頁面 71/110 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月26日视频 20190826尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？非常的抱歉，前几天一直在＂床＂见人开会……没有及时向大家报平安视频！一切都是刚刚开始](/content/transcript/2019/08/20190826-53482972.md)
+
+[郭文贵2019年8月24日视频 20190824_2文贵怀孕了](/content/transcript/2019/08/20190824-53478925.md)
+
 [郭文贵2019年8月24日视频 20190824_1报平安，好消息不断](/content/transcript/2019/08/20190824-53478919.md)
 
 [2019年8月23日文贵大直播全文字版：习近平和川普总统会互相宣布成为敌人吗？](/content/transcript/2019/08/20190823-53795543.md)
@@ -48,10 +52,6 @@
 [2019年8月11日《文贵大直播》全文字版：船上直播高度关注香港](/content/transcript/2019/08/20190811-53741198.md)
 
 [郭文贵2019年8月11日视频 20190811Mr. Miles Kwok live stream: please focus your attention on Hong Kong, in order to stop...](/content/transcript/2019/08/20190811-53482997.md)
-
-[2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场](/content/transcript/2019/08/20190810-53729835.md)
-
-[郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...](/content/transcript/2019/08/20190810-53482982.md)
 
 
 ## 頁面 71/110 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)

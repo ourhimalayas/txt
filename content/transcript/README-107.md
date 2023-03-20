@@ -3,6 +3,10 @@
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年7月12日视频 20170712Snow最活泼的一次. 转自郭文贵7月12号推特视频.](/content/transcript/2017/07/20170712-53483523.md)
+
+[郭文贵2017年7月10日王岐山家族 20170710王岐山家族与海航787等多架私人飞机的关系，及千次飞行记录的真实来由！](/content/transcript/2017/07/20170710-53484116.md)
+
 [郭文贵2017年7月9日直播试网络 20170709文贵爆的王岐山傅政华盗国贼们的事情大陆人的真实感受](/content/transcript/2017/07/20170709-53483895.md)
 
 [郭文贵2017年7月8日 20170708文贵与王岐山的啪啪啪的能力比较](/content/transcript/2017/07/20170708-53483892.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年6月7日视频 20170607推特报平安](/content/transcript/2017/06/20170607-53483780.md)
 
 [郭文贵2017年6月6日王歧山2完整版 20170606](/content/transcript/2017/06/20170606-53483858.md)
-
-[郭文贵2017年6月3日视频 20170603盗国贼与国家的关系](/content/transcript/2017/06/20170603-53483854.md)
-
-[郭文贵2017年6月1日视频 20170601](/content/transcript/2017/06/20170601-53483842.md)
 
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

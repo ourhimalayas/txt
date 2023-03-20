@@ -3,6 +3,10 @@
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月27日路德和班农访谈 20190427livstream 实时转播](/content/transcript/2019/04/20190427-53482436.md)
+
+[郭文贵2019年4月27日视频 20190427_3在喜马拉雅大使馆和文贵先生直播，信息量大！千万不要错过！](/content/transcript/2019/04/20190427-53478680.md)
+
 [郭文贵2019年4月27日视频 20190427_2-(文貴完整版) 文贵、班农、路德直播：班农先生谈关于当前委的众多问题? 文貴談当前委在美国有什么重要影响力？揭露一带一路的本质](/content/transcript/2019/04/20190427-53478656.md)
 
 [郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊](/content/transcript/2019/04/20190426-53478648.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年4月13日第三次直播 20190413_3给战友们的四条建议！紧急通知，战友必看！](/content/transcript/2019/04/20190413-53482261.md)
 
 [郭文贵2019年4月11日视频 20190411_1谈谈美国和欧洲接下来的联合行动！再谈谈在伦敦被抓朴的阿桑奇和当前危机委员会！](/content/transcript/2019/04/20190411-53478591.md)
-
-[郭文贵2019年4月10日视频 20190410_2所谓的美国名主持Larry King与俄罗斯美女Dolgva Anastasia造谣文贵的事情．还在进一步的确定详细的信息中，律师建议咱不能就有关问题直播](/content/transcript/2019/04/20190410-53478585.md)
-
-[郭文贵2019年4月10日视频 20190410_1 很多战友发给我说Larry King还有俄罗斯美女Dolgva Anastasia又开始找我们事了……造我们谣了，还有很多基金打电话取消跟我的合作！](/content/transcript/2019/04/20190410-53478583.md)
 
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

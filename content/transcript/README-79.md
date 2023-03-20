@@ -3,6 +3,10 @@
 
 ## 頁面 79/110 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月15日视频 20190515_1一个牛耳朵的诱惑，SNOW兴奋不己！](/content/transcript/2019/05/20190515-53478711.md)
+
+[郭文贵2019年5月13日视频 20190513报平安视频 关注金融市场 中共真的完了](/content/transcript/2019/05/20190513-53482581.md)
+
 [郭文贵2019年5月12日视频 20190512母亲才是我们的国．父母才是我们的家！我们的家！愿中国所有的母亲，不要把自己的儿女送给共产党这个非法组织！任何一个加入共产党的家庭都有可能将受到全世界的制裁，未来无法到世界各](/content/transcript/2019/05/20190512-53482577.md)
 
 [郭文贵2019年5月12日视频 20190512_2应战友们的要求．发一个snow视频，这是与SNOW散步的小视频](/content/transcript/2019/05/20190512-53478709.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年4月29日 20190429_2（2）台湾．香港．将是灭共的重要之地](/content/transcript/2019/04/20190429-53478111.md)
 
 [郭文贵2019年4月28日视频 20190428_1我家就是全世界最敏感的地方](/content/transcript/2019/04/20190428-53478683.md)
-
-[郭文贵2019年4月27日路德和班农访谈 20190427livstream 实时转播](/content/transcript/2019/04/20190427-53482436.md)
-
-[郭文贵2019年4月27日视频 20190427_3在喜马拉雅大使馆和文贵先生直播，信息量大！千万不要错过！](/content/transcript/2019/04/20190427-53478680.md)
 
 
 ## 頁面 79/110 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)

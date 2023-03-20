@@ -3,6 +3,10 @@
 
 ## 頁面 76/110 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月2日直播全文字版：此次大阪G20是中美会议当中最紧张、最严肃、最奇怪、最没有确定性的的双边会议](/content/transcript/2019/07/20190702-53574108.md)
+
+[郭文贵2019年7月2日视频 20190702_2文贵与班农在白宫北侧．谈今天打赢夏畜生诽谤案的重要标志性意义……这是个改变美国法律历史的事件](/content/transcript/2019/07/20190702-53478771.md)
+
 [郭文贵2019年7月2日视频 20190702_1据文贵了解和瞎蒙．G20会议．此次大版G20．是中美会议当中最紧张，最严肃．最奇怪．最没有确定性的．的双边会议！后面的故事．很多．该文贵开完庭后，详细向大家汇报，大利爆料革命…](/content/transcript/2019/07/20190702-53478766.md)
 
 [2019年7月1日文贵在DC直播全文字版：讲香港七一大游行合集](/content/transcript/2019/07/20190701-53563928.md)
@@ -48,10 +52,6 @@
 [香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》](/content/transcript/2019/06/20190617-53557443.md)
 
 [郭文贵2019年6月17日视频 20190617支持香港反送中抗议](/content/transcript/2019/06/20190617-53482778.md)
-
-[2019年6月16日直播全文字版：文贵如何看共产党在香港耍诈、使狠](/content/transcript/2019/06/20190616-53555395.md)
-
-[郭文贵2019年6月16日视频 20190616_1在深圳珠海，香港中资大楼里的解放军埋伏．并没有撒啊，共产党正在何机破坏……制造社会动乱，栽赃香港人](/content/transcript/2019/06/20190616-53478751.md)
 
 
 ## 頁面 76/110 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)

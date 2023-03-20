@@ -3,6 +3,10 @@
 
 ## 頁面 86/110 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月25日视频 20181125_2](/content/transcript/2018/11/20181125-53478543.md)
+
+[郭文贵2018年11月25日视频 20181125_1](/content/transcript/2018/11/20181125-53478541.md)
+
 [郭文贵2018年11月24日视频 20181124_1](/content/transcript/2018/11/20181124-53478538.md)
 
 [郭文贵2018年11月22日视频 20181122_1应很多战友的要求．录一个SNOW小视频！祝大家感恩节快乐！](/content/transcript/2018/11/20181122-53478536.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年11月7日视频 20181107美國中期選舉後感想](/content/transcript/2018/11/20181107-53480280.md)
 
 [郭文贵2018年11月5日视频 20181105_1](/content/transcript/2018/11/20181105-53478387.md)
-
-[郭文贵2018年11月4日视频 20181104_1共产党最爱的床上运动 与西方的马拉松活动有什么不同！周末一笑！](/content/transcript/2018/11/20181104-53478385.md)
-
-[郭文贵2018年11月1日视频 20181101王岐山帮助川普赢选举](/content/transcript/2018/11/20181101-53480025.md)
 
 
 ## 頁面 86/110 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)

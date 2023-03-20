@@ -3,6 +3,10 @@
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月25日《文贵大直播》全文字版：请战友们记住7月21号7月23号.......](/content/transcript/2019/07/20190725-53686212.md)
+
+[郭文贵2019年7月25日视频 20190725live stream: Miles letting everyone know he is safe. Please friends, remember..](/content/transcript/2019/07/20190725-53482885.md)
+
 [2019年7月24日《文贵大直播》全文字版](/content/transcript/2019/07/20190724-53680599.md)
 
 [郭文贵2019年7月24日视频 20190724尊敬的战友们好，你们健身了吗？你们往身上泼水了吗？衷心的祝愿和祝福所有的在国内．在水灾同胞们能尽快的恢复到正常的生活……我们的心和你们在一起，一切都是刚刚开始！](/content/transcript/2019/07/20190724-53482875.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年7月14日 20190714班农与文贵直播: 共产党为什么可以强奸美国70年？](/content/transcript/2019/07/20190714-53482909.md)
 
 [2019年7月12日直播全文字版：蔡英文访问纽约；香港接下来的行动；大阪G20的结果已经影响了美国内部的政治！](/content/transcript/2019/07/20190712-53578172.md)
-
-[郭文贵2019年7月12日蔡英文访问纽约 20190712蔡英文访问纽约．和香港接下来的行动．大版G20的结果已经影响了美国内部的政治！一切都是刚刚开始！](/content/transcript/2019/07/20190712-53482906.md)
-
-[郭文贵2019年7月11日视频 20190711_2郭文贵先生首谈卡拉OK 爆料革命是过街老虎](/content/transcript/2019/07/20190711-53478802.md)
 
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)

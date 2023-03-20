@@ -3,6 +3,10 @@
 
 ## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场](/content/transcript/2019/08/20190810-53729835.md)
+
+[郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...](/content/transcript/2019/08/20190810-53482982.md)
+
 [2019年8月9日《郭文贵大直播》全文字版：船上报平安直播](/content/transcript/2019/08/20190809-53739787.md)
 
 [郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe](/content/transcript/2019/08/20190809-53482977.md)
@@ -48,10 +52,6 @@
 [2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场](/content/transcript/2019/07/20190731-53733598.md)
 
 [郭文贵2019年7月31日第一次直播 20190731_1爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-53482920.md)
-
-[郭文贵2019年7月31日第二次直播 20190731_3上海西郊宾馆开启共产党死亡第二战场](/content/transcript/2019/07/20190731-53482915.md)
-
-[郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着](/content/transcript/2019/07/20190731-53478869.md)
 
 
 ## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

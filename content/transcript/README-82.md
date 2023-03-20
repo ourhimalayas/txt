@@ -3,6 +3,10 @@
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月26日视频 20190226谈谈法治基金和金正恩与川普团队的不同，一切都是刚刚开始！](/content/transcript/2019/02/20190226-53482052.md)
+
+[郭文贵2019年2月24日视频 20190224文贵谈，法治基金建立的真正目的。](/content/transcript/2019/02/20190224-53482031.md)
+
 [郭文贵2019年2月23日视频 20190223郭文贵和班农谈宗教革命：爆梵蒂冈与中共的交易](/content/transcript/2019/02/20190223-53481988.md)
 
 [郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情](/content/transcript/2019/02/20190222-53481914.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年1月30日视频 20190130_2文贵先生测试秘密工具直播](/content/transcript/2019/01/20190130-53478558.md)
 
 [郭文贵2019年1月30日视频 20190130_1谈谈为什么说，金正日应该直接打电话给川普总统。還了家鄉一位老板二十多塊錢](/content/transcript/2019/01/20190130-53478552.md)
-
-[郭文贵2019年1月29日第一次直播 20190129_1下一个打击目标，将是阿里巴巴！和腾讯！一切都是刚刚开始！](/content/transcript/2019/01/20190129-53481902.md)
-
-[郭文贵2019年1月29日第二次直播 20190129_2郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料](/content/transcript/2019/01/20190129-53481859.md)
 
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年5月22日视频第二部分 20180522_2谈委内瑞拉．马来西亚．是我们借鉴走向喜马拉雅的好榜样！岳文海的腐败！](/content/transcript/2018/05/20180522-53483751.md)
+
+[郭文贵2018年5月22日视频第一部分 20180522_1谈与王岐山刘志华一起战斗的日子！](/content/transcript/2018/05/20180522-53483738.md)
+
 [郭文贵2018年5月17日视频 20180517谈马来西亚、委内瑞拉、信仰和理想](/content/transcript/2018/05/20180517-53482402.md)
 
 [郭文贵2018年5月13日直播 20180513_1文贵的人生导师之一昨晚上仙鹤而去！！！????????????](/content/transcript/2018/05/20180513-53477806.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年4月24日视频 20180424_4我正在赛船呢](/content/transcript/2018/04/20180424-53477412.md)
 
 [郭文贵2018年4月24日视频 20180424_3文汇怎么造的假文件呢？详情，请看现在的路徳专访！文贵己经提供了部分信息给路德先生了！一切都是刚刚开始！愚蠢的盗国贼．又给文贵送大礼了！](/content/transcript/2018/04/20180424-53477408.md)
-
-[郭文贵2018年4月24日视频 20180424_2Guo Wengui's statement on the Persecution of Mr Zhiyu Chen and Zhiheng Chen by the Chin](/content/transcript/2018/04/20180424-53477402.md)
-
-[郭文贵2018年4月23日视频 20180423与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写](/content/transcript/2018/04/20180423-53482324.md)
 
 
 ## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 97/110 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年4月3日第二次直播 20180403_2中国企业家都是盗国贼资本的代孕者！](/content/transcript/2018/04/20180403-53482314.md)
+
+[郭文贵2018年4月3日第一次直播 20180403_1-在未来的几天我将向大家谈一下关于吴晓辉和向俊波以及他背后的真实故事他也是香港警察与盗国贼的谋害者之一他的黑幕会也让大家震惊万分](/content/transcript/2018/04/20180403-53482108.md)
+
 [郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180402-53483683.md)
 
 [郭文贵2018年4月2日视频 20180402_2我将向大家谈一下关于吴小晖和项俊波以及他们背后的真实故事](/content/transcript/2018/04/20180402-53477166.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年3月16日第二次直播 20180316_2推特拉黑了谁？如何用智慧铲灭盗国贼！](/content/transcript/2018/03/20180316-53483690.md)
 
 [郭文贵2018年3月15日视频 20180315谈天真就是无知吗无私追求就是愚蠢吗以及陈军为什么害文贵](/content/transcript/2018/03/20180315-53481938.md)
-
-[郭文贵2018年3月15日视频 20180315_2竞然将不喜欢的房子自己给拆了……这样的真实意思表示方式我喜欢！这可能就是俗话说的．狗模人样吧！](/content/transcript/2018/03/20180315-53477362.md)
-
-[郭文贵2018年3月14日视频第二部分 20180314_2谈明镜陈军和胡频事件以及将采取的有关行动和五一共振可能会造成的后果](/content/transcript/2018/03/20180314-53481904.md)
 
 
 ## 頁面 97/110 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)

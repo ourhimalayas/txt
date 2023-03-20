@@ -3,6 +3,10 @@
 
 ## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月8日直播 20180908_1文贵用行动．莲花西瓜刀法感谢杨建利．韩涟潮先生！伟大的亲爱的战友们！感恩伟大的美国！一切都是刚刚开始！](/content/transcript/2018/09/20180908-53478203.md)
+
+[郭文贵2018年9月7日视频 20180907文贵申请政庇一周年！与战友们分享香港司法的危害与黑暗的事实！](/content/transcript/2018/09/20180907-53482528.md)
+
 [郭文贵2018年9月6日直播 20180906_1](/content/transcript/2018/09/20180906-53478195.md)
 
 [郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】](/content/transcript/2018/09/20180905-53482623.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/transcript/2018/08/20180817-53483668.md)
 
 [郭文贵2018年8月16日第三次直播 20180816_3台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）](/content/transcript/2018/08/20180816-53482502.md)
-
-[郭文贵2018年8月16日第一次直播 20180816_1文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/content/transcript/2018/08/20180816-53482470.md)
-
-[郭文贵2018年8月16日第二次直播 20180816_2台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）](/content/transcript/2018/08/20180816-53482467.md)
 
 
 ## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年6月3日视频 20170603盗国贼与国家的关系](/content/transcript/2017/06/20170603-53483854.md)
+
+[郭文贵2017年6月1日视频 20170601](/content/transcript/2017/06/20170601-53483842.md)
+
 [郭文贵2017年5月30日视频 20170530报行踪视频曝料川普总统酒店](/content/transcript/2017/05/20170530-53483775.md)
 
 [郭文贵2017年5月29日关于王歧山 20170529关于王歧山](/content/transcript/2017/05/20170529-53483837.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年5月11日视频 20170511](/content/transcript/2017/05/20170511-53483840.md)
 
 [郭文贵2017年5月10日视频 20170510](/content/transcript/2017/05/20170510-53483825.md)
-
-[郭文贵2017年5月9日视频 20170509](/content/transcript/2017/05/20170509-53483806.md)
-
-[郭文贵2017年5月8日直播 20170508_1](/content/transcript/2017/05/20170508-53482785.md)
 
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

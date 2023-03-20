@@ -3,6 +3,10 @@
 
 ## 頁面 81/110 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月10日视频 20190410_2所谓的美国名主持Larry King与俄罗斯美女Dolgva Anastasia造谣文贵的事情．还在进一步的确定详细的信息中，律师建议咱不能就有关问题直播](/content/transcript/2019/04/20190410-53478585.md)
+
+[郭文贵2019年4月10日视频 20190410_1 很多战友发给我说Larry King还有俄罗斯美女Dolgva Anastasia又开始找我们事了……造我们谣了，还有很多基金打电话取消跟我的合作！](/content/transcript/2019/04/20190410-53478583.md)
+
 [郭文贵2019年4月9日视频 20190409谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事！](/content/transcript/2019/04/20190409-53482255.md)
 
 [郭文贵2019年4月9日视频 20190409_2现在向战友们分享喜马拉雅大使馆内部的法制基金的办公室的一小部分．战友餐厅．以及法制基金的办公区](/content/transcript/2019/04/20190409-53478579.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年2月28日视频 20190228_2应战友的要求做一组 俯卧撑视频！文贵这都是硬撑着装出来的！ 如果大家觉得还行啊，择机再做三组给大家．再撑三下，把郭3秒变成郭三组！](/content/transcript/2019/02/20190228-53478638.md)
 
 [郭文贵2019年2月27日视频 20190227一切都是天注定吗？习亡（于）岐山．民心向郭……这是十八大前的天命铁算！一切尽在佛意中！这是我们爆料革命的使命！](/content/transcript/2019/02/20190227-53482068.md)
-
-[郭文贵2019年2月26日视频 20190226谈谈法治基金和金正恩与川普团队的不同，一切都是刚刚开始！](/content/transcript/2019/02/20190226-53482052.md)
-
-[郭文贵2019年2月24日视频 20190224文贵谈，法治基金建立的真正目的。](/content/transcript/2019/02/20190224-53482031.md)
 
 
 ## 頁面 81/110 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)

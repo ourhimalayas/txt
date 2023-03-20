@@ -3,6 +3,10 @@
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月8日视频 20190608_2大家看看這些設備都不如路德先生的一個手指頭 中國人的智慧太沒問題了](/content/transcript/2019/06/20190608-53478687.md)
+
+[郭文贵2019年6月7日视频 20190607香港的事真搞大了](/content/transcript/2019/06/20190607-53482525.md)
+
 [郭文贵2019年6月5日视频 20190605庞皮奥的讲话与香港6.9日大游行……](/content/transcript/2019/06/20190605-53482517.md)
 
 [郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街](/content/transcript/2019/06/20190603-53478685.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年5月16日视频 20190516_2川普回到紐約 將宴請誰呢 大家都猜是七哥](/content/transcript/2019/05/20190516-53478716.md)
 
 [郭文贵2019年5月16日视频 20190516_1西藏新疆香港台灣的同胞們 你們千萬不要放棄 我們將迎來偉大的時刻](/content/transcript/2019/05/20190516-53478713.md)
-
-[郭文贵2019年5月15日视频 20190515_1一个牛耳朵的诱惑，SNOW兴奋不己！](/content/transcript/2019/05/20190515-53478711.md)
-
-[郭文贵2019年5月13日视频 20190513报平安视频 关注金融市场 中共真的完了](/content/transcript/2019/05/20190513-53482581.md)
 
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
