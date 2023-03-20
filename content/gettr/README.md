@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/20/2023 3:01 AM UTC  - :tv:直播](/content/gettr/p2bzqag80f2.md)
+
+【#FreeMilesGuoNow】03/18/2023  Iva, the singer of the song “take down the CCP”, shared his opinion:  A lot of unusual events are happening right now. The CCP starts taking down the people who are in their way. The CCP funded the set...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/20/03/44cc1858-eba5-5bed-0342-3000dae18700/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/20/2023 12:07 AM UTC  - :tv:直播](/content/gettr/p2bzgpn31c8.md)
+
+2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
+
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 11:17 PM UTC  - :tv:直播](/content/gettr/p2bz1ua3e5e.md)
 
 【#FreeMilesGuoNow】03/18/2023 Lao Banzhang denounced the so-called Chinese pro-democracy bigwigs, pseudo-anti-CCP self-media, and the so-called neutral and serious media's satire of Mr. Miles Guo: Mr. Guo broke the story of the CCP'...
@@ -18,7 +34,7 @@
 
 ---
 
-[@milesguo 3/20/2023 12:07 AM UTC  - :tv:直播](/content/gettr/p2bzgpn31c8.md)
+[@milesguo 3/20/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c068de375.md)
 
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
 
@@ -157,24 +173,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】03/18/2023 A Jewish attorney Elliot Dordick stands with members of the NFSC, to support Miles Guo. The US attorney of the Southern District of New York office, admitted in court to working extensively with the CCP...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/19/06/dab2793e-8ba1-7e42-c64d-fc0a21ed9249/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 6:10 AM UTC  - :tv:直播](/content/gettr/p2bx5i9c81c.md)
-
-【#FreeMilesGuoNow】 3/18/2023 Zhongyuan Foshou: The honorable judge, I have no reason to doubt Mr. Miles Guo’s great love and to worry if his love would jeopardize my safety, wealth, and faith. I swear it in the name of God!”
-
-#DOJ ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/19/06/eac78dd0-8424-e4df-b6a8-c2d667a8d492/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 6:11 AM UTC  - :tv:直播](/content/gettr/p2bxad2c7d2.md)
-
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
