@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/20/2023 5:40 AM UTC  - :tv:直播](/content/gettr/p2c0l3y7fda.md)
+
+【#FreeMilesGuoNow】03/18/2023 Ms. Gricel, a New York citizen, printed a photo of Mr. Miles Guo in person to support the #FreeMilesGuoNow rally; after learning more about Mr. Miles Guo's story and the meaning behind his prayer at the...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/20/05/2e9edb17-48ca-8037-be21-2795924b5cfb/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 5:29 AM UTC  - :tv:直播](/content/gettr/p2c0e3n68a7.md)
 
 【#FreeMilesGuoNow】03/18/2023 Iva, the singer of the song “take down the CCP”, shared his opinion: The arrest of Miles Guo matters to the American people.This actually has everything to do with our freedom and everything that is at ...
@@ -18,11 +26,11 @@
 
 ---
 
-[@milesguo 3/20/2023 5:40 AM UTC  - :tv:直播](/content/gettr/p2c0l3y7fda.md)
+[@milesguo 3/20/2023 6:32 AM UTC  - :tv:直播](/content/gettr/p2c0m43f550.md)
 
-【#FreeMilesGuoNow】03/18/2023 Ms. Gricel, a New York citizen, printed a photo of Mr. Miles Guo in person to support the #FreeMilesGuoNow rally; after learning more about Mr. Miles Guo's story and the meaning behind his prayer at the...
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十场）
 
-<img src="https://media.gettr.com/group4/getter/2023/03/20/05/2e9edb17-48ca-8037-be21-2795924b5cfb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】3/18/2023 Fellow Fighter Sylvia: The US DOJ, FBI, and SEC, all weaponized by the CCP, are banding together to persecute Mr. Guo and the Chinese people! Citizens of the New Federal State of China are calling for de...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/19/07/e924682b-c550-9712-02b9-1143f26779c7/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 6:42 AM UTC  - :tv:直播](/content/gettr/p2bw9uzd700.md)
-
-【#FreeMilesGuoNow】03/18/2023 A Jewish attorney Elliot Dordick stands with members of the NFSC, to support Miles Guo. The US attorney of the Southern District of New York office, admitted in court to working extensively with the CCP...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/19/06/dab2793e-8ba1-7e42-c64d-fc0a21ed9249/out.jpg" width="506" height="284">
 
 ---
 
