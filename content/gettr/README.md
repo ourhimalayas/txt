@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/20/2023 6:22 PM UTC  - :tv:直播](/content/gettr/p2c1roc2ef8.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 3/20/2023 5:16 PM UTC  - :tv:直播](/content/gettr/p2c1rfra3bd.md)
 
 2023.03.20 NFSC SPEAKS MONDAY WITH RET. COL. JOHN MILLS #FREEMILESGUO
@@ -90,7 +98,7 @@ https://gnews.org/articles/1030286
 
 ---
 
-[@milesguo 3/20/2023 6:22 PM UTC  - :tv:直播](/content/gettr/p2c1roc2ef8.md)
+[@milesguo 3/20/2023 7:55 PM UTC  - :tv:直播](/content/gettr/p2c2nq66615.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
 
@@ -181,14 +189,6 @@ Miles Guo 最新单曲《微风细雨》
 https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may/1677522290?i=1677522296&l=zh
 
 <img src="https://media.gettr.com/group9/getter/2023/03/19/12/fbbf1947-99c5-3d15-b5fe-35dc18228df8/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:43 PM UTC  - :tv:直播](/content/gettr/p2bxkqp6405.md)
-
-3/17/2023  Miles Guo’s prosecutors in the Southern District of New York admitted to working with the CCP! Judge Parker not only gave a verbal warning but also issued a written court order, explicitly requiring the prosecutors to di...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/19/12/ea5a3e24-ceb2-60be-f61a-857e1eeb1e0c/out.jpg" width="506" height="284">
 
 ---
 
