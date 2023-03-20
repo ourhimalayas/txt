@@ -2,6 +2,14 @@
 ---
 
 
+[@nsfcspeaksoffical 3/20/2023 5:16 PM UTC  - :tv:直播](/content/gettr/p2c1rfra3bd.md)
+
+2023.03.20 NFSC SPEAKS MONDAY WITH RET. COL. JOHN MILLS #FREEMILESGUO
+
+<img src="https://media.gettr.com/group5/origin/2023/03/20/17/ba23a34b-6ead-06f9-0036-77d27249b600/dcd586532c1c9ce8243d2d0e991f9ddc.jpeg" width="506" height="284">
+
+---
+
 [@gmusic 3/20/2023 4:59 PM UTC ](/content/gettr/p2c1ef34e9a.md)
 
 郭文贵歌曲iTunes打榜记录 - 2023年3月20号
@@ -82,11 +90,11 @@ https://gnews.org/articles/1030286
 
 ---
 
-[@nsfcspeaksoffical 3/20/2023 5:16 PM UTC  - :tv:直播](/content/gettr/p2c1rfra3bd.md)
+[@milesguo 3/20/2023 6:22 PM UTC  - :tv:直播](/content/gettr/p2c1roc2ef8.md)
 
-2023.03.20 NFSC SPEAKS MONDAY WITH RET. COL. JOHN MILLS #FREEMILESGUO
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
 
-<img src="https://media.gettr.com/group5/origin/2023/03/20/17/ba23a34b-6ead-06f9-0036-77d27249b600/dcd586532c1c9ce8243d2d0e991f9ddc.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 3/17/2023  Miles Guo’s prosecutors in the Southern District of New York admitted to working with the CCP! Judge Parker not only gave a verbal warning but also issued a written court order, explicitly requiring the prosecutors to di...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/19/12/ea5a3e24-ceb2-60be-f61a-857e1eeb1e0c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:09 PM UTC  - :tv:直播](/content/gettr/p2bxh1e4a90.md)
-
-【#FreeMilesGuoNow】03/18/2023 Joy: My friends and I are here today to show support for NFSC. I've met its people a couple of months ago and it was one of the best experiences. The reason we fight is because God has given us freedom....
-
-<img src="https://media.gettr.com/group7/getter/2023/03/19/12/843a9c81-4673-9670-c7f5-507ad3aef301/out.jpg" width="506" height="284">
 
 ---
 
