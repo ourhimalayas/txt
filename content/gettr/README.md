@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/20/2023 5:29 AM UTC  - :tv:直播](/content/gettr/p2c0e3n68a7.md)
+
+【#FreeMilesGuoNow】03/18/2023 Iva, the singer of the song “take down the CCP”, shared his opinion: The arrest of Miles Guo matters to the American people.This actually has everything to do with our freedom and everything that is at ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/20/05/c667b13a-f049-eb03-831c-3639ff6bbae5/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/20/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c068de375.md)
+
+2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
+
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 12:07 AM UTC  - :tv:直播](/content/gettr/p2bzgpn31c8.md)
 
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
@@ -31,14 +47,6 @@
 【#FreeMilesGuoNow】03/18/2023 Mulan: Brother Seven (Miles) was smiling when he was taken away by hundreds of FBI agents. And after he left, the 18th floor was severely damaged by a strange fire, and Luc Despins took the opportunity ...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/19/23/79b0a0b6-6740-6f99-5c3f-4c07d3958367/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c068de375.md)
-
-2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
-
-<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】3/18/2023 Fellow Fighter Sylvia: The US DOJ, FBI, and SEC, all weaponized by the CCP, are banding together to persecute Mr. Guo and the Chinese people! Citizens of the New Federal State of China are calling for de...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/19/07/e924682b-c550-9712-02b9-1143f26779c7/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 6:32 AM UTC  - :tv:直播](/content/gettr/p2bwokv47c6.md)
-
-【#FreeMilesGuoNow】03/18/2023  Prince spoke out against the collusion between the DOJ and FBI in the investigation of Mr. Miles Guo's case with the Chinese Communist Party. As he observed the arraignment, he saw the federal investig...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/19/06/f54d8776-6060-db1f-91fb-f19fe7108f9c/out.jpg" width="506" height="284">
 
 ---
 
