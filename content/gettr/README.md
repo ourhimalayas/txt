@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/20/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2c0k924dfd.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十一场）
+
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 11:09 AM UTC  - :tv:直播](/content/gettr/p2c0x5zb8b5.md)
 
 【#FreeMilesGuoNow】03/18/2023 Nicole in her interview with an independent media: We demand an immediate investigation into the origin of the fire. We also demand an immediate release of Mr. Miles Guo from injustice and Federal custo...
@@ -42,11 +50,11 @@
 
 ---
 
-[@milesguo 3/20/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2c0k924dfd.md)
+[@milesguo 3/20/2023 3:07 PM UTC  - :tv:直播](/content/gettr/p2c1m5y726f.md)
 
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十一场）
+2023.03.20 《时间点Time Line》第三十七期：文贵先生被美国司法黑手陷害 主持：青藤 嘉宾：QMAY、苍天饶过誰64
 
-<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/03/20/15/43681bc6-cd12-b472-f0b9-2fc18dd1b081/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】03/18/2023 Prince calls out to the American public: Please pick up your phone, your laptop, text, call, email your congressman, even come to Capitol Hill and tell your congressman, tell the People's House that the...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/19/10/4a01d545-7767-692e-7db0-d381e752b1b8/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 8:16 AM UTC  - :tv:直播](/content/gettr/p2bwnio75b2.md)
-
-2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
