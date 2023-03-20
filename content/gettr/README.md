@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/20/2023 6:32 AM UTC  - :tv:直播](/content/gettr/p2c0m43f550.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十场）
+
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 5:40 AM UTC  - :tv:直播](/content/gettr/p2c0l3y7fda.md)
 
 【#FreeMilesGuoNow】03/18/2023 Ms. Gricel, a New York citizen, printed a photo of Mr. Miles Guo in person to support the #FreeMilesGuoNow rally; after learning more about Mr. Miles Guo's story and the meaning behind his prayer at the...
@@ -26,11 +34,11 @@
 
 ---
 
-[@milesguo 3/20/2023 6:32 AM UTC  - :tv:直播](/content/gettr/p2c0m43f550.md)
+[@milesguo 3/20/2023 11:09 AM UTC  - :tv:直播](/content/gettr/p2c0x5zb8b5.md)
 
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十场）
+【#FreeMilesGuoNow】03/18/2023 Nicole in her interview with an independent media: We demand an immediate investigation into the origin of the fire. We also demand an immediate release of Mr. Miles Guo from injustice and Federal custo...
 
-<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/20/11/7f0dab5e-7b4a-a7b8-125f-e7081afacec2/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】03/18/2023 Roy found that Bloomberg actually released the news of the arrest of Miles Guo half an hour earlier than the DOJ.  Joy thinks there are deeper connections, that everyone who wants freedom should go and ...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/19/07/6fd73553-629f-d0bf-c103-3ee19a5f3638/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 7:04 AM UTC  - :tv:直播](/content/gettr/p2bwsvx80fe.md)
-
-【#FreeMilesGuoNow】3/18/2023 Fellow Fighter Sylvia: The US DOJ, FBI, and SEC, all weaponized by the CCP, are banding together to persecute Mr. Guo and the Chinese people! Citizens of the New Federal State of China are calling for de...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/19/07/e924682b-c550-9712-02b9-1143f26779c7/out.jpg" width="506" height="284">
 
 ---
 
