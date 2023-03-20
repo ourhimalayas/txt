@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/20/2023 11:09 AM UTC  - :tv:直播](/content/gettr/p2c0x5zb8b5.md)
+
+【#FreeMilesGuoNow】03/18/2023 Nicole in her interview with an independent media: We demand an immediate investigation into the origin of the fire. We also demand an immediate release of Mr. Miles Guo from injustice and Federal custo...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/20/11/7f0dab5e-7b4a-a7b8-125f-e7081afacec2/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 6:32 AM UTC  - :tv:直播](/content/gettr/p2c0m43f550.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十场）
@@ -34,11 +42,11 @@
 
 ---
 
-[@milesguo 3/20/2023 11:09 AM UTC  - :tv:直播](/content/gettr/p2c0x5zb8b5.md)
+[@milesguo 3/20/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2c0k924dfd.md)
 
-【#FreeMilesGuoNow】03/18/2023 Nicole in her interview with an independent media: We demand an immediate investigation into the origin of the fire. We also demand an immediate release of Mr. Miles Guo from injustice and Federal custo...
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十一场）
 
-<img src="https://media.gettr.com/group10/getter/2023/03/20/11/7f0dab5e-7b4a-a7b8-125f-e7081afacec2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 2023.03.18 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十六场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 7:52 AM UTC  - :tv:直播](/content/gettr/p2bwoqx705c.md)
-
-【#FreeMilesGuoNow】03/18/2023 Roy found that Bloomberg actually released the news of the arrest of Miles Guo half an hour earlier than the DOJ.  Joy thinks there are deeper connections, that everyone who wants freedom should go and ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/19/07/6fd73553-629f-d0bf-c103-3ee19a5f3638/out.jpg" width="506" height="284">
 
 ---
 
