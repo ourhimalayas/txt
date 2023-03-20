@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/20/2023 11:02 PM UTC  - :tv:直播](/content/gettr/p2c2m8ue121.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十五场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 9:50 PM UTC  - 6圖](/content/gettr/p2c2bg18447.md)
 
 Miles Guo's Songs iTunes Ranking Record - March 20, 2023
@@ -20,7 +28,7 @@ No.2🥈 on UAE🇦🇪 and Taiwan🇹🇼 Top Son...
 
 ---
 
-[@milesguo 3/20/2023 11:02 PM UTC  - :tv:直播](/content/gettr/p2c2m8ue121.md)
+[@milesguo 3/20/2023 11:33 PM UTC  - :tv:直播](/content/gettr/p2c316186a7.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十五场）
 
@@ -177,14 +185,6 @@ https://gnews.org/articles/1030286
 【#FreeMilesGuoNow】03/18/2023 Rossangel is a freedom fighter from Puerto Rico. She joins our protest with a framed photo of Mr. Miles Guo to thank for saving millions of lives by exposing the truth about the coronavirus. What has ha...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/19/23/1baab3f8-be06-1c92-e57f-55960907d47c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 8:16 PM UTC  - :tv:直播](/content/gettr/p2bz9vzb630.md)
-
-2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
-
-<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
