@@ -2,6 +2,32 @@
 ---
 
 
+[@milesguo 3/20/2023 9:50 PM UTC  - 6圖](/content/gettr/p2c2bg18447.md)
+
+Miles Guo's Songs iTunes Ranking Record - March 20, 2023
+
+https://gnews.org/articles/1030388
+
+
+
+“微风细雨” hits iTunes  
+
+No.1🥇 on New Zealand🇳🇿, Singapore🇸🇬 and Fiji🇫🇯 Top Songs Chart  
+
+No.2🥈 on UAE🇦🇪 and Taiwan🇹🇼 Top Son...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/20/21/fdd372aa-7c1b-c929-ea6f-b69565d42ce5/517ad70924bbf58085cdb37f7f46a65d.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/20/2023 7:55 PM UTC  - :tv:直播](/content/gettr/p2c2nq66615.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 6:22 PM UTC  - :tv:直播](/content/gettr/p2c1roc2ef8.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
@@ -98,7 +124,7 @@ https://gnews.org/articles/1030286
 
 ---
 
-[@milesguo 3/20/2023 7:55 PM UTC  - :tv:直播](/content/gettr/p2c2nq66615.md)
+[@milesguo 3/20/2023 9:58 PM UTC  - :tv:直播](/content/gettr/p2c2btsa795.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
 
@@ -159,36 +185,6 @@ https://gnews.org/articles/1030286
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十七场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/18/23/8fa5dd9f-a1cd-51ef-0ff0-294302071037/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 3:45 PM UTC  - :tv:直播](/content/gettr/p2bxzh2d486.md)
-
-【#FreeMilesGuoNow】03/18/2023 Lao Banzhang: Our protest is to tell the world that we refuse to let the Chinese Communist Party represent the Chinese people or the SEC represent the investors of the New Federal State of China. We pro...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/19/15/1bf89847-8483-1879-865e-e6b008f178dd/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 12:45 PM UTC  - :tv:直播](/content/gettr/p2bxjq951ff.md)
-
-2023.03.19 
-
-
-
-大爱必公  恒情必义
-
-
-
-Miles Guo 最新单曲《微风细雨》
-
-上线iTunes：
-
-
-
-https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may/1677522290?i=1677522296&l=zh
-
-<img src="https://media.gettr.com/group9/getter/2023/03/19/12/fbbf1947-99c5-3d15-b5fe-35dc18228df8/out.jpg" width="506" height="284">
 
 ---
 
