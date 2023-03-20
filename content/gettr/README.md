@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/19/2023 11:17 PM UTC  - :tv:直播](/content/gettr/p2bz1ua3e5e.md)
+
+【#FreeMilesGuoNow】03/18/2023 Lao Banzhang denounced the so-called Chinese pro-democracy bigwigs, pseudo-anti-CCP self-media, and the so-called neutral and serious media's satire of Mr. Miles Guo: Mr. Guo broke the story of the CCP'...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/19/23/cea9219b-84cc-f095-6b7d-feeb83c662ca/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 11:10 PM UTC  - :tv:直播](/content/gettr/p2bzhm6754d.md)
 
 【#FreeMilesGuoNow】03/18/2023 Mulan: Brother Seven (Miles) was smiling when he was taken away by hundreds of FBI agents. And after he left, the 18th floor was severely damaged by a strange fire, and Luc Despins took the opportunity ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@milesguo 3/19/2023 11:17 PM UTC  - :tv:直播](/content/gettr/p2bz1ua3e5e.md)
+[@milesguo 3/20/2023 12:07 AM UTC  - :tv:直播](/content/gettr/p2bzgpn31c8.md)
 
-【#FreeMilesGuoNow】03/18/2023 Lao Banzhang denounced the so-called Chinese pro-democracy bigwigs, pseudo-anti-CCP self-media, and the so-called neutral and serious media's satire of Mr. Miles Guo: Mr. Guo broke the story of the CCP'...
+2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
 
-<img src="https://media.gettr.com/group12/getter/2023/03/19/23/cea9219b-84cc-f095-6b7d-feeb83c662ca/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ https://music.apple.com/us/album/%E5%BE%AE%E9%A3%8E%E7%BB%86%E9%9B%A8-feat-q-may
 【#FreeMilesGuoNow】03/18/2023 A Jewish attorney Elliot Dordick stands with members of the NFSC, to support Miles Guo. The US attorney of the Southern District of New York office, admitted in court to working extensively with the CCP...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/19/06/dab2793e-8ba1-7e42-c64d-fc0a21ed9249/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 6:08 AM UTC  - :tv:直播](/content/gettr/p2bwy400a63.md)
-
-【#FreeMilesGuoNow】03/18/2023 Zhongyuan Foshou: As an ordinary Chinese rescued from Communist China by the NFSC, I have no fear of possible subpoenas and interrogations, because I can discern between good and evil. Mr Miles Guo neve...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/19/06/485f012a-5396-bb21-0cc6-5be06f13e455/out.jpg" width="506" height="284">
 
 ---
 
