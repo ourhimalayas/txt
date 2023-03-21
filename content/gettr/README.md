@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/21/2023 1:17 AM UTC  - :tv:直播](/content/gettr/p2c31ym21a4.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 12:48 AM UTC  - :tv:直播](/content/gettr/p2c3aw0b155.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
@@ -10,11 +18,15 @@
 
 ---
 
-[@milesguo 3/21/2023 1:17 AM UTC  - :tv:直播](/content/gettr/p2c31ym21a4.md)
+[@milesguo 3/21/2023 2:05 AM UTC  - :tv:直播](/content/gettr/p2c32d04d7b.md)
 
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
+2023-3-20《鸡血王喜币大作战》505期嘉宾：Emily 恺叔
 
-<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#现场喜币大抽奖 #鸡血独家 #中共病毒溯源 #FreeMilesGuoNow
+
+💥拜登签署病毒溯源法案，共产党进入倒计时😄👏
+
+<img src="https://media.gettr.com/group6/origin/2023/03/21/02/78c169a3-795f-2cbe-e387-ca5f62f7c1cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +185,6 @@ https://gnews.org/articles/1030286
 ---
 
 [@milesguo 3/20/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c068de375.md)
-
-2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
-
-<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 12:07 AM UTC  - :tv:直播](/content/gettr/p2bzgpn31c8.md)
 
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
 
