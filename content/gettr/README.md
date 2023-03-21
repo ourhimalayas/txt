@@ -10,11 +10,11 @@
 
 ---
 
-[@milesguo 3/21/2023 3:46 AM UTC  - :tv:直播](/content/gettr/p2c3cbba7c7.md)
+[@milesguo 3/21/2023 4:55 AM UTC  - :tv:直播](/content/gettr/p2c3y1060b8.md)
 
-3/20/2023 Grant Stinchfield, host of Real America's Voice: Who is investigating Miles Guo? Is it a joint effort between the CCP and the FBI? Mr. Guo was arrested right after the New Federal State of China requested an investigation...
+3/20/2023 John O'Connor, former assistant U.S. attorney: The fact that the prosecutor who has libeled Miles Guo, the CCP's enemy No. 1, had worked with Communist China implies that the CCP has witnesses and evidence that they need,...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/21/03/10a614a3-96d5-7948-75aa-2f41f7833c3e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/21/04/518a85bb-693f-25d7-454b-530d139cf8e6/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 3/20/2023 Grant Stinchfield, host of Real America's Voice: The US government's 38-page indictment against Miles Guo failed to name a single victim of the purported fraud, and the prosecutor admitted in court to having worked a lot ...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/21/04/bfeedeaa-79a6-e9d2-4468-7ee45022014c/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/21/2023 3:46 AM UTC  - :tv:直播](/content/gettr/p2c3cbba7c7.md)
+
+3/20/2023 Grant Stinchfield, host of Real America's Voice: Who is investigating Miles Guo? Is it a joint effort between the CCP and the FBI? Mr. Guo was arrested right after the New Federal State of China requested an investigation...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/21/03/10a614a3-96d5-7948-75aa-2f41f7833c3e/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ https://gnews.org/articles/1030286
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十一场）
 
 <img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 11:09 AM UTC  - :tv:直播](/content/gettr/p2c0x5zb8b5.md)
-
-【#FreeMilesGuoNow】03/18/2023 Nicole in her interview with an independent media: We demand an immediate investigation into the origin of the fire. We also demand an immediate release of Mr. Miles Guo from injustice and Federal custo...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/20/11/7f0dab5e-7b4a-a7b8-125f-e7081afacec2/out.jpg" width="506" height="284">
 
 ---
 
