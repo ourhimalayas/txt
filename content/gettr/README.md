@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/21/2023 3:46 AM UTC  - :tv:直播](/content/gettr/p2c3cbba7c7.md)
+
+3/20/2023 Grant Stinchfield, host of Real America's Voice: Who is investigating Miles Guo? Is it a joint effort between the CCP and the FBI? Mr. Guo was arrested right after the New Federal State of China requested an investigation...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/21/03/10a614a3-96d5-7948-75aa-2f41f7833c3e/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/21/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c36005045.md)
+
+3/18/2023  Mr. Walker of Gateway Pundit published another article on March 18 questioning Mr. Miles Guo's arrest. Given that the prosecutor, bankruptcy trustee, and judge against Mr. Guo had all previously worked for law firms with...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/21/03/ecb15107-4191-7a8f-5963-09c33e7ba269/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 2:05 AM UTC  - :tv:直播](/content/gettr/p2c32d04d7b.md)
 
 2023-3-20《鸡血王喜币大作战》505期嘉宾：Emily 恺叔
@@ -30,11 +46,11 @@
 
 ---
 
-[@milesguo 3/21/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c36005045.md)
+[@milesguo 3/21/2023 3:59 AM UTC  - :tv:直播](/content/gettr/p2c3cjqe97d.md)
 
-3/18/2023  Mr. Walker of Gateway Pundit published another article on March 18 questioning Mr. Miles Guo's arrest. Given that the prosecutor, bankruptcy trustee, and judge against Mr. Guo had all previously worked for law firms with...
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十九场）
 
-<img src="https://media.gettr.com/group7/getter/2023/03/21/03/ecb15107-4191-7a8f-5963-09c33e7ba269/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,22 +189,6 @@ https://gnews.org/articles/1030286
 【#FreeMilesGuoNow】03/18/2023 Ms. Gricel, a New York citizen, printed a photo of Mr. Miles Guo in person to support the #FreeMilesGuoNow rally; after learning more about Mr. Miles Guo's story and the meaning behind his prayer at the...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/20/05/2e9edb17-48ca-8037-be21-2795924b5cfb/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 5:29 AM UTC  - :tv:直播](/content/gettr/p2c0e3n68a7.md)
-
-【#FreeMilesGuoNow】03/18/2023 Iva, the singer of the song “take down the CCP”, shared his opinion: The arrest of Miles Guo matters to the American people.This actually has everything to do with our freedom and everything that is at ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/20/05/c667b13a-f049-eb03-831c-3639ff6bbae5/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c068de375.md)
-
-2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
-
-<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
 
 ---
 
