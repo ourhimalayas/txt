@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/21/2023 12:48 AM UTC  - :tv:直播](/content/gettr/p2c3aw0b155.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/20/2023 11:33 PM UTC  - :tv:直播](/content/gettr/p2c316186a7.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十五场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 11:02 PM UTC  - :tv:直播](/content/gettr/p2c2m8ue121.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十五场）
@@ -28,9 +44,9 @@ No.2🥈 on UAE🇦🇪 and Taiwan🇹🇼 Top Son...
 
 ---
 
-[@milesguo 3/20/2023 11:33 PM UTC  - :tv:直播](/content/gettr/p2c316186a7.md)
+[@milesguo 3/21/2023 12:53 AM UTC  - :tv:直播](/content/gettr/p2c2qqcfcf2.md)
 
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十五场）
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -169,22 +185,6 @@ https://gnews.org/articles/1030286
 【#FreeMilesGuoNow】03/18/2023 Lao Banzhang denounced the so-called Chinese pro-democracy bigwigs, pseudo-anti-CCP self-media, and the so-called neutral and serious media's satire of Mr. Miles Guo: Mr. Guo broke the story of the CCP'...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/19/23/cea9219b-84cc-f095-6b7d-feeb83c662ca/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 11:10 PM UTC  - :tv:直播](/content/gettr/p2bzhm6754d.md)
-
-【#FreeMilesGuoNow】03/18/2023 Mulan: Brother Seven (Miles) was smiling when he was taken away by hundreds of FBI agents. And after he left, the 18th floor was severely damaged by a strange fire, and Luc Despins took the opportunity ...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/19/23/79b0a0b6-6740-6f99-5c3f-4c07d3958367/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 11:14 PM UTC  - :tv:直播](/content/gettr/p2bz7xlf922.md)
-
-【#FreeMilesGuoNow】03/18/2023 Rossangel is a freedom fighter from Puerto Rico. She joins our protest with a framed photo of Mr. Miles Guo to thank for saving millions of lives by exposing the truth about the coronavirus. What has ha...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/19/23/1baab3f8-be06-1c92-e57f-55960907d47c/out.jpg" width="506" height="284">
 
 ---
 
