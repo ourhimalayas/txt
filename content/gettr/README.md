@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/21/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2c5qp0c90a.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 3:59 PM UTC  - :tv:直播](/content/gettr/p2c54i3e7dc.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十一场）
@@ -34,11 +42,11 @@
 
 ---
 
-[@milesguo 3/21/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2c5qp0c90a.md)
+[@nsfcspeaksoffical 3/21/2023 5:11 PM UTC  - :tv:直播](/content/gettr/p2c5mdt6dbc.md)
 
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
+2023.03.21 NFSC SPEAKS TUESDAY WITH SHAWN （DVS7.0）
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/03/21/17/f97b5898-ceee-5b8e-a1c3-e8778cf58c64/be22b75f13d07d4423f5aed5dfa4b18a.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ gmusic7.com 🔥
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十九场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c36005045.md)
-
-3/18/2023  Mr. Walker of Gateway Pundit published another article on March 18 questioning Mr. Miles Guo's arrest. Given that the prosecutor, bankruptcy trustee, and judge against Mr. Guo had all previously worked for law firms with...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/21/03/ecb15107-4191-7a8f-5963-09c33e7ba269/out.jpg" width="506" height="284">
 
 ---
 
