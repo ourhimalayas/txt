@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/21/2023 8:20 AM UTC  - :tv:直播](/content/gettr/p2c468d556c.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第二十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 7:38 AM UTC  - :tv:直播](/content/gettr/p2c3w7d2411.md)
 
 03/20/2023 Nicole from the New Federal State of China is interviewed by Steve Gruber on Real America’s Voice: Mr. Miles Guo’s arrest proves precisely a consensus among the American public that America has a two-tier justice system....
@@ -42,9 +50,9 @@
 
 ---
 
-[@milesguo 3/21/2023 8:20 AM UTC  - :tv:直播](/content/gettr/p2c468d556c.md)
+[@milesguo 3/21/2023 11:11 AM UTC  - :tv:直播](/content/gettr/p2c4ay9c050.md)
 
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第二十九场）
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -161,14 +169,6 @@ No.2🥈 on UAE🇦🇪 and Taiwan🇹🇼 Top Son...
 ---
 
 [@milesguo 3/20/2023 7:55 PM UTC  - :tv:直播](/content/gettr/p2c2nq66615.md)
-
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 6:22 PM UTC  - :tv:直播](/content/gettr/p2c1roc2ef8.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
 
