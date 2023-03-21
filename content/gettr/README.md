@@ -2,6 +2,14 @@
 ---
 
 
+[@nsfcspeaksoffical 3/21/2023 5:11 PM UTC  - :tv:直播](/content/gettr/p2c5mdt6dbc.md)
+
+2023.03.21 NFSC SPEAKS TUESDAY WITH SHAWN （DVS7.0）
+
+<img src="https://media.gettr.com/group5/origin/2023/03/21/17/f97b5898-ceee-5b8e-a1c3-e8778cf58c64/be22b75f13d07d4423f5aed5dfa4b18a.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2c5qp0c90a.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
@@ -42,11 +50,11 @@
 
 ---
 
-[@nsfcspeaksoffical 3/21/2023 5:11 PM UTC  - :tv:直播](/content/gettr/p2c5mdt6dbc.md)
+[@milesguo 3/21/2023 6:05 PM UTC  - :tv:直播](/content/gettr/p2c5vv7330f.md)
 
-2023.03.21 NFSC SPEAKS TUESDAY WITH SHAWN （DVS7.0）
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
 
-<img src="https://media.gettr.com/group5/origin/2023/03/21/17/f97b5898-ceee-5b8e-a1c3-e8778cf58c64/be22b75f13d07d4423f5aed5dfa4b18a.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ gmusic7.com 🔥
 3/20/2023 Grant Stinchfield, host of Real America's Voice: The US government's 38-page indictment against Miles Guo failed to name a single victim of the purported fraud, and the prosecutor admitted in court to having worked a lot ...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/21/04/bfeedeaa-79a6-e9d2-4468-7ee45022014c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 3:46 AM UTC  - :tv:直播](/content/gettr/p2c3cbba7c7.md)
-
-3/20/2023 Grant Stinchfield, host of Real America's Voice: Who is investigating Miles Guo? Is it a joint effort between the CCP and the FBI? Mr. Guo was arrested right after the New Federal State of China requested an investigation...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/21/03/10a614a3-96d5-7948-75aa-2f41f7833c3e/out.jpg" width="506" height="284">
 
 ---
 
