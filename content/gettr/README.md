@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/21/2023 5:03 AM UTC  - :tv:直播](/content/gettr/p2c3m6o74a2.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第二十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 4:55 AM UTC  - :tv:直播](/content/gettr/p2c3y1060b8.md)
 
 3/20/2023 John O'Connor, former assistant U.S. attorney: The fact that the prosecutor who has libeled Miles Guo, the CCP's enemy No. 1, had worked with Communist China implies that the CCP has witnesses and evidence that they need,...
@@ -18,7 +26,7 @@
 
 ---
 
-[@milesguo 3/21/2023 5:03 AM UTC  - :tv:直播](/content/gettr/p2c3m6o74a2.md)
+[@milesguo 3/21/2023 6:23 AM UTC  - :tv:直播](/content/gettr/p2c3oi1ac12.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第二十九场）
 
@@ -181,14 +189,6 @@ https://gnews.org/articles/1030286
 新西兰🇳🇿、新加坡🇸🇬、斐济🇫🇯流行歌曲榜第一名🥇  
 
 阿联酋🇦🇪、台湾🇹🇼流行...
-
----
-
-[@milesguo 3/20/2023 3:07 PM UTC  - :tv:直播](/content/gettr/p2c1m5y726f.md)
-
-2023.03.20 《时间点Time Line》第三十七期：文贵先生被美国司法黑手陷害 主持：青藤 嘉宾：QMAY、苍天饶过誰64
-
-<img src="https://media.gettr.com/group8/origin/2023/03/20/15/43681bc6-cd12-b472-f0b9-2fc18dd1b081/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
