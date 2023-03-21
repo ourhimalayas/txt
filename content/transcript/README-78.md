@@ -3,6 +3,8 @@
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月9日直播 20190609_2班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播中部分！](/content/transcript/2019/06/20190609-53482181.md)
+
 [郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！](/content/transcript/2019/06/20190609-53482134.md)
 
 [郭文贵2019年6月8日视频 20190608香港6.9上街若能持续几天彻底改变香港](/content/transcript/2019/06/20190608-53482529.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月19日视频 第一部分 20190519_1Pt2 Miles Kwok live broadcast on Hudson River.](/content/transcript/2019/05/20190519-53482608.md)
 
 [郭文贵2019年5月19日视频 20190519_4昨天平板撐做了32分鐘 今天只做了25分鐘](/content/transcript/2019/05/20190519-53478719.md)
-
-[郭文贵2019年5月18日 20190518爆料王建之死原视频！世界上谁都没有](/content/transcript/2019/05/20190518-53482602.md)
 
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

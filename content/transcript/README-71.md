@@ -3,6 +3,8 @@
 
 ## 頁面 71/110 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月27日 20190827这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/transcript/2019/08/20190827-53483682.md)
+
 [郭文贵2019年8月27日视频 20190827_2香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产](/content/transcript/2019/08/20190827-53478931.md)
 
 [2019年8月26日文贵大直播全文字版：报平安](/content/transcript/2019/08/20190826-53795556.md)
@@ -50,8 +52,6 @@
 [2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压](/content/transcript/2019/08/20190812-53795616.md)
 
 [郭文贵2019年8月12日第一次直播 20190812_1在车上Miles Kwok live streaming from car: the CCP showed its true colors during its crackdown..](/content/transcript/2019/08/20190812-53483007.md)
-
-[郭文贵2019年8月12日第二次直播 20190812_2 Mr. Miles Kwok live stream: letting everyone know that he is safe. What Hong Kongers...](/content/transcript/2019/08/20190812-53483001.md)
 
 
 ## 頁面 71/110 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)

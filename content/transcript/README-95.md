@@ -3,6 +3,8 @@
 
 ## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年5月27日视频 20180527请战友一起反击所谓的文贵海外维稳民主人士阴谋！](/content/transcript/2018/05/20180527-53482438.md)
+
 [郭文贵2018年5月26日直播 20180526_1破解金盾有进展,感谢战友提供听证会证据 LADY MAY回纽约了!](/content/transcript/2018/05/20180526-53477808.md)
 
 [郭文贵2018年5月24日视频 20180524栗战书秘书因为董文彪．曲龙．王岐山被抓！](/content/transcript/2018/05/20180524-53482408.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年4月26日视频 20180426在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/transcript/2018/04/20180426-53482330.md)
 
 [郭文贵2018年4月26日直播 20180426_2](/content/transcript/2018/04/20180426-53477686.md)
-
-[郭文贵2018年4月24日视频 20180424在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！ 《战友同行》](/content/transcript/2018/04/20180424-53482318.md)
 
 
 ## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

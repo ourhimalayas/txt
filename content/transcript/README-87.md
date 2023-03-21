@@ -3,6 +3,8 @@
 
 ## 頁面 87/110 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月8日视频 20181108王岐山与习近平谁将成为最后的共产党永久的实际控制人](/content/transcript/2018/11/20181108-53480477.md)
+
 [郭文贵2018年11月7日视频 20181107美國中期選舉後感想](/content/transcript/2018/11/20181107-53480280.md)
 
 [郭文贵2018年11月5日视频 20181105_1](/content/transcript/2018/11/20181105-53478387.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年10月21日 20181021_1澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑](/content/transcript/2018/10/20181021-53483707.md)
 
 [郭文贵2018年10月21日 20181021_3澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 3](/content/transcript/2018/10/20181021-53477478.md)
-
-[郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2](/content/transcript/2018/10/20181021-53477469.md)
 
 
 ## 頁面 87/110 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)

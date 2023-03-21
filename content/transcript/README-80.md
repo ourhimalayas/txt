@@ -3,6 +3,8 @@
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月29日 20190429台湾．香港．将是灭共的重要之地……谷畜生侮骂一亿河南同胞必须受惩罚！](/content/transcript/2019/04/20190429-53482448.md)
+
 [郭文贵2019年4月29日 20190429_2（2）台湾．香港．将是灭共的重要之地](/content/transcript/2019/04/20190429-53478111.md)
 
 [郭文贵2019年4月28日视频 20190428_1我家就是全世界最敏感的地方](/content/transcript/2019/04/20190428-53478683.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年4月15日第二次直播 20190415_2接下来的爆料有些会是让人无法接受的……人性丑恶行为！＂世上有些人的恶已经超过魔鬼????＂与共产党一起的任何人任何事情都比妖怪还要让人憎恶……](/content/transcript/2019/04/20190415-53482297.md)
 
 [郭文贵2019年4月13日第一次直播 20190413_1什么叫蓝通？为什么刘鹤将遣返爆料战友等21人作为中美贸易交易的条件！](/content/transcript/2019/04/20190413-53482288.md)
-
-[郭文贵2019年4月13日第二次直播 20190413_2郭文贵直播谈盗国贼的财富以及这周发生的大事！ 江家集团在中国的实际实力和未来的下场！](/content/transcript/2019/04/20190413-53482269.md)
 
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 90/110 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月21日视频 20180921_2文贵为忙碌了一周的同事切莲花西瓜……大家开心极了……从未见过！](/content/transcript/2018/09/20180921-53478283.md)
+
 [郭文贵2018年9月21日视频 20180921_1文贵请战友们帮忙](/content/transcript/2018/09/20180921-53478280.md)
 
 [郭文贵2018年9月20日视频 20180920马云开始被“狩猎”时间 王岐山穿睡衣大谈中美贸易战, FBI约谈博讯西诺](/content/transcript/2018/09/20180920-53482611.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年9月10日第一次直播 20180910_1马云辞职的真正原因](/content/transcript/2018/09/20180910-53482536.md)
 
 [郭文贵2018年9月10日直播 20180910_3文贵在雨中建议所有的战友们观看"斯大林之死"这部电影](/content/transcript/2018/09/20180910-53478215.md)
-
-[郭文贵2018年9月10日视频 20180910_4船上视频：刚刚从海浪中归来的感受](/content/transcript/2018/09/20180910-53477264.md)
 
 
 ## 頁面 90/110 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2](/content/transcript/2018/10/20181021-53477469.md)
+
 [郭文贵2018年10月20日视频 20181020_1三個月前在華盛頓認識的美國戰友家人](/content/transcript/2018/10/20181020-53478323.md)
 
 [郭文贵2018年10月20日视频 20181020_2Snow響應王岐山號召 從吃狗糧改吃草了](/content/transcript/2018/10/20181020-53477459.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年10月6日视频 20181006_5](/content/transcript/2018/10/20181006-53478334.md)
 
 [郭文贵2018年10月6日视频 20181006_4](/content/transcript/2018/10/20181006-53478331.md)
-
-[郭文贵2018年10月6日视频 20181006_3](/content/transcript/2018/10/20181006-53478327.md)
 
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)

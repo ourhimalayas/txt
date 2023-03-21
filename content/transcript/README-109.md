@@ -3,6 +3,8 @@
 
 ## 頁面 109/110 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月12日视频 20170512](/content/transcript/2017/05/20170512-53483865.md)
+
 [郭文贵2017年5月11日视频 20170511](/content/transcript/2017/05/20170511-53483840.md)
 
 [郭文贵2017年5月10日视频 20170510](/content/transcript/2017/05/20170510-53483825.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年4月26日第一次直播 20170426_1感谢推友过十万感谢视频](/content/transcript/2017/04/20170426-53483725.md)
 
 [郭文贵2017年4月26日第二次直播 20170426_2感谢推友过十万](/content/transcript/2017/04/20170426-53483722.md)
-
-[郭文贵2017年4月25日 20170425_2感谢推友过九万第二部分](/content/transcript/2017/04/20170425-53483717.md)
 
 
 ## 頁面 109/110 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)

@@ -25,6 +25,8 @@
 
 [郭文贵2019年10月6日 20191006试直播](/content/transcript/2019/10/20191006-53478046.md)
 
+[2019年10月5日与郭文贵先生连线直播全文字版](/content/transcript/2019/10/20191005-53907469.md)
+
 [郭文贵2019年10月5日 20191005与MIZ宙斯小队连线直播爆料中南坑秘闻，分享生活，爱情](/content/transcript/2019/10/20191005-53483247.md)
 
 [2019年10月5日与郭文贵先生连线直播全文字版](/content/transcript/2019/10/20191005-53894082.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年10月1日 20191001_2郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！](/content/transcript/2019/10/20191001-53477486.md)
 
 [郭文贵2019年9月30日视频 20190930_2直播测试](/content/transcript/2019/09/20190930-53479027.md)
-
-[郭文贵2019年9月30日视频 20190930_1北京阅兵 郭媒体进入战备状态 天安門廣場的國慶晚宴音樂晚會將有事發生](/content/transcript/2019/09/20190930-53479018.md)
 
 
 ## 頁面 67/110 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)

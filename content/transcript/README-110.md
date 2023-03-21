@@ -3,6 +3,8 @@
 
 ## 頁面 110/110 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年4月25日 20170425_2感谢推友过九万第二部分](/content/transcript/2017/04/20170425-53483717.md)
+
 [郭文贵2017年4月25日 20170425_1感谢推友过九万第一部分](/content/transcript/2017/04/20170425-53483715.md)
 
 [郭文贵2017年4月19日视频 20170419VOA 专访](/content/transcript/2017/04/20170419-53483710.md)

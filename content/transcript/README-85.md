@@ -3,6 +3,8 @@
 
 ## 頁面 85/110 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年12月26日视频 20181226_1辽宁沈阳对罚款600亿人民币维持原判．限期30天内交罚款！文贵的三个压力二个高兴！](/content/transcript/2018/12/20181226-53478460.md)
+
 [郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐](/content/transcript/2018/12/20181224-53478457.md)
 
 [郭文贵2018年12月23日视频 20181223_1我们这两天加班，完成了对Sam Nunberg 和吴征的重新起诉，索赔，这是个大事！媒体高度关注！](/content/transcript/2018/12/20181223-53478453.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了](/content/transcript/2018/11/20181128-53478551.md)
 
 [郭文贵2018年11月27日视频 20181127华盛顿报平安直播](/content/transcript/2018/11/20181127-53482967.md)
-
-[郭文贵2018年11月27日视频 20181127_2](/content/transcript/2018/11/20181127-53478548.md)
 
 
 ## 頁面 85/110 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

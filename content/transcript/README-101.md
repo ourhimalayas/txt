@@ -3,6 +3,8 @@
 
 ## 頁面 101/110 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年1月28日视频 20180128_2Snow太可爱了](/content/transcript/2018/01/20180128-53477374.md)
+
 [郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗](/content/transcript/2018/01/20180127-53477366.md)
 
 [郭文贵2018年1月21日直播 20180121_1](/content/transcript/2018/01/20180121-53482787.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年11月26日第二次直播 20171126_2](/content/transcript/2017/11/20171126-53483911.md)
 
 [郭文贵2017年11月23日第一次直播 20171123_1就近况回答明镜电视追问](/content/transcript/2017/11/20171123-53484306.md)
-
-[郭文贵2017年11月23日第二次直播 20171123_2感恩节报平安](/content/transcript/2017/11/20171123-53483906.md)
 
 
 ## 頁面 101/110 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)

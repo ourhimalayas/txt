@@ -3,6 +3,8 @@
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月6日视频 20181006_3](/content/transcript/2018/10/20181006-53478327.md)
+
 [郭文贵2018年10月6日视频 20181006_2](/content/transcript/2018/10/20181006-53478326.md)
 
 [郭文贵2018年10月5日视频 20181005_2文贵一小时以后在郭媒体直播请大家围观三个男人的](/content/transcript/2018/10/20181005-53478322.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年9月22日视频 20180922_3文貴周末為家人做魚肉丸](/content/transcript/2018/09/20180922-53478290.md)
 
 [郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯](/content/transcript/2018/09/20180922-53478287.md)
-
-[郭文贵2018年9月21日视频 20180921_2文贵为忙碌了一周的同事切莲花西瓜……大家开心极了……从未见过！](/content/transcript/2018/09/20180921-53478283.md)
 
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

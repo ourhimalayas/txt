@@ -3,6 +3,8 @@
 
 ## 頁面 81/110 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月13日第二次直播 20190413_2郭文贵直播谈盗国贼的财富以及这周发生的大事！ 江家集团在中国的实际实力和未来的下场！](/content/transcript/2019/04/20190413-53482269.md)
+
 [郭文贵2019年4月13日第三次直播 20190413_3给战友们的四条建议！紧急通知，战友必看！](/content/transcript/2019/04/20190413-53482261.md)
 
 [郭文贵2019年4月11日视频 20190411_1谈谈美国和欧洲接下来的联合行动！再谈谈在伦敦被抓朴的阿桑奇和当前危机委员会！](/content/transcript/2019/04/20190411-53478591.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年3月2日视频 20190302_2尊敬的战友们好！纽约今天下了大雪！非常的漂亮浪漫极了！我正在准备两个小时以后的直播！一切都是刚刚开始！](/content/transcript/2019/03/20190302-53478644.md)
 
 [郭文贵2019年2月28日视频 20190228文贵报平安谈金正恩谈判的破裂和蓝标公司在美国犯罪的各种信息。](/content/transcript/2019/02/20190228-53482094.md)
-
-[郭文贵2019年2月28日视频 20190228_3政事这小哥你在哪？如果你把豆豆还给我们！我就送你一个乐高遥控车可以吗？请回复！请回复](/content/transcript/2019/02/20190228-53478641.md)
 
 
 ## 頁面 81/110 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)

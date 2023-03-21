@@ -3,6 +3,8 @@
 
 ## 頁面 73/110 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月31日文贵大直播全文字版：爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-53702445.md)
+
 [2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场](/content/transcript/2019/07/20190731-53733598.md)
 
 [郭文贵2019年7月31日第一次直播 20190731_1爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-53482920.md)
@@ -50,8 +52,6 @@
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715271.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715253.md)
-
-[2019年7月26日文贵大直播全文字版： 江志成这个小鳖孙 和孙力军最近在干啥](/content/transcript/2019/07/20190726-53702516.md)
 
 
 ## 頁面 73/110 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

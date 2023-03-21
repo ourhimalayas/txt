@@ -3,6 +3,8 @@
 
 ## 頁面 69/110 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年9月17日视频 20190917马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动](/content/transcript/2019/09/20190917-53483127.md)
+
 [《文贵大直播》全文听写组](/content/transcript/2019/09/20190916-53845233.md)
 
 [2019年9月16日郭文贵先生直播全文字版](/content/transcript/2019/09/20190916-53847091.md)
@@ -50,8 +52,6 @@
 [2019年9月7日郭先生直播，关注香港被抓 被杀的年轻人全文字版](/content/transcript/2019/09/20190907-53838874.md)
 
 [郭文贵2019年9月7日视频 20190907关注香港被抓、被自杀的年轻人！北京下达死命令：不允许超过100人集会！美国将通过一系列法案支持香港人民！](/content/transcript/2019/09/20190907-53483029.md)
-
-[郭文贵2019年9月6日视频 20190906_1中共在香港对全世界发起了金融核战争……这意味着什么？全球联合集体灭共！全民灭共！一切都是刚刚开始](/content/transcript/2019/09/20190906-53478996.md)
 
 
 ## 頁面 69/110 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)

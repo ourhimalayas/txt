@@ -3,6 +3,8 @@
 
 ## 頁面 98/110 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年3月16日第一次直播 20180316_1如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/content/transcript/2018/03/20180316-53483695.md)
+
 [郭文贵2018年3月16日第二次直播 20180316_2推特拉黑了谁？如何用智慧铲灭盗国贼！](/content/transcript/2018/03/20180316-53483690.md)
 
 [郭文贵2018年3月15日视频 20180315谈天真就是无知吗无私追求就是愚蠢吗以及陈军为什么害文贵](/content/transcript/2018/03/20180315-53481938.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年3月3日视频 20180303出其不意 ,会师挺郭后援会成员! 场面感人!!!](/content/transcript/2018/03/20180303-53477358.md)
 
 [郭文贵2018年3月2日直播 20180302_1尊敬的战友们好：文贵从元宵节太太喝醉．谈谈，轮回报应．同时再谈谈盗国贼的未来……我衷心祝福援郭会的兄弟姐妹，今天的全球联合大游行战友们平平安安！顺顺利利！????????????????????????](/content/transcript/2018/03/20180302-53477293.md)
-
-[郭文贵2018年3月1日直播 20180301_1尊敬的战友们好：你们健身了吗！未来的20天．北京可能还要出更大的事儿（一位陈．．是????????????一切都是刚刚开始！ Via：郭媒体](/content/transcript/2018/03/20180301-53477283.md)
 
 
 ## 頁面 98/110 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)

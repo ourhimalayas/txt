@@ -3,6 +3,8 @@
 
 ## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！](/content/transcript/2018/08/20180807-53477230.md)
+
 [郭文贵2018年8月6日视频 20180806文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！](/content/transcript/2018/08/20180806-53482450.md)
 
 [郭文贵2018年8月6日直播 20180806_2晚餐朋友的家的入口都这么大！隔壁邻居却是一个中国某政治局委员情人的家！天理何在呀！](/content/transcript/2018/08/20180806-53478103.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話](/content/transcript/2018/07/20180702-53478026.md)
 
 [郭文贵2018年6月30日直播 20180630_2谈中国股市与经济！](/content/transcript/2018/06/20180630-53478020.md)
-
-[郭文贵2018年6月30日直播 20180630_1谈郭宝胜的诈骗与对寒梅的起诉](/content/transcript/2018/06/20180630-53478008.md)
 
 
 ## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

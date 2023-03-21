@@ -3,6 +3,8 @@
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年6月8日直播 20170608_1明鏡專訪郭文貴對盤古案的期待 60分](/content/transcript/2017/06/20170608-53482753.md)
+
 [郭文贵2017年6月7日视频 20170607推特报平安](/content/transcript/2017/06/20170607-53483780.md)
 
 [郭文贵2017年6月6日王歧山2完整版 20170606](/content/transcript/2017/06/20170606-53483858.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年5月15日视频 20170515_2報平安 2被骇后再开！](/content/transcript/2017/05/20170515-53483772.md)
 
 [郭文贵2017年5月13日视频 20170513](/content/transcript/2017/05/20170513-53483867.md)
-
-[郭文贵2017年5月12日视频 20170512](/content/transcript/2017/05/20170512-53483865.md)
 
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

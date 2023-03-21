@@ -3,6 +3,8 @@
 
 ## 頁面 86/110 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月27日视频 20181127_2](/content/transcript/2018/11/20181127-53478548.md)
+
 [郭文贵2018年11月26日视频 20181126_1马上就要起飞????去几个智库去演讲！会后再向战友们汇报！一切都是刚刚开始](/content/transcript/2018/11/20181126-53478547.md)
 
 [郭文贵2018年11月25日视频 20181125_3](/content/transcript/2018/11/20181125-53478545.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年11月10日视频 20181110_1距离王健发布会还有9天 文贵海上吃火锅给大家报平安(政事小哥版)](/content/transcript/2018/11/20181110-53478393.md)
 
 [郭文贵2018年11月9日视频 20181109_1昨晚上我6点多睡觉．一大早班8点钟突然到来……他昨晚上也一夜没睡．开车从华盛顿过来！为了我们的新闻发布会！为了接下来的几天按排](/content/transcript/2018/11/20181109-53478388.md)
-
-[郭文贵2018年11月8日视频 20181108王岐山与习近平谁将成为最后的共产党永久的实际控制人](/content/transcript/2018/11/20181108-53480477.md)
 
 
 ## 頁面 86/110 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
