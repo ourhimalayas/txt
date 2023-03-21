@@ -10,15 +10,7 @@
 
 ---
 
-[@milesguo 3/21/2023 12:36 PM UTC  - :tv:直播](/content/gettr/p2c4ghuda6d.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2c41k69793.md)
+[@milesguo 3/21/2023 2:00 PM UTC  - :tv:直播](/content/gettr/p2c535n2bee.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
 
@@ -35,6 +27,22 @@ G｜MUSIC“灭共者徽章”NFT空投传送门开启：
 gmusic7.com 🔥
 
 
+
+---
+
+[@milesguo 3/21/2023 12:36 PM UTC  - :tv:直播](/content/gettr/p2c4ghuda6d.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/21/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2c41k69793.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ gmusic7.com 🔥
 ---
 
 [@milesguo 3/21/2023 1:17 AM UTC  - :tv:直播](/content/gettr/p2c31ym21a4.md)
-
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 12:48 AM UTC  - :tv:直播](/content/gettr/p2c3aw0b155.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
 
