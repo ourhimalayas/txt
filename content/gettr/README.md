@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/21/2023 7:38 AM UTC  - :tv:直播](/content/gettr/p2c3w7d2411.md)
+
+03/20/2023 Nicole from the New Federal State of China is interviewed by Steve Gruber on Real America’s Voice: Mr. Miles Guo’s arrest proves precisely a consensus among the American public that America has a two-tier justice system....
+
+<img src="https://media.gettr.com/group3/getter/2023/03/21/07/72e7d571-2428-b451-aed1-02139feb48e2/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 6:23 AM UTC  - :tv:直播](/content/gettr/p2c3oi1ac12.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第二十九场）
@@ -34,11 +42,11 @@
 
 ---
 
-[@milesguo 3/21/2023 7:38 AM UTC  - :tv:直播](/content/gettr/p2c3w7d2411.md)
+[@milesguo 3/21/2023 8:20 AM UTC  - :tv:直播](/content/gettr/p2c468d556c.md)
 
-03/20/2023 Nicole from the New Federal State of China is interviewed by Steve Gruber on Real America’s Voice: Mr. Miles Guo’s arrest proves precisely a consensus among the American public that America has a two-tier justice system....
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第二十九场）
 
-<img src="https://media.gettr.com/group3/getter/2023/03/21/07/72e7d571-2428-b451-aed1-02139feb48e2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ No.2🥈 on UAE🇦🇪 and Taiwan🇹🇼 Top Son...
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 3/20/2023 5:16 PM UTC  - :tv:直播](/content/gettr/p2c1rfra3bd.md)
-
-2023.03.20 NFSC SPEAKS MONDAY WITH RET. COL. JOHN MILLS #FREEMILESGUO
-
-<img src="https://media.gettr.com/group5/origin/2023/03/20/17/ba23a34b-6ead-06f9-0036-77d27249b600/dcd586532c1c9ce8243d2d0e991f9ddc.jpeg" width="506" height="284">
 
 ---
 
