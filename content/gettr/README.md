@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/21/2023 1:17 AM UTC  - :tv:直播](/content/gettr/p2c31ym21a4.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/21/2023 12:53 AM UTC  - :tv:直播](/content/gettr/p2c2qqcfcf2.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
+
+<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/20/2023 11:33 PM UTC  - :tv:直播](/content/gettr/p2c316186a7.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十五场）
@@ -41,14 +57,6 @@ No.1🥇 on New Zealand🇳🇿, Singapore🇸🇬 and Fiji🇫🇯 Top Songs Ch
 No.2🥈 on UAE🇦🇪 and Taiwan🇹🇼 Top Son...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/20/21/fdd372aa-7c1b-c929-ea6f-b69565d42ce5/517ad70924bbf58085cdb37f7f46a65d.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 12:53 AM UTC  - :tv:直播](/content/gettr/p2c2qqcfcf2.md)
-
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ https://gnews.org/articles/1030286
 2023.03.19 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第十九场）
 
 <img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 11:17 PM UTC  - :tv:直播](/content/gettr/p2bz1ua3e5e.md)
-
-【#FreeMilesGuoNow】03/18/2023 Lao Banzhang denounced the so-called Chinese pro-democracy bigwigs, pseudo-anti-CCP self-media, and the so-called neutral and serious media's satire of Mr. Miles Guo: Mr. Guo broke the story of the CCP'...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/19/23/cea9219b-84cc-f095-6b7d-feeb83c662ca/out.jpg" width="506" height="284">
 
 ---
 
