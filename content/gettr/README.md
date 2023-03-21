@@ -2,11 +2,35 @@
 ---
 
 
+[@milesguo 3/21/2023 4:04 AM UTC  - :tv:直播](/content/gettr/p2c3k8w49a6.md)
+
+03/20/2023 Nicole from the New Federal State of China is interviewed by Steve Gruber on Real America’s Voice: Mr. Miles Guo’s arrest shows that America's justice system is weaponized by the CCP. The SEC and DOJ cannot even produce ...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/21/04/ff7f6536-140f-ff0e-8005-b49c6e08c65d/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 3:46 AM UTC  - :tv:直播](/content/gettr/p2c3cbba7c7.md)
 
 3/20/2023 Grant Stinchfield, host of Real America's Voice: Who is investigating Miles Guo? Is it a joint effort between the CCP and the FBI? Mr. Guo was arrested right after the New Federal State of China requested an investigation...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/21/03/10a614a3-96d5-7948-75aa-2f41f7833c3e/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/21/2023 4:13 AM UTC  - :tv:直播](/content/gettr/p2c3ih65ac9.md)
+
+3/20/2023 Grant Stinchfield, host of Real America's Voice: The US government's 38-page indictment against Miles Guo failed to name a single victim of the purported fraud, and the prosecutor admitted in court to having worked a lot ...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/21/04/bfeedeaa-79a6-e9d2-4468-7ee45022014c/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/21/2023 3:59 AM UTC  - :tv:直播](/content/gettr/p2c3cjqe97d.md)
+
+2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -43,14 +67,6 @@
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 3:59 AM UTC  - :tv:直播](/content/gettr/p2c3cjqe97d.md)
-
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,22 +189,6 @@ https://gnews.org/articles/1030286
 【#FreeMilesGuoNow】03/18/2023 Nicole in her interview with an independent media: We demand an immediate investigation into the origin of the fire. We also demand an immediate release of Mr. Miles Guo from injustice and Federal custo...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/20/11/7f0dab5e-7b4a-a7b8-125f-e7081afacec2/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 6:32 AM UTC  - :tv:直播](/content/gettr/p2c0m43f550.md)
-
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十场）
-
-<img src="https://media.gettr.com/group1/liveorigin/2023/03/19/20/d272da54-ee50-8063-77fd-6a9d079e9ead/db77deaeeaadf94601c75dae84bb7948.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 5:40 AM UTC  - :tv:直播](/content/gettr/p2c0l3y7fda.md)
-
-【#FreeMilesGuoNow】03/18/2023 Ms. Gricel, a New York citizen, printed a photo of Mr. Miles Guo in person to support the #FreeMilesGuoNow rally; after learning more about Mr. Miles Guo's story and the meaning behind his prayer at the...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/20/05/2e9edb17-48ca-8037-be21-2795924b5cfb/out.jpg" width="506" height="284">
 
 ---
 
