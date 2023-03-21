@@ -3,6 +3,10 @@
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年6月7日视频 20170607推特报平安](/content/transcript/2017/06/20170607-53483780.md)
+
+[郭文贵2017年6月6日王歧山2完整版 20170606](/content/transcript/2017/06/20170606-53483858.md)
+
 [郭文贵2017年6月3日视频 20170603盗国贼与国家的关系](/content/transcript/2017/06/20170603-53483854.md)
 
 [郭文贵2017年6月1日视频 20170601](/content/transcript/2017/06/20170601-53483842.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年5月13日视频 20170513](/content/transcript/2017/05/20170513-53483867.md)
 
 [郭文贵2017年5月12日视频 20170512](/content/transcript/2017/05/20170512-53483865.md)
-
-[郭文贵2017年5月11日视频 20170511](/content/transcript/2017/05/20170511-53483840.md)
-
-[郭文贵2017年5月10日视频 20170510](/content/transcript/2017/05/20170510-53483825.md)
 
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

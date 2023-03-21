@@ -3,6 +3,10 @@
 
 ## 頁面 76/110 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月3日视频 20190703_1 (上)韦石．熊宪民．张维．郭宝胜．江涛．为什么敢在联邦法院庭上要杀掉文贵？侮辱威胁文贵？……联邦最有信誉的法官都无可奈何？](/content/transcript/2019/07/20190703-53478775.md)
+
+[郭文贵2019年7月3日视频 20190703_2伪民运为什么敢在法院侮辱威胁文贵 高清部分内容](/content/transcript/2019/07/20190703-53478081.md)
+
 [2019年7月2日直播全文字版：此次大阪G20是中美会议当中最紧张、最严肃、最奇怪、最没有确定性的的双边会议](/content/transcript/2019/07/20190702-53574108.md)
 
 [郭文贵2019年7月2日视频 20190702_2文贵与班农在白宫北侧．谈今天打赢夏畜生诽谤案的重要标志性意义……这是个改变美国法律历史的事件](/content/transcript/2019/07/20190702-53478771.md)
@@ -48,10 +52,6 @@
 [2019年6月18日文贵纽约时间晚上8点直播全文字版：关于香港21日再次上街](/content/transcript/2019/06/20190618-53544051.md)
 
 [郭文贵2019年6月18日视频 20190618关于6月21日的再次示威行动](/content/transcript/2019/06/20190618-53482788.md)
-
-[香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》](/content/transcript/2019/06/20190617-53557443.md)
-
-[郭文贵2019年6月17日视频 20190617支持香港反送中抗议](/content/transcript/2019/06/20190617-53482778.md)
 
 
 ## 頁面 76/110 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)

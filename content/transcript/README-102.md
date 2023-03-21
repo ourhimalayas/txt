@@ -3,6 +3,10 @@
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年11月21日Instagram健身直播 20171121](/content/transcript/2017/11/20171121-53483903.md)
+
+[郭文贵2017年11月18日Instagram直播 20171118](/content/transcript/2017/11/20171118-53483896.md)
+
 [郭文贵2017年11月17日视频 20171117文贵刚刚买了两辆车，一个奔 特利suv特别版，一个宝马760特别运动版！ 在马阿拉歌用！](/content/transcript/2017/11/20171117-53483883.md)
 
 [郭文贵2017年11月16日直播 20171116_1自称“领袖”级人物要把川普介绍给郭文贵](/content/transcript/2017/11/20171116-53482813.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年10月23日直播 20171023_1与澳纽挺郭后援会视频通话](/content/transcript/2017/10/20171023-53482802.md)
 
 [郭文贵2017年10月21日视频 20171021十九大停播后对欧洲挺郭后援团寄语重托和厚望](/content/transcript/2017/10/20171021-53476947.md)
-
-[郭文贵2017年10月15日视频 20171015两会所有的代表们都在讨论文贵爆料](/content/transcript/2017/10/20171015-53476941.md)
-
-[郭文贵2017年10月14日 20171014盗国贼全球发“不”会第四集](/content/transcript/2017/10/20171014-53484154.md)
 
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

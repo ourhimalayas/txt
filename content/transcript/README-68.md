@@ -3,6 +3,10 @@
 
 ## 頁面 68/110 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年9月30日视频 20190930_4大阅兵直播](/content/transcript/2019/09/20190930-53478053.md)
+
+[郭文贵2019年9月30日视频 20190930_3大阅兵直播](/content/transcript/2019/09/20190930-53478051.md)
+
 [2019年9月29日 郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年 全文字版](/content/transcript/2019/09/20190929-53899713.md)
 
 [郭文贵2019年9月29日 20190929郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/content/transcript/2019/09/20190929-53483297.md)
@@ -48,10 +52,6 @@
 [2019年9月17日郭文贵先生报平安全文字版](/content/transcript/2019/09/20190917-53852085.md)
 
 [郭文贵2019年9月17日视频 20190917马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动](/content/transcript/2019/09/20190917-53483127.md)
-
-[《文贵大直播》全文听写组](/content/transcript/2019/09/20190916-53845233.md)
-
-[2019年9月16日郭文贵先生直播全文字版](/content/transcript/2019/09/20190916-53847091.md)
 
 
 ## 頁面 68/110 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)

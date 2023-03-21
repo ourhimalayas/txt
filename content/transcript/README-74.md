@@ -3,6 +3,10 @@
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月26日视频 20190726和战友分享船上时光](/content/transcript/2019/07/20190726-53482894.md)
+
+[郭文贵2019年7月26日视频 20190726_2再谈台江志成和孙力军合作．抢夺盘古大观龙头……感谢法院的战友告诉我．他们的抢劫计划……一切都是刚刚开始！](/content/transcript/2019/07/20190726-53478845.md)
+
 [2019年7月25日《文贵大直播》全文字版：请战友们记住7月21号7月23号.......](/content/transcript/2019/07/20190725-53686212.md)
 
 [郭文贵2019年7月25日视频 20190725live stream: Miles letting everyone know he is safe. Please friends, remember..](/content/transcript/2019/07/20190725-53482885.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件](/content/transcript/2019/07/20190715-53478805.md)
 
 [2019年7月14日直播全文字版: 班农与文贵：共产党为什么可以强奸美国70年？](/content/transcript/2019/07/20190714-53626585.md)
-
-[郭文贵2019年7月14日 20190714班农与文贵直播: 共产党为什么可以强奸美国70年？](/content/transcript/2019/07/20190714-53482909.md)
-
-[2019年7月12日直播全文字版：蔡英文访问纽约；香港接下来的行动；大阪G20的结果已经影响了美国内部的政治！](/content/transcript/2019/07/20190712-53578172.md)
 
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)

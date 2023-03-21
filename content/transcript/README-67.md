@@ -3,7 +3,11 @@
 
 ## 頁面 67/110 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月10日视频 20191010台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/transcript/2019/10/20191010-53483308.md)
+
 [郭文贵2019年10月10日视频 20191010_2今天的SNOW有了很大的变化 比香港警察表现的好得多了(拿Snow跟港警比 對Snow太殘忍了)](/content/transcript/2019/10/20191010-53479048.md)
+
+[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁 全文字版](/content/transcript/2019/10/20191009-53906184.md)
 
 [郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/transcript/2019/10/20191009-53483302.md)
 
@@ -48,10 +52,6 @@
 [郭文贵2019年9月30日视频 20190930_2直播测试](/content/transcript/2019/09/20190930-53479027.md)
 
 [郭文贵2019年9月30日视频 20190930_1北京阅兵 郭媒体进入战备状态 天安門廣場的國慶晚宴音樂晚會將有事發生](/content/transcript/2019/09/20190930-53479018.md)
-
-[郭文贵2019年9月30日视频 20190930_4大阅兵直播](/content/transcript/2019/09/20190930-53478053.md)
-
-[郭文贵2019年9月30日视频 20190930_3大阅兵直播](/content/transcript/2019/09/20190930-53478051.md)
 
 
 ## 頁面 67/110 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)

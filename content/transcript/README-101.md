@@ -3,6 +3,10 @@
 
 ## 頁面 101/110 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗](/content/transcript/2018/01/20180127-53477366.md)
+
+[郭文贵2018年1月21日直播 20180121_1](/content/transcript/2018/01/20180121-53482787.md)
+
 [郭文贵2018年1月19日视频 20180119_2文贵现在回答很多战友们关心文贵看春晚的节目的安排．的大概情况．谢谢大家的关心关注](/content/transcript/2018/01/20180119-53477387.md)
 
 [郭文贵2018年1月19日视频 20180119_1文贵现在回答很多战友关心的．我刚刚起诉了吴征先生先生的代表律师事务所．为什么用的是达赖喇嘛尊者和中国南海争议的代表同一家律师事务所！](/content/transcript/2018/01/20180119-53477382.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年11月23日第一次直播 20171123_1就近况回答明镜电视追问](/content/transcript/2017/11/20171123-53484306.md)
 
 [郭文贵2017年11月23日第二次直播 20171123_2感恩节报平安](/content/transcript/2017/11/20171123-53483906.md)
-
-[郭文贵2017年11月21日Instagram健身直播 20171121](/content/transcript/2017/11/20171121-53483903.md)
-
-[郭文贵2017年11月18日Instagram直播 20171118](/content/transcript/2017/11/20171118-53483896.md)
 
 
 ## 頁面 101/110 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)

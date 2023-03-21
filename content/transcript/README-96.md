@@ -3,6 +3,10 @@
 
 ## 頁面 96/110 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年4月24日视频 20180424_4我正在赛船呢](/content/transcript/2018/04/20180424-53477412.md)
+
+[郭文贵2018年4月24日视频 20180424_3文汇怎么造的假文件呢？详情，请看现在的路徳专访！文贵己经提供了部分信息给路德先生了！一切都是刚刚开始！愚蠢的盗国贼．又给文贵送大礼了！](/content/transcript/2018/04/20180424-53477408.md)
+
 [郭文贵2018年4月24日视频 20180424_2Guo Wengui's statement on the Persecution of Mr Zhiyu Chen and Zhiheng Chen by the Chin](/content/transcript/2018/04/20180424-53477402.md)
 
 [郭文贵2018年4月23日视频 20180423与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写](/content/transcript/2018/04/20180423-53482324.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年4月7日第一次直播 20180407_1谈吴小晖在华尔道夫酒店保险箱藏着什么以及与胡舒立和海航的逻辑关系](/content/transcript/2018/04/20180407-53482292.md)
 
 [郭文贵2018年4月6日视频 20180406谈王岐山抓吴小晖是打邓家威胁美国总统的一箭多雕之计](/content/transcript/2018/04/20180406-53482282.md)
-
-[郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁](/content/transcript/2018/04/20180405-53482232.md)
-
-[郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！](/content/transcript/2018/04/20180404-53482140.md)
 
 
 ## 頁面 96/110 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)

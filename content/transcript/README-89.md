@@ -3,6 +3,10 @@
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月6日视频 20181006_2](/content/transcript/2018/10/20181006-53478326.md)
+
+[郭文贵2018年10月5日视频 20181005_2文贵一小时以后在郭媒体直播请大家围观三个男人的](/content/transcript/2018/10/20181005-53478322.md)
+
 [郭文贵2018年10月5日视频 20181005_1](/content/transcript/2018/10/20181005-53478321.md)
 
 [郭文贵2018年10月4日第二次直播 20181004_2未来一两周每天都会有新闻](/content/transcript/2018/10/20181004-53482723.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯](/content/transcript/2018/09/20180922-53478287.md)
 
 [郭文贵2018年9月21日视频 20180921_2文贵为忙碌了一周的同事切莲花西瓜……大家开心极了……从未见过！](/content/transcript/2018/09/20180921-53478283.md)
-
-[郭文贵2018年9月21日视频 20180921_1文贵请战友们帮忙](/content/transcript/2018/09/20180921-53478280.md)
-
-[郭文贵2018年9月20日视频 20180920马云开始被“狩猎”时间 王岐山穿睡衣大谈中美贸易战, FBI约谈博讯西诺](/content/transcript/2018/09/20180920-53482611.md)
 
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

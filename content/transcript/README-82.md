@@ -3,6 +3,10 @@
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月28日视频 20190228_2应战友的要求做一组 俯卧撑视频！文贵这都是硬撑着装出来的！ 如果大家觉得还行啊，择机再做三组给大家．再撑三下，把郭3秒变成郭三组！](/content/transcript/2019/02/20190228-53478638.md)
+
+[郭文贵2019年2月27日视频 20190227一切都是天注定吗？习亡（于）岐山．民心向郭……这是十八大前的天命铁算！一切尽在佛意中！这是我们爆料革命的使命！](/content/transcript/2019/02/20190227-53482068.md)
+
 [郭文贵2019年2月26日视频 20190226谈谈法治基金和金正恩与川普团队的不同，一切都是刚刚开始！](/content/transcript/2019/02/20190226-53482052.md)
 
 [郭文贵2019年2月24日视频 20190224文贵谈，法治基金建立的真正目的。](/content/transcript/2019/02/20190224-53482031.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年2月1日视频 20190201_1昨天刘鹤跟川普团队谈判后的自己的感受！ 王健被自己的生殖器戳死](/content/transcript/2019/02/20190201-53478567.md)
 
 [郭文贵2019年1月31日视频 20190131_1昨天的中美貿易談判一定會宣布有了最好的結果 但實際上是最壞的結果 收到北韓來的許多信息](/content/transcript/2019/01/20190131-53478562.md)
-
-[郭文贵2019年1月30日视频 20190130_2文贵先生测试秘密工具直播](/content/transcript/2019/01/20190130-53478558.md)
-
-[郭文贵2019年1月30日视频 20190130_1谈谈为什么说，金正日应该直接打电话给川普总统。還了家鄉一位老板二十多塊錢](/content/transcript/2019/01/20190130-53478552.md)
 
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

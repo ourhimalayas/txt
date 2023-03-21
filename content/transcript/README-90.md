@@ -3,6 +3,10 @@
 
 ## 頁面 90/110 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月21日视频 20180921_1文贵请战友们帮忙](/content/transcript/2018/09/20180921-53478280.md)
+
+[郭文贵2018年9月20日视频 20180920马云开始被“狩猎”时间 王岐山穿睡衣大谈中美贸易战, FBI约谈博讯西诺](/content/transcript/2018/09/20180920-53482611.md)
+
 [郭文贵2018年9月20日视频 20180920_2工作了17个小时. Snow还不睡觉!要等着我狗情胜人味, 比那些伪类强多了!](/content/transcript/2018/09/20180920-53478279.md)
 
 [郭文贵2018年9月19日视频 20180919_1](/content/transcript/2018/09/20180919-53478277.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年9月10日直播 20180910_3文贵在雨中建议所有的战友们观看"斯大林之死"这部电影](/content/transcript/2018/09/20180910-53478215.md)
 
 [郭文贵2018年9月10日视频 20180910_4船上视频：刚刚从海浪中归来的感受](/content/transcript/2018/09/20180910-53477264.md)
-
-[郭文贵2018年9月9日直播 20180909_1](/content/transcript/2018/09/20180909-53478209.md)
-
-[郭文贵2018年9月8日直播 20180908_2](/content/transcript/2018/09/20180908-53478206.md)
 
 
 ## 頁面 90/110 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

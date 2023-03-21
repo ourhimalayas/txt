@@ -3,6 +3,10 @@
 
 ## 頁面 84/110 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月13日视频 20190113_1班農已確定參加春晚爆料, Absolutely](/content/transcript/2019/01/20190113-53478510.md)
+
+[郭文贵2019年1月12日 20190112接受《楚门看世界采访》老百姓怕共产党，共产党怕洋人 9，有钱人欺负穷人，但是怕政府；官员怕中纪委，中纪委怕证据 10，陈刚是中国政坛唯一横跨三届的官员 11 张海](/content/transcript/2019/01/20190112-53481693.md)
+
 [郭文贵2019年1月12日视频 20190112_2早起準備接受90後的戰友楚門世界的採訪](/content/transcript/2019/01/20190112-53478507.md)
 
 [郭文贵2019年1月11日视频 20190111中央電視台大樓整個設計本人全面參與, 班農將在春晚講述在白宮的親身經歷](/content/transcript/2019/01/20190111-53482075.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年12月27日视频 20181227 原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！](/content/transcript/2018/12/20181227-53481471.md)
 
 [郭文贵2018年12月26日视频 20181226_1辽宁沈阳对罚款600亿人民币维持原判．限期30天内交罚款！文贵的三个压力二个高兴！](/content/transcript/2018/12/20181226-53478460.md)
-
-[郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐](/content/transcript/2018/12/20181224-53478457.md)
-
-[郭文贵2018年12月23日视频 20181223_1我们这两天加班，完成了对Sam Nunberg 和吴征的重新起诉，索赔，这是个大事！媒体高度关注！](/content/transcript/2018/12/20181223-53478453.md)
 
 
 ## 頁面 84/110 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

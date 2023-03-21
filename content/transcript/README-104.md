@@ -3,6 +3,10 @@
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月21日视频 20170921吴征在美国造谣 今明两天开董事会](/content/transcript/2017/09/20170921-53483587.md)
+
+[郭文贵2017年9月20日视频 20170920政法王最后一个工作会议 人民满意度提高？](/content/transcript/2017/09/20170920-53483584.md)
+
 [郭文贵2017年9月19日明镜专访第六期 20170919](/content/transcript/2017/09/20170919-53484075.md)
 
 [郭文贵2017年9月18日视频 20170918在安全屋准备全球发布会资料 担心中国大乱](/content/transcript/2017/09/20170918-53483583.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年9月2日视频 20170902_2感谢楼下挺郭的朋友们](/content/transcript/2017/09/20170902-53483559.md)
 
 [郭文贵2017年9月1日视频 20170901中英 关于孟建柱和孙立军盗国第一集！是谁杀了令计划的儿子．令谷？是谁帮助江绵恒．孟的母亲等换了几次器官？是谁又杀了手术及知情者？为了器官配对．按需杀了多少人](/content/transcript/2017/09/20170901-53484166.md)
-
-[郭文贵2017年9月1日视频 20170901_2让盗国贼看看把我们当猪狗的代价是什么！](/content/transcript/2017/09/20170901-53483558.md)
-
-[郭文贵2017年8月31日 20170831就近况回答明镜电视追问](/content/transcript/2017/08/20170831-53484302.md)
 
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年7月15日 20170715关于范冰冰起诉．海航20万亿线](/content/transcript/2017/07/20170715-53483919.md)
+
+[郭文贵2017年7月15日直播 20170715_2关于范冰冰起诉．海航20万亿线索的来源及美国灯塔报纸采访的回复](/content/transcript/2017/07/20170715-53482765.md)
+
 [郭文贵2017年7月12日视频 20170712Snow最活泼的一次. 转自郭文贵7月12号推特视频.](/content/transcript/2017/07/20170712-53483523.md)
 
 [郭文贵2017年7月10日王岐山家族 20170710王岐山家族与海航787等多架私人飞机的关系，及千次飞行记录的真实来由！](/content/transcript/2017/07/20170710-53484116.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年6月10日第二次直播 20170610_2](/content/transcript/2017/06/20170610-53483861.md)
 
 [郭文贵2017年6月8日直播 20170608_1明鏡專訪郭文貴對盤古案的期待 60分](/content/transcript/2017/06/20170608-53482753.md)
-
-[郭文贵2017年6月7日视频 20170607推特报平安](/content/transcript/2017/06/20170607-53483780.md)
-
-[郭文贵2017年6月6日王歧山2完整版 20170606](/content/transcript/2017/06/20170606-53483858.md)
 
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

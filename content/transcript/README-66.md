@@ -23,6 +23,8 @@
 
 [郭文贵2019年10月17日视频 20191017_1岑子杰被害背後的真相已逐漸浮出水面 我們一定要追究 我今天整天參加秘密聽證會 不能直播](/content/transcript/2019/10/20191017-53479071.md)
 
+[2019年10月16日、17日郭文贵先生直播视频 共产党利用黑社会杀手手段 残害香港议员岑子杰先生以及被害真相浮出水面（合集）全文字版](/content/transcript/2019/10/20191016-53906068.md)
+
 [郭文贵2019年10月16日视频 20191016_1共产党利用黑社会杀手手段 残害香港议员岑子杰先生](/content/transcript/2019/10/20191016-53479069.md)
 
 [郭文贵2019年10月15日 20191015天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/content/transcript/2019/10/20191015-53483331.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年10月12日视频 20191012_2我太太刚刚为我组装的太空母舰……一切都是刚刚开始！](/content/transcript/2019/10/20191012-53479049.md)
 
 [2019年10月10日文贵大直播全文字版：报平安直播，台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/transcript/2019/10/20191010-53900627.md)
-
-[郭文贵2019年10月10日视频 20191010台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/transcript/2019/10/20191010-53483308.md)
 
 
 ## 頁面 66/110 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
