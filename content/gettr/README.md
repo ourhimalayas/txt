@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/21/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2c41k69793.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/21/2023 11:11 AM UTC  - :tv:直播](/content/gettr/p2c4ay9c050.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 8:20 AM UTC  - :tv:直播](/content/gettr/p2c468d556c.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第二十九场）
@@ -50,11 +66,9 @@
 
 ---
 
-[@milesguo 3/21/2023 11:11 AM UTC  - :tv:直播](/content/gettr/p2c4ay9c050.md)
+[@milesguo 3/21/2023 12:09 PM UTC ](/content/gettr/p2c4nsw0416.md)
 
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2023.03.20 战友们好，我是郭美。继上次电话之后，几分钟前终于又接到了爸爸打来的电话。他状态非常的好，现在可以自由的打电话。他说正在当大家的健身教练，打篮球还10球四进（说的时候还很骄傲）一切都好，让战友们不要担心。原话：“团结 团结 团结！坚持！不要愤怒！不要哭！心理上战胜一切！” 他笑声爽朗，语气自信放松。这几日让各位煎熬了，感谢你们每一刻的陪伴和坚韧！有新消息会及时告知。谢谢🙏
 
 ---
 
@@ -142,33 +156,7 @@
 
 ---
 
-[@milesguo 3/20/2023 9:50 PM UTC  - 6圖](/content/gettr/p2c2bg18447.md)
-
-Miles Guo's Songs iTunes Ranking Record - March 20, 2023
-
-https://gnews.org/articles/1030388
-
-
-
-“微风细雨” hits iTunes  
-
-No.1🥇 on New Zealand🇳🇿, Singapore🇸🇬 and Fiji🇫🇯 Top Songs Chart  
-
-No.2🥈 on UAE🇦🇪 and Taiwan🇹🇼 Top Son...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/20/21/fdd372aa-7c1b-c929-ea6f-b69565d42ce5/517ad70924bbf58085cdb37f7f46a65d.jpg" width="506" height="284">
-
----
-
 [@milesguo 3/20/2023 9:58 PM UTC  - :tv:直播](/content/gettr/p2c2btsa795.md)
-
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 7:55 PM UTC  - :tv:直播](/content/gettr/p2c2nq66615.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
 
