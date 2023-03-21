@@ -2,6 +2,18 @@
 ---
 
 
+[@milesguo 3/21/2023 2:05 AM UTC  - :tv:直播](/content/gettr/p2c32d04d7b.md)
+
+2023-3-20《鸡血王喜币大作战》505期嘉宾：Emily 恺叔
+
+#现场喜币大抽奖 #鸡血独家 #中共病毒溯源 #FreeMilesGuoNow
+
+💥拜登签署病毒溯源法案，共产党进入倒计时😄👏
+
+<img src="https://media.gettr.com/group6/origin/2023/03/21/02/78c169a3-795f-2cbe-e387-ca5f62f7c1cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 1:17 AM UTC  - :tv:直播](/content/gettr/p2c31ym21a4.md)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
@@ -18,15 +30,11 @@
 
 ---
 
-[@milesguo 3/21/2023 2:05 AM UTC  - :tv:直播](/content/gettr/p2c32d04d7b.md)
+[@milesguo 3/21/2023 3:10 AM UTC  - :tv:直播](/content/gettr/p2c36005045.md)
 
-2023-3-20《鸡血王喜币大作战》505期嘉宾：Emily 恺叔
+3/18/2023  Mr. Walker of Gateway Pundit published another article on March 18 questioning Mr. Miles Guo's arrest. Given that the prosecutor, bankruptcy trustee, and judge against Mr. Guo had all previously worked for law firms with...
 
-#现场喜币大抽奖 #鸡血独家 #中共病毒溯源 #FreeMilesGuoNow
-
-💥拜登签署病毒溯源法案，共产党进入倒计时😄👏
-
-<img src="https://media.gettr.com/group6/origin/2023/03/21/02/78c169a3-795f-2cbe-e387-ca5f62f7c1cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/21/03/ecb15107-4191-7a8f-5963-09c33e7ba269/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ https://gnews.org/articles/1030286
 【#FreeMilesGuoNow】03/18/2023 Iva, the singer of the song “take down the CCP”, shared his opinion: The arrest of Miles Guo matters to the American people.This actually has everything to do with our freedom and everything that is at ...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/20/05/c667b13a-f049-eb03-831c-3639ff6bbae5/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 3:01 AM UTC  - :tv:直播](/content/gettr/p2bzqag80f2.md)
-
-【#FreeMilesGuoNow】03/18/2023  Iva, the singer of the song “take down the CCP”, shared his opinion:  A lot of unusual events are happening right now. The CCP starts taking down the people who are in their way. The CCP funded the set...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/20/03/44cc1858-eba5-5bed-0342-3000dae18700/out.jpg" width="506" height="284">
 
 ---
 
