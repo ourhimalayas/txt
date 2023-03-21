@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/21/2023 3:05 PM UTC  - :tv:直播](/content/gettr/p2c4pk2aa7d.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十一场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 2:00 PM UTC  - :tv:直播](/content/gettr/p2c535n2bee.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
@@ -18,7 +26,7 @@
 
 ---
 
-[@milesguo 3/21/2023 3:05 PM UTC  - :tv:直播](/content/gettr/p2c4pk2aa7d.md)
+[@milesguo 3/21/2023 3:59 PM UTC  - :tv:直播](/content/gettr/p2c54i3e7dc.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十一场）
 
@@ -157,14 +165,6 @@ gmusic7.com 🔥
 💥拜登签署病毒溯源法案，共产党进入倒计时😄👏
 
 <img src="https://media.gettr.com/group6/origin/2023/03/21/02/78c169a3-795f-2cbe-e387-ca5f62f7c1cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 1:17 AM UTC  - :tv:直播](/content/gettr/p2c31ym21a4.md)
-
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十七场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
