@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/21/2023 7:02 PM UTC  - :tv:直播](/content/gettr/p2c5mc1a554.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 6:05 PM UTC  - :tv:直播](/content/gettr/p2c5vv7330f.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
@@ -58,7 +66,7 @@
 
 ---
 
-[@milesguo 3/21/2023 7:02 PM UTC  - :tv:直播](/content/gettr/p2c5mc1a554.md)
+[@milesguo 3/21/2023 8:09 PM UTC  - :tv:直播](/content/gettr/p2c651qcfbd.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
 
@@ -145,14 +153,6 @@ gmusic7.com 🔥
 3/20/2023 John O'Connor, former assistant U.S. attorney: The fact that the prosecutor who has libeled Miles Guo, the CCP's enemy No. 1, had worked with Communist China implies that the CCP has witnesses and evidence that they need,...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/21/04/518a85bb-693f-25d7-454b-530d139cf8e6/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 4:04 AM UTC  - :tv:直播](/content/gettr/p2c3k8w49a6.md)
-
-03/20/2023 Nicole from the New Federal State of China is interviewed by Steve Gruber on Real America’s Voice: Mr. Miles Guo’s arrest shows that America's justice system is weaponized by the CCP. The SEC and DOJ cannot even produce ...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/21/04/ff7f6536-140f-ff0e-8005-b49c6e08c65d/out.jpg" width="506" height="284">
 
 ---
 
