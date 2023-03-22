@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/22/2023 12:30 PM UTC  - :tv:直播](/content/gettr/p2c88oc6ef2.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/22/2023 11:59 AM UTC  - :tv:直播](/content/gettr/p2c8dzi6aaa.md)
+
+03/21/2023 Ava Chen: The big tech companies, which America derives its soft power from and which the American people are proud of, have been infiltrated by the CCP years ago. The CCP’s DDoS attack on Twitter to stop Miles Guo from ...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/22/11/b781e7f4-6756-3e6f-9d03-6f214d21555c/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 11:04 AM UTC  - :tv:直播](/content/gettr/p2c7rsn3d13.md)
 
 03/21/2023 During an interview on Conservative Daily Podcast, Ava Chen used the Lady May yacht purchase as an example to expose the cheap lies of the SEC and DOJ: They claimed that Lady May was purchased with the proceeds of a frau...
@@ -31,14 +47,6 @@
 03/21/2023 Appearing on Conservative Daily Podcast, Ava said that our fellow fighters in the CCP are ready to overthrow the evil CCP regime if only the U.S. government would stop funding the CCP financially and technologically. We ...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/22/10/6c72b99e-890a-08a0-56e9-a287dee62609/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 11:59 AM UTC  - :tv:直播](/content/gettr/p2c8dzi6aaa.md)
-
-03/21/2023 Ava Chen: The big tech companies, which America derives its soft power from and which the American people are proud of, have been infiltrated by the CCP years ago. The CCP’s DDoS attack on Twitter to stop Miles Guo from ...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/22/11/b781e7f4-6756-3e6f-9d03-6f214d21555c/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ No.1🥇 on UAE🇦🇪 and Singapore🇸🇬 Top Songs Chart
 No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/22/02/1182a888-776c-8cc8-5407-1558f812fd89/8f2147a4777533baee9c10f0cc1ded21.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 2:01 AM UTC  - :tv:直播](/content/gettr/p2c6sjh1417.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
