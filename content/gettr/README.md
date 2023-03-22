@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/22/2023 4:00 AM UTC  - :tv:直播](/content/gettr/p2c75qc51cf.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@globalalliance 3/21/2023 10:40 PM UTC  - 2圖](/content/gettr/p2c62pf85bb.md)
+
+
+
+<img src="https://media.gettr.com/group12/getter/2023/03/21/22/bc213f82-12e8-85bc-91a5-376c21268278/7e7f23d0320f800b75c3e91656d7f49f.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 2:57 AM UTC  - 6圖](/content/gettr/p2c7hnf2b3b.md)
 
 Miles Guo's Songs iTunes Ranking Record - March 21, 2023
@@ -145,22 +161,6 @@ No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 1:02 PM UTC  - :tv:直播](/content/gettr/p2c4mad897d.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@globalalliance 3/21/2023 10:40 PM UTC  - 2圖](/content/gettr/p2c62pf85bb.md)
-
-
-
-<img src="https://media.gettr.com/group12/getter/2023/03/21/22/bc213f82-12e8-85bc-91a5-376c21268278/7e7f23d0320f800b75c3e91656d7f49f.jpg" width="506" height="284">
 
 ---
 
