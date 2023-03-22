@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/22/2023 10:58 AM UTC  - :tv:直播](/content/gettr/p2c8c792de3.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 10:18 AM UTC  - :tv:直播](/content/gettr/p2c7t6w98ab.md)
 
 03/21/2023 Appearing on Conservative Daily Podcast, Ava said that our fellow fighters in the CCP are ready to overthrow the evil CCP regime if only the U.S. government would stop funding the CCP financially and technologically. We ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@milesguo 3/22/2023 10:58 AM UTC  - :tv:直播](/content/gettr/p2c8c792de3.md)
+[@milesguo 3/22/2023 11:04 AM UTC  - :tv:直播](/content/gettr/p2c7rsn3d13.md)
 
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+03/21/2023 During an interview on Conservative Daily Podcast, Ava Chen used the Lady May yacht purchase as an example to expose the cheap lies of the SEC and DOJ: They claimed that Lady May was purchased with the proceeds of a frau...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/22/11/82cc3c4f-1c65-b99f-50c7-2809f1e4acda/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
 ---
 
 [@milesguo 3/22/2023 12:31 AM UTC  - :tv:直播](/content/gettr/p2c6cktfdad.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 11:31 PM UTC  - :tv:直播](/content/gettr/p2c6za1a3db.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
 
