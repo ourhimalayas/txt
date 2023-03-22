@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/22/2023 10:04 PM UTC  - :tv:直播](/content/gettr/p2c9ne2a43d.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 8:58 PM UTC  - :tv:直播](/content/gettr/p2ca25z1622.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
@@ -68,11 +76,21 @@
 
 ---
 
-[@milesguo 3/22/2023 10:04 PM UTC  - :tv:直播](/content/gettr/p2c9ne2a43d.md)
+[@milesguo 3/22/2023 10:39 PM UTC  - 6圖](/content/gettr/p2c9w756796.md)
 
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
+Miles Guo's Songs iTunes Ranking Record - March 22, 2023
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gnews.org/articles/1036362
+
+
+
+“微风细雨” hits iTunes  
+
+No.1🥇 on Cambodia🇰🇭 and Malta🇲🇹 Top Songs Chart  
+
+No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/22/22/a85700b9-fbd0-e1a6-eb42-9fc2af98387c/2350ea34960d7309e80bf9ba3b8f4fb1.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +179,6 @@
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 10:18 AM UTC  - :tv:直播](/content/gettr/p2c7t6w98ab.md)
-
-03/21/2023 Appearing on Conservative Daily Podcast, Ava said that our fellow fighters in the CCP are ready to overthrow the evil CCP regime if only the U.S. government would stop funding the CCP financially and technologically. We ...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/22/10/6c72b99e-890a-08a0-56e9-a287dee62609/out.jpg" width="506" height="284">
 
 ---
 
