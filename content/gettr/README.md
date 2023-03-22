@@ -2,6 +2,32 @@
 ---
 
 
+[@milesguo 3/22/2023 3:01 AM UTC  - :tv:直播](/content/gettr/p2c7j9k0bbe.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/22/2023 2:57 AM UTC  - 6圖](/content/gettr/p2c7hnf2b3b.md)
+
+Miles Guo's Songs iTunes Ranking Record - March 21, 2023
+
+https://gnews.org/articles/1033171
+
+
+
+“微风细雨” hits iTunes  
+
+No.1🥇 on UAE🇦🇪 and Singapore🇸🇬 Top Songs Chart  
+
+No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/22/02/1182a888-776c-8cc8-5407-1558f812fd89/8f2147a4777533baee9c10f0cc1ded21.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 2:01 AM UTC  - :tv:直播](/content/gettr/p2c6sjh1417.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
@@ -130,21 +156,11 @@
 
 ---
 
-[@milesguo 3/22/2023 2:57 AM UTC  - 6圖](/content/gettr/p2c7hnf2b3b.md)
-
-Miles Guo's Songs iTunes Ranking Record - March 21, 2023
-
-https://gnews.org/articles/1033171
+[@globalalliance 3/21/2023 10:40 PM UTC  - 2圖](/content/gettr/p2c62pf85bb.md)
 
 
 
-“微风细雨” hits iTunes  
-
-No.1🥇 on UAE🇦🇪 and Singapore🇸🇬 Top Songs Chart  
-
-No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/22/02/1182a888-776c-8cc8-5407-1558f812fd89/8f2147a4777533baee9c10f0cc1ded21.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/21/22/bc213f82-12e8-85bc-91a5-376c21268278/7e7f23d0320f800b75c3e91656d7f49f.jpg" width="506" height="284">
 
 ---
 
@@ -157,20 +173,6 @@ G｜MUSIC“灭共者徽章”NFT空投传送门开启：
 gmusic7.com 🔥
 
 
-
----
-
-[@milesguo 3/21/2023 12:36 PM UTC  - :tv:直播](/content/gettr/p2c4ghuda6d.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 12:09 PM UTC ](/content/gettr/p2c4nsw0416.md)
-
-2023.03.20 战友们好，我是郭美。继上次电话之后，几分钟前终于又接到了爸爸打来的电话。他状态非常的好，现在可以自由的打电话。他说正在当大家的健身教练，打篮球还10球四进（说的时候还很骄傲）一切都好，让战友们不要担心。原话：“团结 团结 团结！坚持！不要愤怒！不要哭！心理上战胜一切！” 他笑声爽朗，语气自信放松。这几日让各位煎熬了，感谢你们每一刻的陪伴和坚韧！有新消息会及时告知。谢谢🙏
 
 ---
 
