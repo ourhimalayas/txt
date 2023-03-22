@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/22/2023 9:25 AM UTC  - :tv:直播](/content/gettr/p2c7fxs6f22.md)
+
+03/21/2023 Joe Oltmann, one of the hosts of Conservative Daily Podcast, is moved by Ava’s bravery of being ready to give up her life for the mission of taking down the CCP, and he also knows that there is a groundswell happening in...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/22/09/2ae06af1-b0ce-fd0c-7dbc-b76f2d6894ff/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 9:11 AM UTC  - :tv:直播](/content/gettr/p2c7d5t4112.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
@@ -18,11 +26,11 @@
 
 ---
 
-[@milesguo 3/22/2023 9:25 AM UTC  - :tv:直播](/content/gettr/p2c7fxs6f22.md)
+[@milesguo 3/22/2023 10:08 AM UTC  - :tv:直播](/content/gettr/p2c85hs4e66.md)
 
-03/21/2023 Joe Oltmann, one of the hosts of Conservative Daily Podcast, is moved by Ava’s bravery of being ready to give up her life for the mission of taking down the CCP, and he also knows that there is a groundswell happening in...
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
 
-<img src="https://media.gettr.com/group10/getter/2023/03/22/09/2ae06af1-b0ce-fd0c-7dbc-b76f2d6894ff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
 ---
 
 [@milesguo 3/21/2023 9:00 PM UTC  - :tv:直播](/content/gettr/p2c61zo743f.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 8:09 PM UTC  - :tv:直播](/content/gettr/p2c651qcfbd.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
 
