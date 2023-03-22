@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/22/2023 10:18 AM UTC  - :tv:直播](/content/gettr/p2c7t6w98ab.md)
+
+03/21/2023 Appearing on Conservative Daily Podcast, Ava said that our fellow fighters in the CCP are ready to overthrow the evil CCP regime if only the U.S. government would stop funding the CCP financially and technologically. We ...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/22/10/6c72b99e-890a-08a0-56e9-a287dee62609/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/22/2023 10:08 AM UTC  - :tv:直播](/content/gettr/p2c85hs4e66.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 9:25 AM UTC  - :tv:直播](/content/gettr/p2c7fxs6f22.md)
 
 03/21/2023 Joe Oltmann, one of the hosts of Conservative Daily Podcast, is moved by Ava’s bravery of being ready to give up her life for the mission of taking down the CCP, and he also knows that there is a groundswell happening in...
@@ -26,11 +42,11 @@
 
 ---
 
-[@milesguo 3/22/2023 10:08 AM UTC  - :tv:直播](/content/gettr/p2c85hs4e66.md)
+[@milesguo 3/22/2023 10:21 AM UTC  - :tv:直播](/content/gettr/p2c7o8ydbf3.md)
 
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+03/21/2023 Appearing on Conservative Daily Podcast, Ava said: “I only take live interviews because we don't know if someone behind the recorded interviews will target us, as VICE has done. I will go wherever someone wants us of NFS...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/22/10/6b531d8b-f697-6bee-c304-93ad2b4c7f7e/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +173,6 @@ No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
 [@milesguo 3/21/2023 11:03 PM UTC  - :tv:直播](/content/gettr/p2c6k6s19ba.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十八场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 10:00 PM UTC  - :tv:直播](/content/gettr/p2c6lv95ed4.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 9:00 PM UTC  - :tv:直播](/content/gettr/p2c61zo743f.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十一场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
