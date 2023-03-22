@@ -2,6 +2,32 @@
 ---
 
 
+[@milesguo 3/22/2023 11:03 PM UTC  - :tv:直播](/content/gettr/p2c9vht7346.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/22/2023 10:39 PM UTC  - 6圖](/content/gettr/p2c9w756796.md)
+
+Miles Guo's Songs iTunes Ranking Record - March 22, 2023
+
+https://gnews.org/articles/1036362
+
+
+
+“微风细雨” hits iTunes  
+
+No.1🥇 on Cambodia🇰🇭 and Malta🇲🇹 Top Songs Chart  
+
+No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/22/22/a85700b9-fbd0-e1a6-eb42-9fc2af98387c/2350ea34960d7309e80bf9ba3b8f4fb1.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 10:04 PM UTC  - :tv:直播](/content/gettr/p2c9ne2a43d.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
@@ -76,21 +102,11 @@
 
 ---
 
-[@milesguo 3/22/2023 10:39 PM UTC  - 6圖](/content/gettr/p2c9w756796.md)
+[@milesguo 3/22/2023 11:11 PM UTC  - :tv:直播](/content/gettr/p2c9y9ncc7c.md)
 
-Miles Guo's Songs iTunes Ranking Record - March 22, 2023
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
 
-https://gnews.org/articles/1036362
-
-
-
-“微风细雨” hits iTunes  
-
-No.1🥇 on Cambodia🇰🇭 and Malta🇲🇹 Top Songs Chart  
-
-No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/22/22/a85700b9-fbd0-e1a6-eb42-9fc2af98387c/2350ea34960d7309e80bf9ba3b8f4fb1.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,22 +187,6 @@ No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
 03/21/2023 Ava Chen: The big tech companies, which America derives its soft power from and which the American people are proud of, have been infiltrated by the CCP years ago. The CCP’s DDoS attack on Twitter to stop Miles Guo from ...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/22/11/b781e7f4-6756-3e6f-9d03-6f214d21555c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 10:58 AM UTC  - :tv:直播](/content/gettr/p2c8c792de3.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 10:21 AM UTC  - :tv:直播](/content/gettr/p2c7o8ydbf3.md)
-
-03/21/2023 Appearing on Conservative Daily Podcast, Ava said: “I only take live interviews because we don't know if someone behind the recorded interviews will target us, as VICE has done. I will go wherever someone wants us of NFS...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/22/10/6b531d8b-f697-6bee-c304-93ad2b4c7f7e/out.jpg" width="506" height="284">
 
 ---
 
