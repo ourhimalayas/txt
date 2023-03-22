@@ -2,7 +2,7 @@
 ---
 
 
-[@milesguo 3/22/2023 11:59 AM UTC  - :tv:直播](/content/gettr/p2c7tkj724f.md)
+[@milesguo 3/22/2023 1:00 PM UTC  - :tv:直播](/content/gettr/p2c8julb913.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
 
@@ -15,6 +15,22 @@
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/22/2023 11:59 AM UTC  - :tv:直播](/content/gettr/p2c7tkj724f.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/22/2023 1:04 PM UTC  - :tv:直播](/content/gettr/p2c895977d0.md)
+
+03/21/2023 During an interview on Conservative Daily Podcast, Ava Chen revealed the truth about the shutdown of GTV: The GTV platform, which was created to spread the truth since the Whistleblowers' Movement has been censored by bi...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/22/13/4195443b-a926-a78d-5b9b-84203c7246ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -144,37 +160,11 @@
 
 ---
 
-[@milesguo 3/22/2023 3:01 AM UTC  - :tv:直播](/content/gettr/p2c7j9k0bbe.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@globalalliance 3/21/2023 10:40 PM UTC  - 2圖](/content/gettr/p2c62pf85bb.md)
 
 
 
 <img src="https://media.gettr.com/group12/getter/2023/03/21/22/bc213f82-12e8-85bc-91a5-376c21268278/7e7f23d0320f800b75c3e91656d7f49f.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 2:57 AM UTC  - 6圖](/content/gettr/p2c7hnf2b3b.md)
-
-Miles Guo's Songs iTunes Ranking Record - March 21, 2023
-
-https://gnews.org/articles/1033171
-
-
-
-“微风细雨” hits iTunes  
-
-No.1🥇 on UAE🇦🇪 and Singapore🇸🇬 Top Songs Chart  
-
-No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/22/02/1182a888-776c-8cc8-5407-1558f812fd89/8f2147a4777533baee9c10f0cc1ded21.jpg" width="506" height="284">
 
 ---
 
