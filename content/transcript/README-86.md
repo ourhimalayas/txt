@@ -3,6 +3,12 @@
 
 ## 頁面 86/110 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月29日视频 20181129郭戰裝到了](/content/transcript/2018/11/20181129-53483910.md)
+
+[郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了](/content/transcript/2018/11/20181128-53478551.md)
+
+[郭文贵2018年11月27日视频 20181127华盛顿报平安直播](/content/transcript/2018/11/20181127-53482967.md)
+
 [郭文贵2018年11月27日视频 20181127_2](/content/transcript/2018/11/20181127-53478548.md)
 
 [郭文贵2018年11月26日视频 20181126_1马上就要起飞????去几个智库去演讲！会后再向战友们汇报！一切都是刚刚开始](/content/transcript/2018/11/20181126-53478547.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年11月15日视频 20181115_2](/content/transcript/2018/11/20181115-53478395.md)
 
 [郭文贵2018年11月14日视频 20181114王健之死真相新聞發布會為什麼可能從11月19日延後一天改為11月20日](/content/transcript/2018/11/20181114-53481110.md)
-
-[郭文贵2018年11月13日视频 20181113民營企業家不能再成為共產黨的尿壺！](/content/transcript/2018/11/20181113-53480659.md)
-
-[郭文贵2018年11月10日视频 20181110_1距离王健发布会还有9天 文贵海上吃火锅给大家报平安(政事小哥版)](/content/transcript/2018/11/20181110-53478393.md)
-
-[郭文贵2018年11月9日视频 20181109_1昨晚上我6点多睡觉．一大早班8点钟突然到来……他昨晚上也一夜没睡．开车从华盛顿过来！为了我们的新闻发布会！为了接下来的几天按排](/content/transcript/2018/11/20181109-53478388.md)
 
 
 ## 頁面 86/110 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,12 @@
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715290.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715271.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715253.md)
+
 [2019年7月26日文贵大直播全文字版： 江志成这个小鳖孙 和孙力军最近在干啥](/content/transcript/2019/07/20190726-53702516.md)
 
 [郭文贵2019年7月26日视频 20190726和战友分享船上时光](/content/transcript/2019/07/20190726-53482894.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年7月17日视频 20190717_1回答很多战友们关于郭战装的几个小问题](/content/transcript/2019/07/20190717-53478811.md)
 
 [郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始](/content/transcript/2019/07/20190716-53478808.md)
-
-[2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······](/content/transcript/2019/07/20190715-53626565.md)
-
-[郭文贵2019年7月15日视频 20190715盘古大观在7月14号被北京高院公告……将以实际价格的10％被拍卖……实际的背后的黑手就是江泽民．和江志成．孟建柱和孙力军……王岐山！这就是过去两周他们要栽赃文贵](/content/transcript/2019/07/20190715-53482817.md)
-
-[郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件](/content/transcript/2019/07/20190715-53478805.md)
 
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)

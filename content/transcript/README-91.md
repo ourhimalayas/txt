@@ -3,6 +3,12 @@
 
 ## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月10日第二次直播 20180910_2马云辞职的真正的目的与动机漫天过海！](/content/transcript/2018/09/20180910-53482559.md)
+
+[郭文贵2018年9月10日第一次直播 20180910_1马云辞职的真正原因](/content/transcript/2018/09/20180910-53482536.md)
+
+[郭文贵2018年9月10日直播 20180910_3文贵在雨中建议所有的战友们观看"斯大林之死"这部电影](/content/transcript/2018/09/20180910-53478215.md)
+
 [郭文贵2018年9月10日视频 20180910_4船上视频：刚刚从海浪中归来的感受](/content/transcript/2018/09/20180910-53477264.md)
 
 [郭文贵2018年9月9日直播 20180909_1](/content/transcript/2018/09/20180909-53478209.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年8月23日视频 20180823在船上谈王建](/content/transcript/2018/08/20180823-53482512.md)
 
 [郭文贵2018年8月20日视频 20180820](/content/transcript/2018/08/20180820-53482479.md)
-
-[郭文贵2018年8月20日视频 20180820_2Snow小视频](/content/transcript/2018/08/20180820-53478160.md)
-
-[郭文贵2018年8月19日直播 20180819_1紧急会议前苍促视频报平安](/content/transcript/2018/08/20180819-53478178.md)
-
-[郭文贵2018年8月18日直播 20180818_1文贵推特被封,请战友不要关闭推特 王健事件相关人员受到盗国贼威胁](/content/transcript/2018/08/20180818-53478174.md)
 
 
 ## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

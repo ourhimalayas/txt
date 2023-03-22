@@ -3,6 +3,12 @@
 
 ## 頁面 92/110 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月20日视频 20180820_2Snow小视频](/content/transcript/2018/08/20180820-53478160.md)
+
+[郭文贵2018年8月19日直播 20180819_1紧急会议前苍促视频报平安](/content/transcript/2018/08/20180819-53478178.md)
+
+[郭文贵2018年8月18日直播 20180818_1文贵推特被封,请战友不要关闭推特 王健事件相关人员受到盗国贼威胁](/content/transcript/2018/08/20180818-53478174.md)
+
 [郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了](/content/transcript/2018/08/20180818-53477255.md)
 
 [郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/transcript/2018/08/20180817-53483668.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台](/content/transcript/2018/08/20180808-53478114.md)
 
 [郭文贵2018年8月8日直播 20180808_2与国内来的女朋友海边兜风️️️](/content/transcript/2018/08/20180808-53478109.md)
-
-[郭文贵2018年8月8日直播 20180808_1想念战友](/content/transcript/2018/08/20180808-53478106.md)
-
-[郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！](/content/transcript/2018/08/20180807-53482465.md)
-
-[郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒](/content/transcript/2018/08/20180807-53478104.md)
 
 
 ## 頁面 92/110 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,12 @@
 
 ## 頁面 103/110 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年10月26日第二次直播 20171026_2](/content/transcript/2017/10/20171026-53484010.md)
+
+[郭文贵2017年10月26日视频 20171026_3直播公告](/content/transcript/2017/10/20171026-53476952.md)
+
+[郭文贵2017年10月23日直播 20171023_1与澳纽挺郭后援会视频通话](/content/transcript/2017/10/20171023-53482802.md)
+
 [郭文贵2017年10月21日视频 20171021十九大停播后对欧洲挺郭后援团寄语重托和厚望](/content/transcript/2017/10/20171021-53476947.md)
 
 [郭文贵2017年10月15日视频 20171015两会所有的代表们都在讨论文贵爆料](/content/transcript/2017/10/20171015-53476941.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年9月26日 20170926任何一个同胞都应该听的视频这是 2017年5月26日 与刘彦平书记在纽约两次开会后——经孙立军要求我去华盛顿去见面，这是我们语音沟通的一部分。](/content/transcript/2017/09/20170926-53484009.md)
 
 [郭文贵2017年9月26日视频 20170926_2酒店警告不准看郭视频 断网还要断电吗？](/content/transcript/2017/09/20170926-53483592.md)
-
-[郭文贵2017年9月25日视频 20170925首发爆料后国内炸了锅了！](/content/transcript/2017/09/20170925-53483590.md)
-
-[郭文贵2017年9月24日 20170924文贵爆料中国盗国贼首场全球信息发＂不＂会（原版、未作任何刪減）！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！](/content/transcript/2017/09/20170924-53484087.md)
-
-[郭文贵2017年9月23日视频 20170923预告第二天全球发布会首场直播 关于盗国贼们的巨额财富私生子非法身份](/content/transcript/2017/09/20170923-53483535.md)
 
 
 ## 頁面 103/110 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)

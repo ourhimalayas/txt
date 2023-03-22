@@ -3,6 +3,12 @@
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月22日视频 20181022_1加林槍射擊CCP](/content/transcript/2018/10/20181022-53478324.md)
+
+[郭文贵2018年10月21日 20181021_1澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑](/content/transcript/2018/10/20181021-53483707.md)
+
+[郭文贵2018年10月21日 20181021_3澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 3](/content/transcript/2018/10/20181021-53477478.md)
+
 [郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2](/content/transcript/2018/10/20181021-53477469.md)
 
 [郭文贵2018年10月20日视频 20181020_1三個月前在華盛頓認識的美國戰友家人](/content/transcript/2018/10/20181020-53478323.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击](/content/transcript/2018/10/20181008-53478122.md)
 
 [郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击](/content/transcript/2018/10/20181008-53478121.md)
-
-[郭文贵2018年10月6日 20181006文贵与班农接受著名对冲基金经理采访,讲述中共政治黑幕和孟宏伟失踪事件](/content/transcript/2018/10/20181006-53482777.md)
-
-[郭文贵2018年10月6日视频 20181006_5](/content/transcript/2018/10/20181006-53478334.md)
-
-[郭文贵2018年10月6日视频 20181006_4](/content/transcript/2018/10/20181006-53478331.md)
 
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)

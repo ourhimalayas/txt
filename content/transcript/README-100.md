@@ -3,6 +3,12 @@
 
 ## 頁面 100/110 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月10日第四次直播 20180210_4吴征这个大骗子……为什么会如此猖狂？骂郭战友们的下场如何？](/content/transcript/2018/02/20180210-53483983.md)
+
+[郭文贵2018年2月10日第一次直播 20180210_1马云，与吴征，陈军，袁建彬，这一系列疯狂的行为 到底想干什么？](/content/transcript/2018/02/20180210-53483980.md)
+
+[郭文贵2018年2月10日第二次直播 20180210_2政治！经济！情色骗子，陈军，吴征与马云，流氓袁建斌是 什么样利益关系？](/content/transcript/2018/02/20180210-53483976.md)
+
 [郭文贵2018年2月10日第三次直播 20180210_3钓鱼网站骗子韦石，屎诺，朋友骗子陈军，民主骗子李伟 东，流氓骗子袁建彬与吴征时什么关系？](/content/transcript/2018/02/20180210-53483974.md)
 
 [郭文贵2018年2月10日第五次直播 20180210_5大骗子吴征的汉奸爷爷，真的救过几万个犹太人么？](/content/transcript/2018/02/20180210-53483972.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年1月30日第一次直播 20180130_1关于盲流子爆料](/content/transcript/2018/01/20180130-53484204.md)
 
 [郭文贵2018年1月30日第二次直播 20180130_2回应“盲流子”视频，披露相关背景；谈王岐山“复出”和“文贵春晚”。](/content/transcript/2018/01/20180130-53484110.md)
-
-[郭文贵2018年1月30日第三次直播 20180130_3国内的很多战友给我发来信息．问文贵看春晚的节目的重点是什么现在我向大家汇报！](/content/transcript/2018/01/20180130-53484108.md)
-
-[郭文贵2018年1月29日直播 20180129_1郭媒体视频郭文贵先生春节晚会节目预告](/content/transcript/2018/01/20180129-53482796.md)
-
-[郭文贵2018年1月28日直播 20180128_1郭媒体最新测试视频钓贼完整版](/content/transcript/2018/01/20180128-53482792.md)
 
 
 ## 頁面 100/110 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)

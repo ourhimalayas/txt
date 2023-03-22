@@ -3,6 +3,12 @@
 
 ## 頁面 98/110 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年3月20日第一次直播 20180320_1今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/content/transcript/2018/03/20180320-53481833.md)
+
+[郭文贵2018年3月18日视频 20180318再谈如何掏肛盗国贼](/content/transcript/2018/03/20180318-53481807.md)
+
+[郭文贵2018年3月17日视频 20180317谈王岐山当选副主席郭七条不变，喜马拉雅法治中国目标不变](/content/transcript/2018/03/20180317-53481951.md)
+
 [郭文贵2018年3月16日第一次直播 20180316_1如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/content/transcript/2018/03/20180316-53483695.md)
 
 [郭文贵2018年3月16日第二次直播 20180316_2推特拉黑了谁？如何用智慧铲灭盗国贼！](/content/transcript/2018/03/20180316-53483690.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年3月4日报平安视频 20180304_3文贵呼吁所有的援郭的战友们以家庭安全．正常生活为重……全球一致行动！](/content/transcript/2018/03/20180304-53481371.md)
 
 [郭文贵2018年3月4日第一次直播 20180304_1这是3月4日录制的第二个视频！一切都是刚刚开始！](/content/transcript/2018/03/20180304-53481301.md)
-
-[郭文贵2018年3月4日第二次直播 20180304_2这是3月4号的视频！](/content/transcript/2018/03/20180304-53481270.md)
-
-[郭文贵2018年3月3日视频 20180303出其不意 ,会师挺郭后援会成员! 场面感人!!!](/content/transcript/2018/03/20180303-53477358.md)
-
-[郭文贵2018年3月2日直播 20180302_1尊敬的战友们好：文贵从元宵节太太喝醉．谈谈，轮回报应．同时再谈谈盗国贼的未来……我衷心祝福援郭会的兄弟姐妹，今天的全球联合大游行战友们平平安安！顺顺利利！????????????????????????](/content/transcript/2018/03/20180302-53477293.md)
 
 
 ## 頁面 98/110 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)

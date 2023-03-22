@@ -3,6 +3,12 @@
 
 ## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月13日视频 20190813关于香港情况](/content/transcript/2019/08/20190813-53483027.md)
+
+[2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压](/content/transcript/2019/08/20190812-53795616.md)
+
+[郭文贵2019年8月12日第一次直播 20190812_1在车上Miles Kwok live streaming from car: the CCP showed its true colors during its crackdown..](/content/transcript/2019/08/20190812-53483007.md)
+
 [郭文贵2019年8月12日第二次直播 20190812_2 Mr. Miles Kwok live stream: letting everyone know that he is safe. What Hong Kongers...](/content/transcript/2019/08/20190812-53483001.md)
 
 [2019年8月11日《文贵大直播》全文字版：船上直播高度关注香港](/content/transcript/2019/08/20190811-53741198.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年8月3日视频 20190803_2-當共產黨說不幹甚麼的時候 就是他想幹甚麼的時候](/content/transcript/2019/08/20190803-53478890.md)
 
 [郭文贵2019年8月2日视频 20190802_1](/content/transcript/2019/08/20190802-53478885.md)
-
-[郭文贵2019年8月1日视频 20190801共产党下达香港戒严令](/content/transcript/2019/08/20190801-53482921.md)
-
-[郭文贵2019年8月1日视频 20190801_3戒严令由戒严指挥部统一指挥](/content/transcript/2019/08/20190801-53478883.md)
-
-[郭文贵2019年8月1日视频 20190801_2中午1200将和几个香港命运有关的人开会……香港的命运现在处在关键的时刻……望我们所有的志在灭共的战友们．在自己安全．能力．能承受的情况下，全力以赴通过各种手段支持香港同胞们](/content/transcript/2019/08/20190801-53478873.md)
 
 
 ## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

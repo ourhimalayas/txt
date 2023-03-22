@@ -3,6 +3,12 @@
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月10日视频 20190610_3细思小哥在喜马拉雅大使馆与小庄、文贵和班农直播](/content/transcript/2019/06/20190610-53478730.md)
+
+[郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”](/content/transcript/2019/06/20190610-53478704.md)
+
+[郭文贵2019年6月9日直播 20190609_3班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播](/content/transcript/2019/06/20190609-53482310.md)
+
 [郭文贵2019年6月9日直播 20190609_2班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播中部分！](/content/transcript/2019/06/20190609-53482181.md)
 
 [郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！](/content/transcript/2019/06/20190609-53482134.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年5月20日视频 20190520接下来．我们中国及香港的经济．金融．将一塌糊涂．远超出大家的想象](/content/transcript/2019/05/20190520-53482631.md)
 
 [郭文贵2019年5月19日视频 第三部分 20190519_3Pt5 Miles Kwok live broadcast on Hudson River.](/content/transcript/2019/05/20190519-53482626.md)
-
-[郭文贵2019年5月19日视频 第二部分 20190519_2郭文贵先生哈德遜河直播（1） Pt4 Miles Kwok live broadcast on Hudson River.](/content/transcript/2019/05/20190519-53482615.md)
-
-[郭文贵2019年5月19日视频 第一部分 20190519_1Pt2 Miles Kwok live broadcast on Hudson River.](/content/transcript/2019/05/20190519-53482608.md)
-
-[郭文贵2019年5月19日视频 20190519_4昨天平板撐做了32分鐘 今天只做了25分鐘](/content/transcript/2019/05/20190519-53478719.md)
 
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

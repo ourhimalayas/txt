@@ -3,6 +3,12 @@
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年11月26日第一次直播 20171126_1在Livestream 试播](/content/transcript/2017/11/20171126-53483921.md)
+
+[郭文贵2017年11月26日第二次直播 20171126_2](/content/transcript/2017/11/20171126-53483911.md)
+
+[郭文贵2017年11月23日第一次直播 20171123_1就近况回答明镜电视追问](/content/transcript/2017/11/20171123-53484306.md)
+
 [郭文贵2017年11月23日第二次直播 20171123_2感恩节报平安](/content/transcript/2017/11/20171123-53483906.md)
 
 [郭文贵2017年11月21日Instagram健身直播 20171121](/content/transcript/2017/11/20171121-53483903.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年10月27日视频 20171027](/content/transcript/2017/10/20171027-53484022.md)
 
 [郭文贵2017年10月26日第一次直播 20171026_1十九大后爆料计划](/content/transcript/2017/10/20171026-53484019.md)
-
-[郭文贵2017年10月26日第二次直播 20171026_2](/content/transcript/2017/10/20171026-53484010.md)
-
-[郭文贵2017年10月26日视频 20171026_3直播公告](/content/transcript/2017/10/20171026-53476952.md)
-
-[郭文贵2017年10月23日直播 20171023_1与澳纽挺郭后援会视频通话](/content/transcript/2017/10/20171023-53482802.md)
 
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

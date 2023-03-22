@@ -3,6 +3,12 @@
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月6日 20181006文贵与班农接受著名对冲基金经理采访,讲述中共政治黑幕和孟宏伟失踪事件](/content/transcript/2018/10/20181006-53482777.md)
+
+[郭文贵2018年10月6日视频 20181006_5](/content/transcript/2018/10/20181006-53478334.md)
+
+[郭文贵2018年10月6日视频 20181006_4](/content/transcript/2018/10/20181006-53478331.md)
+
 [郭文贵2018年10月6日视频 20181006_3](/content/transcript/2018/10/20181006-53478327.md)
 
 [郭文贵2018年10月6日视频 20181006_2](/content/transcript/2018/10/20181006-53478326.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓](/content/transcript/2018/09/20180923-53478297.md)
 
 [郭文贵2018年9月22日视频 20180922香港．台湾．上海．股市．汇市……可能发生天翻地覆的变化！](/content/transcript/2018/09/20180922-53482637.md)
-
-[郭文贵2018年9月22日视频 20180922_4文貴周末為家人做魚肉丸 用趕麵杖趕魚肉](/content/transcript/2018/09/20180922-53478295.md)
-
-[郭文贵2018年9月22日视频 20180922_3文貴周末為家人做魚肉丸](/content/transcript/2018/09/20180922-53478290.md)
-
-[郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯](/content/transcript/2018/09/20180922-53478287.md)
 
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

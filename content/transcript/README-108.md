@@ -3,6 +3,12 @@
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年6月11日视频 20170611](/content/transcript/2017/06/20170611-53483871.md)
+
+[郭文贵2017年6月10日第一次直播 20170610_1有关海南航空的公告的回复](/content/transcript/2017/06/20170610-53483866.md)
+
+[郭文贵2017年6月10日第二次直播 20170610_2](/content/transcript/2017/06/20170610-53483861.md)
+
 [郭文贵2017年6月8日直播 20170608_1明鏡專訪郭文貴對盤古案的期待 60分](/content/transcript/2017/06/20170608-53482753.md)
 
 [郭文贵2017年6月7日视频 20170607推特报平安](/content/transcript/2017/06/20170607-53483780.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年5月17日视频 20170517家庭国家和社会的关系](/content/transcript/2017/05/20170517-53483913.md)
 
 [郭文贵2017年5月16日视频 20170516](/content/transcript/2017/05/20170516-53483891.md)
-
-[郭文贵2017年5月15日视频 20170515_1](/content/transcript/2017/05/20170515-53483877.md)
-
-[郭文贵2017年5月15日视频 20170515_2報平安 2被骇后再开！](/content/transcript/2017/05/20170515-53483772.md)
-
-[郭文贵2017年5月13日视频 20170513](/content/transcript/2017/05/20170513-53483867.md)
 
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,12 @@
 
 ## 頁面 84/110 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月15日视频 20190115_1两天前！我出去见朋友！CCP很多人跟踪我！他们这种做法一定会受到美国的法律的严惩](/content/transcript/2019/01/20190115-53478530.md)
+
+[郭文贵2019年1月14日视频 20190114_2试直播设备](/content/transcript/2019/01/20190114-53478525.md)
+
+[郭文贵2019年1月14日视频 20190114_1你们知道我昨天去见的是谁吗](/content/transcript/2019/01/20190114-53478520.md)
+
 [郭文贵2019年1月13日视频 20190113_2看看我的新車 多酷](/content/transcript/2019/01/20190113-53478517.md)
 
 [郭文贵2019年1月13日视频 20190113_1班農已確定參加春晚爆料, Absolutely](/content/transcript/2019/01/20190113-53478510.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年12月31日视频 20181231_1明天2019年1月1日纽约时间上午10点整，北京时间晚上11点整，卡丽熙將采访郭文贵](/content/transcript/2018/12/20181231-53478467.md)
 
 [郭文贵2018年12月30日视频 20181230_1川普总统将向CCP要求中国人必须有宗教的自由．信仰的自由！](/content/transcript/2018/12/20181230-53478465.md)
-
-[郭文贵2018年12月29日谈马建案 20181229接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/transcript/2018/12/20181229-53481507.md)
-
-[郭文贵2018年12月28日视频 20181228_1昨天晚上两位老领导打电话给我让我当俊杰说我身边有千军万马在等命令随时灭我我好怕怕哦](/content/transcript/2018/12/20181228-53478461.md)
-
-[郭文贵2018年12月27日视频 20181227 原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！](/content/transcript/2018/12/20181227-53481471.md)
 
 
 ## 頁面 84/110 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

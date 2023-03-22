@@ -3,6 +3,12 @@
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年3月2日视频 20190302_3与战友们分享媳妇刚刚组装的乐高越野赛车！](/content/transcript/2019/03/20190302-53478646.md)
+
+[郭文贵2019年3月2日视频 20190302_2尊敬的战友们好！纽约今天下了大雪！非常的漂亮浪漫极了！我正在准备两个小时以后的直播！一切都是刚刚开始！](/content/transcript/2019/03/20190302-53478644.md)
+
+[郭文贵2019年2月28日视频 20190228文贵报平安谈金正恩谈判的破裂和蓝标公司在美国犯罪的各种信息。](/content/transcript/2019/02/20190228-53482094.md)
+
 [郭文贵2019年2月28日视频 20190228_3政事这小哥你在哪？如果你把豆豆还给我们！我就送你一个乐高遥控车可以吗？请回复！请回复](/content/transcript/2019/02/20190228-53478641.md)
 
 [郭文贵2019年2月28日视频 20190228_2应战友的要求做一组 俯卧撑视频！文贵这都是硬撑着装出来的！ 如果大家觉得还行啊，择机再做三组给大家．再撑三下，把郭3秒变成郭三组！](/content/transcript/2019/02/20190228-53478638.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年2月4日中文 20190204_2除夕去共赢正道爆料春晚](/content/transcript/2019/02/20190204-53482129.md)
 
 [郭文贵2019年2月4日视频 20190204_3赶饺子????皮！感恩美国感恩战友！感恩上天！](/content/transcript/2019/02/20190204-53478574.md)
-
-[郭文贵2019年2月3日视频 20190203_1除夕前一天报平安](/content/transcript/2019/02/20190203-53478571.md)
-
-[郭文贵2019年2月2日视频 20190202_1委内瑞拉的局势变化正是未來中國變局最好的樣板！和3月20号习近平先生的访问梵蒂冈！川金会川习会！](/content/transcript/2019/02/20190202-53478572.md)
-
-[郭文贵2019年2月1日视频 20190201_1昨天刘鹤跟川普团队谈判后的自己的感受！ 王健被自己的生殖器戳死](/content/transcript/2019/02/20190201-53478567.md)
 
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

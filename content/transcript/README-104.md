@@ -3,6 +3,12 @@
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月25日视频 20170925首发爆料后国内炸了锅了！](/content/transcript/2017/09/20170925-53483590.md)
+
+[郭文贵2017年9月24日 20170924文贵爆料中国盗国贼首场全球信息发＂不＂会（原版、未作任何刪減）！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！](/content/transcript/2017/09/20170924-53484087.md)
+
+[郭文贵2017年9月23日视频 20170923预告第二天全球发布会首场直播 关于盗国贼们的巨额财富私生子非法身份](/content/transcript/2017/09/20170923-53483535.md)
+
 [郭文贵2017年9月22日视频 20170922美国官员把我当成小白兔一样呵护我](/content/transcript/2017/09/20170922-53483589.md)
 
 [郭文贵2017年9月21日视频 20170921吴征在美国造谣 今明两天开董事会](/content/transcript/2017/09/20170921-53483587.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年9月5日直播 20170905_1新领导孙力军副部长有了大决定](/content/transcript/2017/09/20170905-53482795.md)
 
 [郭文贵2017年9月4日关于鲍彤先生 20170904关于鲍彤先生痛心我与老领导见面的音频，几个问题得澄清！](/content/transcript/2017/09/20170904-53483954.md)
-
-[郭文贵2017年9月3日直播 20170903_1直播怀疑刘呈杰姐姐刚死。三段视频，被骇四次](/content/transcript/2017/09/20170903-53482789.md)
-
-[郭文贵2017年9月2日 20170902爆孟建柱孙力军盗国淫法阴谋杀人灭口，盗国系列:第二季第二集](/content/transcript/2017/09/20170902-53483943.md)
-
-[郭文贵2017年9月2日视频 20170902_2感谢楼下挺郭的朋友们](/content/transcript/2017/09/20170902-53483559.md)
 
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)

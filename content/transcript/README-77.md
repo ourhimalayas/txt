@@ -3,6 +3,12 @@
 
 ## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-53545783.md)
+
+[郭文贵2019年6月20日视频 20190620王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-53482793.md)
+
+[2019年6月18日文贵纽约时间晚上8点直播全文字版：关于香港21日再次上街](/content/transcript/2019/06/20190618-53544051.md)
+
 [郭文贵2019年6月18日视频 20190618关于6月21日的再次示威行动](/content/transcript/2019/06/20190618-53482788.md)
 
 [香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》](/content/transcript/2019/06/20190617-53557443.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港](/content/transcript/2019/06/20190611-53479036.md)
 
 [郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？](/content/transcript/2019/06/20190610-53482533.md)
-
-[郭文贵2019年6月10日视频 20190610_3细思小哥在喜马拉雅大使馆与小庄、文贵和班农直播](/content/transcript/2019/06/20190610-53478730.md)
-
-[郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”](/content/transcript/2019/06/20190610-53478704.md)
-
-[郭文贵2019年6月9日直播 20190609_3班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播](/content/transcript/2019/06/20190609-53482310.md)
 
 
 ## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
