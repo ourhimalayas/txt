@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/22/2023 12:31 AM UTC  - :tv:直播](/content/gettr/p2c6cktfdad.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/21/2023 11:31 PM UTC  - :tv:直播](/content/gettr/p2c6za1a3db.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
@@ -106,7 +114,7 @@
 
 ---
 
-[@milesguo 3/22/2023 12:31 AM UTC  - :tv:直播](/content/gettr/p2c6cktfdad.md)
+[@milesguo 3/22/2023 1:01 AM UTC  - :tv:直播](/content/gettr/p2c73on292a.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
 
@@ -151,14 +159,6 @@ gmusic7.com 🔥
 [@milesguo 3/21/2023 11:11 AM UTC  - :tv:直播](/content/gettr/p2c4ay9c050.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 8:20 AM UTC  - :tv:直播](/content/gettr/p2c468d556c.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第二十九场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
