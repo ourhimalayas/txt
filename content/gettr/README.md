@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/22/2023 11:59 AM UTC  - :tv:直播](/content/gettr/p2c7tkj724f.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/22/2023 11:04 AM UTC  - :tv:直播](/content/gettr/p2c7rsn3d13.md)
+
+03/21/2023 During an interview on Conservative Daily Podcast, Ava Chen used the Lady May yacht purchase as an example to expose the cheap lies of the SEC and DOJ: They claimed that Lady May was purchased with the proceeds of a frau...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/22/11/82cc3c4f-1c65-b99f-50c7-2809f1e4acda/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 10:58 AM UTC  - :tv:直播](/content/gettr/p2c8c792de3.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
@@ -18,11 +34,11 @@
 
 ---
 
-[@milesguo 3/22/2023 11:04 AM UTC  - :tv:直播](/content/gettr/p2c7rsn3d13.md)
+[@milesguo 3/22/2023 11:59 AM UTC  - :tv:直播](/content/gettr/p2c8dzi6aaa.md)
 
-03/21/2023 During an interview on Conservative Daily Podcast, Ava Chen used the Lady May yacht purchase as an example to expose the cheap lies of the SEC and DOJ: They claimed that Lady May was purchased with the proceeds of a frau...
+03/21/2023 Ava Chen: The big tech companies, which America derives its soft power from and which the American people are proud of, have been infiltrated by the CCP years ago. The CCP’s DDoS attack on Twitter to stop Miles Guo from ...
 
-<img src="https://media.gettr.com/group8/getter/2023/03/22/11/82cc3c4f-1c65-b99f-50c7-2809f1e4acda/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/22/11/b781e7f4-6756-3e6f-9d03-6f214d21555c/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
 ---
 
 [@milesguo 3/22/2023 2:01 AM UTC  - :tv:直播](/content/gettr/p2c6sjh1417.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 1:01 AM UTC  - :tv:直播](/content/gettr/p2c73on292a.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 12:31 AM UTC  - :tv:直播](/content/gettr/p2c6cktfdad.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
 
