@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/22/2023 6:00 PM UTC  - :tv:直播](/content/gettr/p2c97v8037d.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 5:22 PM UTC ](/content/gettr/p2c8urvf6fd.md)
 
 2023.03.22 
@@ -36,7 +44,7 @@
 
 ---
 
-[@milesguo 3/22/2023 6:00 PM UTC  - :tv:直播](/content/gettr/p2c97v8037d.md)
+[@milesguo 3/22/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2c9di823af.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
 
@@ -169,20 +177,6 @@
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 8:10 AM UTC  - :tv:直播](/content/gettr/p2c7yea8b80.md)
-
-3/21/2023 Himalaya Global Alliance Committee Announcement No. 00069: Briefing on brother Miles' phone call on March 21
-
-#FreeMilesGuoNow #HimalayaGlobalAlliance #NFSC #TakedowntheCCP
-
-
-
-3/21/2023 喜马拉雅联盟委员会第00069号公告《七哥3月21日报平安电话主要内容...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/22/08/4d4e8447-ba21-2d19-7dda-3c86cccf3e27/out.jpg" width="506" height="284">
 
 ---
 
