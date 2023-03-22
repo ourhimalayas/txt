@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/22/2023 4:41 AM UTC  - :tv:直播](/content/gettr/p2c7m4n9579.md)
+
+3/20/2023 Guo Mei: A few minutes ago, I received another phone call from my dad. He is doing very well now and can freely make phone calls. His exact words were, "Unity, unity, unity! Persist! Don't be angry! Don't cry! Stay mental...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/22/04/f4c6a3bc-8a25-cea2-8cd9-60defebc8903/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 4:00 AM UTC  - :tv:直播](/content/gettr/p2c75qc51cf.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
@@ -18,11 +26,11 @@
 
 ---
 
-[@milesguo 3/22/2023 4:41 AM UTC  - :tv:直播](/content/gettr/p2c7m4n9579.md)
+[@milesguo 3/22/2023 4:58 AM UTC  - :tv:直播](/content/gettr/p2c7ezea4e9.md)
 
-3/20/2023 Guo Mei: A few minutes ago, I received another phone call from my dad. He is doing very well now and can freely make phone calls. His exact words were, "Unity, unity, unity! Persist! Don't be angry! Don't cry! Stay mental...
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
 
-<img src="https://media.gettr.com/group3/getter/2023/03/22/04/f4c6a3bc-8a25-cea2-8cd9-60defebc8903/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ No.2🥈 on New Zealand🇳🇿, Taiwan🇹🇼 and Denmark🇩🇰 Top ...
 [@milesguo 3/21/2023 3:05 PM UTC  - :tv:直播](/content/gettr/p2c4pk2aa7d.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十一场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 2:00 PM UTC  - :tv:直播](/content/gettr/p2c535n2bee.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
