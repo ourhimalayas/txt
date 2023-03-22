@@ -10,6 +10,40 @@
 
 ---
 
+[@milesguo 3/22/2023 5:22 PM UTC ](/content/gettr/p2c8urvf6fd.md)
+
+2023.03.22 
+
+郭文贵歌曲iTunes打榜记录 https://gnews.org/articles/1036349
+
+
+
+《微风细雨》登榜iTunes  
+
+柬埔寨🇰🇭、马耳他🇲🇹热门歌曲榜第一名🥇  
+
+新西兰🇳🇿、新加坡🇸🇬热门歌曲榜第二名🥈  
+
+丹麦🇩🇰热门歌曲榜第三名🥉  
+
+
+
+柬埔寨🇰🇭、马耳他🇲🇹流行歌曲榜第一名🥇  
+
+新西兰🇳🇿、新加坡🇸🇬流行歌曲榜第二名🥈  
+
+丹麦🇩🇰流行...
+
+---
+
+[@nsfcspeaksoffical 3/22/2023 5:08 PM UTC  - :tv:直播](/content/gettr/p2c8z358a9d.md)
+
+2023.03.22 NFSC SPEAKS WEDNESDAY WITH MARK SZUSKIEWICZ
+
+<img src="https://media.gettr.com/group9/origin/2023/03/22/16/c5bbed92-0881-82c8-f7db-80a9471c6377/8afd95032650d93da7eeeac2a1d118bb.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 4:06 PM UTC  - :tv:直播](/content/gettr/p2c8jfx8fdb.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
@@ -31,14 +65,6 @@
 03/21/2023 During an interview on Conservative Daily Podcast, Ava Chen used the Lady May yacht purchase as an example to expose the cheap lies of the SEC and DOJ: They claimed that Lady May was purchased with the proceeds of a frau...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/22/13/2adfc1a3-9ecc-0c89-d521-ef4ea4e7229e/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 3/22/2023 5:08 PM UTC  - :tv:直播](/content/gettr/p2c8z358a9d.md)
-
-2023.03.22 NFSC SPEAKS WEDNESDAY WITH MARK SZUSKIEWICZ
-
-<img src="https://media.gettr.com/group9/origin/2023/03/22/16/c5bbed92-0881-82c8-f7db-80a9471c6377/8afd95032650d93da7eeeac2a1d118bb.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +183,6 @@
 3/21/2023 喜马拉雅联盟委员会第00069号公告《七哥3月21日报平安电话主要内容...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/22/08/4d4e8447-ba21-2d19-7dda-3c86cccf3e27/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 7:36 AM UTC  - :tv:直播](/content/gettr/p2c7edj99c3.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
