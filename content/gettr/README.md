@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/22/2023 5:06 PM UTC  - :tv:直播](/content/gettr/p2c8pdh0816.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/22/2023 4:06 PM UTC  - :tv:直播](/content/gettr/p2c8jfx8fdb.md)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 3:01 PM UTC  - :tv:直播](/content/gettr/p2c8t1y98f5.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
@@ -18,11 +34,11 @@
 
 ---
 
-[@milesguo 3/22/2023 4:06 PM UTC  - :tv:直播](/content/gettr/p2c8jfx8fdb.md)
+[@nsfcspeaksoffical 3/22/2023 5:08 PM UTC  - :tv:直播](/content/gettr/p2c8z358a9d.md)
 
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
+2023.03.22 NFSC SPEAKS WEDNESDAY WITH MARK SZUSKIEWICZ
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/03/22/16/c5bbed92-0881-82c8-f7db-80a9471c6377/8afd95032650d93da7eeeac2a1d118bb.jpeg" width="506" height="284">
 
 ---
 
@@ -145,22 +161,6 @@
 ---
 
 [@milesguo 3/22/2023 7:36 AM UTC  - :tv:直播](/content/gettr/p2c7edj99c3.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 6:25 AM UTC  - :tv:直播](/content/gettr/p2c7odm23c8.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 4:58 AM UTC  - :tv:直播](/content/gettr/p2c7ezea4e9.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
 
