@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/22/2023 1:01 AM UTC  - :tv:直播](/content/gettr/p2c73on292a.md)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 12:31 AM UTC  - :tv:直播](/content/gettr/p2c6cktfdad.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
@@ -114,7 +122,7 @@
 
 ---
 
-[@milesguo 3/22/2023 1:01 AM UTC  - :tv:直播](/content/gettr/p2c73on292a.md)
+[@milesguo 3/22/2023 2:01 AM UTC  - :tv:直播](/content/gettr/p2c6sjh1417.md)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第四十九场）
 
@@ -153,14 +161,6 @@ gmusic7.com 🔥
 [@milesguo 3/21/2023 12:09 PM UTC ](/content/gettr/p2c4nsw0416.md)
 
 2023.03.20 战友们好，我是郭美。继上次电话之后，几分钟前终于又接到了爸爸打来的电话。他状态非常的好，现在可以自由的打电话。他说正在当大家的健身教练，打篮球还10球四进（说的时候还很骄傲）一切都好，让战友们不要担心。原话：“团结 团结 团结！坚持！不要愤怒！不要哭！心理上战胜一切！” 他笑声爽朗，语气自信放松。这几日让各位煎熬了，感谢你们每一刻的陪伴和坚韧！有新消息会及时告知。谢谢🙏
-
----
-
-[@milesguo 3/21/2023 11:11 AM UTC  - :tv:直播](/content/gettr/p2c4ay9c050.md)
-
-2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
