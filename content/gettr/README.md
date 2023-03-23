@@ -2,9 +2,9 @@
 ---
 
 
-[@milesguo 3/22/2023 11:59 AM UTC  - :tv:直播](/content/gettr/p2c7tkj724f.md)
+[@milesguo 3/23/2023 12:34 AM UTC  - :tv:直播](/content/gettr/p2ca8gjb24a.md)
 
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十二场）
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第七十六场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
