@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/23/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2ccf3ia896.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 4:11 PM UTC  - :tv:直播](/content/gettr/p2cctbn6a01.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
@@ -34,11 +42,11 @@
 
 ---
 
-[@milesguo 3/23/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2ccf3ia896.md)
+[@nsfcspeaksoffical 3/23/2023 5:17 PM UTC  - :tv:直播](/content/gettr/p2cd31788d9.md)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+2023.03.23 NFSC SPEAKS THURSDAY WITH BRAD GOOD
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/03/23/17/06e85afe-6f34-ee02-b5d5-997060a09667/678bf36a1f25594b10b1e52156850997.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 ---
 
 [@milesguo 3/23/2023 8:55 AM UTC  - :tv:直播](/content/gettr/p2caxvb7344.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 8:01 AM UTC  - :tv:直播](/content/gettr/p2cb63049dc.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
 
