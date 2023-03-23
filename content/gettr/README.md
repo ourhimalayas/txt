@@ -10,11 +10,27 @@
 
 ---
 
+[@milesguo 3/23/2023 10:35 AM UTC  - :tv:直播](/content/gettr/p2cb9tkaace.md)
+
+03/22/2023 Nicole Tsai's interview with Winn Tucson: Mr. Miles Guo exposed the Chinese Communist Party's 13579 scheme back in 2017 and provided the intelligence to America. But bureaucrats at the FBI and other federal government ag...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/23/10/bef90bed-144a-b328-4e2c-98e28898304c/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 10:07 AM UTC  - :tv:直播](/content/gettr/p2cbe6ve37b.md)
 
 3/16/2023 Kathleen Winn’s interview with Prince Li: Mr. Guo's case shows that the CCP has weaponized the US government, and the DOJ and federal government agencies are helping and protecting the CCP rather than Miles Guo, who expos...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/23/10/f85473d0-3c70-86d5-df6d-db8519f2002f/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 10:08 AM UTC  - :tv:直播](/content/gettr/p2cbgfhbaf9.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -27,14 +43,6 @@
 ---
 
 [@milesguo 3/23/2023 8:46 AM UTC  - :tv:直播](/content/gettr/p2cbivlfb78.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 10:08 AM UTC  - :tv:直播](/content/gettr/p2cbgfhbaf9.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
 
@@ -161,14 +169,6 @@ No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
 ---
 
 [@milesguo 3/22/2023 7:58 PM UTC  - :tv:直播](/content/gettr/p2c91vye12f.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2c9di823af.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
 
