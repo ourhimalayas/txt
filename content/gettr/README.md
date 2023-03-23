@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/23/2023 8:46 AM UTC  - :tv:直播](/content/gettr/p2cbivlfb78.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 8:01 AM UTC  - :tv:直播](/content/gettr/p2cb63049dc.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 6:55 AM UTC  - :tv:直播](/content/gettr/p2cbgmr267a.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
@@ -26,7 +42,7 @@
 
 ---
 
-[@milesguo 3/23/2023 8:01 AM UTC  - :tv:直播](/content/gettr/p2cb63049dc.md)
+[@milesguo 3/23/2023 8:55 AM UTC  - :tv:直播](/content/gettr/p2caxvb7344.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
 
@@ -175,22 +191,6 @@ No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
 2023.03.22 NFSC SPEAKS WEDNESDAY WITH MARK SZUSKIEWICZ
 
 <img src="https://media.gettr.com/group9/origin/2023/03/22/16/c5bbed92-0881-82c8-f7db-80a9471c6377/8afd95032650d93da7eeeac2a1d118bb.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 4:06 PM UTC  - :tv:直播](/content/gettr/p2c8jfx8fdb.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 3:01 PM UTC  - :tv:直播](/content/gettr/p2c8t1y98f5.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
