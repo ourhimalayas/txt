@@ -3,6 +3,10 @@
 
 ## 頁面 92/110 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月24日视频 20180824澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/content/transcript/2018/08/20180824-53482516.md)
+
+[郭文贵2018年8月23日视频 20180823在船上谈王建](/content/transcript/2018/08/20180823-53482512.md)
+
 [郭文贵2018年8月20日视频 20180820](/content/transcript/2018/08/20180820-53482479.md)
 
 [郭文贵2018年8月20日视频 20180820_2Snow小视频](/content/transcript/2018/08/20180820-53478160.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年8月8日直播 20180808_6下一周是给盗国贼反击的时间文贵要准备发布会和刑事案件具体落实一切都是刚刚开始](/content/transcript/2018/08/20180808-53478131.md)
 
 [郭文贵2018年8月8日直播 20180808_5起诉欺民贼以爆料文贵上帝的名义诈骗的郭宝胜只是刚刚开始](/content/transcript/2018/08/20180808-53478128.md)
-
-[郭文贵2018年8月8日直播 20180808_4盗国贼为了掩盖杀王建的罪恶接下来将有以下的行动](/content/transcript/2018/08/20180808-53478118.md)
-
-[郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台](/content/transcript/2018/08/20180808-53478114.md)
 
 
 ## 頁面 92/110 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)

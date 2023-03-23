@@ -3,6 +3,10 @@
 
 ## 頁面 103/110 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年10月31日第二次直播 20171031_2关于郭文贵家人再次被捕被判](/content/transcript/2017/10/20171031-53484025.md)
+
+[郭文贵2017年10月27日视频 20171027](/content/transcript/2017/10/20171027-53484022.md)
+
 [郭文贵2017年10月26日第一次直播 20171026_1十九大后爆料计划](/content/transcript/2017/10/20171026-53484019.md)
 
 [郭文贵2017年10月26日第二次直播 20171026_2](/content/transcript/2017/10/20171026-53484010.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年9月29日视频 20170929北京老领导说信息梗阻 吴征杨澜来纽约了](/content/transcript/2017/09/20170929-53483601.md)
 
 [郭文贵2017年9月28日视频 20170928国内封网，放出曲龙，游虎给虎看！](/content/transcript/2017/09/20170928-53483600.md)
-
-[郭文贵2017年9月27日视频 20170927不要开会，不要搞募捐，要行动！](/content/transcript/2017/09/20170927-53483597.md)
-
-[郭文贵2017年9月26日 20170926任何一个同胞都应该听的视频这是 2017年5月26日 与刘彦平书记在纽约两次开会后——经孙立军要求我去华盛顿去见面，这是我们语音沟通的一部分。](/content/transcript/2017/09/20170926-53484009.md)
 
 
 ## 頁面 103/110 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)

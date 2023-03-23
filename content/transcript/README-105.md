@@ -3,6 +3,10 @@
 
 ## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！](/content/transcript/2017/09/20170906-53483863.md)
+
+[郭文贵2017年9月5日直播 20170905_1新领导孙力军副部长有了大决定](/content/transcript/2017/09/20170905-53482795.md)
+
 [郭文贵2017年9月4日关于鲍彤先生 20170904关于鲍彤先生痛心我与老领导见面的音频，几个问题得澄清！](/content/transcript/2017/09/20170904-53483954.md)
 
 [郭文贵2017年9月3日直播 20170903_1直播怀疑刘呈杰姐姐刚死。三段视频，被骇四次](/content/transcript/2017/09/20170903-53482789.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年8月22日直播 20170822_2](/content/transcript/2017/08/20170822-53482776.md)
 
 [郭文贵2017年8月21日视频 20170821盗国贼害怕了，用假女助理推特、假音频攻击文贵。’’今后10天不爆料，估计是在等国内的回应，否则孟建柱政法系就是下一波被爆料的对象](/content/transcript/2017/08/20170821-53484299.md)
-
-[郭文贵2017年8月20日直播 20170820_1推特四段小视频合集](/content/transcript/2017/08/20170820-53482774.md)
-
-[郭文贵2017年8月19日视频 20170819健身报平安小视频：既兴奋又难过。大战在即！和平革命！](/content/transcript/2017/08/20170819-53483784.md)
 
 
 ## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

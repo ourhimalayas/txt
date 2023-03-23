@@ -3,6 +3,10 @@
 
 ## 頁面 87/110 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月15日视频 20181115_3](/content/transcript/2018/11/20181115-53478397.md)
+
+[郭文贵2018年11月15日视频 20181115_2](/content/transcript/2018/11/20181115-53478395.md)
+
 [郭文贵2018年11月14日视频 20181114王健之死真相新聞發布會為什麼可能從11月19日延後一天改為11月20日](/content/transcript/2018/11/20181114-53481110.md)
 
 [郭文贵2018年11月13日视频 20181113民營企業家不能再成為共產黨的尿壺！](/content/transcript/2018/11/20181113-53480659.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年10月23日视频 20181023_4這幾天阿裡巴巴及騰訊的股票 港幣人民幣匯率 期指的變化怎麼回事](/content/transcript/2018/10/20181023-53478335.md)
 
 [郭文贵2018年10月23日视频 20181023_3給大家講一個猥瑣的驢子夏的笑話](/content/transcript/2018/10/20181023-53478333.md)
-
-[郭文贵2018年10月23日视频 20181023_2昨晚澳門的一個朋友突然出現在我家 嚇死我了](/content/transcript/2018/10/20181023-53478330.md)
-
-[郭文贵2018年10月23日视频 20181023_1Snow今天美容了 也做過了體檢 非常健康](/content/transcript/2018/10/20181023-53478328.md)
 
 
 ## 頁面 87/110 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年6月4日直播 20180604_1红冰与习近平拍女人屁股．砖拍李克强全是吹象乂……！](/content/transcript/2018/06/20180604-53477829.md)
+
+[郭文贵2018年6月3日直播 20180603_1文贵先生来到聊天室(51:53起)和网友共同热议六四！文贵先生爆料范冰冰已经到了洛杉矶，上面领导打招呼尽快离开。](/content/transcript/2018/06/20180603-53477823.md)
+
 [郭文贵2018年6月2日 20180602接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术！](/content/transcript/2018/06/20180602-53483787.md)
 
 [郭文贵2018年6月1日 20180601文贵视频为什么成为盗国贼的精神艾滋！](/content/transcript/2018/06/20180601-53483753.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年5月1日直播 20180501_3郭文贵先生突然进入聊天室，回答网友问答，谈北京盘古双龙戏珠的龙脉设计的内幕](/content/transcript/2018/05/20180501-53477786.md)
 
 [郭文贵2018年5月1日直播 20180501_2 聊聊外国人眼中的国人,真正的投资和股票](/content/transcript/2018/05/20180501-53477770.md)
-
-[郭文贵2018年5月1日直播 20180501_1我们中华名族遇到魔鬼了。](/content/transcript/2018/05/20180501-53477762.md)
-
-[郭文贵2018年4月29日直播 20180429_2文贵与战友聊天！](/content/transcript/2018/04/20180429-53477742.md)
 
 
 ## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

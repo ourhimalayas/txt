@@ -3,6 +3,10 @@
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月3日视频 20190503_4文贵在做平板称时的视频做得不标准，希望战友们不要秀文贵这样的做共28分钟。](/content/transcript/2019/05/20190503-53478694.md)
+
+[郭文贵2019年5月3日视频 20190503_3希望＂政经关不了＂永远都不被关！文贵将和你联系！与您连线直播！只要有利于台湾和台湾人民的事我都愿意干](/content/transcript/2019/05/20190503-53478688.md)
+
 [郭文贵2019年5月3日视频 20190503_2与战友分享日本拉面](/content/transcript/2019/05/20190503-53478684.md)
 
 [郭文贵2019年5月2日视频 20190502霍尔木兹海峡决定灭共是否成功 毛泽东，邓小平，妈祖．给我托梦了．人民大会堂委内瑞拉，台湾香港要出大事儿．郭台铭的梦是假的，哈哈哈哈，一切都是刚刚开始。](/content/transcript/2019/05/20190502-53482466.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)](/content/transcript/2019/04/20190417-53478630.md)
 
 [郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)](/content/transcript/2019/04/20190417-53478618.md)
-
-[郭文贵2019年4月17日视频 20190417_1在喜馬拉雅大使館試衛星WIFI](/content/transcript/2019/04/20190417-53478602.md)
-
-[郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展](/content/transcript/2019/04/20190416-53482312.md)
 
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

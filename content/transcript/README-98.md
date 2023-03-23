@@ -3,6 +3,10 @@
 
 ## 頁面 98/110 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年3月21日视频 20180321谈江曾两家是如何以65%的利息放高利贷的](/content/transcript/2018/03/20180321-53481917.md)
+
+[郭文贵2018年3月21日直播 20180321_2报平安短视频](/content/transcript/2018/03/20180321-53477363.md)
+
 [郭文贵2018年3月20日第二次直播 20180320_2谈盗国贼靠吴征能依法治国实现中国梦吗](/content/transcript/2018/03/20180320-53481862.md)
 
 [郭文贵2018年3月20日第一次直播 20180320_1今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/content/transcript/2018/03/20180320-53481833.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年3月8日直播 20180308_1修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/content/transcript/2018/03/20180308-53477307.md)
 
 [郭文贵2018年3月7日报平安视频 20180307修宪是为了人民吗？当然不是．修宪的本质是恐惧！](/content/transcript/2018/03/20180307-53481491.md)
-
-[郭文贵2018年3月5日直播 2018030517号后的两会你们会看到一个完全不一样的让你们惊讶的结果](/content/transcript/2018/03/20180305-53477298.md)
-
-[郭文贵2018年3月4日报平安视频 20180304_3文贵呼吁所有的援郭的战友们以家庭安全．正常生活为重……全球一致行动！](/content/transcript/2018/03/20180304-53481371.md)
 
 
 ## 頁面 98/110 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)

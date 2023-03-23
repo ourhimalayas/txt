@@ -3,6 +3,10 @@
 
 ## 頁面 106/110 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月20日直播 20170820_1推特四段小视频合集](/content/transcript/2017/08/20170820-53482774.md)
+
+[郭文贵2017年8月19日视频 20170819健身报平安小视频：既兴奋又难过。大战在即！和平革命！](/content/transcript/2017/08/20170819-53483784.md)
+
 [郭文贵2017年8月18日明镜专访第五期 20170818](/content/transcript/2017/08/20170818-53484121.md)
 
 [郭文贵2017年8月17日视频 20170817 香港女合伙人被孟建柱下令绑架回深圳．昨晚上自杀未遂而送医！盗国贼们，8.18见！](/content/transcript/2017/08/20170817-53483788.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年8月1日视频 20170801露点报平安,海上钓鱼,请君入瓮,后发制人](/content/transcript/2017/08/20170801-53483520.md)
 
 [郭文贵2017年7月27日 20170727王岐山的真姚庆到底怕什么](/content/transcript/2017/07/20170727-53483819.md)
-
-[郭文贵2017年7月26日 20170726贯君的6000亿原来去了这里！刘呈杰他爹原来是他！](/content/transcript/2017/07/20170726-53483808.md)
-
-[郭文贵2017年7月25日 20170725王岐山、贯君的6000亿海航股权去哪了？](/content/transcript/2017/07/20170725-53483792.md)
 
 
 ## 頁面 106/110 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)

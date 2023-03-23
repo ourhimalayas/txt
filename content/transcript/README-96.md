@@ -3,6 +3,10 @@
 
 ## 頁面 96/110 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年5月1日直播 20180501_1我们中华名族遇到魔鬼了。](/content/transcript/2018/05/20180501-53477762.md)
+
+[郭文贵2018年4月29日直播 20180429_2文贵与战友聊天！](/content/transcript/2018/04/20180429-53477742.md)
+
 [郭文贵2018年4月29日直播 20180429_1谈谈对于爆料协调中心的态度，和最近发生的一些事情。](/content/transcript/2018/04/20180429-53477712.md)
 
 [郭文贵2018年4月28日视频 20180428金正恩是我们学习的坏榜样](/content/transcript/2018/04/20180428-53482334.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年4月13日视频 20180413_1谈为什么要爆杨洁篪的料](/content/transcript/2018/04/20180413-53482275.md)
 
 [郭文贵2018年4月13日直播 20180413_2跟战友分享下美景，不聊贸易战，南海军演，王岐山访美和杨洁篪](/content/transcript/2018/04/20180413-53477526.md)
-
-[郭文贵2018年4月12日直播 20180412_2内涵段子是中国民主法治自由的新纪元！](/content/transcript/2018/04/20180412-53477466.md)
-
-[郭文贵2018年4月12日直播 20180412_1在华盛顿的两天行程，夏夜良会不会在自己的家庭旅馆里按摄像头！](/content/transcript/2018/04/20180412-53477439.md)
 
 
 ## 頁面 96/110 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)

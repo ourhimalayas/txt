@@ -3,6 +3,10 @@
 
 ## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月11日视频 20180911文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-53482567.md)
+
+[郭文贵2018年9月11日视频 20180911_3願美國不會再有911](/content/transcript/2018/09/20180911-53478225.md)
+
 [郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-53478221.md)
 
 [郭文贵2018年9月10日第二次直播 20180910_2马云辞职的真正的目的与动机漫天过海！](/content/transcript/2018/09/20180910-53482559.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年8月27日直播 20180827_1](/content/transcript/2018/08/20180827-53478181.md)
 
 [郭文贵2018年8月26日视频 20180826应战友们的要求发一个Snow现在的生活视频](/content/transcript/2018/08/20180826-53477261.md)
-
-[郭文贵2018年8月24日视频 20180824澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/content/transcript/2018/08/20180824-53482516.md)
-
-[郭文贵2018年8月23日视频 20180823在船上谈王建](/content/transcript/2018/08/20180823-53482512.md)
 
 
 ## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

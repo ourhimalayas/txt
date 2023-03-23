@@ -3,6 +3,10 @@
 
 ## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年6月23日郭文贵先生直播全文字版：念从心起，力量无比；念念不忘，必有回响](/content/transcript/2019/06/20190623-53545815.md)
+
+[郭文贵2019年6月23日视频 20190623聊聊细丝小哥和庄列宏先生这＂两只黑手＂路德先生直播中发生的紧急事件。念从心起 力量无比 念念不忘 必有回响](/content/transcript/2019/06/20190623-53482704.md)
+
 [2019年6月22日文贵直播全文字版：中共如何和塔利班共同反恐](/content/transcript/2019/06/20190622-53542530.md)
 
 [2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-53545783.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年6月12日视频 20190612_2细思喜马拉雅与文贵，班农直播，关注香港游行！（下）](/content/transcript/2019/06/20190612-53479066.md)
 
 [郭文贵2019年6月12日视频 20190612_1细思喜马拉雅与文贵，班农直播，关注香港游行！（上）](/content/transcript/2019/06/20190612-53479060.md)
-
-[郭文贵2019年6月12日视频 20190612_6香港战友在前线](/content/transcript/2019/06/20190612-53478087.md)
-
-[郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港](/content/transcript/2019/06/20190611-53479036.md)
 
 
 ## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月27日视频 20170927不要开会，不要搞募捐，要行动！](/content/transcript/2017/09/20170927-53483597.md)
+
+[郭文贵2017年9月26日 20170926任何一个同胞都应该听的视频这是 2017年5月26日 与刘彦平书记在纽约两次开会后——经孙立军要求我去华盛顿去见面，这是我们语音沟通的一部分。](/content/transcript/2017/09/20170926-53484009.md)
+
 [郭文贵2017年9月26日视频 20170926_2酒店警告不准看郭视频 断网还要断电吗？](/content/transcript/2017/09/20170926-53483592.md)
 
 [郭文贵2017年9月25日视频 20170925首发爆料后国内炸了锅了！](/content/transcript/2017/09/20170925-53483590.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年9月9日视频 20170909_2分享此时此刻 为今天的直播技术失误道歉](/content/transcript/2017/09/20170909-53483562.md)
 
 [郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！](/content/transcript/2017/09/20170907-53483961.md)
-
-[郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！](/content/transcript/2017/09/20170906-53483863.md)
-
-[郭文贵2017年9月5日直播 20170905_1新领导孙力军副部长有了大决定](/content/transcript/2017/09/20170905-53482795.md)
 
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
