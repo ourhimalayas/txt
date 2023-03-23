@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/23/2023 5:47 AM UTC  - :tv:直播](/content/gettr/p2cb0b7b1dd.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 3:23 AM UTC  - :tv:直播](/content/gettr/p2cb4ij9238.md)
 
 2023-3-22《鸡血王喜币大作战》507期嘉宾：野兽 恺叔
@@ -183,14 +191,6 @@ No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 1:04 PM UTC  - :tv:直播](/content/gettr/p2c895977d0.md)
-
-03/21/2023 During an interview on Conservative Daily Podcast, Ava Chen revealed the truth about the shutdown of GTV: The GTV platform, which was created to spread the truth since the Whistleblowers' Movement has been censored by bi...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/22/13/4195443b-a926-a78d-5b9b-84203c7246ad/out.jpg" width="506" height="284">
 
 ---
 
