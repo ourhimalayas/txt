@@ -2,11 +2,11 @@
 ---
 
 
-[@milesguo 3/23/2023 10:04 AM UTC  - :tv:直播](/content/gettr/p2cb79le706.md)
+[@milesguo 3/23/2023 10:45 AM UTC  - :tv:直播](/content/gettr/p2cboz0bb05.md)
 
-3/16/2023 Kathleen Winn’s interview with Prince Li: I personally witnessed in court that the US prosecutors stated that they have been working with Communist China to investigate Miles Guo’s case. The CCP has been trying everything...
+03/22/2023  Nicole's interview with Winn Tucson: The DOJ and SEC falsely accused Mr. Miles Guo of fraud on GTV investors. GTV is a social platform where people’s voices can be heard, but the SEC doesn’t want it to be happening. Thr...
 
-<img src="https://media.gettr.com/group4/getter/2023/03/23/10/78e4f6c4-ab62-d47f-4eba-da01eb2ac8b1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/23/10/9a078925-701a-3ba3-59c0-b636d51fc17a/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 03/22/2023 Nicole Tsai's interview with Winn Tucson: Mr. Miles Guo exposed the Chinese Communist Party's 13579 scheme back in 2017 and provided the intelligence to America. But bureaucrats at the FBI and other federal government ag...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/23/10/bef90bed-144a-b328-4e2c-98e28898304c/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 10:04 AM UTC  - :tv:直播](/content/gettr/p2cb79le706.md)
+
+3/16/2023 Kathleen Winn’s interview with Prince Li: I personally witnessed in court that the US prosecutors stated that they have been working with Communist China to investigate Miles Guo’s case. The CCP has been trying everything...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/23/10/78e4f6c4-ab62-d47f-4eba-da01eb2ac8b1/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 10:47 AM UTC  - :tv:直播](/content/gettr/p2cbknt1932.md)
+
+03/22/2023 Nicole's interview with Winn Tucson: The reason Mr. Miles Guo has been persecuted not only by the Chinese Communist Party but also by the weaponized federal government agencies of the United States is that the CCP is goi...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/23/10/6b20beaf-eeb8-3f09-2586-da801d8ed271/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,22 +169,6 @@ No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
 ---
 
 [@milesguo 3/22/2023 10:04 PM UTC  - :tv:直播](/content/gettr/p2c9ne2a43d.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 8:58 PM UTC  - :tv:直播](/content/gettr/p2ca25z1622.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 7:58 PM UTC  - :tv:直播](/content/gettr/p2c91vye12f.md)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
 
