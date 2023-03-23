@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/23/2023 10:09 PM UTC  - :tv:直播](/content/gettr/p2cdsyx2190.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 9:30 PM UTC  - :tv:直播](/content/gettr/p2cdoksbcba.md)
 
 3/22/2023 Silk’s Interview with Ava: Miles Guo warned us in December 2019 that the COVID-19 can be transmitted from person to person. He told us not to take COVID vaccines back  in March 2020! Miles Guo's intel comes from fellow fi...
@@ -98,7 +106,7 @@
 
 ---
 
-[@milesguo 3/23/2023 10:09 PM UTC  - :tv:直播](/content/gettr/p2cdsyx2190.md)
+[@milesguo 3/23/2023 11:03 PM UTC  - :tv:直播](/content/gettr/p2cdzll7958.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
@@ -157,14 +165,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 10:45 AM UTC  - :tv:直播](/content/gettr/p2cboz0bb05.md)
-
-03/22/2023  Nicole's interview with Winn Tucson: The DOJ and SEC falsely accused Mr. Miles Guo of fraud on GTV investors. GTV is a social platform where people’s voices can be heard, but the SEC doesn’t want it to be happening. Thr...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/23/10/9a078925-701a-3ba3-59c0-b636d51fc17a/out.jpg" width="506" height="284">
 
 ---
 
