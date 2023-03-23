@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/23/2023 9:13 PM UTC  - :tv:直播](/content/gettr/p2cdbk67198.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 8:18 PM UTC  - :tv:直播](/content/gettr/p2cdlxu7f99.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
@@ -74,11 +82,11 @@
 
 ---
 
-[@milesguo 3/23/2023 9:13 PM UTC  - :tv:直播](/content/gettr/p2cdbk67198.md)
+[@milesguo 3/23/2023 9:25 PM UTC  - :tv:直播](/content/gettr/p2cdhpnd5e8.md)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+3/22/2023 Silk’s Interview with Ava: The total assets of Miles Guo seized by the Chinese Communist Party due to his cause of taking down the CCP are worth $20 billion, but according to the indictment issued on March 15 by the US De...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/23/21/3e68c111-68e2-eba5-8c0f-c8eaf18bff6e/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 03/22/2023 Nicole Tsai's interview with Winn Tucson: Mr. Miles Guo exposed the Chinese Communist Party's 13579 scheme back in 2017 and provided the intelligence to America. But bureaucrats at the FBI and other federal government ag...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/23/10/bef90bed-144a-b328-4e2c-98e28898304c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 10:07 AM UTC  - :tv:直播](/content/gettr/p2cbe6ve37b.md)
-
-3/16/2023 Kathleen Winn’s interview with Prince Li: Mr. Guo's case shows that the CCP has weaponized the US government, and the DOJ and federal government agencies are helping and protecting the CCP rather than Miles Guo, who expos...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/23/10/f85473d0-3c70-86d5-df6d-db8519f2002f/out.jpg" width="506" height="284">
 
 ---
 
