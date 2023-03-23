@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/23/2023 11:04 AM UTC  - :tv:直播](/content/gettr/p2cbf4c1c7f.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 10:45 AM UTC  - :tv:直播](/content/gettr/p2cboz0bb05.md)
 
 03/22/2023  Nicole's interview with Winn Tucson: The DOJ and SEC falsely accused Mr. Miles Guo of fraud on GTV investors. GTV is a social platform where people’s voices can be heard, but the SEC doesn’t want it to be happening. Thr...
@@ -10,11 +18,25 @@
 
 ---
 
-[@milesguo 3/23/2023 11:04 AM UTC  - :tv:直播](/content/gettr/p2cbf4c1c7f.md)
+[@milesguo 3/23/2023 11:50 AM UTC  - 6圖](/content/gettr/p2cbi7pd359.md)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+Miles Guo's Songs iTunes Ranking Record - March 23, 2023
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gnews.org/articles/1039275
+
+
+
+“微风细雨” hits iTunes  
+
+No.2🥈 on Singapore🇸🇬 Top Songs Chart  
+
+No.2🥈 on Singapore🇸🇬 Pop Songs Chart  
+
+
+
+“The Terminator Snow” hit...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/23/11/17d2bf5b-027c-21dc-3a3a-bf2c74cb3603/906d49efb9f1919e74be51729efd4366.jpg" width="506" height="284">
 
 ---
 
@@ -155,24 +177,6 @@
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 10:39 PM UTC  - 6圖](/content/gettr/p2c9w756796.md)
-
-Miles Guo's Songs iTunes Ranking Record - March 22, 2023
-
-https://gnews.org/articles/1036362
-
-
-
-“微风细雨” hits iTunes  
-
-No.1🥇 on Cambodia🇰🇭 and Malta🇲🇹 Top Songs Chart  
-
-No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/22/22/a85700b9-fbd0-e1a6-eb42-9fc2af98387c/2350ea34960d7309e80bf9ba3b8f4fb1.jpg" width="506" height="284">
 
 ---
 
