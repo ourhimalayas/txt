@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/23/2023 9:30 PM UTC  - :tv:直播](/content/gettr/p2cdoksbcba.md)
+
+3/22/2023 Silk’s Interview with Ava: Miles Guo warned us in December 2019 that the COVID-19 can be transmitted from person to person. He told us not to take COVID vaccines back  in March 2020! Miles Guo's intel comes from fellow fi...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/23/21/1fa40b25-8863-fb01-59ed-7f02b8f2e9cd/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 9:25 PM UTC  - :tv:直播](/content/gettr/p2cdhpnd5e8.md)
 
 3/22/2023 Silk’s Interview with Ava: The total assets of Miles Guo seized by the Chinese Communist Party due to his cause of taking down the CCP are worth $20 billion, but according to the indictment issued on March 15 by the US De...
@@ -90,11 +98,11 @@
 
 ---
 
-[@milesguo 3/23/2023 9:30 PM UTC  - :tv:直播](/content/gettr/p2cdoksbcba.md)
+[@milesguo 3/23/2023 10:09 PM UTC  - :tv:直播](/content/gettr/p2cdsyx2190.md)
 
-3/22/2023 Silk’s Interview with Ava: Miles Guo warned us in December 2019 that the COVID-19 can be transmitted from person to person. He told us not to take COVID vaccines back  in March 2020! Miles Guo's intel comes from fellow fi...
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
-<img src="https://media.gettr.com/group8/getter/2023/03/23/21/1fa40b25-8863-fb01-59ed-7f02b8f2e9cd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 03/22/2023 Nicole's interview with Winn Tucson: The reason Mr. Miles Guo has been persecuted not only by the Chinese Communist Party but also by the weaponized federal government agencies of the United States is that the CCP is goi...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/23/10/6b20beaf-eeb8-3f09-2586-da801d8ed271/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 10:35 AM UTC  - :tv:直播](/content/gettr/p2cb9tkaace.md)
-
-03/22/2023 Nicole Tsai's interview with Winn Tucson: Mr. Miles Guo exposed the Chinese Communist Party's 13579 scheme back in 2017 and provided the intelligence to America. But bureaucrats at the FBI and other federal government ag...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/23/10/bef90bed-144a-b328-4e2c-98e28898304c/out.jpg" width="506" height="284">
 
 ---
 
