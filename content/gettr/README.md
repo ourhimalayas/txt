@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/23/2023 1:05 PM UTC  - :tv:直播](/content/gettr/p2cc0h3bbbd.md)
+
+03/22/2023 Jeremy Herrell of LFA TV interviews Ava Chen: Miles Guo and his team are some of the most courageous people on planet Earth to be able to be whistleblowers of the CCP. It is absurd to argue that Mr. Guo has a flight risk...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/23/13/680fb15f-30cb-b3bc-9b23-63c39990efc0/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 12:39 PM UTC  - :tv:直播](/content/gettr/p2cc5bdcdc4.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十八场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 12:12 PM UTC  - :tv:直播](/content/gettr/p2cc0dsde84.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十八场）
@@ -48,7 +64,7 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 
 ---
 
-[@milesguo 3/23/2023 12:39 PM UTC  - :tv:直播](/content/gettr/p2cc5bdcdc4.md)
+[@milesguo 3/23/2023 1:05 PM UTC  - :tv:直播](/content/gettr/p2cbnehbfc1.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十八场）
 
@@ -159,22 +175,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 #现场喜币大抽奖 #鸡血独家 #中共病毒溯源 #FreeMilesGuoNow
 
 💥佛州：禁止中央银行数字货币🔥死了都要爱中俄全面捆绑
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 1:00 AM UTC  - :tv:直播](/content/gettr/p2c9zj221d2.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第七十六场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 12:34 AM UTC  - :tv:直播](/content/gettr/p2ca8gjb24a.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第七十六场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
