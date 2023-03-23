@@ -3,6 +3,8 @@
 
 ## 頁面 86/110 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年12月2日视频 20181202杨澜找钥匙和G20会议的背后真相，开棺验王健的尸，谈谈王岐山，孟建柱，吴征。](/content/transcript/2018/12/20181202-53477141.md)
+
 [郭文贵2018年11月29日视频 20181129郭戰裝到了](/content/transcript/2018/11/20181129-53483910.md)
 
 [郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了](/content/transcript/2018/11/20181128-53478551.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年11月15日视频 20181115_3](/content/transcript/2018/11/20181115-53478397.md)
 
 [郭文贵2018年11月15日视频 20181115_2](/content/transcript/2018/11/20181115-53478395.md)
-
-[郭文贵2018年11月14日视频 20181114王健之死真相新聞發布會為什麼可能從11月19日延後一天改為11月20日](/content/transcript/2018/11/20181114-53481110.md)
 
 
 ## 頁面 86/110 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)

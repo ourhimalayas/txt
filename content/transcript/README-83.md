@@ -3,6 +3,8 @@
 
 ## 頁面 83/110 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月4日视频 20190204_3赶饺子????皮！感恩美国感恩战友！感恩上天！](/content/transcript/2019/02/20190204-53478574.md)
+
 [郭文贵2019年2月3日视频 20190203_1除夕前一天报平安](/content/transcript/2019/02/20190203-53478571.md)
 
 [郭文贵2019年2月2日视频 20190202_1委内瑞拉的局势变化正是未來中國變局最好的樣板！和3月20号习近平先生的访问梵蒂冈！川金会川习会！](/content/transcript/2019/02/20190202-53478572.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年1月17日第二次直播 20190117_2尊敬的战友们好，你们健身了吗！文贵向你们报告出席华盛顿一系列的活动和几个重大的采访](/content/transcript/2019/01/20190117-53481727.md)
 
 [郭文贵2019年1月16日视频第二部分 20190116_2王健被谋杀之密有了重大进展。吴征还有博讯, 马蕊强奸案有了重大的实质性的证据证明吴征被CCP控制](/content/transcript/2019/01/20190116-53481722.md)
-
-[郭文贵2019年1月16日视频第一部分 20190116_1报平安直播，因春晚收到了国内盗国贼各方的威胁，以及接下来将对盗国贼子女海外资产的一系列行动，慈善基金可能将成为第一个有回报的慈善基金](/content/transcript/2019/01/20190116-53481715.md)
 
 
 ## 頁面 83/110 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

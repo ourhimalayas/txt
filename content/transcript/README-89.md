@@ -3,6 +3,8 @@
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击](/content/transcript/2018/10/20181008-53478121.md)
+
 [郭文贵2018年10月6日 20181006文贵与班农接受著名对冲基金经理采访,讲述中共政治黑幕和孟宏伟失踪事件](/content/transcript/2018/10/20181006-53482777.md)
 
 [郭文贵2018年10月6日视频 20181006_5](/content/transcript/2018/10/20181006-53478334.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議](/content/transcript/2018/09/20180923-53478298.md)
 
 [郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓](/content/transcript/2018/09/20180923-53478297.md)
-
-[郭文贵2018年9月22日视频 20180922香港．台湾．上海．股市．汇市……可能发生天翻地覆的变化！](/content/transcript/2018/09/20180922-53482637.md)
 
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

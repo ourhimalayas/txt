@@ -3,6 +3,8 @@
 
 ## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年6月2日 20180602接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术！](/content/transcript/2018/06/20180602-53483787.md)
+
 [郭文贵2018年6月1日 20180601文贵视频为什么成为盗国贼的精神艾滋！](/content/transcript/2018/06/20180601-53483753.md)
 
 [郭文贵2018年5月31日视频 20180531不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/transcript/2018/05/20180531-53482371.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年5月1日直播 20180501_1我们中华名族遇到魔鬼了。](/content/transcript/2018/05/20180501-53477762.md)
 
 [郭文贵2018年4月29日直播 20180429_2文贵与战友聊天！](/content/transcript/2018/04/20180429-53477742.md)
-
-[郭文贵2018年4月29日直播 20180429_1谈谈对于爆料协调中心的态度，和最近发生的一些事情。](/content/transcript/2018/04/20180429-53477712.md)
 
 
 ## 頁面 95/110 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

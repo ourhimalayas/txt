@@ -3,6 +3,8 @@
 
 ## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年6月22日文贵直播全文字版：中共如何和塔利班共同反恐](/content/transcript/2019/06/20190622-53542530.md)
+
 [2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-53545783.md)
 
 [郭文贵2019年6月20日视频 20190620王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-53482793.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年6月12日视频 20190612_6香港战友在前线](/content/transcript/2019/06/20190612-53478087.md)
 
 [郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港](/content/transcript/2019/06/20190611-53479036.md)
-
-[郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？](/content/transcript/2019/06/20190610-53482533.md)
 
 
 ## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

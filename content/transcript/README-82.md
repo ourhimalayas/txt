@@ -3,6 +3,8 @@
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年3月2日 20190302和Sara,安红,路德,邱先生谈话](/content/transcript/2019/03/20190302-53482151.md)
+
 [郭文贵2019年3月2日视频 20190302_3与战友们分享媳妇刚刚组装的乐高越野赛车！](/content/transcript/2019/03/20190302-53478646.md)
 
 [郭文贵2019年3月2日视频 20190302_2尊敬的战友们好！纽约今天下了大雪！非常的漂亮浪漫极了！我正在准备两个小时以后的直播！一切都是刚刚开始！](/content/transcript/2019/03/20190302-53478644.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年2月4日英文 20190204_1除夕爆料春晚 达赖喇嘛尊者](/content/transcript/2019/02/20190204-53482158.md)
 
 [郭文贵2019年2月4日中文 20190204_2除夕去共赢正道爆料春晚](/content/transcript/2019/02/20190204-53482129.md)
-
-[郭文贵2019年2月4日视频 20190204_3赶饺子????皮！感恩美国感恩战友！感恩上天！](/content/transcript/2019/02/20190204-53478574.md)
 
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年6月13日 20170613关于章立凡与胡平先生在VoA节目中对文贵的诬陷](/content/transcript/2017/06/20170613-53483776.md)
+
 [郭文贵2017年6月11日视频 20170611](/content/transcript/2017/06/20170611-53483871.md)
 
 [郭文贵2017年6月10日第一次直播 20170610_1有关海南航空的公告的回复](/content/transcript/2017/06/20170610-53483866.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年5月18日第一次直播 20170518_1郭文贵的紧急联络人](/content/transcript/2017/05/20170518-53483744.md)
 
 [郭文贵2017年5月17日视频 20170517家庭国家和社会的关系](/content/transcript/2017/05/20170517-53483913.md)
-
-[郭文贵2017年5月16日视频 20170516](/content/transcript/2017/05/20170516-53483891.md)
 
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

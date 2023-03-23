@@ -3,6 +3,8 @@
 
 ## 頁面 69/110 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年9月20日郭先生报平安感谢战友们的担心全文字版](/content/transcript/2019/09/20190920-53848055.md)
+
 [郭文贵2019年9月20日视频 20190920感谢战友们的担心，文贵为什么这两天没直播。香港最艰难时期是十月后，请香港战友加倍小心！](/content/transcript/2019/09/20190920-53483149.md)
 
 [2019年9月17日文贵报平安全文字版](/content/transcript/2019/09/20190917-53852069.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年9月9日第一次直播 20190909_1路德访谈文贵、班农先生：川普会什么时候决定脱钩？马云离开阿里以后的结局？美国到底是否值得中国人民依靠？](/content/transcript/2019/09/20190909-53483061.md)
 
 [郭文贵2019年9月9日第二次直播 20190909_2尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以没收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？](/content/transcript/2019/09/20190909-53483052.md)
-
-[2019年9月8日 美国国会山开山灭共助港，李小加港交所期货交易内幕，中共如何用通货膨胀奴役中国人民全文字版](/content/transcript/2019/09/20190908-53835472.md)
 
 
 ## 頁面 69/110 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)

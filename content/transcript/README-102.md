@@ -3,6 +3,8 @@
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年11月27日 20171127郭文贵纽约的房子的价格为什么发生了问题？](/content/transcript/2017/11/20171127-53483927.md)
+
 [郭文贵2017年11月26日第一次直播 20171126_1在Livestream 试播](/content/transcript/2017/11/20171126-53483921.md)
 
 [郭文贵2017年11月26日第二次直播 20171126_2](/content/transcript/2017/11/20171126-53483911.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年10月31日第二次直播 20171031_2关于郭文贵家人再次被捕被判](/content/transcript/2017/10/20171031-53484025.md)
 
 [郭文贵2017年10月27日视频 20171027](/content/transcript/2017/10/20171027-53484022.md)
-
-[郭文贵2017年10月26日第一次直播 20171026_1十九大后爆料计划](/content/transcript/2017/10/20171026-53484019.md)
 
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

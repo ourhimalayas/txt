@@ -3,6 +3,8 @@
 
 ## 頁面 71/110 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年8月28日文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始！](/content/transcript/2019/08/20190828-53795560.md)
+
 [郭文贵2019年8月28日视频 20190828解放军军车 装甲车已经开进香港香港已经进入紧急状态](/content/transcript/2019/08/20190828-53482985.md)
 
 [郭文贵2019年8月28日视频 20190828_2从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始](/content/transcript/2019/08/20190828-53478935.md)
@@ -50,8 +52,6 @@
 [2019年8月14日《文贵大直播》全文字版：谈美国已秘密调查中共安插在香港警队中的PLA 操纵美国股市](/content/transcript/2019/08/20190814-53741165.md)
 
 [郭文贵2019年8月14日视频 20190814Miles Kwok letting everyone know he's safe. USA has secretly investigated the presence...](/content/transcript/2019/08/20190814-53483035.md)
-
-[2019年8月13日《文贵大直播》全文字版：谈未来的48小时对香港所有上街抗议的同胞极为重要](/content/transcript/2019/08/20190813-53741214.md)
 
 
 ## 頁面 71/110 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)

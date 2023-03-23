@@ -3,6 +3,8 @@
 
 ## 頁面 81/110 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月16日视频 20190416_220分钟左右文贵将在郭媒体直播报平安！不爆料就是谈谈，昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息](/content/transcript/2019/04/20190416-53478594.md)
+
 [郭文贵2019年4月15日第一次直播 20190415_1下午三点！显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！一切都是刚刚开始！](/content/transcript/2019/04/20190415-53482301.md)
 
 [郭文贵2019年4月15日第二次直播 20190415_2接下来的爆料有些会是让人无法接受的……人性丑恶行为！＂世上有些人的恶已经超过魔鬼????＂与共产党一起的任何人任何事情都比妖怪还要让人憎恶……](/content/transcript/2019/04/20190415-53482297.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……](/content/transcript/2019/03/20190304-53482161.md)
 
 [郭文贵2019年3月3日视频 20190303金正恩为什么直接回朝鲜为什么要枪毙．偷拍金正恩视频的中国人吗？](/content/transcript/2019/03/20190303-53482155.md)
-
-[郭文贵2019年3月2日 20190302和Sara,安红,路德,邱先生谈话](/content/transcript/2019/03/20190302-53482151.md)
 
 
 ## 頁面 81/110 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 70/110 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年9月8日 美国国会山开山灭共助港，李小加港交所期货交易内幕，中共如何用通货膨胀奴役中国人民全文字版](/content/transcript/2019/09/20190908-53835472.md)
+
 [郭文贵2019年9月8日 20190908美国国会山开山“灭共助港”，李小加港交所期货交易当机玩儿大了！中共如何用通货膨胀奴役中国人民！](/content/transcript/2019/09/20190908-53483047.md)
 
 [2019年9月7日郭先生直播，关注香港被抓 被杀的年轻人全文字版](/content/transcript/2019/09/20190907-53838874.md)
@@ -50,8 +52,6 @@
 [2019年08月28日文贵大直播全文字版：解放军军车 装甲车已经开进香港香港已经进入紧急状态](/content/transcript/2019/08/20190828-53797352.md)
 
 [2019年8月28日文贵大直播全文字版：解读香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产](/content/transcript/2019/08/20190828-53797308.md)
-
-[2019年8月28日文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始！](/content/transcript/2019/08/20190828-53795560.md)
 
 
 ## 頁面 70/110 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)

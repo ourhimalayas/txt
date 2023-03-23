@@ -3,6 +3,8 @@
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年7月24日第二次直播 20170724_2呼吁推友不要冲动](/content/transcript/2017/07/20170724-53484151.md)
+
 [郭文贵2017年7月24日第一次直播 20170724_1王岐山盗国贼们的恐惧](/content/transcript/2017/07/20170724-53483945.md)
 
 [郭文贵2017年7月24日第三次直播 20170724_3](/content/transcript/2017/07/20170724-53482769.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年6月19日视频 20170619再让子弹飞一会儿！](/content/transcript/2017/06/20170619-53483786.md)
 
 [郭文贵2017年6月16日明镜专访第三期 20170616](/content/transcript/2017/06/20170616-53484293.md)
-
-[郭文贵2017年6月13日 20170613关于章立凡与胡平先生在VoA节目中对文贵的诬陷](/content/transcript/2017/06/20170613-53483776.md)
 
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月4日关于鲍彤先生 20170904关于鲍彤先生痛心我与老领导见面的音频，几个问题得澄清！](/content/transcript/2017/09/20170904-53483954.md)
+
 [郭文贵2017年9月3日直播 20170903_1直播怀疑刘呈杰姐姐刚死。三段视频，被骇四次](/content/transcript/2017/09/20170903-53482789.md)
 
 [郭文贵2017年9月2日 20170902爆孟建柱孙力军盗国淫法阴谋杀人灭口，盗国系列:第二季第二集](/content/transcript/2017/09/20170902-53483943.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年8月20日直播 20170820_1推特四段小视频合集](/content/transcript/2017/08/20170820-53482774.md)
 
 [郭文贵2017年8月19日视频 20170819健身报平安小视频：既兴奋又难过。大战在即！和平革命！](/content/transcript/2017/08/20170819-53483784.md)
-
-[郭文贵2017年8月18日明镜专访第五期 20170818](/content/transcript/2017/08/20170818-53484121.md)
 
 
 ## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

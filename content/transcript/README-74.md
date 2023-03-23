@@ -3,6 +3,8 @@
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715335.md)
+
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715290.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715271.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年7月17日视频 20190717_2两架超级飞机和我们的SNOW一起起飞……文贵又进山啦……这几天我会很少上网](/content/transcript/2019/07/20190717-53478815.md)
 
 [郭文贵2019年7月17日视频 20190717_1回答很多战友们关于郭战装的几个小问题](/content/transcript/2019/07/20190717-53478811.md)
-
-[郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始](/content/transcript/2019/07/20190716-53478808.md)
 
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)

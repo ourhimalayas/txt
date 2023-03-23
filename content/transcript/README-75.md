@@ -3,6 +3,8 @@
 
 ## 頁面 75/110 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始](/content/transcript/2019/07/20190716-53478808.md)
+
 [2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······](/content/transcript/2019/07/20190715-53626565.md)
 
 [郭文贵2019年7月15日视频 20190715盘古大观在7月14号被北京高院公告……将以实际价格的10％被拍卖……实际的背后的黑手就是江泽民．和江志成．孟建柱和孙力军……王岐山！这就是过去两周他们要栽赃文贵](/content/transcript/2019/07/20190715-53482817.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年7月7日视频 20190707_3Snow1](/content/transcript/2019/07/20190707-53478779.md)
 
 [2019年7月6日直播全文字版：与彭文正先生连线——灭共保台](/content/transcript/2019/07/20190706-53576461.md)
-
-[郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...](/content/transcript/2019/07/20190706-53482844.md)
 
 
 ## 頁面 75/110 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)

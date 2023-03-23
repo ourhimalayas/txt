@@ -3,6 +3,8 @@
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月22日视频 20181022_2打中CCP鏢靶兩次 贏得第一](/content/transcript/2018/10/20181022-53478325.md)
+
 [郭文贵2018年10月22日视频 20181022_1加林槍射擊CCP](/content/transcript/2018/10/20181022-53478324.md)
 
 [郭文贵2018年10月21日 20181021_1澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑](/content/transcript/2018/10/20181021-53483707.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！](/content/transcript/2018/10/20181009-53477442.md)
 
 [郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击](/content/transcript/2018/10/20181008-53478122.md)
-
-[郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击](/content/transcript/2018/10/20181008-53478121.md)
 
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)

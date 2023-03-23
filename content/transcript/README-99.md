@@ -3,6 +3,8 @@
 
 ## 頁面 99/110 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年3月4日第一次直播 20180304_1这是3月4日录制的第二个视频！一切都是刚刚开始！](/content/transcript/2018/03/20180304-53481301.md)
+
 [郭文贵2018年3月4日第二次直播 20180304_2这是3月4号的视频！](/content/transcript/2018/03/20180304-53481270.md)
 
 [郭文贵2018年3月3日视频 20180303出其不意 ,会师挺郭后援会成员! 场面感人!!!](/content/transcript/2018/03/20180303-53477358.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年2月11日 20180211_1为什么这么多战友支持文贵](/content/transcript/2018/02/20180211-53484076.md)
 
 [郭文贵2018年2月11日视频 20180211_2郭文贵安保有漏洞，是谁向上海局报告的？](/content/transcript/2018/02/20180211-53477153.md)
-
-[郭文贵2018年2月10日第六次直播 20180210_6朋友和民主骗子，伪君子陈军，到底想干什么？](/content/transcript/2018/02/20180210-53484030.md)
 
 
 ## 頁面 99/110 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)
