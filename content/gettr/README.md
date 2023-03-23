@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/23/2023 5:47 AM UTC  - :tv:直播](/content/gettr/p2cb0b7b1dd.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 4:28 AM UTC  - :tv:直播](/content/gettr/p2cb3oh5e60.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
@@ -10,7 +18,7 @@
 
 ---
 
-[@milesguo 3/23/2023 5:47 AM UTC  - :tv:直播](/content/gettr/p2cb0b7b1dd.md)
+[@milesguo 3/23/2023 6:55 AM UTC  - :tv:直播](/content/gettr/p2cbgmr267a.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
 
@@ -175,14 +183,6 @@ No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 1:46 PM UTC  - :tv:直播](/content/gettr/p2c8kv0fbb1.md)
-
-03/21/2023 During an interview on Conservative Daily Podcast, Ava Chen used the Lady May yacht purchase as an example to expose the cheap lies of the SEC and DOJ: They claimed that Lady May was purchased with the proceeds of a frau...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/22/13/2adfc1a3-9ecc-0c89-d521-ef4ea4e7229e/out.jpg" width="506" height="284">
 
 ---
 
