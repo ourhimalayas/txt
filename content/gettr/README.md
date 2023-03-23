@@ -2,11 +2,19 @@
 ---
 
 
-[@milesguo 3/23/2023 8:46 AM UTC  - :tv:直播](/content/gettr/p2cbivlfb78.md)
+[@milesguo 3/23/2023 10:04 AM UTC  - :tv:直播](/content/gettr/p2cb79le706.md)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+3/16/2023 Kathleen Winn’s interview with Prince Li: I personally witnessed in court that the US prosecutors stated that they have been working with Communist China to investigate Miles Guo’s case. The CCP has been trying everything...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/23/10/78e4f6c4-ab62-d47f-4eba-da01eb2ac8b1/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 10:07 AM UTC  - :tv:直播](/content/gettr/p2cbe6ve37b.md)
+
+3/16/2023 Kathleen Winn’s interview with Prince Li: Mr. Guo's case shows that the CCP has weaponized the US government, and the DOJ and federal government agencies are helping and protecting the CCP rather than Miles Guo, who expos...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/23/10/f85473d0-3c70-86d5-df6d-db8519f2002f/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +23,22 @@
 3/22/2023 Ivory Hecker’s Interview with Ava: Why is CCP attacking the United States? What are the meanings of each number in the CCP's “13579 plan” revealed by Miles Guo? Are the US and Communist China working together to hide info...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/23/09/9ce2c647-23b8-b0e7-d42d-a09a4563f576/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 8:46 AM UTC  - :tv:直播](/content/gettr/p2cbivlfb78.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 10:08 AM UTC  - :tv:直播](/content/gettr/p2cbgfhbaf9.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,48 +173,6 @@ No.2🥈 on New Zealand🇳🇿 and Singapore🇸🇬 Top Songs Cha...
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 6:00 PM UTC  - :tv:直播](/content/gettr/p2c97v8037d.md)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 5:22 PM UTC ](/content/gettr/p2c8urvf6fd.md)
-
-2023.03.22 
-
-郭文贵歌曲iTunes打榜记录 https://gnews.org/articles/1036349
-
-
-
-《微风细雨》登榜iTunes  
-
-柬埔寨🇰🇭、马耳他🇲🇹热门歌曲榜第一名🥇  
-
-新西兰🇳🇿、新加坡🇸🇬热门歌曲榜第二名🥈  
-
-丹麦🇩🇰热门歌曲榜第三名🥉  
-
-
-
-柬埔寨🇰🇭、马耳他🇲🇹流行歌曲榜第一名🥇  
-
-新西兰🇳🇿、新加坡🇸🇬流行歌曲榜第二名🥈  
-
-丹麦🇩🇰流行...
-
----
-
-[@nsfcspeaksoffical 3/22/2023 5:08 PM UTC  - :tv:直播](/content/gettr/p2c8z358a9d.md)
-
-2023.03.22 NFSC SPEAKS WEDNESDAY WITH MARK SZUSKIEWICZ
-
-<img src="https://media.gettr.com/group9/origin/2023/03/22/16/c5bbed92-0881-82c8-f7db-80a9471c6377/8afd95032650d93da7eeeac2a1d118bb.jpeg" width="506" height="284">
 
 ---
 
