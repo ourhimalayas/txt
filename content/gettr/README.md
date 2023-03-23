@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/23/2023 7:06 PM UTC  - :tv:直播](/content/gettr/p2cckl54f10.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 6:02 PM UTC  - :tv:直播](/content/gettr/p2cd84jbd81.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
@@ -58,7 +66,7 @@
 
 ---
 
-[@milesguo 3/23/2023 7:06 PM UTC  - :tv:直播](/content/gettr/p2cckl54f10.md)
+[@milesguo 3/23/2023 8:18 PM UTC  - :tv:直播](/content/gettr/p2cdlxu7f99.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
@@ -165,14 +173,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 9:14 AM UTC  - :tv:直播](/content/gettr/p2cbpt48fab.md)
-
-3/22/2023 Ivory Hecker’s Interview with Ava: Why is CCP attacking the United States? What are the meanings of each number in the CCP's “13579 plan” revealed by Miles Guo? Are the US and Communist China working together to hide info...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/23/09/9ce2c647-23b8-b0e7-d42d-a09a4563f576/out.jpg" width="506" height="284">
 
 ---
 
