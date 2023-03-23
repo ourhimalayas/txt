@@ -2,9 +2,9 @@
 ---
 
 
-`@milesguo 3/23/2023 1:59 AM UTC`
+`@milesguo 3/23/2023 2:00 AM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p2caeuueb30)
+[轉發自GETTR](https://gettr.com/post/p2cadeabfa1)
 
 2023-3-22《鸡血王喜币大作战》507期嘉宾：野兽 恺叔
 #现场喜币大抽奖 #鸡血独家 #中共病毒溯源 #FreeMilesGuoNow
