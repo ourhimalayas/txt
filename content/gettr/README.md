@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/24/2023 11:02 PM UTC  - :tv:直播](/content/gettr/p2cgs6vb090.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/24/2023 10:02 PM UTC  - :tv:直播](/content/gettr/p2cgvvwe3a7.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 9:08 PM UTC  - :tv:直播](/content/gettr/p2cgt8se458.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
@@ -128,11 +144,17 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 
 ---
 
-[@milesguo 3/24/2023 10:02 PM UTC  - :tv:直播](/content/gettr/p2cgvvwe3a7.md)
+[@milesguo 3/24/2023 11:08 PM UTC  - :tv:直播](/content/gettr/p2ch8wd659d.md)
 
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
+3/24/2023 David Whited: The CCP’s infiltration is in every facet of American life now. The CCP is one that manipulates all levels of American society behind the scenes.
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#MilesGuo  #FreeMilesGuoNow #CCP #DOJ #FBI
+
+
+
+3/24/2023 大卫·怀特...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/24/23/7514509f-6e61-0e11-fbb5-43b68d320141/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +183,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 主持人：唐平&威廉王  Thomas
 
 <img src="https://media.gettr.com/group3/origin/2023/03/24/05/2072b9ca-5166-eb63-662e-c77d96d23152/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 10:01 AM UTC  - :tv:直播](/content/gettr/p2cfe4x305c.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 8:58 AM UTC  - :tv:直播](/content/gettr/p2cf8cse84b.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
