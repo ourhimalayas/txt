@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 4:17 AM UTC  - :tv:直播](/content/gettr/p2ceij20b77.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 3:50 AM UTC  - :tv:直播](/content/gettr/p2ceh7r37e7.md)
 
 3/23/2023 Nicole’s Interview with Brad Good: It is astounding that the FBI raided the residence of Miles Guo, the number one enemy of the CCP, and they handcuffed him away. Everything is too coincidental!
@@ -20,11 +28,11 @@
 
 ---
 
-[@milesguo 3/24/2023 4:17 AM UTC  - :tv:直播](/content/gettr/p2ceij20b77.md)
+[@milesguo 3/24/2023 4:55 AM UTC  - :tv:直播](/content/gettr/p2cew8g57dc.md)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+3/23/2023 April Moss’ interview with Ava: Miles Guo blew the whistle on the CCP’s spy balloons and the deployment of the CCP’s military bases in the countries involved in the Belt and Road Initiative a long time ago, but the US gov...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/24/04/db45664f-d2b0-8925-ab49-d01a335681f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@
 ---
 
 [@milesguo 3/23/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2ccf3ia896.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 4:11 PM UTC  - :tv:直播](/content/gettr/p2cctbn6a01.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
