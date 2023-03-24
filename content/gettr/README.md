@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/24/2023 12:59 AM UTC  - :tv:直播](/content/gettr/p2ce1mw1ab9.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/23/2023 11:31 PM UTC  - :tv:直播](/content/gettr/p2cdgas1d46.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
@@ -165,14 +173,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 “The Terminator Snow” hit...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/23/11/17d2bf5b-027c-21dc-3a3a-bf2c74cb3603/906d49efb9f1919e74be51729efd4366.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 11:04 AM UTC  - :tv:直播](/content/gettr/p2cbf4c1c7f.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十七场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
