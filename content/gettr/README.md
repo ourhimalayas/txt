@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 1:01 PM UTC  - :tv:直播](/content/gettr/p2cf9hc2143.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 12:30 PM UTC  - :tv:直播](/content/gettr/p2cesww857b.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
@@ -26,11 +34,25 @@
 
 ---
 
-[@milesguo 3/24/2023 1:01 PM UTC  - :tv:直播](/content/gettr/p2cf9hc2143.md)
+[@milesguo 3/24/2023 1:24 PM UTC  - 6圖](/content/gettr/p2cfvcg984a.md)
 
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
+Miles Guo's Songs iTunes Ranking Record - March 24, 2023
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gnews.org/articles/1042683
+
+
+
+“微风细雨” hits iTunes  
+
+No.2🥈 on Singapore🇸🇬 Top Songs Chart  
+
+No.2🥈 on Singapore🇸🇬 Pop Songs Chart  
+
+
+
+“The Terminator Snow” hit...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/24/13/79dfd5fb-e666-0c68-3b78-f442c5cac56d/af75c11cdd5a7acf7fb634008c569b9b.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +177,6 @@
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 3:50 AM UTC  - :tv:直播](/content/gettr/p2ceh7r37e7.md)
-
-3/23/2023 Nicole’s Interview with Brad Good: It is astounding that the FBI raided the residence of Miles Guo, the number one enemy of the CCP, and they handcuffed him away. Everything is too coincidental!
-
-#MilesGuo  #FreeMilesGuoN...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/24/03/b764a0ce-ebe4-f366-b537-d511e6cb139d/out.jpg" width="506" height="284">
 
 ---
 
