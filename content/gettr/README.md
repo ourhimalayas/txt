@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 10:01 AM UTC  - :tv:直播](/content/gettr/p2cfe4x305c.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 8:58 AM UTC  - :tv:直播](/content/gettr/p2cf8cse84b.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
@@ -42,11 +50,15 @@
 
 ---
 
-[@milesguo 3/24/2023 10:01 AM UTC  - :tv:直播](/content/gettr/p2cfe4x305c.md)
+[@gmusic 3/24/2023 10:57 AM UTC  - :tv:直播](/content/gettr/p2cfeub164f.md)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+新中国联邦 G | MUSIC #首款NFT系列#“灭共者徽章 Ⅱ” ——# “丰盈石" 空投发布现场！！
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+活动按77.7%概率抽奖，NFT空投总数：1372套
+
+主持人：唐平&威廉王  Thomas
+
+<img src="https://media.gettr.com/group3/origin/2023/03/24/05/2072b9ca-5166-eb63-662e-c77d96d23152/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +175,6 @@
 ---
 
 [@milesguo 3/24/2023 12:59 AM UTC  - :tv:直播](/content/gettr/p2ce1mw1ab9.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 12:34 AM UTC  - :tv:直播](/content/gettr/p2ce83f23f2.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
