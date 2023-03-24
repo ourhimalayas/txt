@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 12:30 PM UTC  - :tv:直播](/content/gettr/p2cesww857b.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2cf5dq44f4.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
@@ -18,7 +26,7 @@
 
 ---
 
-[@milesguo 3/24/2023 12:30 PM UTC  - :tv:直播](/content/gettr/p2cesww857b.md)
+[@milesguo 3/24/2023 1:01 PM UTC  - :tv:直播](/content/gettr/p2cf9hc2143.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
 
@@ -157,14 +165,6 @@
 #MilesGuo  #FreeMilesGuoN...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/24/03/b764a0ce-ebe4-f366-b537-d511e6cb139d/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 3:44 AM UTC  - :tv:直播](/content/gettr/p2cef2a63be.md)
-
-03/23/2023 Brad Good, an American writer who has lived in Communist China, exposed that the Chinese Communist Party tried to bribe him to write articles against someone running for office in the United States, but he refused. If th...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/24/03/9c3683e8-6505-24f7-9b73-30cb1b82a4fd/out.jpg" width="506" height="284">
 
 ---
 
