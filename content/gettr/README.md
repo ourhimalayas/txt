@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 5:12 AM UTC  - :tv:直播](/content/gettr/p2ceqe5f8f7.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 4:55 AM UTC  - :tv:直播](/content/gettr/p2cew8g57dc.md)
 
 3/23/2023 April Moss’ interview with Ava: Miles Guo blew the whistle on the CCP’s spy balloons and the deployment of the CCP’s military bases in the countries involved in the Belt and Road Initiative a long time ago, but the US gov...
@@ -36,11 +44,11 @@
 
 ---
 
-[@milesguo 3/24/2023 5:12 AM UTC  - :tv:直播](/content/gettr/p2ceqe5f8f7.md)
+[@milesguo 3/24/2023 5:33 AM UTC  - :tv:直播](/content/gettr/p2cegx3c94d.md)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+03/23/2023 Real America’s Voice host Grant Stinchfield on the many inconsistencies of Mr. Miles Guo’s case. Firstly, the prosecutors admitted in the court that they worked a lot with the Chinese government ; secondly, the judge ord...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/24/05/60476904-75ed-d877-a6fd-62d9b75c848a/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 3/23/2023 5:17 PM UTC  - :tv:直播](/content/gettr/p2cd31788d9.md)
-
-2023.03.23 NFSC SPEAKS THURSDAY WITH BRAD GOOD
-
-<img src="https://media.gettr.com/group4/origin/2023/03/23/17/06e85afe-6f34-ee02-b5d5-997060a09667/678bf36a1f25594b10b1e52156850997.jpeg" width="506" height="284">
 
 ---
 
