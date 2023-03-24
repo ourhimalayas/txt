@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 12:59 AM UTC  - :tv:直播](/content/gettr/p2ce1mw1ab9.md)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 12:34 AM UTC  - :tv:直播](/content/gettr/p2ce83f23f2.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
@@ -10,11 +18,17 @@
 
 ---
 
-[@milesguo 3/24/2023 12:59 AM UTC  - :tv:直播](/content/gettr/p2ce1mw1ab9.md)
+[@milesguo 3/24/2023 1:37 AM UTC  - :tv:直播](/content/gettr/p2cedkk0c8a.md)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
+3/23/2023 April Moss’ interview with Ava: What happened on March 15 proves that the DOJ, FBI, and SEC are all manipulated by the CCP, and America is in danger.
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#MilesGuo  #FreeMilesGuoNow #CCP #DOJ
+
+
+
+3/23/2023 埃普丽尔·莫斯采访莘7女孩: 在3月1...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/24/01/95aeafc8-190f-09be-fd94-69c76d70782b/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,28 +165,6 @@
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十八场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 11:50 AM UTC  - 6圖](/content/gettr/p2cbi7pd359.md)
-
-Miles Guo's Songs iTunes Ranking Record - March 23, 2023
-
-https://gnews.org/articles/1039275
-
-
-
-“微风细雨” hits iTunes  
-
-No.2🥈 on Singapore🇸🇬 Top Songs Chart  
-
-No.2🥈 on Singapore🇸🇬 Pop Songs Chart  
-
-
-
-“The Terminator Snow” hit...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/23/11/17d2bf5b-027c-21dc-3a3a-bf2c74cb3603/906d49efb9f1919e74be51729efd4366.jpg" width="506" height="284">
 
 ---
 
