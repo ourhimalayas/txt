@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2cg628d6fd.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 6:00 PM UTC  - :tv:直播](/content/gettr/p2cgfns9ec8.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第119场）
@@ -104,7 +112,7 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 
 ---
 
-[@milesguo 3/24/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2cg628d6fd.md)
+[@milesguo 3/24/2023 8:00 PM UTC  - :tv:直播](/content/gettr/p2cgojeada2.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
 
@@ -169,14 +177,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 7:24 AM UTC  - :tv:直播](/content/gettr/p2cerhg21e8.md)
-
-3/23/2023 Nicole’s Interview with Brad Good: Mr. Good believes that the DOJ and SEC have received all the help and involvement from the CCP in prosecuting Miles Guo. The indictment doesn’t make sense at all. Mr. Guo needs as much h...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/24/07/977ba3e7-6b03-7743-382a-734e87b9402d/out.jpg" width="506" height="284">
 
 ---
 
