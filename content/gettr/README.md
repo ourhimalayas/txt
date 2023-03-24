@@ -2,6 +2,26 @@
 ---
 
 
+[@milesguo 3/24/2023 3:41 AM UTC  - :tv:直播](/content/gettr/p2ce0ii0498.md)
+
+03/17/2023 April Moss said in her interview with Ava Chen that she was not surprised about  Miles Guo's arrest. What's interesting is that six hours after he was arrested, while the FBI agents were still in his apartment on the 18t...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/24/03/1acd22d3-f58a-be8d-de7d-4f40e85ebcc5/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/24/2023 3:13 AM UTC  - :tv:直播](/content/gettr/p2ce3a67d7c.md)
+
+2023-3-23《鸡血王喜币大作战》508期嘉宾：Emily 文空
+
+#现场喜币大抽奖 #鸡血独家 #中共病毒溯源 #FreeMilesGuoNow
+
+💥币圈要崩❗️❗️❗️💥
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 1:57 AM UTC  - :tv:直播](/content/gettr/p2cdrbu55fb.md)
 
 2023-3-23《鸡血王喜币大作战》508期嘉宾：Emily 文空
@@ -44,15 +64,11 @@
 
 ---
 
-[@milesguo 3/24/2023 3:13 AM UTC  - :tv:直播](/content/gettr/p2ce3a67d7c.md)
+[@milesguo 3/24/2023 3:44 AM UTC  - :tv:直播](/content/gettr/p2cef2a63be.md)
 
-2023-3-23《鸡血王喜币大作战》508期嘉宾：Emily 文空
+03/23/2023 Brad Good, an American writer who has lived in Communist China, exposed that the Chinese Communist Party tried to bribe him to write articles against someone running for office in the United States, but he refused. If th...
 
-#现场喜币大抽奖 #鸡血独家 #中共病毒溯源 #FreeMilesGuoNow
-
-💥币圈要崩❗️❗️❗️💥
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/24/03/9c3683e8-6505-24f7-9b73-30cb1b82a4fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,22 +169,6 @@
 ---
 
 [@milesguo 3/23/2023 2:00 PM UTC  - :tv:直播](/content/gettr/p2cc2i1929b.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十八场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 1:05 PM UTC  - :tv:直播](/content/gettr/p2cc0h3bbbd.md)
-
-03/22/2023 Jeremy Herrell of LFA TV interviews Ava Chen: Miles Guo and his team are some of the most courageous people on planet Earth to be able to be whistleblowers of the CCP. It is absurd to argue that Mr. Guo has a flight risk...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/23/13/680fb15f-30cb-b3bc-9b23-63c39990efc0/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 1:05 PM UTC  - :tv:直播](/content/gettr/p2cbnehbfc1.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十八场）
 
