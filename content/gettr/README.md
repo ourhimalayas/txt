@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 8:00 PM UTC  - :tv:直播](/content/gettr/p2cgojeada2.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2cg628d6fd.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
@@ -112,7 +120,7 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 
 ---
 
-[@milesguo 3/24/2023 8:00 PM UTC  - :tv:直播](/content/gettr/p2cgojeada2.md)
+[@milesguo 3/24/2023 9:08 PM UTC  - :tv:直播](/content/gettr/p2cgt8se458.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
 
@@ -169,14 +177,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 03/17/2023 Ava Chen from New Federal State of China: We are not victims of Mr. Miles Guo, we are the victims of the SEC. SEC simply accepted the false claims of the CCP agents and froze all the money of the GTV investors, who are a...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/24/08/7d76fbac-893e-1412-430e-71a96c594336/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 8:04 AM UTC  - :tv:直播](/content/gettr/p2cefel7dd6.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
