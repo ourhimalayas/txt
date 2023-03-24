@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/24/2023 2:01 PM UTC  - :tv:直播](/content/gettr/p2cfd76523a.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 1:38 PM UTC  - :tv:直播](/content/gettr/p2cfey18d66.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
@@ -64,9 +72,9 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 
 ---
 
-[@milesguo 3/24/2023 2:01 PM UTC  - :tv:直播](/content/gettr/p2cfd76523a.md)
+[@milesguo 3/24/2023 3:02 PM UTC  - :tv:直播](/content/gettr/p2cfy7tcafe.md)
 
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第113场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -169,14 +177,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 03/23/2023 Real America’s Voice host Grant Stinchfield on the many inconsistencies of Mr. Miles Guo’s case. Firstly, the prosecutors admitted in the court that they worked a lot with the Chinese government ; secondly, the judge ord...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/24/05/60476904-75ed-d877-a6fd-62d9b75c848a/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 5:12 AM UTC  - :tv:直播](/content/gettr/p2ceqe5f8f7.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
