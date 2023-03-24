@@ -2,7 +2,15 @@
 ---
 
 
-[@milesguo 3/23/2023 11:03 PM UTC  - :tv:直播](/content/gettr/p2cdzll7958.md)
+[@milesguo 3/23/2023 10:47 AM UTC  - :tv:直播](/content/gettr/p2cbknt1932.md)
+
+03/22/2023 Nicole's interview with Winn Tucson: The reason Mr. Miles Guo has been persecuted not only by the Chinese Communist Party but also by the weaponized federal government agencies of the United States is that the CCP is goi...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/23/10/6b20beaf-eeb8-3f09-2586-da801d8ed271/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/23/2023 11:31 PM UTC  - :tv:直播](/content/gettr/p2cdgas1d46.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
@@ -111,14 +119,6 @@
 03/22/2023 Jeremy Herrell of LFA TV interviews Ava Chen: Miles Guo and his team are some of the most courageous people on planet Earth to be able to be whistleblowers of the CCP. It is absurd to argue that Mr. Guo has a flight risk...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/23/13/680fb15f-30cb-b3bc-9b23-63c39990efc0/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 11:31 PM UTC  - :tv:直播](/content/gettr/p2cdgas1d46.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
