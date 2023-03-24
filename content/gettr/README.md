@@ -2,6 +2,18 @@
 ---
 
 
+[@milesguo 3/24/2023 1:57 AM UTC  - :tv:直播](/content/gettr/p2cdrbu55fb.md)
+
+2023-3-23《鸡血王喜币大作战》508期嘉宾：Emily 文空
+
+#现场喜币大抽奖 #鸡血独家 #中共病毒溯源 #FreeMilesGuoNow
+
+💥币圈要崩❗️❗️❗️💥
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 1:37 AM UTC  - :tv:直播](/content/gettr/p2cedkk0c8a.md)
 
 3/23/2023 April Moss’ interview with Ava: What happened on March 15 proves that the DOJ, FBI, and SEC are all manipulated by the CCP, and America is in danger.
@@ -32,7 +44,7 @@
 
 ---
 
-[@milesguo 3/24/2023 1:57 AM UTC  - :tv:直播](/content/gettr/p2cdrbu55fb.md)
+[@milesguo 3/24/2023 3:13 AM UTC  - :tv:直播](/content/gettr/p2ce3a67d7c.md)
 
 2023-3-23《鸡血王喜币大作战》508期嘉宾：Emily 文空
 
@@ -157,14 +169,6 @@
 ---
 
 [@milesguo 3/23/2023 1:05 PM UTC  - :tv:直播](/content/gettr/p2cbnehbfc1.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十八场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 12:39 PM UTC  - :tv:直播](/content/gettr/p2cc5bdcdc4.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第七十八场）
 
