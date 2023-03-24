@@ -10,6 +10,28 @@
 
 ---
 
+[@milesguo 3/24/2023 11:30 PM UTC  - :tv:直播](/content/gettr/p2ch3oa4f1b.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/24/2023 11:08 PM UTC  - :tv:直播](/content/gettr/p2ch8wd659d.md)
+
+3/24/2023 David Whited: The CCP’s infiltration is in every facet of American life now. The CCP is one that manipulates all levels of American society behind the scenes.
+
+#MilesGuo  #FreeMilesGuoNow #CCP #DOJ #FBI
+
+
+
+3/24/2023 大卫·怀特...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/24/23/7514509f-6e61-0e11-fbb5-43b68d320141/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 10:02 PM UTC  - :tv:直播](/content/gettr/p2cgvvwe3a7.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
@@ -144,20 +166,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 
 ---
 
-[@milesguo 3/24/2023 11:08 PM UTC  - :tv:直播](/content/gettr/p2ch8wd659d.md)
-
-3/24/2023 David Whited: The CCP’s infiltration is in every facet of American life now. The CCP is one that manipulates all levels of American society behind the scenes.
-
-#MilesGuo  #FreeMilesGuoNow #CCP #DOJ #FBI
-
-
-
-3/24/2023 大卫·怀特...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/24/23/7514509f-6e61-0e11-fbb5-43b68d320141/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 3/24/2023 11:04 AM UTC  - :tv:直播](/content/gettr/p2cfh5d0104.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
@@ -171,18 +179,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 3/23/2023 Nicole: An investor of GTV who fled Communist China told us that the CCP forced him to file false claims to the SEC and FBI against GTV! The SEC has been keeping money from GTV's investors and has not returned it, but bla...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/24/11/54ddab1f-6be3-5841-0967-685c3eb68321/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 3/24/2023 10:57 AM UTC  - :tv:直播](/content/gettr/p2cfeub164f.md)
-
-新中国联邦 G | MUSIC #首款NFT系列#“灭共者徽章 Ⅱ” ——# “丰盈石" 空投发布现场！！
-
-活动按77.7%概率抽奖，NFT空投总数：1372套
-
-主持人：唐平&威廉王  Thomas
-
-<img src="https://media.gettr.com/group3/origin/2023/03/24/05/2072b9ca-5166-eb63-662e-c77d96d23152/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
