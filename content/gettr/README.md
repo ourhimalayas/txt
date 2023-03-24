@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/24/2023 7:24 AM UTC  - :tv:直播](/content/gettr/p2cerhg21e8.md)
+
+3/23/2023 Nicole’s Interview with Brad Good: Mr. Good believes that the DOJ and SEC have received all the help and involvement from the CCP in prosecuting Miles Guo. The indictment doesn’t make sense at all. Mr. Guo needs as much h...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/24/07/977ba3e7-6b03-7743-382a-734e87b9402d/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/24/2023 7:14 AM UTC  - :tv:直播](/content/gettr/p2cehk6e127.md)
+
+03/23/2023 Nicole: We are not the victims of Miles Guo, we are the victims of SEC,DOJ, and the FBI which is totally weaponized by the CCP to persecute Chinese dissidents. The different treatments of Mr. Miles Guo and Huawei CFO Men...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/24/07/16fcc1e6-ba07-c0e0-f99a-005e5032ec12/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 6:09 AM UTC  - :tv:直播](/content/gettr/p2cejbn63a4.md)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
@@ -65,14 +81,6 @@
 03/17/2023 April Moss said in her interview with Ava Chen that she was not surprised about  Miles Guo's arrest. What's interesting is that six hours after he was arrested, while the FBI agents were still in his apartment on the 18t...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/24/03/1acd22d3-f58a-be8d-de7d-4f40e85ebcc5/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 7:14 AM UTC  - :tv:直播](/content/gettr/p2cehk6e127.md)
-
-03/23/2023 Nicole: We are not the victims of Miles Guo, we are the victims of SEC,DOJ, and the FBI which is totally weaponized by the CCP to persecute Chinese dissidents. The different treatments of Mr. Miles Guo and Huawei CFO Men...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/24/07/16fcc1e6-ba07-c0e0-f99a-005e5032ec12/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@
 3/22/2023 Silk’s Interview with Ava: The total assets of Miles Guo seized by the Chinese Communist Party due to his cause of taking down the CCP are worth $20 billion, but according to the indictment issued on March 15 by the US De...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/23/21/3e68c111-68e2-eba5-8c0f-c8eaf18bff6e/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 9:13 PM UTC  - :tv:直播](/content/gettr/p2cdbk67198.md)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
