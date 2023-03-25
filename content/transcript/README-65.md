@@ -49,9 +49,9 @@
 
 [郭文贵2019年10月25日第二次直播 20191025_2直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/content/transcript/2019/10/20191025-53483249.md)
 
-[郭文贵2019年10月24日 20191024谈彭斯副总统演讲](/content/transcript/2019/10/20191024-53483231.md)
+[2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲](/content/transcript/2019/10/20191024-53916903.md)
 
-[2019年10月23日 郭文贵先生直播：中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！全文字版](/content/transcript/2019/10/20191023-53916190.md)
+[郭文贵2019年10月24日 20191024谈彭斯副总统演讲](/content/transcript/2019/10/20191024-53483231.md)
 
 
 ## 頁面 65/110 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)

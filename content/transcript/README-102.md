@@ -3,6 +3,12 @@
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年12月23日 20171223关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/transcript/2017/12/20171223-53483967.md)
+
+[郭文贵2017年12月12日 20171212文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子](/content/transcript/2017/12/20171212-53483946.md)
+
+[郭文贵2017年12月9日 20171209纽约下大雪了！一切都是刚刚开始！](/content/transcript/2017/12/20171209-53483940.md)
+
 [郭文贵2017年12月8日视频 20171208一切都是刚刚开始](/content/transcript/2017/12/20171208-53483937.md)
 
 [郭文贵2017年12月5日 20171205尊敬的推友们你们健身了吗？](/content/transcript/2017/12/20171205-53483933.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年11月8日 20171108twitter再次被封7天后的报平安](/content/transcript/2017/11/20171108-53484033.md)
 
 [郭文贵2017年11月7日接受郭宝胜采访 20171107](/content/transcript/2017/11/20171107-53484192.md)
-
-[郭文贵2017年11月2日在Livestream试直播 20171102](/content/transcript/2017/11/20171102-53484179.md)
-
-[郭文贵2017年11月1日 20171101“谁抓判文贵的家人？”什么时候报下两个常委的料！](/content/transcript/2017/11/20171101-53484028.md)
-
-[郭文贵2017年11月1日视频 20171101_2征服敌人最好的办法就是将自己的事情做好生活好](/content/transcript/2017/11/20171101-53476954.md)
 
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

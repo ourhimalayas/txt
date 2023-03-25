@@ -3,6 +3,12 @@
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年6月27日 20170627应推友们的要求和狗狗snow的视频](/content/transcript/2017/06/20170627-53483791.md)
+
+[郭文贵2017年6月26日视频 20170626](/content/transcript/2017/06/20170626-53483789.md)
+
+[郭文贵2017年6月24日视频 20170624推特报平安视频. 推文打成了“报仇平安”哈哈O(∩_∩)O](/content/transcript/2017/06/20170624-53483526.md)
+
 [郭文贵2017年6月22日视频 20170622推特报平安视频……一切都是刚刚开始！✊️✊️✊️✊️](/content/transcript/2017/06/20170622-53483527.md)
 
 [郭文贵2017年6月19日视频 20170619再让子弹飞一会儿！](/content/transcript/2017/06/20170619-53483786.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年5月21日第一次直播 20170521_1](/content/transcript/2017/05/20170521-53483996.md)
 
 [郭文贵2017年5月21日第三次直播 20170521_3](/content/transcript/2017/05/20170521-53483794.md)
-
-[郭文贵2017年5月21日第二次直播 20170521_2](/content/transcript/2017/05/20170521-53483778.md)
-
-[郭文贵2017年5月20日第一次直播 20170520在香港是否存在执法黑屋](/content/transcript/2017/05/20170520-53483761.md)
-
-[郭文贵2017年5月19日 20170519感恩推友关心 呼吁推友冷静](/content/transcript/2017/05/20170519-53483759.md)
 
 
 ## 頁面 108/110 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

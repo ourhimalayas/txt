@@ -3,6 +3,12 @@
 
 ## 頁面 85/110 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月3日视频 20190103_1香港和台湾人民在2019年一定会对CCP全面反击，港台的光明时刻一定会到来](/content/transcript/2019/01/20190103-53478477.md)
+
+[郭文贵2019年1月2日视频 20190102_2风中的Snow](/content/transcript/2019/01/20190102-53478475.md)
+
+[郭文贵2019年1月2日视频 20190102_1乔布斯与他带有神秘色彩的设计的游艇太牛了](/content/transcript/2019/01/20190102-53478472.md)
+
 [郭文贵2019年1月1日视频 20190101接受木兰访谈的卡丽熙，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么。](/content/transcript/2019/01/20190101-53481562.md)
 
 [郭文贵2019年1月1日视频 20190101_2以法灭共开始倒计时](/content/transcript/2019/01/20190101-53478469.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年12月11日视频 20181211_2回到了美麗的藍天白雲的紐約](/content/transcript/2018/12/20181211-53478565.md)
 
 [郭文贵2018年12月11日视频 20181211_1文贵简单的早餐](/content/transcript/2018/12/20181211-53478564.md)
-
-[郭文贵2018年12月10日视频 20181210纠正一下昨天直播时的几个口误！刘乐国因为掌握令计划案北大李友案太多案情](/content/transcript/2018/12/20181210-53481218.md)
-
-[郭文贵2018年12月10日视频 20181210_2大连刘乐国因为通过李友案件掌握了中南海的高官的很多证据被释放．他能活多久？](/content/transcript/2018/12/20181210-53478559.md)
-
-[郭文贵2018年12月9日视频 20181209量震床上功夫和G20中美峰會的真相，孟晚舟女士在加拿大被抓與華為公司的背后真相，張首晟先生是自殺還是被殺。](/content/transcript/2018/12/20181209-53479444.md)
 
 
 ## 頁面 85/110 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

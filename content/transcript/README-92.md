@@ -3,6 +3,12 @@
 
 ## 頁面 92/110 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月29日视频 20180829谈王健事件发布会的准备工作](/content/transcript/2018/08/20180829-53482534.md)
+
+[郭文贵2018年8月27日直播 20180827_2](/content/transcript/2018/08/20180827-53478182.md)
+
+[郭文贵2018年8月27日直播 20180827_1](/content/transcript/2018/08/20180827-53478181.md)
+
 [郭文贵2018年8月26日视频 20180826应战友们的要求发一个Snow现在的生活视频](/content/transcript/2018/08/20180826-53477261.md)
 
 [郭文贵2018年8月24日视频 20180824澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/content/transcript/2018/08/20180824-53482516.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年8月10日直播 20180810_1尊敬的战友们你们健身了吗！今天我将与刑事律师团开会．关于王健被杀的案件！一切都是刚刚开始！](/content/transcript/2018/08/20180810-53478143.md)
 
 [郭文贵2018年8月9日视频 20180809海航集团纽约大楼被白宫查封只是刚刚开始！](/content/transcript/2018/08/20180809-53482477.md)
-
-[郭文贵2018年8月9日直播 20180809_2](/content/transcript/2018/08/20180809-53478139.md)
-
-[郭文贵2018年8月8日直播 20180808_7我将拉黑任何一个挑战喜马拉雅打击盗国贼的推号开足马力全力以赴投入全部精力物力推进爆料革命](/content/transcript/2018/08/20180808-53478136.md)
-
-[郭文贵2018年8月8日直播 20180808_6下一周是给盗国贼反击的时间文贵要准备发布会和刑事案件具体落实一切都是刚刚开始](/content/transcript/2018/08/20180808-53478131.md)
 
 
 ## 頁面 92/110 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)

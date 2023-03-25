@@ -3,6 +3,12 @@
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月24日视频 20181024_3](/content/transcript/2018/10/20181024-53478340.md)
+
+[郭文贵2018年10月24日视频 20181024_2太卡1](/content/transcript/2018/10/20181024-53478337.md)
+
+[郭文贵2018年10月23日视频 20181023_4這幾天阿裡巴巴及騰訊的股票 港幣人民幣匯率 期指的變化怎麼回事](/content/transcript/2018/10/20181023-53478335.md)
+
 [郭文贵2018年10月23日视频 20181023_3給大家講一個猥瑣的驢子夏的笑話](/content/transcript/2018/10/20181023-53478333.md)
 
 [郭文贵2018年10月23日视频 20181023_2昨晚澳門的一個朋友突然出現在我家 嚇死我了](/content/transcript/2018/10/20181023-53478330.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年10月12日视频 20181012_3](/content/transcript/2018/10/20181012-53478348.md)
 
 [郭文贵2018年10月12日视频 20181012_2共产党．王岐山．孟建柱．傳政华．孙力军．的专案组．与大连法院以黑治郭．罚北京政泉控股600亿．＋180亿未收！大约13亿美元！这是一个爆料革命的重大成就！](/content/transcript/2018/10/20181012-53478347.md)
-
-[郭文贵2018年10月11日视频 20181011_1未来的三周将是文贵艰难的日子！盗国贼开始一系的疯狂抓捕审判我的员工及家人！拍卖公司资产！](/content/transcript/2018/10/20181011-53478345.md)
-
-[郭文贵2018年10月10日视频 20181010江．朱．王．等盗国贼们．正在疯狂的向海外洗钱！党内对国有化私人企业！产生巨大分歧！都在等上面出大事儿！](/content/transcript/2018/10/20181010-53482682.md)
-
-[郭文贵2018年10月10日视频 20181010_2这个来自黎巴嫩的马黑地是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫AMAC，CEO Muhiddin案！](/content/transcript/2018/10/20181010-53477453.md)
 
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)

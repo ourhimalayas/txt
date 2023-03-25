@@ -3,6 +3,12 @@
 
 ## 頁面 76/110 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集](/content/transcript/2019/07/20190707-53575672.md)
+
+[郭文贵2019年7月7日第一次直播 20190707_1爆料革命当中扮演的重要角色……并希望能给更多战友加入郭媒体……一切都是刚刚开始！](/content/transcript/2019/07/20190707-53482865.md)
+
+[郭文贵2019年7月7日第二次直播 20190707_2王岐山又出手 王健“活该死”；及香港抗议将引发的CCP灭亡第一战的意义](/content/transcript/2019/07/20190707-53482857.md)
+
 [郭文贵2019年7月7日视频 20190707_4Snow2](/content/transcript/2019/07/20190707-53478781.md)
 
 [郭文贵2019年7月7日视频 20190707_3Snow1](/content/transcript/2019/07/20190707-53478779.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年6月28日视频 20190628G20](/content/transcript/2019/06/20190628-53482757.md)
 
 [郭文贵2019年6月27日视频 20190627_1尊敬的战友好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！](/content/transcript/2019/06/20190627-53478753.md)
-
-[](/content/transcript/2019/06/20190626-53552511.md)
-
-[郭文贵2019年6月26日视频 20190626谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/transcript/2019/06/20190626-53482733.md)
-
-[2019年6月25日郭文贵先生直播全文字版：从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/content/transcript/2019/06/20190625-53545804.md)
 
 
 ## 頁面 76/110 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)

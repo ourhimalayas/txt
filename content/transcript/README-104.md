@@ -3,6 +3,12 @@
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年10月1日视频 20171001明天请挺郭人士上船](/content/transcript/2017/10/20171001-53483606.md)
+
+[郭文贵2017年9月30日视频 20170930中国驻美大使馆给哈德逊打电话阻止郭的演讲](/content/transcript/2017/09/20170930-53483604.md)
+
+[郭文贵2017年9月29日视频 20170929北京老领导说信息梗阻 吴征杨澜来纽约了](/content/transcript/2017/09/20170929-53483601.md)
+
 [郭文贵2017年9月28日视频 20170928国内封网，放出曲龙，游虎给虎看！](/content/transcript/2017/09/20170928-53483600.md)
 
 [郭文贵2017年9月27日视频 20170927不要开会，不要搞募捐，要行动！](/content/transcript/2017/09/20170927-53483597.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年9月9日 20170909说说姚依林与马云，孟建柱，孙立军](/content/transcript/2017/09/20170909-53483965.md)
 
 [郭文贵2017年9月9日视频 20170909_5在船上](/content/transcript/2017/09/20170909-53483572.md)
-
-[郭文贵2017年9月9日视频 20170909_4补偿今天直播技术的失败 分享游艇内部](/content/transcript/2017/09/20170909-53483567.md)
-
-[郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！](/content/transcript/2017/09/20170909-53483564.md)
-
-[郭文贵2017年9月9日视频 20170909_2分享此时此刻 为今天的直播技术失误道歉](/content/transcript/2017/09/20170909-53483562.md)
 
 
 ## 頁面 104/110 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)

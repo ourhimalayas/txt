@@ -3,6 +3,12 @@
 
 ## 頁面 73/110 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年8月5日文贵大直播全文字版：香港大劫在即······](/content/transcript/2019/08/20190805-53729738.md)
+
+[郭文贵2019年8月5日视频 20190805香港大劫在即……希望香港的四个不要脸群体．能站在正义的一边帮助上街的孩子们。](/content/transcript/2019/08/20190805-53482952.md)
+
+[郭文贵2019年8月4日视频 20190804_1香港要出随时出大事！传统媒体界转向爆料革命？](/content/transcript/2019/08/20190804-53478894.md)
+
 [2019年8月3日文贵大直播全文字版：关注香港即将发生的大事](/content/transcript/2019/08/20190803-53707154.md)
 
 [郭文贵2019年8月3日视频 20190803关于起诉华尔街日报](/content/transcript/2019/08/20190803-53482943.md)
@@ -46,12 +52,6 @@
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715653.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715528.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715452.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715422.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715404.md)
 
 
 ## 頁面 73/110 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

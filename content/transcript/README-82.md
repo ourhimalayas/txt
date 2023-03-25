@@ -3,6 +3,12 @@
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年3月30日视频 20190330_1文贵在加州向战友们报平安！有的事情爆得太早 把事情都毀了 而且毀得很嚴重](/content/transcript/2019/03/20190330-53478654.md)
+
+[郭文贵2019年3月29日浴火重生 20190329超人归来](/content/transcript/2019/03/20190329-53482196.md)
+
+[郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。](/content/transcript/2019/03/20190307-53478651.md)
+
 [郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？](/content/transcript/2019/03/20190305-53482172.md)
 
 [郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……](/content/transcript/2019/03/20190304-53482161.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读](/content/transcript/2019/02/20190216-53482266.md)
 
 [郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190207-53482228.md)
-
-[郭文贵2019年2月7日视频 20190207_3Snow 在咬王妓山．孟建柱．孙力军的蛋蛋！](/content/transcript/2019/02/20190207-53478598.md)
-
-[郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！](/content/transcript/2019/02/20190207-53478596.md)
-
-[郭文贵2019年2月6日 20190206文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190206-53482187.md)
 
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

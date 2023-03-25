@@ -3,6 +3,12 @@
 
 ## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月9日视频 20170909_4补偿今天直播技术的失败 分享游艇内部](/content/transcript/2017/09/20170909-53483567.md)
+
+[郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！](/content/transcript/2017/09/20170909-53483564.md)
+
+[郭文贵2017年9月9日视频 20170909_2分享此时此刻 为今天的直播技术失误道歉](/content/transcript/2017/09/20170909-53483562.md)
+
 [郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！](/content/transcript/2017/09/20170907-53483961.md)
 
 [郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！](/content/transcript/2017/09/20170906-53483863.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年8月25日视频 20170825_270天的特别之旅](/content/transcript/2017/08/20170825-53483540.md)
 
 [郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦](/content/transcript/2017/08/20170824-53483923.md)
-
-[郭文贵2017年8月23日视频 20170823](/content/transcript/2017/08/20170823-53483528.md)
-
-[郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。](/content/transcript/2017/08/20170822-53484311.md)
-
-[郭文贵2017年8月22日直播 20170822_2](/content/transcript/2017/08/20170822-53482776.md)
 
 
 ## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

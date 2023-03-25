@@ -3,6 +3,12 @@
 
 ## 頁面 67/110 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年10月12日郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡全文字版](/content/transcript/2019/10/20191012-53909193.md)
+
+[2019年10月12日郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡全文字版](/content/transcript/2019/10/20191012-53909141.md)
+
+[2019年10月12日 中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！ 全文字版](/content/transcript/2019/10/20191012-53903476.md)
+
 [郭文贵2019年10月12日视频 20191012中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！](/content/transcript/2019/10/20191012-53483319.md)
 
 [郭文贵2019年10月12日视频 20191012_4 郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡](/content/transcript/2019/10/20191012-53479064.md)
@@ -46,12 +52,6 @@
 [2019年10月5日与郭文贵先生连线直播全文字版](/content/transcript/2019/10/20191005-53894082.md)
 
 [2019年10月4日文贵大直播全文字版：谈香港动用紧急法，出台禁止蒙面条例](/content/transcript/2019/10/20191004-53885249.md)
-
-[郭文贵2019年10月4日 20191004谈香港动用紧急法，出台禁止蒙面条例](/content/transcript/2019/10/20191004-53483221.md)
-
-[郭文贵2019年10月3日视频 20191003_1香港将实施宵禁令 变相戒严 大抓捕](/content/transcript/2019/10/20191003-53479035.md)
-
-[郭文贵2019年10月2日视频 20191002_1美国CAI通过最高技术 扫描‘十一’军演无人机 发现都是假的](/content/transcript/2019/10/20191002-53479029.md)
 
 
 ## 頁面 67/110 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)

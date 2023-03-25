@@ -3,6 +3,12 @@
 
 ## 頁面 94/110 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年7月17日路德访谈（二）20180717_2郭文贵先生全球直播（第二部分）](/content/transcript/2018/07/20180717-53482435.md)
+
+[郭文贵2018年7月17日路德访谈（一）20180717_1郭文贵先生全球直播（第一部分）](/content/transcript/2018/07/20180717-53482415.md)
+
+[郭文贵2018年7月17日路德访谈 20180717_4高清版 王健在法国普罗旺斯是怎么被王歧山杀死的！](/content/transcript/2018/07/20180717-53478371.md)
+
 [郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/transcript/2018/07/20180710-53482405.md)
 
 [郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/transcript/2018/07/20180709-53482390.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年6月13日直播 20180613_1郭战装与什么是习主席的政治轮轴效应！](/content/transcript/2018/06/20180613-53477894.md)
 
 [郭文贵2018年6月11日直播 20180611_1陈峰脑血管病急救．感谢黑客先生．大陆官场热离婚．商场热移民美国！习主席进入官场轮轴灾难区！](/content/transcript/2018/06/20180611-53477873.md)
-
-[郭文贵2018年6月10日 20180610玉岐山孟建柱命不久了！马航真相一定会公布！(一)](/content/transcript/2018/06/20180610-53483801.md)
-
-[郭文贵2018年6月10日直播 20180610_2文贵爆料第一階段启蒙期结束．正在准备第二階段．定点爆破！](/content/transcript/2018/06/20180610-53477865.md)
-
-[郭文贵2018年6月5日直播 20180605_2 看了万润南先生的视频后的感想！](/content/transcript/2018/06/20180605-53477847.md)
 
 
 ## 頁面 94/110 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)

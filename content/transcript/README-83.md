@@ -3,6 +3,12 @@
 
 ## 頁面 83/110 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月7日视频 20190207_3Snow 在咬王妓山．孟建柱．孙力军的蛋蛋！](/content/transcript/2019/02/20190207-53478598.md)
+
+[郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！](/content/transcript/2019/02/20190207-53478596.md)
+
+[郭文贵2019年2月6日 20190206文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190206-53482187.md)
+
 [郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播](/content/transcript/2019/02/20190205-53478592.md)
 
 [郭文贵2019年2月4日英文 20190204_1除夕爆料春晚 达赖喇嘛尊者](/content/transcript/2019/02/20190204-53482158.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！](/content/transcript/2019/01/20190120-53481784.md)
 
 [郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友](/content/transcript/2019/01/20190120-53478116.md)
-
-[郭文贵2019年1月19日视频 20190119文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件。](/content/transcript/2019/01/20190119-53481757.md)
-
-[郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀](/content/transcript/2019/01/20190118-53481748.md)
-
-[郭文贵2019年1月18日第二次直播 20190118_2关于政事小哥！因为受共产党对家人的迫害威胁，不得不离开过爆料革命！这更加坚定了摧毁流氓CCp的决心！以实际行动为战友报仇！一切都是刚刚开始](/content/transcript/2019/01/20190118-53481736.md)
 
 
 ## 頁面 83/110 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

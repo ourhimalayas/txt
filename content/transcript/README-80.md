@@ -3,6 +3,12 @@
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月6日视频 20190506_35.6聊股市](/content/transcript/2019/05/20190506-53478091.md)
+
+[郭文贵2019年5月5日与班农先生对谈 20190505文贵与班农先生就有关中美贸易协议停止！](/content/transcript/2019/05/20190505-53482505.md)
+
+[郭文贵2019年5月4日视频 20190504小夏与文贵谈四一九VOA断播背后的真相](/content/transcript/2019/05/20190504-53482485.md)
+
 [郭文贵2019年5月3日视频 201905032017年的5月3号和2018年的5月3号都发生了哪些重大事件，文贵与大家分享一些过去没有讲过的事情](/content/transcript/2019/05/20190503-53482476.md)
 
 [郭文贵2019年5月3日视频 20190503_4文贵在做平板称时的视频做得不标准，希望战友们不要秀文贵这样的做共28分钟。](/content/transcript/2019/05/20190503-53478694.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年4月20日视频 20190420班农先生与文贵谈郭台铭选台湾总统 : Steve Bannon and Miles Guo, a dialogue on Terry Gou’s presidential bid](/content/transcript/2019/04/20190420-53482349.md)
 
 [郭文贵2019年4月19日视频 20190419明早將與班農一起直播, 班農說的話文貴不負責, 因為他可能違反郭七條](/content/transcript/2019/04/20190419-53478635.md)
-
-[郭文贵2019年4月18日视频 20190418_1一个难忘的日子……2017年与VOA龚小夏女士．东方先生……在我家的釆访！断播二周年．文贵回顾这两年来爆料的一些人和事……一切都是刚刚开始](/content/transcript/2019/04/20190418-53482322.md)
-
-[郭文贵2019年4月18日视频 20190418_2正在准备20号上午9点的直播！](/content/transcript/2019/04/20190418-53478632.md)
-
-[郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)](/content/transcript/2019/04/20190417-53478630.md)
 
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

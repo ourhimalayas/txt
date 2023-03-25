@@ -3,6 +3,12 @@
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月12日视频 20190612_4喜马拉雅连线香港前线战友！5時58分](/content/transcript/2019/06/20190612-53479242.md)
+
+[郭文贵2019年6月12日视频 20190612_3文贵先生直播：最终结果立法推迟3時36分](/content/transcript/2019/06/20190612-53479090.md)
+
+[郭文贵2019年6月12日视频 20190612_2细思喜马拉雅与文贵，班农直播，关注香港游行！（下）](/content/transcript/2019/06/20190612-53479066.md)
+
 [郭文贵2019年6月12日视频 20190612_1细思喜马拉雅与文贵，班农直播，关注香港游行！（上）](/content/transcript/2019/06/20190612-53479060.md)
 
 [郭文贵2019年6月12日视频 20190612_6香港战友在前线](/content/transcript/2019/06/20190612-53478087.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年5月27日视频 20190527_1文貴又出來浪了](/content/transcript/2019/05/20190527-53478666.md)
 
 [郭文贵2019年5月26日视频 20190526_12020年6月4日将是新中国的国庆日！](/content/transcript/2019/05/20190526-53478727.md)
-
-[郭文贵2019年5月26日视频 20190526_2SNOW 是路德先生的大粉丝！](/content/transcript/2019/05/20190526-53478663.md)
-
-[郭文贵2019年5月25日视频 20190525世界秩序新开始就在日本G20会议 G20 summit will mark the beginning of a new US-China game!](/content/transcript/2019/05/20190525-53482697.md)
-
-[郭文贵2019年5月23日直播 20190523鲁仁达先生与文贵在线互访直播](/content/transcript/2019/05/20190523-53482675.md)
 
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

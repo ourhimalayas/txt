@@ -3,6 +3,12 @@
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月2日第二次直播 20170802_2试试网络：拜托推友别给我发黄色视频．下一集的爆料的大概的预报！(2)](/content/transcript/2017/08/20170802-53483988.md)
+
+[郭文贵2017年8月2日第三次直播 20170802_3报平安小视频及王岐山内部讲话谈强拆，中共恶政太可怕！最应该被强拆的是盗国集团啊](/content/transcript/2017/08/20170802-53483518.md)
+
+[郭文贵2017年8月1日视频 20170801露点报平安,海上钓鱼,请君入瓮,后发制人](/content/transcript/2017/08/20170801-53483520.md)
+
 [郭文贵2017年7月27日 20170727王岐山的真姚庆到底怕什么](/content/transcript/2017/07/20170727-53483819.md)
 
 [郭文贵2017年7月26日 20170726贯君的6000亿原来去了这里！刘呈杰他爹原来是他！](/content/transcript/2017/07/20170726-53483808.md)
@@ -46,12 +52,6 @@
 [郭文贵2017年6月30日直播 20170630关于王岐山与范冰冰的关系](/content/transcript/2017/06/20170630-53483811.md)
 
 [郭文贵2017年6月28日完整版 20170628](/content/transcript/2017/06/20170628-53483804.md)
-
-[郭文贵2017年6月27日 20170627应推友们的要求和狗狗snow的视频](/content/transcript/2017/06/20170627-53483791.md)
-
-[郭文贵2017年6月26日视频 20170626](/content/transcript/2017/06/20170626-53483789.md)
-
-[郭文贵2017年6月24日视频 20170624推特报平安视频. 推文打成了“报仇平安”哈哈O(∩_∩)O](/content/transcript/2017/06/20170624-53483526.md)
 
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

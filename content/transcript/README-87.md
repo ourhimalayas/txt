@@ -3,6 +3,12 @@
 
 ## 頁面 87/110 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月17日视频 2018111711月20号的新闻发布会进展报告，遇到了巨大的困难，但是一定会照常进行](/content/transcript/2018/11/20181117-53480934.md)
+
+[郭文贵2018年11月16日视频 20181116_2](/content/transcript/2018/11/20181116-53478402.md)
+
+[郭文贵2018年11月16日视频 20181116_1文贵在皮埃尔酒店现场采访演习搞笑版](/content/transcript/2018/11/20181116-53478400.md)
+
 [郭文贵2018年11月15日视频 20181115发布会定在11月20日，班农主持，美国3大律师所之一Quinn参与的“以法灭共”新时代即将全面开始](/content/transcript/2018/11/20181115-53480790.md)
 
 [郭文贵2018年11月15日视频 20181115_3](/content/transcript/2018/11/20181115-53478397.md)
@@ -46,12 +52,6 @@
 [郭文贵2018年10月25日视频 20181025_2](/content/transcript/2018/10/20181025-53478342.md)
 
 [郭文贵2018年10月24日视频 20181024王歧山与马云窜访忽悠以色列????????的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/content/transcript/2018/10/20181024-53478376.md)
-
-[郭文贵2018年10月24日视频 20181024_3](/content/transcript/2018/10/20181024-53478340.md)
-
-[郭文贵2018年10月24日视频 20181024_2太卡1](/content/transcript/2018/10/20181024-53478337.md)
-
-[郭文贵2018年10月23日视频 20181023_4這幾天阿裡巴巴及騰訊的股票 港幣人民幣匯率 期指的變化怎麼回事](/content/transcript/2018/10/20181023-53478335.md)
 
 
 ## 頁面 87/110 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)

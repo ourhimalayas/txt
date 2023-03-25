@@ -3,6 +3,12 @@
 
 ## 頁面 68/110 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月4日 20191004谈香港动用紧急法，出台禁止蒙面条例](/content/transcript/2019/10/20191004-53483221.md)
+
+[郭文贵2019年10月3日视频 20191003_1香港将实施宵禁令 变相戒严 大抓捕](/content/transcript/2019/10/20191003-53479035.md)
+
+[郭文贵2019年10月2日视频 20191002_1美国CAI通过最高技术 扫描‘十一’军演无人机 发现都是假的](/content/transcript/2019/10/20191002-53479029.md)
+
 [2019年10月1日文贵大直播全文字版：郭先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！下集](/content/transcript/2019/10/20191001-53885050.md)
 
 [2019年10月1日 郭文贵先生开篇演讲 全文字版](/content/transcript/2019/10/20191001-53871718.md)
@@ -46,12 +52,6 @@
 [2019年9月24日文贵大直播全文字版：红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.](/content/transcript/2019/09/20190924-53873277.md)
 
 [郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！](/content/transcript/2019/09/20190924-53483185.md)
-
-[郭文贵2019年9月24日第二次直播 20190924_2红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.](/content/transcript/2019/09/20190924-53483163.md)
-
-[郭文贵2019年9月24日视频 20190924_3直播吃红烧肉，阅兵后美女按需分配](/content/transcript/2019/09/20190924-53478066.md)
-
-[2019年9月23日 郭文贵先生与班农先生直播 全文字版 中共全面实施“驭民五术”，国庆军演民不聊生；应对中共“三大战役”，美国只会打口炮么？](/content/transcript/2019/09/20190923-53864255.md)
 
 
 ## 頁面 68/110 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
