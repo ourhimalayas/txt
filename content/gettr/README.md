@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/25/2023 12:30 AM UTC  - :tv:直播](/content/gettr/p2ch95g83f7.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@qmay007 3/25/2023 12:01 AM UTC  - :tv:直播](/content/gettr/p2chlja2f7c.md)
 
 Super-May线上直播音乐会 第四十八期：微风细雨
@@ -30,7 +38,7 @@ Super-May线上直播音乐会 第四十八期：微风细雨
 
 ---
 
-[@milesguo 3/25/2023 12:30 AM UTC  - :tv:直播](/content/gettr/p2ch95g83f7.md)
+[@milesguo 3/25/2023 1:00 AM UTC  - :tv:直播](/content/gettr/p2chd8w2d96.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
 
@@ -175,14 +183,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 11:09 AM UTC  - :tv:直播](/content/gettr/p2ceqwfc6c7.md)
-
-3/23/2023 Nicole: An investor of GTV who fled Communist China told us that the CCP forced him to file false claims to the SEC and FBI against GTV! The SEC has been keeping money from GTV's investors and has not returned it, but bla...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/24/11/54ddab1f-6be3-5841-0967-685c3eb68321/out.jpg" width="506" height="284">
 
 ---
 
