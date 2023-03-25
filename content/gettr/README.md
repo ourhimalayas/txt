@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/25/2023 5:04 AM UTC  - :tv:直播](/content/gettr/p2chtiwb1a8.md)
+
+03/23/2023 In an interview with the FOC Show, Ava Chen discussed Mr. Miles Guo's ongoing legal battles brought against him by the CCP infiltrating the US Department of Justice. Mr. Miles Guo has faced numerous false allegations ove...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/25/05/8d0bf45c-6d78-5c44-4c09-4a785e8640bc/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/25/2023 4:14 AM UTC  - :tv:直播](/content/gettr/p2ci04lf103.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/25/2023 3:01 AM UTC  - :tv:直播](/content/gettr/p2chxqj25e9.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
@@ -62,11 +78,11 @@ Super-May线上直播音乐会 第四十八期：微风细雨
 
 ---
 
-[@milesguo 3/25/2023 4:14 AM UTC  - :tv:直播](/content/gettr/p2ci04lf103.md)
+[@milesguo 3/25/2023 5:05 AM UTC  - :tv:直播](/content/gettr/p2ci3wy0fe6.md)
 
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
+03/23/2023 Ava Chen of the New Federal State of China and David Whited of the FOC Show call on Americans to contact their congressmen to free Mr. Miles Guo. For these political leaders, five phone calls means a crisis in their worl...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/25/05/f2226d77-949b-019f-d53e-8c52652fdc66/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,36 +169,6 @@ Super-May线上直播音乐会 第四十八期：微风细雨
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 1:38 PM UTC  - :tv:直播](/content/gettr/p2cfey18d66.md)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 1:24 PM UTC  - 6圖](/content/gettr/p2cfvcg984a.md)
-
-Miles Guo's Songs iTunes Ranking Record - March 24, 2023
-
-https://gnews.org/articles/1042683
-
-
-
-“微风细雨” hits iTunes  
-
-No.2🥈 on Singapore🇸🇬 Top Songs Chart  
-
-No.2🥈 on Singapore🇸🇬 Pop Songs Chart  
-
-
-
-“The Terminator Snow” hit...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/24/13/79dfd5fb-e666-0c68-3b78-f442c5cac56d/af75c11cdd5a7acf7fb634008c569b9b.jpg" width="506" height="284">
 
 ---
 
