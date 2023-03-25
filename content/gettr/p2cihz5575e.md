@@ -2,9 +2,9 @@
 ---
 
 
-`@milesguo 3/24/2023 8:00 PM UTC`
+`@milesguo 3/25/2023 12:00 PM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p2cgojeada2)
+[轉發自GETTR](https://gettr.com/post/p2cihz5575e)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
 
