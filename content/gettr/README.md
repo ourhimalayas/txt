@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/25/2023 1:00 AM UTC  - :tv:直播](/content/gettr/p2chd8w2d96.md)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/25/2023 12:30 AM UTC  - :tv:直播](/content/gettr/p2ch95g83f7.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
@@ -38,7 +46,7 @@ Super-May线上直播音乐会 第四十八期：微风细雨
 
 ---
 
-[@milesguo 3/25/2023 1:00 AM UTC  - :tv:直播](/content/gettr/p2chd8w2d96.md)
+[@milesguo 3/25/2023 2:01 AM UTC  - :tv:直播](/content/gettr/p2ch5pba752.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
 
@@ -171,14 +179,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 ---
 
 [@milesguo 3/24/2023 12:30 PM UTC  - :tv:直播](/content/gettr/p2cesww857b.md)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2cf5dq44f4.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第112场）
 
