@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/25/2023 8:16 PM UTC  - :tv:直播](/content/gettr/p2ck34je0a4.md)
+
+2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第144场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/25/2023 7:09 PM UTC  - :tv:直播](/content/gettr/p2cjkskb6b8.md)
 
 2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第144场）
@@ -66,7 +74,7 @@
 
 ---
 
-[@milesguo 3/25/2023 8:16 PM UTC  - :tv:直播](/content/gettr/p2ck34je0a4.md)
+[@milesguo 3/25/2023 9:05 PM UTC  - :tv:直播](/content/gettr/p2ck3iy9206.md)
 
 2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第144场）
 
@@ -151,14 +159,6 @@
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/25/2023 5:05 AM UTC  - :tv:直播](/content/gettr/p2ci3wy0fe6.md)
-
-03/23/2023 Ava Chen of the New Federal State of China and David Whited of the FOC Show call on Americans to contact their congressmen to free Mr. Miles Guo. For these political leaders, five phone calls means a crisis in their worl...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/25/05/f2226d77-949b-019f-d53e-8c52652fdc66/out.jpg" width="506" height="284">
 
 ---
 
