@@ -3,6 +3,8 @@
 
 ## 頁面 84/110 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月17日第一次直播 20190117_1中美贸易谈判崩裂意味着什么????文贵在这里向你们报告一下！一切都是刚刚开始！](/content/transcript/2019/01/20190117-53483689.md)
+
 [郭文贵2019年1月17日第二次直播 20190117_2尊敬的战友们好，你们健身了吗！文贵向你们报告出席华盛顿一系列的活动和几个重大的采访](/content/transcript/2019/01/20190117-53481727.md)
 
 [郭文贵2019年1月16日视频第二部分 20190116_2王健被谋杀之密有了重大进展。吴征还有博讯, 马蕊强奸案有了重大的实质性的证据证明吴征被CCP控制](/content/transcript/2019/01/20190116-53481722.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年1月2日视频 20190102_2风中的Snow](/content/transcript/2019/01/20190102-53478475.md)
 
 [郭文贵2019年1月2日视频 20190102_1乔布斯与他带有神秘色彩的设计的游艇太牛了](/content/transcript/2019/01/20190102-53478472.md)
-
-[郭文贵2019年1月1日视频 20190101接受木兰访谈的卡丽熙，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么。](/content/transcript/2019/01/20190101-53481562.md)
 
 
 ## 頁面 84/110 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

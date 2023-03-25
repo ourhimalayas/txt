@@ -3,6 +3,8 @@
 
 ## 頁面 70/110 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年9月9日直播为什么香港的富豪被威胁他们隐藏海外资产共产党可以没收全文字版](/content/transcript/2019/09/20190909-53835153.md)
+
 [郭文贵2019年9月9日第一次直播 20190909_1路德访谈文贵、班农先生：川普会什么时候决定脱钩？马云离开阿里以后的结局？美国到底是否值得中国人民依靠？](/content/transcript/2019/09/20190909-53483061.md)
 
 [郭文贵2019年9月9日第二次直播 20190909_2尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以没收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？](/content/transcript/2019/09/20190909-53483052.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年8月29日视频 20190829_3马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(二)](/content/transcript/2019/08/20190829-53478956.md)
 
 [郭文贵2019年8月29日视频 20190829_2马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(一)](/content/transcript/2019/08/20190829-53478952.md)
-
-[郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港](/content/transcript/2019/08/20190829-53478948.md)
 
 
 ## 頁面 70/110 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)

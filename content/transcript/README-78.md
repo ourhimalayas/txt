@@ -3,6 +3,8 @@
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月12日视频 20190612_1细思喜马拉雅与文贵，班农直播，关注香港游行！（上）](/content/transcript/2019/06/20190612-53479060.md)
+
 [郭文贵2019年6月12日视频 20190612_6香港战友在前线](/content/transcript/2019/06/20190612-53478087.md)
 
 [郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港](/content/transcript/2019/06/20190611-53479036.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月25日视频 20190525世界秩序新开始就在日本G20会议 G20 summit will mark the beginning of a new US-China game!](/content/transcript/2019/05/20190525-53482697.md)
 
 [郭文贵2019年5月23日直播 20190523鲁仁达先生与文贵在线互访直播](/content/transcript/2019/05/20190523-53482675.md)
-
-[郭文贵2019年5月23日直播 20190523_2郭文贵先生与鲁任达先生直播 不完整高清版](/content/transcript/2019/05/20190523-53478088.md)
 
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

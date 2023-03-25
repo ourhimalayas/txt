@@ -3,6 +3,8 @@
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年7月27日 20170727王岐山的真姚庆到底怕什么](/content/transcript/2017/07/20170727-53483819.md)
+
 [郭文贵2017年7月26日 20170726贯君的6000亿原来去了这里！刘呈杰他爹原来是他！](/content/transcript/2017/07/20170726-53483808.md)
 
 [郭文贵2017年7月25日 20170725王岐山、贯君的6000亿海航股权去哪了？](/content/transcript/2017/07/20170725-53483792.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年6月26日视频 20170626](/content/transcript/2017/06/20170626-53483789.md)
 
 [郭文贵2017年6月24日视频 20170624推特报平安视频. 推文打成了“报仇平安”哈哈O(∩_∩)O](/content/transcript/2017/06/20170624-53483526.md)
-
-[郭文贵2017年6月22日视频 20170622推特报平安视频……一切都是刚刚开始！✊️✊️✊️✊️](/content/transcript/2017/06/20170622-53483527.md)
 
 
 ## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

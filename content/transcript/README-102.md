@@ -3,6 +3,8 @@
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年12月8日视频 20171208一切都是刚刚开始](/content/transcript/2017/12/20171208-53483937.md)
+
 [郭文贵2017年12月5日 20171205尊敬的推友们你们健身了吗？](/content/transcript/2017/12/20171205-53483933.md)
 
 [郭文贵2017年12月2日视频 20171202](/content/transcript/2017/12/20171202-53483932.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年11月1日 20171101“谁抓判文贵的家人？”什么时候报下两个常委的料！](/content/transcript/2017/11/20171101-53484028.md)
 
 [郭文贵2017年11月1日视频 20171101_2征服敌人最好的办法就是将自己的事情做好生活好](/content/transcript/2017/11/20171101-53476954.md)
-
-[郭文贵2017年10月31日第一次直播 20171031_1改變十九大布局後，郭文貴首次接受媒體採訪-新常委中盜國賊是韓正還是栗戰書？是趙樂際還是汪洋？18屆政治局委員劉延東如何成為盜國婊？民生銀行的張宏偉是怎樣成為劉盜國婊的白手套？](/content/transcript/2017/10/20171031-53484171.md)
 
 
 ## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

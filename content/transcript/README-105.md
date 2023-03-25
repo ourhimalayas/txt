@@ -3,6 +3,8 @@
 
 ## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！](/content/transcript/2017/09/20170907-53483961.md)
+
 [郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！](/content/transcript/2017/09/20170906-53483863.md)
 
 [郭文贵2017年9月5日直播 20170905_1新领导孙力军副部长有了大决定](/content/transcript/2017/09/20170905-53482795.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。](/content/transcript/2017/08/20170822-53484311.md)
 
 [郭文贵2017年8月22日直播 20170822_2](/content/transcript/2017/08/20170822-53482776.md)
-
-[郭文贵2017年8月21日视频 20170821盗国贼害怕了，用假女助理推特、假音频攻击文贵。’’今后10天不爆料，估计是在等国内的回应，否则孟建柱政法系就是下一波被爆料的对象](/content/transcript/2017/08/20170821-53484299.md)
 
 
 ## 頁面 105/110 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

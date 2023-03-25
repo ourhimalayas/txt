@@ -3,6 +3,8 @@
 
 ## 頁面 79/110 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月23日直播 20190523_2郭文贵先生与鲁任达先生直播 不完整高清版](/content/transcript/2019/05/20190523-53478088.md)
+
 [郭文贵2019年5月21日视频 20190521_1天哪！中共的天机又来了！还要延续三十年控制中国](/content/transcript/2019/05/20190521-53478724.md)
 
 [郭文贵2019年5月20日视频 20190520接下来．我们中国及香港的经济．金融．将一塌糊涂．远超出大家的想象](/content/transcript/2019/05/20190520-53482631.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月5日与班农先生对谈 20190505文贵与班农先生就有关中美贸易协议停止！](/content/transcript/2019/05/20190505-53482505.md)
 
 [郭文贵2019年5月4日视频 20190504小夏与文贵谈四一九VOA断播背后的真相](/content/transcript/2019/05/20190504-53482485.md)
-
-[郭文贵2019年5月3日视频 201905032017年的5月3号和2018年的5月3号都发生了哪些重大事件，文贵与大家分享一些过去没有讲过的事情](/content/transcript/2019/05/20190503-53482476.md)
 
 
 ## 頁面 79/110 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 90/110 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月24日视频 20180924_1](/content/transcript/2018/09/20180924-53478301.md)
+
 [郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議](/content/transcript/2018/09/20180923-53478298.md)
 
 [郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓](/content/transcript/2018/09/20180923-53478297.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年9月12日第三次直播 20180912_3某军委委员家一面墙的翡翠就价值3个亿美金；首次酒后爆文贵先生80年代－90年代起家经历；爆释永信的私生子；戒忍和尚写一个对联受8万元钱故事！](/content/transcript/2018/09/20180912-53482571.md)
 
 [郭文贵2018年9月12日第二次直播 20180912_2文贵先生進Sara Discord聊天室前](/content/transcript/2018/09/20180912-53478251.md)
-
-[郭文贵2018年9月12日第四次直播 20180912_4谈今天去川普家，川普的办公室和餐厅完全模仿白宫；川普的厨师居然从裕达国贸出来的；当年在中南海的时候，习近平还在门外瞎转悠；李友答应帮助胡舒立生个孩子](/content/transcript/2018/09/20180912-53478246.md)
 
 
 ## 頁面 90/110 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

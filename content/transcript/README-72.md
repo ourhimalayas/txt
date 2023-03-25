@@ -3,6 +3,8 @@
 
 ## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月15日视频 20190815Greetings honored friends! Have you done any workout? Have you spreaded the truth of...](/content/transcript/2019/08/20190815-53483042.md)
+
 [2019年8月14日《文贵大直播》全文字版：谈美国已秘密调查中共安插在香港警队中的PLA 操纵美国股市](/content/transcript/2019/08/20190814-53741165.md)
 
 [郭文贵2019年8月14日视频 20190814Miles Kwok letting everyone know he's safe. USA has secretly investigated the presence...](/content/transcript/2019/08/20190814-53483035.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年8月5日视频 20190805香港大劫在即……希望香港的四个不要脸群体．能站在正义的一边帮助上街的孩子们。](/content/transcript/2019/08/20190805-53482952.md)
 
 [郭文贵2019年8月4日视频 20190804_1香港要出随时出大事！传统媒体界转向爆料革命？](/content/transcript/2019/08/20190804-53478894.md)
-
-[2019年8月3日文贵大直播全文字版：关注香港即将发生的大事](/content/transcript/2019/08/20190803-53707154.md)
 
 
 ## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

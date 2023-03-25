@@ -3,6 +3,8 @@
 
 ## 頁面 83/110 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播](/content/transcript/2019/02/20190205-53478592.md)
+
 [郭文贵2019年2月4日英文 20190204_1除夕爆料春晚 达赖喇嘛尊者](/content/transcript/2019/02/20190204-53482158.md)
 
 [郭文贵2019年2月4日中文 20190204_2除夕去共赢正道爆料春晚](/content/transcript/2019/02/20190204-53482129.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀](/content/transcript/2019/01/20190118-53481748.md)
 
 [郭文贵2019年1月18日第二次直播 20190118_2关于政事小哥！因为受共产党对家人的迫害威胁，不得不离开过爆料革命！这更加坚定了摧毁流氓CCp的决心！以实际行动为战友报仇！一切都是刚刚开始](/content/transcript/2019/01/20190118-53481736.md)
-
-[郭文贵2019年1月17日第一次直播 20190117_1中美贸易谈判崩裂意味着什么????文贵在这里向你们报告一下！一切都是刚刚开始！](/content/transcript/2019/01/20190117-53483689.md)
 
 
 ## 頁面 83/110 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 71/110 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港](/content/transcript/2019/08/20190829-53478948.md)
+
 [2019年08月28日文贵大直播全文字版：解放军军车 装甲车已经开进香港香港已经进入紧急状态](/content/transcript/2019/08/20190828-53797352.md)
 
 [2019年8月28日文贵大直播全文字版：解读香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产](/content/transcript/2019/08/20190828-53797308.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年8月16日视频 20190816尊敬的战友们好．你们传播香港危机的真相了吗？香港反送中运动．已经变成了国际集体反共的运动，战友们和香港同胞们一定要抓住机会，赢得这场前所未有的灭共战争，一切](/content/transcript/2019/08/20190816-53483049.md)
 
 [2019年8月15日文贵大直播全文字版：报平安直播](/content/transcript/2019/08/20190815-53795582.md)
-
-[郭文贵2019年8月15日视频 20190815Greetings honored friends! Have you done any workout? Have you spreaded the truth of...](/content/transcript/2019/08/20190815-53483042.md)
 
 
 ## 頁面 71/110 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)

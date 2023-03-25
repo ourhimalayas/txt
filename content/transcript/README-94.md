@@ -3,6 +3,8 @@
 
 ## 頁面 94/110 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/transcript/2018/07/20180710-53482405.md)
+
 [郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/transcript/2018/07/20180709-53482390.md)
 
 [郭文贵2018年7月8日视频 20180708在船上报平安](/content/transcript/2018/07/20180708-53477214.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年6月10日直播 20180610_2文贵爆料第一階段启蒙期结束．正在准备第二階段．定点爆破！](/content/transcript/2018/06/20180610-53477865.md)
 
 [郭文贵2018年6月5日直播 20180605_2 看了万润南先生的视频后的感想！](/content/transcript/2018/06/20180605-53477847.md)
-
-[郭文贵2018年6月5日直播 20180605_1拉斯维加斯的会议出钱者．A级通缉犯成水炎的过去与现在！](/content/transcript/2018/06/20180605-53477838.md)
 
 
 ## 頁面 94/110 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 109/110 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月18日第二次直播 20170518_2意外状况下的沟通方式](/content/transcript/2017/05/20170518-53483925.md)
+
 [郭文贵2017年5月18日第一次直播 20170518_1郭文贵的紧急联络人](/content/transcript/2017/05/20170518-53483744.md)
 
 [郭文贵2017年5月17日视频 20170517家庭国家和社会的关系](/content/transcript/2017/05/20170517-53483913.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年5月1日与刘彦平的通话二 20170501_2想了解南普陀会议吗？想了解江家将到底有什么样的影响力吗？想了解真正令计划犯等如何在中南海．人民大会堂．主席专机上搞女人吗？想知道薄熙来他们怎么杀人吗？想知道文贵前几天爆料的](/content/transcript/2017/05/20170501-53483944.md)
 
 [郭文贵2017年5月1日与刘彦平的通话一 20170501_1](/content/transcript/2017/05/20170501-53483939.md)
-
-[郭文贵2017年4月29日第三次直播 20170429_3推友关注过15万感谢视频](/content/transcript/2017/04/20170429-53483747.md)
 
 
 ## 頁面 109/110 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)

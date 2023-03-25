@@ -3,6 +3,8 @@
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？](/content/transcript/2019/03/20190305-53482172.md)
+
 [郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……](/content/transcript/2019/03/20190304-53482161.md)
 
 [郭文贵2019年3月3日视频 20190303金正恩为什么直接回朝鲜为什么要枪毙．偷拍金正恩视频的中国人吗？](/content/transcript/2019/03/20190303-53482155.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！](/content/transcript/2019/02/20190207-53478596.md)
 
 [郭文贵2019年2月6日 20190206文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190206-53482187.md)
-
-[郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播](/content/transcript/2019/02/20190205-53478592.md)
 
 
 ## 頁面 82/110 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

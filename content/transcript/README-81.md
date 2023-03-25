@@ -3,6 +3,8 @@
 
 ## 頁面 81/110 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)](/content/transcript/2019/04/20190417-53478618.md)
+
 [郭文贵2019年4月17日视频 20190417_1在喜馬拉雅大使館試衛星WIFI](/content/transcript/2019/04/20190417-53478602.md)
 
 [郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展](/content/transcript/2019/04/20190416-53482312.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年3月29日浴火重生 20190329超人归来](/content/transcript/2019/03/20190329-53482196.md)
 
 [郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。](/content/transcript/2019/03/20190307-53478651.md)
-
-[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？](/content/transcript/2019/03/20190305-53482172.md)
 
 
 ## 頁面 81/110 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)

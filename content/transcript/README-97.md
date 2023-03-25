@@ -3,6 +3,8 @@
 
 ## 頁面 97/110 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年4月13日直播 20180413_2跟战友分享下美景，不聊贸易战，南海军演，王岐山访美和杨洁篪](/content/transcript/2018/04/20180413-53477526.md)
+
 [郭文贵2018年4月12日直播 20180412_2内涵段子是中国民主法治自由的新纪元！](/content/transcript/2018/04/20180412-53477466.md)
 
 [郭文贵2018年4月12日直播 20180412_1在华盛顿的两天行程，夏夜良会不会在自己的家庭旅馆里按摄像头！](/content/transcript/2018/04/20180412-53477439.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年3月26日第一次直播 20180326_1不能将爆料变成娱乐](/content/transcript/2018/03/20180326-53483687.md)
 
 [郭文贵2018年3月26日第二次直播 20180326_2谈他们为什么让一个女人裸站几个小时](/content/transcript/2018/03/20180326-53481970.md)
-
-[郭文贵2018年3月24日视频 20180324报平安短视频](/content/transcript/2018/03/20180324-53481957.md)
 
 
 ## 頁面 97/110 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 68/110 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年10月1日文贵大直播全文字版：郭先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！下集](/content/transcript/2019/10/20191001-53885050.md)
+
 [2019年10月1日 郭文贵先生开篇演讲 全文字版](/content/transcript/2019/10/20191001-53871718.md)
 
 [2019年10月1日郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！（上）全文字版](/content/transcript/2019/10/20191001-53896553.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年9月24日视频 20190924_3直播吃红烧肉，阅兵后美女按需分配](/content/transcript/2019/09/20190924-53478066.md)
 
 [2019年9月23日 郭文贵先生与班农先生直播 全文字版 中共全面实施“驭民五术”，国庆军演民不聊生；应对中共“三大战役”，美国只会打口炮么？](/content/transcript/2019/09/20190923-53864255.md)
-
-[郭文贵2019年9月23日视频 20190923_1(無侵權版, 原版已被CCTV裡的雞舉報刪除)中共全面实施“驭民五术”，国庆军演民不聊生。应对中共“三大战役”，美国只会打口炮么？美国武力介入香港问题的可能性有多大？](/content/transcript/2019/09/20190923-53479011.md)
 
 
 ## 頁面 68/110 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)

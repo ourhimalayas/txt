@@ -3,6 +3,8 @@
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月9日instagram直播 20181009CCP如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！](/content/transcript/2018/10/20181009-53482837.md)
+
 [郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！](/content/transcript/2018/10/20181009-53477442.md)
 
 [郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击](/content/transcript/2018/10/20181008-53478122.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年9月27日视频 20180927_1](/content/transcript/2018/09/20180927-53478308.md)
 
 [郭文贵2018年9月26日视频 20180926_1Snow: 搞幾個娘兒們算啥腐敗啊](/content/transcript/2018/09/20180926-53478304.md)
-
-[郭文贵2018年9月24日视频 20180924_1](/content/transcript/2018/09/20180924-53478301.md)
 
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

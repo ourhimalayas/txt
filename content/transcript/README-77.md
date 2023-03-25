@@ -3,6 +3,8 @@
 
 ## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月25日视频 20190625从香港的成功抗议行动！和近几天共产党的统一宣传口径！让我们看到了过去两年爆料革命所面临的挑战和！但是我们赢了过去的两年……以法灭共．以美灭共……郭七条．是我们最核心的战略！](/content/transcript/2019/06/20190625-53482714.md)
+
 [2019年6月23日郭文贵先生直播全文字版：念从心起，力量无比；念念不忘，必有回响](/content/transcript/2019/06/20190623-53545815.md)
 
 [郭文贵2019年6月23日视频 20190623聊聊细丝小哥和庄列宏先生这＂两只黑手＂路德先生直播中发生的紧急事件。念从心起 力量无比 念念不忘 必有回响](/content/transcript/2019/06/20190623-53482704.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年6月12日视频 20190612_3文贵先生直播：最终结果立法推迟3時36分](/content/transcript/2019/06/20190612-53479090.md)
 
 [郭文贵2019年6月12日视频 20190612_2细思喜马拉雅与文贵，班农直播，关注香港游行！（下）](/content/transcript/2019/06/20190612-53479066.md)
-
-[郭文贵2019年6月12日视频 20190612_1细思喜马拉雅与文贵，班农直播，关注香港游行！（上）](/content/transcript/2019/06/20190612-53479060.md)
 
 
 ## 頁面 77/110 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

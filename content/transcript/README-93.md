@@ -3,6 +3,8 @@
 
 ## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月8日直播 20180808_5起诉欺民贼以爆料文贵上帝的名义诈骗的郭宝胜只是刚刚开始](/content/transcript/2018/08/20180808-53478128.md)
+
 [郭文贵2018年8月8日直播 20180808_4盗国贼为了掩盖杀王建的罪恶接下来将有以下的行动](/content/transcript/2018/08/20180808-53478118.md)
 
 [郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台](/content/transcript/2018/08/20180808-53478114.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年7月17日路德访谈（一）20180717_1郭文贵先生全球直播（第一部分）](/content/transcript/2018/07/20180717-53482415.md)
 
 [郭文贵2018年7月17日路德访谈 20180717_4高清版 王健在法国普罗旺斯是怎么被王歧山杀死的！](/content/transcript/2018/07/20180717-53478371.md)
-
-[郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/transcript/2018/07/20180710-53482405.md)
 
 
 ## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

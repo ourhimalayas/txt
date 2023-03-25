@@ -3,6 +3,8 @@
 
 ## 頁面 73/110 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年8月3日文贵大直播全文字版：关注香港即将发生的大事](/content/transcript/2019/08/20190803-53707154.md)
+
 [郭文贵2019年8月3日视频 20190803关于起诉华尔街日报](/content/transcript/2019/08/20190803-53482943.md)
 
 [郭文贵2019年8月3日视频 20190803_2-當共產黨說不幹甚麼的時候 就是他想幹甚麼的時候](/content/transcript/2019/08/20190803-53478890.md)
@@ -50,8 +52,6 @@
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715422.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715404.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715389.md)
 
 
 ## 頁面 73/110 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

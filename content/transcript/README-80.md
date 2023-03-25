@@ -3,6 +3,8 @@
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月3日视频 201905032017年的5月3号和2018年的5月3号都发生了哪些重大事件，文贵与大家分享一些过去没有讲过的事情](/content/transcript/2019/05/20190503-53482476.md)
+
 [郭文贵2019年5月3日视频 20190503_4文贵在做平板称时的视频做得不标准，希望战友们不要秀文贵这样的做共28分钟。](/content/transcript/2019/05/20190503-53478694.md)
 
 [郭文贵2019年5月3日视频 20190503_3希望＂政经关不了＂永远都不被关！文贵将和你联系！与您连线直播！只要有利于台湾和台湾人民的事我都愿意干](/content/transcript/2019/05/20190503-53478688.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年4月18日视频 20190418_2正在准备20号上午9点的直播！](/content/transcript/2019/04/20190418-53478632.md)
 
 [郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)](/content/transcript/2019/04/20190417-53478630.md)
-
-[郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)](/content/transcript/2019/04/20190417-53478618.md)
 
 
 ## 頁面 80/110 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

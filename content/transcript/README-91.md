@@ -3,6 +3,8 @@
 
 ## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月12日第四次直播 20180912_4谈今天去川普家，川普的办公室和餐厅完全模仿白宫；川普的厨师居然从裕达国贸出来的；当年在中南海的时候，习近平还在门外瞎转悠；李友答应帮助胡舒立生个孩子](/content/transcript/2018/09/20180912-53478246.md)
+
 [郭文贵2018年9月11日视频 20180911文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-53482567.md)
 
 [郭文贵2018年9月11日视频 20180911_3願美國不會再有911](/content/transcript/2018/09/20180911-53478225.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年8月27日直播 20180827_2](/content/transcript/2018/08/20180827-53478182.md)
 
 [郭文贵2018年8月27日直播 20180827_1](/content/transcript/2018/08/20180827-53478181.md)
-
-[郭文贵2018年8月26日视频 20180826应战友们的要求发一个Snow现在的生活视频](/content/transcript/2018/08/20180826-53477261.md)
 
 
 ## 頁面 91/110 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

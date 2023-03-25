@@ -3,6 +3,8 @@
 
 ## 頁面 100/110 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月12日视频 20180212_3 三小时版本郭文贵首次在郭媒体上直播！放出博讯拿钱删帖证据！对陈军做最后一次说明！大量网友互动内中有猛料！](/content/transcript/2018/02/20180212-53477343.md)
+
 [郭文贵2018年2月11日 20180211_1为什么这么多战友支持文贵](/content/transcript/2018/02/20180211-53484076.md)
 
 [郭文贵2018年2月11日视频 20180211_2郭文贵安保有漏洞，是谁向上海局报告的？](/content/transcript/2018/02/20180211-53477153.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年2月3日视频 20180203陈军、袁建斌欲害文贵之背景；与博讯、明镜、陈小平、何频之关系！](/content/transcript/2018/02/20180203-53484037.md)
 
 [郭文贵2018年2月1日 20180201为什么有假郭媒体网站，诚征春晚节目，请网友踊跃投稿](/content/transcript/2018/02/20180201-53484115.md)
-
-[郭文贵2018年2月1日 20180201_2 很快将爆光何频身边的陈军, 曾计划谋杀文贵](/content/transcript/2018/02/20180201-53481354.md)
 
 
 ## 頁面 100/110 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
