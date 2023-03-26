@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/26/2023 4:13 AM UTC  - :tv:直播](/content/gettr/p2cl031ad65.md)
+
+2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/26/2023 3:14 AM UTC  - :tv:直播](/content/gettr/p2ckuoec898.md)
 
 2023-3-25《鸡血王喜币大作战》510期嘉宾：Rainer 风雨之中 中共穷途末路 引爆欧美金融核弹 发动局部战争 #FreeMilesGuoNow #现场喜币大抽奖 #鸡血独家 #中共病毒溯源
@@ -26,11 +34,11 @@
 
 ---
 
-[@milesguo 3/26/2023 4:13 AM UTC  - :tv:直播](/content/gettr/p2cl031ad65.md)
+[@milesguo 3/26/2023 4:34 AM UTC  - :tv:直播](/content/gettr/p2cl60kdbaa.md)
 
-2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
+03/25/2023 NFSC Speaks-Justine Brooke Murray, policy chairwoman of the New York Young Republican Club and ambassador for TPUSA and PragerU：The arrest of Miles Guo is  a perfect example of “Find me the guy and I'll find you the crim...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/26/04/aeb4b479-505e-19d1-31cf-881f87794766/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/25/2023 1:01 PM UTC  - :tv:直播](/content/gettr/p2cicu1aa60.md)
-
-03/23/2023 In an interview with the FOC Show, Ava Chen discussed Mr. Miles Guo's ongoing legal battles brought against him by the CCP infiltrating the US Department of Justice. Mr. Miles Guo has faced numerous false allegations ove...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/25/13/b6fe73f7-1f15-2b6e-eca4-d6de235ff8af/out.jpg" width="506" height="284">
 
 ---
 
