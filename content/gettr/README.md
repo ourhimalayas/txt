@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/26/2023 4:34 AM UTC  - :tv:直播](/content/gettr/p2cl60kdbaa.md)
+
+03/25/2023 NFSC Speaks-Justine Brooke Murray, policy chairwoman of the New York Young Republican Club and ambassador for TPUSA and PragerU：The arrest of Miles Guo is  a perfect example of “Find me the guy and I'll find you the crim...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/26/04/aeb4b479-505e-19d1-31cf-881f87794766/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/26/2023 4:13 AM UTC  - :tv:直播](/content/gettr/p2cl031ad65.md)
 
 2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
@@ -34,11 +42,11 @@
 
 ---
 
-[@milesguo 3/26/2023 4:34 AM UTC  - :tv:直播](/content/gettr/p2cl60kdbaa.md)
+[@milesguo 3/26/2023 5:04 AM UTC  - :tv:直播](/content/gettr/p2cl7ppafb1.md)
 
-03/25/2023 NFSC Speaks-Justine Brooke Murray, policy chairwoman of the New York Young Republican Club and ambassador for TPUSA and PragerU：The arrest of Miles Guo is  a perfect example of “Find me the guy and I'll find you the crim...
+2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
 
-<img src="https://media.gettr.com/group5/getter/2023/03/26/04/aeb4b479-505e-19d1-31cf-881f87794766/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@
 2023.03.25 NFSC SPEAKS SATURDAY WITH JUSTINE BROOKE MURRAY
 
 <img src="https://media.gettr.com/group4/origin/2023/03/25/13/15629d40-1976-b5cd-fd6f-0c0d780e25fb/64c3b4d1c9bd3565d5aaf0bc64fbbd0a.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/25/2023 2:00 PM UTC  - :tv:直播](/content/gettr/p2cirur52d3.md)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
