@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/26/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2cmtg09836.md)
+
+2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/26/2023 6:01 PM UTC  - :tv:直播](/content/gettr/p2cm94b75c4.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
@@ -146,17 +154,9 @@
 
 ---
 
-[@milesguo 3/26/2023 2:00 AM UTC  - :tv:直播](/content/gettr/p2cknr50c69.md)
+[@milesguo 3/26/2023 8:00 PM UTC  - :tv:直播](/content/gettr/p2cn5rp524a.md)
 
-2023-3-25《鸡血王喜币大作战》510期嘉宾：Rainer 风雨之中 中共穷途末路 引爆欧美金融核弹 发动局部战争 #FreeMilesGuoNow #现场喜币大抽奖 #鸡血独家 #中共病毒溯源
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2cmtg09836.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
+2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第174场）《红叶正道》 好戏开场—米歇尔案明天开审
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
