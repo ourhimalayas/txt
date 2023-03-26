@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/26/2023 2:00 AM UTC  - :tv:直播](/content/gettr/p2cknr50c69.md)
+
+2023-3-25《鸡血王喜币大作战》510期嘉宾：Rainer 风雨之中 中共穷途末路 引爆欧美金融核弹 发动局部战争 #FreeMilesGuoNow #现场喜币大抽奖 #鸡血独家 #中共病毒溯源
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/26/2023 1:37 AM UTC  - :tv:直播](/content/gettr/p2ck5nk46af.md)
+
+3/24/2023  Matt Palumbo recently published a report on the Gateway Pundit, strongly questioning the indictment filed against Mr. Guo by SDNY prosecutor Damian Williams regarding the GTV valuation, so-called victims, Mr. Guo’s bail ...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/26/01/eca01432-e6f9-d184-cc68-abb827cffd05/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/26/2023 1:00 AM UTC  - :tv:直播](/content/gettr/p2cjz68e8c5.md)
 
 2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第144场）
@@ -130,14 +146,6 @@
 
 ---
 
-[@milesguo 3/26/2023 1:37 AM UTC  - :tv:直播](/content/gettr/p2ck5nk46af.md)
-
-3/24/2023  Matt Palumbo recently published a report on the Gateway Pundit, strongly questioning the indictment filed against Mr. Guo by SDNY prosecutor Damian Williams regarding the GTV valuation, so-called victims, Mr. Guo’s bail ...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/26/01/eca01432-e6f9-d184-cc68-abb827cffd05/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 3/25/2023 1:01 PM UTC  - :tv:直播](/content/gettr/p2cicu1aa60.md)
 
 03/23/2023 In an interview with the FOC Show, Ava Chen discussed Mr. Miles Guo's ongoing legal battles brought against him by the CCP infiltrating the US Department of Justice. Mr. Miles Guo has faced numerous false allegations ove...
@@ -147,14 +155,6 @@
 ---
 
 [@milesguo 3/25/2023 12:31 PM UTC  - :tv:直播](/content/gettr/p2ciflx7e49.md)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/25/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2cihz5575e.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
 
