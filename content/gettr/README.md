@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/26/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2cm8pi2e22.md)
+
+2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/26/2023 4:02 PM UTC  - :tv:直播](/content/gettr/p2clygq0619.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
@@ -138,15 +146,7 @@
 
 ---
 
-[@milesguo 3/26/2023 1:32 AM UTC  - :tv:直播](/content/gettr/p2ck0k8ba0f.md)
-
-3/25/2023 Justine Brooke Murray: What we have to do now is to start investigating our Department of Justice and the federal government, demanding that they show how much money they're actually getting from the CCP dictatorial regim...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/26/01/4006ae6f-05c7-9bd9-e7bb-2865964e4b95/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2cm8pi2e22.md)
+[@milesguo 3/26/2023 6:01 PM UTC  - :tv:直播](/content/gettr/p2cm94b75c4.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
 
