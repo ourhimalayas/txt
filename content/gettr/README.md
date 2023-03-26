@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/26/2023 1:32 AM UTC  - :tv:直播](/content/gettr/p2ck0k8ba0f.md)
+
+3/25/2023 Justine Brooke Murray: What we have to do now is to start investigating our Department of Justice and the federal government, demanding that they show how much money they're actually getting from the CCP dictatorial regim...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/26/01/4006ae6f-05c7-9bd9-e7bb-2865964e4b95/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/26/2023 1:00 AM UTC  - :tv:直播](/content/gettr/p2cjz68e8c5.md)
+
+2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第144场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/26/2023 12:29 AM UTC  - :tv:直播](/content/gettr/p2ckdno87f7.md)
 
 2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第144场）
@@ -114,11 +130,11 @@
 
 ---
 
-[@milesguo 3/26/2023 1:00 AM UTC  - :tv:直播](/content/gettr/p2cjz68e8c5.md)
+[@milesguo 3/26/2023 1:37 AM UTC  - :tv:直播](/content/gettr/p2ck5nk46af.md)
 
-2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第144场）
+3/24/2023  Matt Palumbo recently published a report on the Gateway Pundit, strongly questioning the indictment filed against Mr. Guo by SDNY prosecutor Damian Williams regarding the GTV valuation, so-called victims, Mr. Guo’s bail ...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/26/01/eca01432-e6f9-d184-cc68-abb827cffd05/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,22 +155,6 @@
 ---
 
 [@milesguo 3/25/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2cihz5575e.md)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/25/2023 10:41 AM UTC  - :tv:直播](/content/gettr/p2ciaqe1bbb.md)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/25/2023 10:59 AM UTC  - :tv:直播](/content/gettr/p2cifcp4333.md)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
 
