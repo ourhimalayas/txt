@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/26/2023 11:03 PM UTC  - :tv:直播](/content/gettr/p2cn1n804bb.md)
+
+2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/26/2023 10:08 PM UTC  - :tv:直播](/content/gettr/p2cmtjwc248.md)
+
+2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/26/2023 9:02 PM UTC  - :tv:直播](/content/gettr/p2cmfr9d196.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第174场）《红叶正道》 好戏开场—米歇尔案明天开审
@@ -138,27 +154,11 @@
 
 ---
 
-[@milesguo 3/26/2023 5:04 AM UTC  - :tv:直播](/content/gettr/p2cl7ppafb1.md)
+[@milesguo 3/26/2023 11:07 PM UTC  - :tv:直播](/content/gettr/p2cnk49936d.md)
 
-2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
+3/25/2023 As reported by The Gateway Pundit, the Southern District of New York prosecutors once let the founder of FTX, who embezzled hundreds of millions of dollars from clients, be released on bail pending trial; in addition, man...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 4:34 AM UTC  - :tv:直播](/content/gettr/p2cl60kdbaa.md)
-
-03/25/2023 NFSC Speaks-Justine Brooke Murray, policy chairwoman of the New York Young Republican Club and ambassador for TPUSA and PragerU：The arrest of Miles Guo is  a perfect example of “Find me the guy and I'll find you the crim...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/26/04/aeb4b479-505e-19d1-31cf-881f87794766/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 10:08 PM UTC  - :tv:直播](/content/gettr/p2cmtjwc248.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/26/23/bc193e71-f9d7-0566-377d-1e821b17c136/out.jpg" width="506" height="284">
 
 ---
 
