@@ -3,6 +3,10 @@
 
 ## 頁面 66/110 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲](/content/transcript/2019/10/20191024-53916903.md)
+
+[郭文贵2019年10月24日 20191024谈彭斯副总统演讲](/content/transcript/2019/10/20191024-53483231.md)
+
 [2019年10月23日 郭文贵先生直播：中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！全文字版](/content/transcript/2019/10/20191023-53916190.md)
 
 [郭文贵2019年10月23日视频 20191023中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！](/content/transcript/2019/10/20191023-53483226.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年10月14日视频 20191014游艇机舱报平安直播45分钟版](/content/transcript/2019/10/20191014-53483666.md)
 
 [郭文贵2019年10月14日视频 20191014_2直播吃鸭腿 游艇机舱报平安直播28分钟高清版](/content/transcript/2019/10/20191014-53478044.md)
-
-[2019年10月13日文贵大直播全文字版：报平安直播，传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来](/content/transcript/2019/10/20191013-53901470.md)
-
-[郭文贵2019年10月13日视频 20191013传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来](/content/transcript/2019/10/20191013-53483324.md)
 
 
 ## 頁面 66/110 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
