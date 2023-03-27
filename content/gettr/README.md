@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/27/2023 3:02 AM UTC  - :tv:直播](/content/gettr/p2cnap8d7f0.md)
+
+2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第176场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/27/2023 2:02 AM UTC  - :tv:直播](/content/gettr/p2cnkb4ef2b.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
@@ -42,11 +50,11 @@
 
 ---
 
-[@milesguo 3/27/2023 3:02 AM UTC  - :tv:直播](/content/gettr/p2cnap8d7f0.md)
+[@milesguo 3/27/2023 3:55 AM UTC  - :tv:直播](/content/gettr/p2cnp8z62aa.md)
 
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第176场）
+03/25/2023 Nicole Tsai of the New Federal State of China on the Wise Guys with John Tabacco Show of NewsMax: Our movement have become the target of FBI, DOJ, and American federal government agencies and Mr. Miles Guo was taken to f...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/27/03/d55b6715-e852-117d-c5cd-1a45aa5ae36d/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@
 ---
 
 [@milesguo 3/26/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2clsuvbafc.md)
-
-2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 10:56 AM UTC  - :tv:直播](/content/gettr/p2cl5gcd3ae.md)
 
 2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
 
