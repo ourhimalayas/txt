@@ -2,6 +2,22 @@
 ---
 
 
+[@milesguo 3/27/2023 4:05 AM UTC  - :tv:直播](/content/gettr/p2cnauk89eb.md)
+
+3/25/2023  Nicole on Wise Guys: The Whistleblowers' Movement and the New Federal State of China, founded and led by Miles Guo, seek to take down the Chinese Communist Party from within. For those who admire communism, we would like...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/27/04/1f87a033-8b02-95a8-4072-bef523d51e5f/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/27/2023 3:55 AM UTC  - :tv:直播](/content/gettr/p2cnp8z62aa.md)
+
+03/25/2023 Nicole Tsai of the New Federal State of China on the Wise Guys with John Tabacco Show of NewsMax: Our movement have become the target of FBI, DOJ, and American federal government agencies and Mr. Miles Guo was taken to f...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/27/03/d55b6715-e852-117d-c5cd-1a45aa5ae36d/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/27/2023 3:02 AM UTC  - :tv:直播](/content/gettr/p2cnap8d7f0.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第176场）
@@ -50,11 +66,11 @@
 
 ---
 
-[@milesguo 3/27/2023 3:55 AM UTC  - :tv:直播](/content/gettr/p2cnp8z62aa.md)
+[@milesguo 3/27/2023 4:06 AM UTC  - :tv:直播](/content/gettr/p2cnyq92199.md)
 
-03/25/2023 Nicole Tsai of the New Federal State of China on the Wise Guys with John Tabacco Show of NewsMax: Our movement have become the target of FBI, DOJ, and American federal government agencies and Mr. Miles Guo was taken to f...
+03/25/2023 Nicole Tsai of the New Federal State of China on the Wise Guys with John Tabacco Show of NewsMax: The CCP has deeply infiltrated the US. And the first thing American lawyers doing business in Communist China must agree t...
 
-<img src="https://media.gettr.com/group7/getter/2023/03/27/03/d55b6715-e852-117d-c5cd-1a45aa5ae36d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/27/04/e84d914e-e590-4288-2287-42cf11effb89/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,22 +155,6 @@
 ---
 
 [@milesguo 3/26/2023 1:13 PM UTC  - :tv:直播](/content/gettr/p2clvewe52d.md)
-
-2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 12:31 PM UTC  - :tv:直播](/content/gettr/p2clh903900.md)
-
-2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 12:00 PM UTC  - :tv:直播](/content/gettr/p2clsuvbafc.md)
 
 2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第一百四十五场）
 
