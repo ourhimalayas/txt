@@ -2,11 +2,11 @@
 ---
 
 
-[@milesguo 3/26/2023 6:01 PM UTC  - :tv:直播](/content/gettr/p2cm94b75c4.md)
+[@milesguo 3/27/2023 7:07 PM UTC  - :tv:直播](/content/gettr/p2cq23h05a2.md)
 
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
+2023.03.27 THE ROBERT SCOTT BELL SHOW Monday March 27th, 2023
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/03/27/18/479fb4d8-6e0c-a57b-f14a-352896498bc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
