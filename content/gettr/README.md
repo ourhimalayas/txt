@@ -2,11 +2,11 @@
 ---
 
 
-[@nsfcspeaksoffical 3/24/2023 7:12 PM UTC  - :tv:直播](/content/gettr/p2cglu8bff3.md)
+[@milesguo 3/27/2023 4:27 PM UTC  - :tv:直播](/content/gettr/p2cp5vp42f4.md)
 
-"The CCP Forcing People To File False Complaints With The SEC, FBI, And Media Outlets Is Why In The 38-Page Indictment Of Mr. Guo, The DOJ And SEC Failed To Show Any Single Person Who Is A Victim Of Mr. Guo. The Real Victim Has Fle...
+2023.03.27 NFSC SPEAKS MONDAY WITH DAVID CLEMENTS
 
-<img src="https://media.gettr.com/group8/getter/2023/03/24/19/6481be03-2a15-3557-4bb1-2c0872b3aebd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/03/27/15/1958c731-2d2f-3991-8246-2d3aa57e5356/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 2023.03.27 华府著名律师惊天爆料！ 郭先生被抓涉及司法部腐败“深水区”！
 
 华府著名律师Adam Waksman这几天连续发推，提醒公众关注“一马案”(1MDB) 。 今天 （3月27日）涉及“一马案”的好莱坞说唱歌手 Pras Michel (普拉斯.米歇尔)将接受司法部审判， 他此前要求郭先生出庭作证， 但是遭到了拒绝。 Adam Waksman在3月25日的推文说， 在媒体被指示不要报道的历史上最大的腐败审判前1个工作日，我要提醒各位， 郭文...
+
+---
+
+[@nsfcspeaksoffical 3/24/2023 7:12 PM UTC  - :tv:直播](/content/gettr/p2cglu8bff3.md)
+
+"The CCP Forcing People To File False Complaints With The SEC, FBI, And Media Outlets Is Why In The 38-Page Indictment Of Mr. Guo, The DOJ And SEC Failed To Show Any Single Person Who Is A Victim Of Mr. Guo. The Real Victim Has Fle...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/24/19/6481be03-2a15-3557-4bb1-2c0872b3aebd/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 3/27/2023 4:27 PM UTC  - :tv:直播](/content/gettr/p2coycg3504.md)
+
+2023.03.27 NFSC SPEAKS MONDAY WITH DAVID CLEMENTS
+
+<img src="https://media.gettr.com/group4/origin/2023/03/27/15/226c16c2-a73a-67db-198d-9230da075832/c43a3a60e4bef657e3d1430a435320c2.jpeg" width="506" height="284">
 
 ---
 
@@ -141,22 +157,6 @@ https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-
 ---
 
 [@milesguo 3/26/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2cmtg09836.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 6:01 PM UTC  - :tv:直播](/content/gettr/p2cm94b75c4.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 5:00 PM UTC  - :tv:直播](/content/gettr/p2cm8pi2e22.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
 
