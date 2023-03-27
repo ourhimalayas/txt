@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/27/2023 10:01 PM UTC  - :tv:直播](/content/gettr/p2cq2la57a2.md)
+
+2023.03.27 Nicole看七哥 长岛哥谈七哥近况
+
+<img src="https://media.gettr.com/group6/origin/2023/03/27/21/de5447b1-ca53-5117-135d-f2afa992199b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/27/2023 4:27 PM UTC  - :tv:直播](/content/gettr/p2cp5vp42f4.md)
 
 2023.03.27 NFSC SPEAKS MONDAY WITH DAVID CLEMENTS
@@ -151,14 +159,6 @@ https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-
 [@milesguo 3/26/2023 8:00 PM UTC  - :tv:直播](/content/gettr/p2cn5rp524a.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第174场）《红叶正道》 好戏开场—米歇尔案明天开审
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 7:00 PM UTC  - :tv:直播](/content/gettr/p2cmtg09836.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第170场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
