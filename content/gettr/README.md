@@ -2,6 +2,18 @@
 ---
 
 
+[@milesguo 3/28/2023 4:54 PM UTC ](/content/gettr/p2csxcza02c.md)
+
+2023.03.28 ：华盛顿时报（The Washington Times) 第三页全版登刊 要求国会立刻释放Miles Guo，并且调查DOJ被CCP的渗透！
+
+
+
+重磅！！！！🔥🔥🔥‼️‼️
+
+<img src="https://media.gettr.com/group9/getter/2023/03/28/16/29e050b9-1915-4d01-1485-e34c02ab1851/8b06cd05bf70dca26bf867a151bcdbc3.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/28/2023 10:06 AM UTC  - :tv:直播](/content/gettr/p2cs1uk89cb.md)
 
 03/27/2023 Former prosecutor and law professor David Clements: For Mr. Miles Guo, even his home country deadly set against him, where else would he go? So there's no "flight risk" for him, and this case is a white-collar accusation...
@@ -58,15 +70,11 @@
 
 ---
 
-[@milesguo 3/28/2023 4:54 PM UTC ](/content/gettr/p2csxcza02c.md)
+[@milesguo 3/28/2023 8:19 PM UTC  - :tv:直播](/content/gettr/p2ct6n94789.md)
 
-2023.03.28 ：华盛顿时报（The Washington Times) 第三页全版登刊 要求国会立刻释放Miles Guo，并且调查DOJ被CCP的渗透！
+2023.03.28 NFSC SPEAKS TUESDAY WITH RELENTLESS BILL ROBINSON ABSOLUTE POWER KILLS ABSOLUTELY
 
-
-
-重磅！！！！🔥🔥🔥‼️‼️
-
-<img src="https://media.gettr.com/group9/getter/2023/03/28/16/29e050b9-1915-4d01-1485-e34c02ab1851/8b06cd05bf70dca26bf867a151bcdbc3.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/03/28/20/8cae5654-d0d3-9f4c-b025-25308970f962/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-
 3/25/2023  Nicole on Wise Guys: The CCP’s infiltration is not only up in the U.S. airspace, like the spy balloons, but also reaches the living room of each American family. The reason why Huawei and TikTok are still running their b...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/27/01/12f7a805-4625-0cd9-074c-06f07f2007e7/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 12:59 AM UTC  - :tv:直播](/content/gettr/p2cnslx580d.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
