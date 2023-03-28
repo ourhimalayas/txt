@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/28/2023 5:09 AM UTC  - :tv:直播](/content/gettr/p2crche2b0e.md)
+
+03/27/2023 David Clements interviewed by Ava Chen: I think what you're seeing is through soft power influencing, especially in media and in Hollywood, so Americans are getting a different view of Communist China. And what you see i...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/28/05/42df56e6-b8db-58c2-7086-f7ad98072b66/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/28/2023 3:36 AM UTC  - :tv:直播](/content/gettr/p2cr88g0a0e.md)
 
 3/27/2023 David Clements, former prosecutor and professor of law: When the Communist regime is unable to kill freedom fighters, it resorts to ruining their reputation, threatening their loved ones, and using lawfare to prevent them...
@@ -34,11 +42,11 @@
 
 ---
 
-[@milesguo 3/28/2023 5:09 AM UTC  - :tv:直播](/content/gettr/p2crche2b0e.md)
+[@milesguo 3/28/2023 9:03 AM UTC  - :tv:直播](/content/gettr/p2crl7g4256.md)
 
-03/27/2023 David Clements interviewed by Ava Chen: I think what you're seeing is through soft power influencing, especially in media and in Hollywood, so Americans are getting a different view of Communist China. And what you see i...
+3/27/2023 David Clements, former prosecutor and professor of law: What has happened to Miles Guo is simply because he is dangerous to the CCP. It is laughable to say that Miles Guo has caused greater harm to the community than SBF,...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/28/05/42df56e6-b8db-58c2-7086-f7ad98072b66/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/28/08/17bb0522-66f9-e884-6d32-95373e13edfd/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,14 +149,6 @@ https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-
 ---
 
 [@milesguo 3/27/2023 12:32 AM UTC  - :tv:直播](/content/gettr/p2cn74we8b3.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 11:03 PM UTC  - :tv:直播](/content/gettr/p2cn1n804bb.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
 
