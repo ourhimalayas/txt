@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/28/2023 9:03 AM UTC  - :tv:直播](/content/gettr/p2crl7g4256.md)
+
+3/27/2023 David Clements, former prosecutor and professor of law: What has happened to Miles Guo is simply because he is dangerous to the CCP. It is laughable to say that Miles Guo has caused greater harm to the community than SBF,...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/28/08/17bb0522-66f9-e884-6d32-95373e13edfd/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/28/2023 5:09 AM UTC  - :tv:直播](/content/gettr/p2crche2b0e.md)
 
 03/27/2023 David Clements interviewed by Ava Chen: I think what you're seeing is through soft power influencing, especially in media and in Hollywood, so Americans are getting a different view of Communist China. And what you see i...
@@ -42,11 +50,11 @@
 
 ---
 
-[@milesguo 3/28/2023 9:03 AM UTC  - :tv:直播](/content/gettr/p2crl7g4256.md)
+[@milesguo 3/28/2023 10:06 AM UTC  - :tv:直播](/content/gettr/p2cs1uk89cb.md)
 
-3/27/2023 David Clements, former prosecutor and professor of law: What has happened to Miles Guo is simply because he is dangerous to the CCP. It is laughable to say that Miles Guo has caused greater harm to the community than SBF,...
+03/27/2023 Former prosecutor and law professor David Clements: For Mr. Miles Guo, even his home country deadly set against him, where else would he go? So there's no "flight risk" for him, and this case is a white-collar accusation...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/28/08/17bb0522-66f9-e884-6d32-95373e13edfd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/28/10/7c8c1350-39c4-a519-87eb-f56c859853d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 11:07 PM UTC  - :tv:直播](/content/gettr/p2cnk49936d.md)
-
-3/25/2023 As reported by The Gateway Pundit, the Southern District of New York prosecutors once let the founder of FTX, who embezzled hundreds of millions of dollars from clients, be released on bail pending trial; in addition, man...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/26/23/bc193e71-f9d7-0566-377d-1e821b17c136/out.jpg" width="506" height="284">
 
 ---
 
