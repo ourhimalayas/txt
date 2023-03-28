@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/28/2023 10:06 AM UTC  - :tv:直播](/content/gettr/p2cs1uk89cb.md)
+
+03/27/2023 Former prosecutor and law professor David Clements: For Mr. Miles Guo, even his home country deadly set against him, where else would he go? So there's no "flight risk" for him, and this case is a white-collar accusation...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/28/10/7c8c1350-39c4-a519-87eb-f56c859853d9/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/28/2023 9:03 AM UTC  - :tv:直播](/content/gettr/p2crl7g4256.md)
 
 3/27/2023 David Clements, former prosecutor and professor of law: What has happened to Miles Guo is simply because he is dangerous to the CCP. It is laughable to say that Miles Guo has caused greater harm to the community than SBF,...
@@ -50,11 +58,15 @@
 
 ---
 
-[@milesguo 3/28/2023 10:06 AM UTC  - :tv:直播](/content/gettr/p2cs1uk89cb.md)
+[@milesguo 3/28/2023 4:54 PM UTC ](/content/gettr/p2csxcza02c.md)
 
-03/27/2023 Former prosecutor and law professor David Clements: For Mr. Miles Guo, even his home country deadly set against him, where else would he go? So there's no "flight risk" for him, and this case is a white-collar accusation...
+2023.03.28 ：华盛顿时报（The Washington Times) 第三页全版登刊 要求国会立刻释放Miles Guo，并且调查DOJ被CCP的渗透！
 
-<img src="https://media.gettr.com/group6/getter/2023/03/28/10/7c8c1350-39c4-a519-87eb-f56c859853d9/out.jpg" width="506" height="284">
+
+
+重磅！！！！🔥🔥🔥‼️‼️
+
+<img src="https://media.gettr.com/group9/getter/2023/03/28/16/29e050b9-1915-4d01-1485-e34c02ab1851/8b06cd05bf70dca26bf867a151bcdbc3.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +161,6 @@ https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-
 ---
 
 [@milesguo 3/27/2023 12:59 AM UTC  - :tv:直播](/content/gettr/p2cnslx580d.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 12:32 AM UTC  - :tv:直播](/content/gettr/p2cn74we8b3.md)
 
 2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
 
