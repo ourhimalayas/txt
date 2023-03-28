@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/28/2023 3:36 AM UTC  - :tv:直播](/content/gettr/p2cr88g0a0e.md)
+
+3/27/2023 David Clements, former prosecutor and professor of law: When the Communist regime is unable to kill freedom fighters, it resorts to ruining their reputation, threatening their loved ones, and using lawfare to prevent them...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/28/03/1b29ac9b-5d97-54c2-d640-b393378f8fb4/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/27/2023 10:30 PM UTC  - :tv:直播](/content/gettr/p2cqfx0b8d2.md)
 
 2023.03.27 Nicole看七哥 长岛哥谈七哥近况
@@ -26,11 +34,11 @@
 
 ---
 
-[@milesguo 3/28/2023 3:36 AM UTC  - :tv:直播](/content/gettr/p2cr88g0a0e.md)
+[@milesguo 3/28/2023 5:09 AM UTC  - :tv:直播](/content/gettr/p2crche2b0e.md)
 
-3/27/2023 David Clements, former prosecutor and professor of law: When the Communist regime is unable to kill freedom fighters, it resorts to ruining their reputation, threatening their loved ones, and using lawfare to prevent them...
+03/27/2023 David Clements interviewed by Ava Chen: I think what you're seeing is through soft power influencing, especially in media and in Hollywood, so Americans are getting a different view of Communist China. And what you see i...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/28/03/1b29ac9b-5d97-54c2-d640-b393378f8fb4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/28/05/42df56e6-b8db-58c2-7086-f7ad98072b66/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-
 3/25/2023 As reported by The Gateway Pundit, the Southern District of New York prosecutors once let the founder of FTX, who embezzled hundreds of millions of dollars from clients, be released on bail pending trial; in addition, man...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/26/23/bc193e71-f9d7-0566-377d-1e821b17c136/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/26/2023 10:08 PM UTC  - :tv:直播](/content/gettr/p2cmtjwc248.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
