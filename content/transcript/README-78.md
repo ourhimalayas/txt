@@ -3,6 +3,10 @@
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月13日视频 20190613_3班農郭文贵直播](/content/transcript/2019/06/20190613-53479249.md)
+
+[郭文贵2019年6月13日视频 20190613_4](/content/transcript/2019/06/20190613-53478747.md)
+
 [郭文贵2019年6月13日视频 20190613_5测试细丝和庄烈宏](/content/transcript/2019/06/20190613-53478084.md)
 
 [郭文贵2019年6月12日与细思直播 20190612如何布局最后部分谈8964监狱风](/content/transcript/2019/06/20190612-53482624.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年6月1日视频 20190601文贵报平安直播！无论任何方式的任何人的＂偷＂都是错的．都应感到可耻……我们今天的爆料革命！就是为了我们中国儿童！有一个美好的健康的国家和未来](/content/transcript/2019/06/20190601-53482496.md)
 
 [郭文贵2019年6月1日视频 20190601_2两狗相遇勇者胜，snow与笨笨的抢食之战，输赢不在大小](/content/transcript/2019/06/20190601-53478678.md)
-
-[郭文贵2019年5月31日视频 20190531 林郑月娥触动中共最敏感神经 Carrie Lam put CCP on alert! 10000s banned on Twitter! Save all proofs of the ban!](/content/transcript/2019/05/20190531-53482488.md)
-
-[郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天](/content/transcript/2019/05/20190530-53478676.md)
 
 
 ## 頁面 78/110 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

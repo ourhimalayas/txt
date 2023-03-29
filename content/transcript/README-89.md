@@ -3,6 +3,10 @@
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月13日视频 20181013_2](/content/transcript/2018/10/20181013-53478355.md)
+
+[郭文贵2018年10月13日视频 20181013_1](/content/transcript/2018/10/20181013-53478350.md)
+
 [郭文贵2018年10月12日视频 20181012直播1700家中资公司 150家中资银行 等待正义惩罚 中国高官洗钱．藏钱！人民币．港币．A股．港股将崩溃！ 向大家公布美国财政部海外资产控制办公室合规制栽措施！！](/content/transcript/2018/10/20181012-53482735.md)
 
 [郭文贵2018年10月12日视频 20181012_3](/content/transcript/2018/10/20181012-53478348.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年10月3日视频 20181003_3](/content/transcript/2018/10/20181003-53478315.md)
 
 [郭文贵2018年10月3日视频 20181003_2](/content/transcript/2018/10/20181003-53478309.md)
-
-[郭文贵2018年10月3日视频 20181003_1](/content/transcript/2018/10/20181003-53478306.md)
-
-[郭文贵2018年10月1日视频 20181001_1](/content/transcript/2018/10/20181001-53478302.md)
 
 
 ## 頁面 89/110 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

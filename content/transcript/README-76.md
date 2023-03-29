@@ -3,6 +3,10 @@
 
 ## 頁面 76/110 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集](/content/transcript/2019/07/20190708-53578169.md)
+
+[郭文贵2019年7月8日视频 20190708文贵是双面间谍？？](/content/transcript/2019/07/20190708-53482874.md)
+
 [郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天](/content/transcript/2019/07/20190708-53478795.md)
 
 [郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着](/content/transcript/2019/07/20190708-53478790.md)
@@ -48,10 +52,6 @@
 [2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜](/content/transcript/2019/06/20190630-53557790.md)
 
 [郭文贵2019年6月30日与班农直播 20190630班农 文贵谈 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-53482770.md)
-
-[郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-53478759.md)
-
-[2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜](/content/transcript/2019/06/20190629-53560626.md)
 
 
 ## 頁面 76/110 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
