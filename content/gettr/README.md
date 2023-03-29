@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cwlod56b6.md)
+
+2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
+
+<img src="https://media.gettr.com/group5/origin/2023/03/29/16/ac43ca51-bc4f-7f39-2bb9-c7883384cfee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@stevebannon 3/29/2023 6:49 AM UTC ](/content/gettr/p2cv6a6e351.md)
 
 The CCP’s # 1 priority in America—get anti-CCP warrior Miles Guo extradited asap…the plot to do that explodes in federal court this week in DC
@@ -30,11 +38,11 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 
 ---
 
-[@milesguo 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cwlod56b6.md)
+[@nsfcspeaksoffical 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cw9z2cc93.md)
 
 2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
 
-<img src="https://media.gettr.com/group5/origin/2023/03/29/16/ac43ca51-bc4f-7f39-2bb9-c7883384cfee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/03/29/16/7e6e7fb3-eebf-0b74-7da6-18df541eb9bb/01310eecd8c4566a0a0e9a04fa0f4688.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 3/27/2023 David Clements, former prosecutor and professor of law: When the Communist regime is unable to kill freedom fighters, it resorts to ruining their reputation, threatening their loved ones, and using lawfare to prevent them...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/28/03/1b29ac9b-5d97-54c2-d640-b393378f8fb4/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 10:30 PM UTC  - :tv:直播](/content/gettr/p2cqfx0b8d2.md)
-
-2023.03.27 Nicole看七哥 长岛哥谈七哥近况
-
-<img src="https://media.gettr.com/group4/origin/2023/03/27/22/db225d7c-47d3-6010-3303-1b4660d75436/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
