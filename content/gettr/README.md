@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/29/2023 4:00 AM UTC  - :tv:直播](/content/gettr/p2cv2ptd68f.md)
+
+3/27/2023 There's no need to worry about Mr. Miles Guo's safety, and we must believe in the power of the righteous force! Many people in the detention facility know Mr. Guo and call him "General Fight"! Mr. Guo works out, studies E...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/29/03/97fd4327-fd90-f74a-f2d0-e0dec0f6e2ed/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/28/2023 4:03 PM UTC  - :tv:直播](/content/gettr/p2csipz4863.md)
 
 2023.03.28全球战友等着七哥回来 Waiting for Miles to Come back(第194场）香草山农场《洞察》第67期：米歇尔案件证明了司法黑手对中共头号敌人的政治迫害
@@ -10,11 +18,17 @@
 
 ---
 
-[@milesguo 3/29/2023 4:00 AM UTC  - :tv:直播](/content/gettr/p2cv2ptd68f.md)
+[@milesguo 3/29/2023 5:32 AM UTC  - :tv:直播](/content/gettr/p2cv09icb64.md)
 
-3/27/2023 There's no need to worry about Mr. Miles Guo's safety, and we must believe in the power of the righteous force! Many people in the detention facility know Mr. Guo and call him "General Fight"! Mr. Guo works out, studies E...
+3/27/2023 Instead of being scared or wavering after Miles Guo was taken away on March 15, our fellow fighters of the New Federal State of China became more united than ever!
 
-<img src="https://media.gettr.com/group10/getter/2023/03/29/03/97fd4327-fd90-f74a-f2d0-e0dec0f6e2ed/out.jpg" width="506" height="284">
+#MilesGuo #FreeMilesGuo #FreeMilesGuoNow #NFSC
+
+
+
+3/27/2...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/29/05/67fb6995-a097-75af-94ba-b154c2062bc4/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +163,6 @@ Contrary To The SDNY, GTV Investors Say They Are NOT Victims of Anti-CCP Disside
 
 
 https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-they-are-not-victims-of-anti-ccp-dissident-miles-guo/...
-
----
-
-[@milesguo 3/27/2023 4:05 AM UTC  - :tv:直播](/content/gettr/p2cnauk89eb.md)
-
-3/25/2023  Nicole on Wise Guys: The Whistleblowers' Movement and the New Federal State of China, founded and led by Miles Guo, seek to take down the Chinese Communist Party from within. For those who admire communism, we would like...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/27/04/1f87a033-8b02-95a8-4072-bef523d51e5f/out.jpg" width="506" height="284">
 
 ---
 
