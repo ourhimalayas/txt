@@ -43,6 +43,8 @@
 
 [2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-53919845.md)
 
+[2019年10月26日 文贵和战友谈北京局势和四中全会 全文字版](/content/transcript/2019/10/20191026-53924902.md)
+
 [郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中](/content/transcript/2019/10/20191026-53483262.md)
 
 [郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-53479093.md)
@@ -50,8 +52,6 @@
 [2019年10月25日文贵大直播全文字版：再谈直播彭斯副总统演讲的重大意义](/content/transcript/2019/10/20191025-53919805.md)
 
 [郭文贵2019年10月25日第一次直播 20191025_1跟路德再谈直播彭斯副总统演讲的重大意义](/content/transcript/2019/10/20191025-53483258.md)
-
-[郭文贵2019年10月25日第二次直播 20191025_2直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/content/transcript/2019/10/20191025-53483249.md)
 
 
 ## 頁面 65/110 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
