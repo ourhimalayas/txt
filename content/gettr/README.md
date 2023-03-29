@@ -2,11 +2,27 @@
 ---
 
 
+[@miles 3/28/2023 4:03 PM UTC  - :tv:直播](/content/gettr/p2csipz4863.md)
+
+2023.03.28全球战友等着七哥回来 Waiting for Miles to Come back(第194场）香草山农场《洞察》第67期：米歇尔案件证明了司法黑手对中共头号敌人的政治迫害
+
+<img src="https://media.gettr.com/group9/origin/2023/03/28/16/a2d8a3ee-1202-727c-3a33-fcb8b6ec7bcd/b76f959e5b3120f504ed49119fe1783d.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/28/2023 11:23 PM UTC  - :tv:直播](/content/gettr/p2cubk97836.md)
 
 刑不上大夫· 战 · 飞飞秀  2023年3月28日
 
 <img src="https://media.gettr.com/group11/origin/2023/03/28/23/c9e85ce9-b8d5-6a5f-7a8a-43cc0ce4e60e/24bcc2dc6e5eb3260326b34e669cea47.png" width="506" height="284">
+
+---
+
+[@miles 3/28/2023 10:35 AM UTC  - :tv:直播](/content/gettr/p2crwmfc8de.md)
+
+2023.03.28 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第185场）伊丽莎白直播  《释放郭文贵先生》
+
+<img src="https://media.gettr.com/group7/origin/2023/03/28/10/68ddf38d-f157-6d05-067c-9d5989e027f5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,22 +165,6 @@ https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-
 03/25/2023 Nicole Tsai of the New Federal State of China on the Wise Guys with John Tabacco Show of NewsMax: Our movement have become the target of FBI, DOJ, and American federal government agencies and Mr. Miles Guo was taken to f...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/27/03/d55b6715-e852-117d-c5cd-1a45aa5ae36d/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 3:02 AM UTC  - :tv:直播](/content/gettr/p2cnap8d7f0.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第176场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 2:02 AM UTC  - :tv:直播](/content/gettr/p2cnkb4ef2b.md)
-
-2023.03.26 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第175场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
