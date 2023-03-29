@@ -2,11 +2,11 @@
 ---
 
 
-[@milesguo 3/27/2023 1:42 AM UTC  - :tv:直播](/content/gettr/p2cnmx722e3.md)
+[@miles 3/28/2023 11:23 PM UTC  - :tv:直播](/content/gettr/p2cubk97836.md)
 
-3/25/2023  Nicole on Wise Guys: The CCP’s infiltration is not only up in the U.S. airspace, like the spy balloons, but also reaches the living room of each American family. The reason why Huawei and TikTok are still running their b...
+刑不上大夫· 战 · 飞飞秀  2023年3月28日
 
-<img src="https://media.gettr.com/group8/getter/2023/03/27/01/12f7a805-4625-0cd9-074c-06f07f2007e7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/28/23/c9e85ce9-b8d5-6a5f-7a8a-43cc0ce4e60e/24bcc2dc6e5eb3260326b34e669cea47.png" width="506" height="284">
 
 ---
 
