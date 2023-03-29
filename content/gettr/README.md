@@ -10,6 +10,22 @@
 
 ---
 
+[@milesguo 3/29/2023 3:11 PM UTC  - :tv:直播](/content/gettr/p2cvudxcfb4.md)
+
+2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动
+
+<img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@realfayfay 3/29/2023 1:21 AM UTC ](/content/gettr/p2cug7dcdc8.md)
+
+我今天真地跨过了自己心理上的一关。杀人不过头点地。最坏如何？诬陷我也把我关进去？那又如何？我的孩子，父母，家人因郭先生没打疫苗，躲过了生死一截。还有比等待死亡，或者更确切的说家里人一个个慢慢死去更可怕的吗？儿孙自有儿孙福。我的孩子必定如我般坚强，一定能勇敢的面对生活的磨难。不消灭共产党，面对他们的就是如钝刀割肉一般的苦。最糟的后果我都可以面对，现在就是奋力搏一个最好的未来💪🏻
+
+<img src="https://media.gettr.com/group6/getter/2023/03/29/01/802d932d-9f77-32e0-4ce7-147aef3b764d/4c5ab29fcaf2242175ddf7a25d2a00af.jpg" width="506" height="284">
+
+---
+
 [@redmaplejustice 3/28/2023 6:29 PM UTC  - :tv:直播](/content/gettr/p2ctejq13ef.md)
 
 为什么郭文贵先生会被FBI强制带走⁉️
@@ -79,14 +95,6 @@
 2023.03.28全球战友等着七哥回来 Waiting for Miles to Come back(第194场）香草山农场《洞察》第67期：米歇尔案件证明了司法黑手对中共头号敌人的政治迫害
 
 <img src="https://media.gettr.com/group9/origin/2023/03/28/16/a2d8a3ee-1202-727c-3a33-fcb8b6ec7bcd/b76f959e5b3120f504ed49119fe1783d.jpeg" width="506" height="284">
-
----
-
-[@realfayfay 3/29/2023 1:21 AM UTC ](/content/gettr/p2cug7dcdc8.md)
-
-我今天真地跨过了自己心理上的一关。杀人不过头点地。最坏如何？诬陷我也把我关进去？那又如何？我的孩子，父母，家人因郭先生没打疫苗，躲过了生死一截。还有比等待死亡，或者更确切的说家里人一个个慢慢死去更可怕的吗？儿孙自有儿孙福。我的孩子必定如我般坚强，一定能勇敢的面对生活的磨难。不消灭共产党，面对他们的就是如钝刀割肉一般的苦。最糟的后果我都可以面对，现在就是奋力搏一个最好的未来💪🏻
-
-<img src="https://media.gettr.com/group6/getter/2023/03/29/01/802d932d-9f77-32e0-4ce7-147aef3b764d/4c5ab29fcaf2242175ddf7a25d2a00af.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@
 2023.03.27 THE ROBERT SCOTT BELL SHOW Monday March 27th, 2023
 
 <img src="https://media.gettr.com/group7/origin/2023/03/27/18/479fb4d8-6e0c-a57b-f14a-352896498bc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 4:27 PM UTC  - :tv:直播](/content/gettr/p2cp5vp42f4.md)
-
-2023.03.27 NFSC SPEAKS MONDAY WITH DAVID CLEMENTS
-
-<img src="https://media.gettr.com/group12/origin/2023/03/27/15/1958c731-2d2f-3991-8246-2d3aa57e5356/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
