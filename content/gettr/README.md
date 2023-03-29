@@ -2,6 +2,14 @@
 ---
 
 
+[@nsfcspeaksoffical 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cw9z2cc93.md)
+
+2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
+
+<img src="https://media.gettr.com/group12/origin/2023/03/29/16/7e6e7fb3-eebf-0b74-7da6-18df541eb9bb/01310eecd8c4566a0a0e9a04fa0f4688.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cwlod56b6.md)
 
 2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
@@ -38,11 +46,11 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 
 ---
 
-[@nsfcspeaksoffical 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cw9z2cc93.md)
+[@milesguo 3/29/2023 6:59 PM UTC  - :tv:直播](/content/gettr/p2cwqva92e4.md)
 
-2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
+2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动 （下午场）
 
-<img src="https://media.gettr.com/group12/origin/2023/03/29/16/7e6e7fb3-eebf-0b74-7da6-18df541eb9bb/01310eecd8c4566a0a0e9a04fa0f4688.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 03/27/2023 David Clements interviewed by Ava Chen: I think what you're seeing is through soft power influencing, especially in media and in Hollywood, so Americans are getting a different view of Communist China. And what you see i...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/28/05/42df56e6-b8db-58c2-7086-f7ad98072b66/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/28/2023 3:36 AM UTC  - :tv:直播](/content/gettr/p2cr88g0a0e.md)
-
-3/27/2023 David Clements, former prosecutor and professor of law: When the Communist regime is unable to kill freedom fighters, it resorts to ruining their reputation, threatening their loved ones, and using lawfare to prevent them...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/28/03/1b29ac9b-5d97-54c2-d640-b393378f8fb4/out.jpg" width="506" height="284">
 
 ---
 
