@@ -2,6 +2,18 @@
 ---
 
 
+[@stevebannon 3/29/2023 6:49 AM UTC ](/content/gettr/p2cv6a6e351.md)
+
+The CCP’s # 1 priority in America—get anti-CCP warrior Miles Guo extradited asap…the plot to do that explodes in federal court this week in DC
+
+ 
+
+
+
+https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictured...
+
+---
+
 [@milesguo 3/29/2023 3:11 PM UTC  - :tv:直播](/content/gettr/p2cvudxcfb4.md)
 
 2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动
@@ -18,15 +30,11 @@
 
 ---
 
-[@stevebannon 3/29/2023 6:49 AM UTC ](/content/gettr/p2cv6a6e351.md)
+[@milesguo 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cwlod56b6.md)
 
-The CCP’s # 1 priority in America—get anti-CCP warrior Miles Guo extradited asap…the plot to do that explodes in federal court this week in DC
+2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
 
- 
-
-
-
-https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictured...
+<img src="https://media.gettr.com/group5/origin/2023/03/29/16/ac43ca51-bc4f-7f39-2bb9-c7883384cfee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 2023.03.27 Nicole看七哥 长岛哥谈七哥近况
 
 <img src="https://media.gettr.com/group4/origin/2023/03/27/22/db225d7c-47d3-6010-3303-1b4660d75436/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 10:01 PM UTC  - :tv:直播](/content/gettr/p2cq2la57a2.md)
-
-2023.03.27 Nicole看七哥 长岛哥谈七哥近况
-
-<img src="https://media.gettr.com/group6/origin/2023/03/27/21/de5447b1-ca53-5117-135d-f2afa992199b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
