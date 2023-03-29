@@ -2,6 +2,40 @@
 ---
 
 
+[@tommyinvan 3/24/2023 8:06 PM UTC  - :tv:直播](/content/gettr/p2ch1jx4034.md)
+
+文贵先生早在2022年7月27日直播中就提到病毒溯源最迟不超过23年3月份，而就在习近平和普金见面的当天，也就是3月20日，拜登总统签署了病毒溯源方案。我整理了几十个七哥从21年底以来数次直播中说病毒一定溯源的片段，为何七哥那么笃定病毒一定溯源？
+
+<img src="https://media.gettr.com/group5/getter/2023/03/24/20/86830fa7-5e9b-bac5-d0ba-a066ad637dcd/out.jpg" width="506" height="284">
+
+---
+
+[@redmaplejustice 3/28/2023 6:29 PM UTC  - :tv:直播](/content/gettr/p2ctejq13ef.md)
+
+为什么郭文贵先生会被FBI强制带走⁉️
+
+这不是郭先生第一次遭受不公和迫害‼️
+
+
+
+👉请看CCP是如何与 #卖美贼 勾兑企图遣返郭先生的——
+
+
+
+⚡#米歇尔 因参与遣返郭文贵先生，于3月27日在华盛顿开审
+
+
+
+🔥关注 #红叶正道，为您追踪案件进展🔥 
+
+
+
+#freemilesguonow
+
+<img src="https://media.gettr.com/group10/getter/2023/03/28/18/879007ef-8c12-f10a-27d1-c8cd1dfd93df/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/29/2023 7:23 AM UTC  - :tv:直播](/content/gettr/p2cusab0915.md)
 
 03/28/2023 Newsmax Columnist & CEO at Relentless Marketing Bill Robinson calls on conservative media outlets to cover the story of Miles Guo being targeted by the CCP. Robinson compared Miles Guo to Nelson Mandela and Gandhi and ar...
@@ -48,29 +82,11 @@
 
 ---
 
-[@redmaplejustice 3/28/2023 6:29 PM UTC  - :tv:直播](/content/gettr/p2ctejq13ef.md)
+[@realfayfay 3/29/2023 1:21 AM UTC ](/content/gettr/p2cug7dcdc8.md)
 
-为什么郭文贵先生会被FBI强制带走⁉️
+我今天真地跨过了自己心理上的一关。杀人不过头点地。最坏如何？诬陷我也把我关进去？那又如何？我的孩子，父母，家人因郭先生没打疫苗，躲过了生死一截。还有比等待死亡，或者更确切的说家里人一个个慢慢死去更可怕的吗？儿孙自有儿孙福。我的孩子必定如我般坚强，一定能勇敢的面对生活的磨难。不消灭共产党，面对他们的就是如钝刀割肉一般的苦。最糟的后果我都可以面对，现在就是奋力搏一个最好的未来💪🏻
 
-这不是郭先生第一次遭受不公和迫害‼️
-
-
-
-👉请看CCP是如何与 #卖美贼 勾兑企图遣返郭先生的——
-
-
-
-⚡#米歇尔 因参与遣返郭文贵先生，于3月27日在华盛顿开审
-
-
-
-🔥关注 #红叶正道，为您追踪案件进展🔥 
-
-
-
-#freemilesguonow
-
-<img src="https://media.gettr.com/group10/getter/2023/03/28/18/879007ef-8c12-f10a-27d1-c8cd1dfd93df/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/29/01/802d932d-9f77-32e0-4ce7-147aef3b764d/4c5ab29fcaf2242175ddf7a25d2a00af.jpg" width="506" height="284">
 
 ---
 
@@ -171,26 +187,6 @@
 2023.03.27 NFSC SPEAKS MONDAY WITH DAVID CLEMENTS
 
 <img src="https://media.gettr.com/group12/origin/2023/03/27/15/1958c731-2d2f-3991-8246-2d3aa57e5356/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 2:23 PM UTC ](/content/gettr/p2conx207fb.md)
-
-2023.03.27 华府著名律师惊天爆料！ 郭先生被抓涉及司法部腐败“深水区”！
-
-华府著名律师Adam Waksman这几天连续发推，提醒公众关注“一马案”(1MDB) 。 今天 （3月27日）涉及“一马案”的好莱坞说唱歌手 Pras Michel (普拉斯.米歇尔)将接受司法部审判， 他此前要求郭先生出庭作证， 但是遭到了拒绝。 Adam Waksman在3月25日的推文说， 在媒体被指示不要报道的历史上最大的腐败审判前1个工作日，我要提醒各位， 郭文...
-
----
-
-[@gatewaypundit 3/24/2023 11:46 PM UTC ](/content/gettr/p2ch5o5c327.md)
-
-Contrary To The SDNY, GTV Investors Say They Are NOT Victims of Anti-CCP Dissident Miles Guo
-
-
-
-
-
-https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-they-are-not-victims-of-anti-ccp-dissident-miles-guo/...
 
 ---
 
