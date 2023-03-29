@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/29/2023 6:59 PM UTC  - :tv:直播](/content/gettr/p2cwqva92e4.md)
+
+2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动 （下午场）
+
+<img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cw9z2cc93.md)
 
 2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
@@ -46,11 +54,17 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 
 ---
 
-[@milesguo 3/29/2023 6:59 PM UTC  - :tv:直播](/content/gettr/p2cwqva92e4.md)
+[@gtv_newstalk 3/29/2023 4:30 PM UTC ](/content/gettr/p2cvznlf8cf.md)
 
-2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动 （下午场）
+联邦星计划之最强Speaker大赛，新中国联邦联盟直播平台承办，大赛即将开幕。🎆🎆🎆🎆🎆🎆🎆
 
-<img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+谁是超级主播/最强SPEAKER，欢迎来挑战✊✊✊✊✊✊✊
+
+我们都是传播者，我们都是MILES GUO，我们寻找联邦星。
+
+首期（2023年），我们将比赛选出7位新中国联邦星。👏👏👏👏👏👏👏
+
+<img src="https://media.gettr.com/group3/getter/2023/03/29/16/5dcc8411-791d-beb7-115e-f71a7480897e/bc76fc3a341173faa2a8256c0f5bb57e.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +197,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 3/27/2023 David Clements, former prosecutor and professor of law: What has happened to Miles Guo is simply because he is dangerous to the CCP. It is laughable to say that Miles Guo has caused greater harm to the community than SBF,...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/28/08/17bb0522-66f9-e884-6d32-95373e13edfd/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/28/2023 5:09 AM UTC  - :tv:直播](/content/gettr/p2crche2b0e.md)
-
-03/27/2023 David Clements interviewed by Ava Chen: I think what you're seeing is through soft power influencing, especially in media and in Hollywood, so Americans are getting a different view of Communist China. And what you see i...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/28/05/42df56e6-b8db-58c2-7086-f7ad98072b66/out.jpg" width="506" height="284">
 
 ---
 
