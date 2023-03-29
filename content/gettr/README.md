@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/29/2023 3:11 PM UTC  - :tv:直播](/content/gettr/p2cvudxcfb4.md)
+
+2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动
+
+<img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@tommyinvan 3/24/2023 8:06 PM UTC  - :tv:直播](/content/gettr/p2ch1jx4034.md)
 
 文贵先生早在2022年7月27日直播中就提到病毒溯源最迟不超过23年3月份，而就在习近平和普金见面的当天，也就是3月20日，拜登总统签署了病毒溯源方案。我整理了几十个七哥从21年底以来数次直播中说病毒一定溯源的片段，为何七哥那么笃定病毒一定溯源？
@@ -10,11 +18,15 @@
 
 ---
 
-[@milesguo 3/29/2023 3:11 PM UTC  - :tv:直播](/content/gettr/p2cvudxcfb4.md)
+[@stevebannon 3/29/2023 6:49 AM UTC ](/content/gettr/p2cv6a6e351.md)
 
-2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动
+The CCP’s # 1 priority in America—get anti-CCP warrior Miles Guo extradited asap…the plot to do that explodes in federal court this week in DC
 
-<img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ 
+
+
+
+https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictured...
 
 ---
 
@@ -179,14 +191,6 @@
 2023.03.27 Nicole看七哥 长岛哥谈七哥近况
 
 <img src="https://media.gettr.com/group6/origin/2023/03/27/21/de5447b1-ca53-5117-135d-f2afa992199b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/27/2023 7:07 PM UTC  - :tv:直播](/content/gettr/p2cq23h05a2.md)
-
-2023.03.27 THE ROBERT SCOTT BELL SHOW Monday March 27th, 2023
-
-<img src="https://media.gettr.com/group7/origin/2023/03/27/18/479fb4d8-6e0c-a57b-f14a-352896498bc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
