@@ -2,6 +2,20 @@
 ---
 
 
+[@milesguo 3/29/2023 5:32 AM UTC  - :tv:直播](/content/gettr/p2cv09icb64.md)
+
+3/27/2023 Instead of being scared or wavering after Miles Guo was taken away on March 15, our fellow fighters of the New Federal State of China became more united than ever!
+
+#MilesGuo #FreeMilesGuo #FreeMilesGuoNow #NFSC
+
+
+
+3/27/2...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/29/05/67fb6995-a097-75af-94ba-b154c2062bc4/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/29/2023 4:00 AM UTC  - :tv:直播](/content/gettr/p2cv2ptd68f.md)
 
 3/27/2023 There's no need to worry about Mr. Miles Guo's safety, and we must believe in the power of the righteous force! Many people in the detention facility know Mr. Guo and call him "General Fight"! Mr. Guo works out, studies E...
@@ -18,17 +32,11 @@
 
 ---
 
-[@milesguo 3/29/2023 5:32 AM UTC  - :tv:直播](/content/gettr/p2cv09icb64.md)
+[@milesguo 3/29/2023 7:07 AM UTC  - :tv:直播](/content/gettr/p2cv64q6058.md)
 
-3/27/2023 Instead of being scared or wavering after Miles Guo was taken away on March 15, our fellow fighters of the New Federal State of China became more united than ever!
+03/28/2023  Newsmax Columnist & CEO at Relentless Marketing Bill Robinson: They make it seem as if Mr. Miles Guo is a fraud and a criminal, but it’s not true. Miles Guo earned his money honestly in China, while the CCP took away al...
 
-#MilesGuo #FreeMilesGuo #FreeMilesGuoNow #NFSC
-
-
-
-3/27/2...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/29/05/67fb6995-a097-75af-94ba-b154c2062bc4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/29/07/2cb584c4-6403-90f8-2dba-b0a1995518fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Contrary To The SDNY, GTV Investors Say They Are NOT Victims of Anti-CCP Disside
 
 
 https://www.thegatewaypundit.com/2023/03/contrary-to-the-sdny-gtv-investors-say-they-are-not-victims-of-anti-ccp-dissident-miles-guo/...
-
----
-
-[@milesguo 3/27/2023 4:06 AM UTC  - :tv:直播](/content/gettr/p2cnyq92199.md)
-
-03/25/2023 Nicole Tsai of the New Federal State of China on the Wise Guys with John Tabacco Show of NewsMax: The CCP has deeply infiltrated the US. And the first thing American lawyers doing business in Communist China must agree t...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/27/04/e84d914e-e590-4288-2287-42cf11effb89/out.jpg" width="506" height="284">
 
 ---
 
