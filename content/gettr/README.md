@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/29/2023 7:23 AM UTC  - :tv:直播](/content/gettr/p2cusab0915.md)
+
+03/28/2023 Newsmax Columnist & CEO at Relentless Marketing Bill Robinson calls on conservative media outlets to cover the story of Miles Guo being targeted by the CCP. Robinson compared Miles Guo to Nelson Mandela and Gandhi and ar...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/29/07/6fca936b-f2cf-42ef-4ce6-27b313e58ffa/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/29/2023 7:07 AM UTC  - :tv:直播](/content/gettr/p2cv64q6058.md)
 
 03/28/2023  Newsmax Columnist & CEO at Relentless Marketing Bill Robinson: They make it seem as if Mr. Miles Guo is a fraud and a criminal, but it’s not true. Miles Guo earned his money honestly in China, while the CCP took away al...
@@ -40,11 +48,29 @@
 
 ---
 
-[@milesguo 3/29/2023 7:23 AM UTC  - :tv:直播](/content/gettr/p2cusab0915.md)
+[@redmaplejustice 3/28/2023 6:29 PM UTC  - :tv:直播](/content/gettr/p2ctejq13ef.md)
 
-03/28/2023 Newsmax Columnist & CEO at Relentless Marketing Bill Robinson calls on conservative media outlets to cover the story of Miles Guo being targeted by the CCP. Robinson compared Miles Guo to Nelson Mandela and Gandhi and ar...
+为什么郭文贵先生会被FBI强制带走⁉️
 
-<img src="https://media.gettr.com/group6/getter/2023/03/29/07/6fca936b-f2cf-42ef-4ce6-27b313e58ffa/out.jpg" width="506" height="284">
+这不是郭先生第一次遭受不公和迫害‼️
+
+
+
+👉请看CCP是如何与 #卖美贼 勾兑企图遣返郭先生的——
+
+
+
+⚡#米歇尔 因参与遣返郭文贵先生，于3月27日在华盛顿开审
+
+
+
+🔥关注 #红叶正道，为您追踪案件进展🔥 
+
+
+
+#freemilesguonow
+
+<img src="https://media.gettr.com/group10/getter/2023/03/28/18/879007ef-8c12-f10a-27d1-c8cd1dfd93df/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,12 +179,6 @@
 2023.03.27 华府著名律师惊天爆料！ 郭先生被抓涉及司法部腐败“深水区”！
 
 华府著名律师Adam Waksman这几天连续发推，提醒公众关注“一马案”(1MDB) 。 今天 （3月27日）涉及“一马案”的好莱坞说唱歌手 Pras Michel (普拉斯.米歇尔)将接受司法部审判， 他此前要求郭先生出庭作证， 但是遭到了拒绝。 Adam Waksman在3月25日的推文说， 在媒体被指示不要报道的历史上最大的腐败审判前1个工作日，我要提醒各位， 郭文...
-
----
-
-[@nsfcspeaksoffical 3/26/2023 7:11 PM UTC ](/content/gettr/p2cn0io365d.md)
-
-"A group of New Federal State of China (NFSC) dissidents reported being harassed by a 'mysterious drone' at a lawful protest at the University of Maryland, Baltimore (UMBC) during a series of events last December that protesters sa...
 
 ---
 
