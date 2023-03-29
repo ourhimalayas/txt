@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/29/2023 7:07 AM UTC  - :tv:直播](/content/gettr/p2cv64q6058.md)
+
+03/28/2023  Newsmax Columnist & CEO at Relentless Marketing Bill Robinson: They make it seem as if Mr. Miles Guo is a fraud and a criminal, but it’s not true. Miles Guo earned his money honestly in China, while the CCP took away al...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/29/07/2cb584c4-6403-90f8-2dba-b0a1995518fb/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/29/2023 5:32 AM UTC  - :tv:直播](/content/gettr/p2cv09icb64.md)
 
 3/27/2023 Instead of being scared or wavering after Miles Guo was taken away on March 15, our fellow fighters of the New Federal State of China became more united than ever!
@@ -32,11 +40,11 @@
 
 ---
 
-[@milesguo 3/29/2023 7:07 AM UTC  - :tv:直播](/content/gettr/p2cv64q6058.md)
+[@milesguo 3/29/2023 7:23 AM UTC  - :tv:直播](/content/gettr/p2cusab0915.md)
 
-03/28/2023  Newsmax Columnist & CEO at Relentless Marketing Bill Robinson: They make it seem as if Mr. Miles Guo is a fraud and a criminal, but it’s not true. Miles Guo earned his money honestly in China, while the CCP took away al...
+03/28/2023 Newsmax Columnist & CEO at Relentless Marketing Bill Robinson calls on conservative media outlets to cover the story of Miles Guo being targeted by the CCP. Robinson compared Miles Guo to Nelson Mandela and Gandhi and ar...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/29/07/2cb584c4-6403-90f8-2dba-b0a1995518fb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/29/07/6fca936b-f2cf-42ef-4ce6-27b313e58ffa/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@
 2023.03.27 华府著名律师惊天爆料！ 郭先生被抓涉及司法部腐败“深水区”！
 
 华府著名律师Adam Waksman这几天连续发推，提醒公众关注“一马案”(1MDB) 。 今天 （3月27日）涉及“一马案”的好莱坞说唱歌手 Pras Michel (普拉斯.米歇尔)将接受司法部审判， 他此前要求郭先生出庭作证， 但是遭到了拒绝。 Adam Waksman在3月25日的推文说， 在媒体被指示不要报道的历史上最大的腐败审判前1个工作日，我要提醒各位， 郭文...
-
----
-
-[@nsfcspeaksoffical 3/24/2023 7:12 PM UTC  - :tv:直播](/content/gettr/p2cglu8bff3.md)
-
-"The CCP Forcing People To File False Complaints With The SEC, FBI, And Media Outlets Is Why In The 38-Page Indictment Of Mr. Guo, The DOJ And SEC Failed To Show Any Single Person Who Is A Victim Of Mr. Guo. The Real Victim Has Fle...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/24/19/6481be03-2a15-3557-4bb1-2c0872b3aebd/out.jpg" width="506" height="284">
 
 ---
 
