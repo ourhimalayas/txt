@@ -2,6 +2,16 @@
 ---
 
 
+[@milesguo 3/30/2023 4:47 AM UTC  - :tv:直播](/content/gettr/p2cyg9a5813.md)
+
+3/29/2023 The collusion between high officials of the SEC and DOJ and the CCP will make each of us a victim and insecure. We must all stand up together against the US traitors and the CCP!
+
+#MilesGuo #FreeMilesGuo #FreeMilesGuoNow ...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/30/04/1521de27-bec6-15d6-c57b-7721338fa10a/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/30/2023 4:42 AM UTC  - :tv:直播](/content/gettr/p2cxmjc3f11.md)
 
 03/29/2023 Nicole interview on Winn Tucson: Mr. Miles Guo is a victim of weaponization of the DOJ and FBI, which is why he was arrested. It is pure double standard for the same prosecutor to allow the founder of FTX to be released ...
@@ -10,13 +20,11 @@
 
 ---
 
-[@milesguo 3/30/2023 4:47 AM UTC  - :tv:直播](/content/gettr/p2cyg9a5813.md)
+[@milesguo 3/30/2023 5:14 AM UTC  - :tv:直播](/content/gettr/p2cy7sycdbf.md)
 
-3/29/2023 The collusion between high officials of the SEC and DOJ and the CCP will make each of us a victim and insecure. We must all stand up together against the US traitors and the CCP!
+03/29/2023 Nicole: We did research about the background of the federal prosecutor and investigator from the SEC from the DOJ. The prosecutors and investigators are all from the big US law firms that represent the CCP kleptocrats. N...
 
-#MilesGuo #FreeMilesGuo #FreeMilesGuoNow ...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/30/04/1521de27-bec6-15d6-c57b-7721338fa10a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/30/05/94d4c33b-f300-b1cc-526a-5baceb60ad78/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 3/27/2...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/29/05/67fb6995-a097-75af-94ba-b154c2062bc4/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/29/2023 4:00 AM UTC  - :tv:直播](/content/gettr/p2cv2ptd68f.md)
-
-3/27/2023 There's no need to worry about Mr. Miles Guo's safety, and we must believe in the power of the righteous force! Many people in the detention facility know Mr. Guo and call him "General Fight"! Mr. Guo works out, studies E...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/29/03/97fd4327-fd90-f74a-f2d0-e0dec0f6e2ed/out.jpg" width="506" height="284">
 
 ---
 
