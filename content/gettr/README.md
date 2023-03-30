@@ -2,6 +2,30 @@
 ---
 
 
+[@himalayaxzglb 3/30/2023 2:48 AM UTC  - :tv:直播](/content/gettr/p2cy62v303d.md)
+
+America is waking up !Victory must belong to the
+
+NFSC!!
+
+CONGRESS:STOP CCP'S WEAPONIZATION OF DOJ AND FBl, Investigate the political witch hunt
+
+against MILES GUO, FREE MILES GUO in
+
+Washington Times
+
+<img src="https://media.gettr.com/group7/getter/2023/03/30/02/dd09526d-ca22-e271-6b33-35ce8e4ba5f7/d9241a32a040023a3ffda5608239ae02.png" width="506" height="284">
+
+---
+
+[@milesguo 3/30/2023 1:25 AM UTC  - :tv:直播](/content/gettr/p2cy2iq5c3a.md)
+
+3/29/2023 Peter Navarro interviews War Room correspondent Jayne Zirkle: The trial of the  Pras Michel case will have a significant impact on the release of Miles Guo! Michel’s case truly demonstrates how deep the CCP's interference...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/30/01/509fa5b3-6b7f-94e3-d360-221440e672fe/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/30/2023 1:14 AM UTC ](/content/gettr/p2cy2wh2086.md)
 
 2023.03.29 
@@ -29,14 +53,6 @@
 2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动 （下午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cw9z2cc93.md)
-
-2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
-
-<img src="https://media.gettr.com/group12/origin/2023/03/29/16/7e6e7fb3-eebf-0b74-7da6-18df541eb9bb/01310eecd8c4566a0a0e9a04fa0f4688.jpeg" width="506" height="284">
 
 ---
 
@@ -76,11 +92,11 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 
 ---
 
-[@milesguo 3/30/2023 1:25 AM UTC  - :tv:直播](/content/gettr/p2cy2iq5c3a.md)
+[@milesguo 3/30/2023 3:50 AM UTC  - :tv:直播](/content/gettr/p2cydek0c77.md)
 
-3/29/2023 Peter Navarro interviews War Room correspondent Jayne Zirkle: The trial of the  Pras Michel case will have a significant impact on the release of Miles Guo! Michel’s case truly demonstrates how deep the CCP's interference...
+03/29/2023 Morgonn McMichael on NFSC Speaks: Mr. Miles Guo should not be indicted the way he is now, and it is unconstitutional for GTV's investment to be kept by the SEC. It shows that the CCP has infiltrated the American governme...
 
-<img src="https://media.gettr.com/group7/getter/2023/03/30/01/509fa5b3-6b7f-94e3-d360-221440e672fe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/30/03/641ccb4b-466f-2588-55a5-930259d5ef7e/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,18 +201,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 2023.03.28 NFSC SPEAKS TUESDAY WITH RELENTLESS BILL ROBINSON ABSOLUTE POWER KILLS ABSOLUTELY
 
 <img src="https://media.gettr.com/group9/origin/2023/03/28/20/8cae5654-d0d3-9f4c-b025-25308970f962/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/28/2023 4:54 PM UTC ](/content/gettr/p2csxcza02c.md)
-
-2023.03.28 ：华盛顿时报（The Washington Times) 第三页全版登刊 要求国会立刻释放Miles Guo，并且调查DOJ被CCP的渗透！
-
-
-
-重磅！！！！🔥🔥🔥‼️‼️
-
-<img src="https://media.gettr.com/group9/getter/2023/03/28/16/29e050b9-1915-4d01-1485-e34c02ab1851/8b06cd05bf70dca26bf867a151bcdbc3.jpg" width="506" height="284">
 
 ---
 
