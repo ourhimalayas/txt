@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/30/2023 1:14 AM UTC ](/content/gettr/p2cy2wh2086.md)
+
+2023.03.29 
+
+自3 月 15 日郭先生被FBI带走后，美国和其他西方社会对此事件表达了强烈的关注，多家英文媒体和电视持续关注和报道了315事件， 3月29日，Gateway Pundit再一次发表文章，指出315事件标志着中共将美国司法系统武器化达到了顶峰。作者马修*帕隆波（Matt Palumbo）是美国畅销书作家，他指出，郭先生案子从一开始就是被中共操控的虚假指控， 经手郭先生案子的纽约南区联邦检察官达米安·威廉姆斯（Damian Willi...
+
+---
+
 [@gtv_newstalk 3/29/2023 4:30 PM UTC ](/content/gettr/p2cvznlf8cf.md)
 
 联邦星计划之最强Speaker大赛，新中国联邦联盟直播平台承办，大赛即将开幕。🎆🎆🎆🎆🎆🎆🎆
@@ -68,11 +76,11 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 
 ---
 
-[@milesguo 3/30/2023 1:14 AM UTC ](/content/gettr/p2cy2wh2086.md)
+[@milesguo 3/30/2023 1:25 AM UTC  - :tv:直播](/content/gettr/p2cy2iq5c3a.md)
 
-2023.03.29 
+3/29/2023 Peter Navarro interviews War Room correspondent Jayne Zirkle: The trial of the  Pras Michel case will have a significant impact on the release of Miles Guo! Michel’s case truly demonstrates how deep the CCP's interference...
 
-自3 月 15 日郭先生被FBI带走后，美国和其他西方社会对此事件表达了强烈的关注，多家英文媒体和电视持续关注和报道了315事件， 3月29日，Gateway Pundit再一次发表文章，指出315事件标志着中共将美国司法系统武器化达到了顶峰。作者马修*帕隆波（Matt Palumbo）是美国畅销书作家，他指出，郭先生案子从一开始就是被中共操控的虚假指控， 经手郭先生案子的纽约南区联邦检察官达米安·威廉姆斯（Damian Willi...
+<img src="https://media.gettr.com/group7/getter/2023/03/30/01/509fa5b3-6b7f-94e3-d360-221440e672fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 重磅！！！！🔥🔥🔥‼️‼️
 
 <img src="https://media.gettr.com/group9/getter/2023/03/28/16/29e050b9-1915-4d01-1485-e34c02ab1851/8b06cd05bf70dca26bf867a151bcdbc3.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/28/2023 10:06 AM UTC  - :tv:直播](/content/gettr/p2cs1uk89cb.md)
-
-03/27/2023 Former prosecutor and law professor David Clements: For Mr. Miles Guo, even his home country deadly set against him, where else would he go? So there's no "flight risk" for him, and this case is a white-collar accusation...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/28/10/7c8c1350-39c4-a519-87eb-f56c859853d9/out.jpg" width="506" height="284">
 
 ---
 
