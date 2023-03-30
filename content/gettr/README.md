@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/30/2023 5:14 AM UTC  - :tv:直播](/content/gettr/p2cy7sycdbf.md)
+
+03/29/2023 Nicole: We did research about the background of the federal prosecutor and investigator from the SEC from the DOJ. The prosecutors and investigators are all from the big US law firms that represent the CCP kleptocrats. N...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/30/05/94d4c33b-f300-b1cc-526a-5baceb60ad78/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/30/2023 4:47 AM UTC  - :tv:直播](/content/gettr/p2cyg9a5813.md)
 
 3/29/2023 The collusion between high officials of the SEC and DOJ and the CCP will make each of us a victim and insecure. We must all stand up together against the US traitors and the CCP!
@@ -20,11 +28,11 @@
 
 ---
 
-[@milesguo 3/30/2023 5:14 AM UTC  - :tv:直播](/content/gettr/p2cy7sycdbf.md)
+[@milesguo 3/30/2023 7:05 PM UTC  - :tv:直播](/content/gettr/p2d06ep61c5.md)
 
-03/29/2023 Nicole: We did research about the background of the federal prosecutor and investigator from the SEC from the DOJ. The prosecutors and investigators are all from the big US law firms that represent the CCP kleptocrats. N...
+2023.03.30 Right Now with Ann Vandersteel ft. Nicole Tsai
 
-<img src="https://media.gettr.com/group8/getter/2023/03/30/05/94d4c33b-f300-b1cc-526a-5baceb60ad78/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/03/30/18/65e3d9ea-62cf-e565-d5ca-a972aa4e1385/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,20 +199,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 03/28/2023  Newsmax Columnist & CEO at Relentless Marketing Bill Robinson: They make it seem as if Mr. Miles Guo is a fraud and a criminal, but it’s not true. Miles Guo earned his money honestly in China, while the CCP took away al...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/29/07/2cb584c4-6403-90f8-2dba-b0a1995518fb/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/29/2023 5:32 AM UTC  - :tv:直播](/content/gettr/p2cv09icb64.md)
-
-3/27/2023 Instead of being scared or wavering after Miles Guo was taken away on March 15, our fellow fighters of the New Federal State of China became more united than ever!
-
-#MilesGuo #FreeMilesGuo #FreeMilesGuoNow #NFSC
-
-
-
-3/27/2...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/29/05/67fb6995-a097-75af-94ba-b154c2062bc4/out.jpg" width="506" height="284">
 
 ---
 
