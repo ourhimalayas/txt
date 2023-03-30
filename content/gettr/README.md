@@ -18,6 +18,24 @@ Washington Times
 
 ---
 
+[@milesguo 3/30/2023 4:08 AM UTC  - :tv:直播](/content/gettr/p2cxv5b4cf8.md)
+
+【#FreeMilesGuoNow】3/29/2023: Mr. Miles Guo’s current legal persecution not only reveals to us who our enemies are, but also awakens Americans to the need to completely remove the traitors from within the SEC and DOJ.
+
+#MilesGuo #Fr...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/30/04/dbb5d5e4-258a-a868-9d6a-749a00208436/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/30/2023 3:50 AM UTC  - :tv:直播](/content/gettr/p2cydek0c77.md)
+
+03/29/2023 Morgonn McMichael on NFSC Speaks: Mr. Miles Guo should not be indicted the way he is now, and it is unconstitutional for GTV's investment to be kept by the SEC. It shows that the CCP has infiltrated the American governme...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/30/03/641ccb4b-466f-2588-55a5-930259d5ef7e/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/30/2023 1:25 AM UTC  - :tv:直播](/content/gettr/p2cy2iq5c3a.md)
 
 3/29/2023 Peter Navarro interviews War Room correspondent Jayne Zirkle: The trial of the  Pras Michel case will have a significant impact on the release of Miles Guo! Michel’s case truly demonstrates how deep the CCP's interference...
@@ -89,14 +107,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 文贵先生早在2022年7月27日直播中就提到病毒溯源最迟不超过23年3月份，而就在习近平和普金见面的当天，也就是3月20日，拜登总统签署了病毒溯源方案。我整理了几十个七哥从21年底以来数次直播中说病毒一定溯源的片段，为何七哥那么笃定病毒一定溯源？
 
 <img src="https://media.gettr.com/group5/getter/2023/03/24/20/86830fa7-5e9b-bac5-d0ba-a066ad637dcd/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 3:50 AM UTC  - :tv:直播](/content/gettr/p2cydek0c77.md)
-
-03/29/2023 Morgonn McMichael on NFSC Speaks: Mr. Miles Guo should not be indicted the way he is now, and it is unconstitutional for GTV's investment to be kept by the SEC. It shows that the CCP has infiltrated the American governme...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/30/03/641ccb4b-466f-2588-55a5-930259d5ef7e/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +203,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 刑不上大夫· 战 · 飞飞秀  2023年3月28日
 
 <img src="https://media.gettr.com/group11/origin/2023/03/28/23/c9e85ce9-b8d5-6a5f-7a8a-43cc0ce4e60e/24bcc2dc6e5eb3260326b34e669cea47.png" width="506" height="284">
-
----
-
-[@milesguo 3/28/2023 8:19 PM UTC  - :tv:直播](/content/gettr/p2ct6n94789.md)
-
-2023.03.28 NFSC SPEAKS TUESDAY WITH RELENTLESS BILL ROBINSON ABSOLUTE POWER KILLS ABSOLUTELY
-
-<img src="https://media.gettr.com/group9/origin/2023/03/28/20/8cae5654-d0d3-9f4c-b025-25308970f962/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
