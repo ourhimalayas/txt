@@ -36,15 +36,13 @@
 
 ---
 
-[@milesguo 3/30/2023 9:05 PM UTC  - :tv:直播](/content/gettr/p2d0gza77db.md)
+[@milesguo 3/30/2023 9:41 PM UTC  - :tv:直播](/content/gettr/p2d0k83d691.md)
 
-2023.03.30 
+2023.03.30 #nfsc #mosinsight #TikTok #bantiktok #takedowntheccp 
 
-#nfsc #mosinsight #TikTok #bantiktok #takedowntheccp 
+Last Thursday TikTok CEO Zhou Shouzhi (Shou Zi Chew) testified at a hearing before the House Commerce Committee, where members of the committee questioned Zhou about...
 
-Last Thursday TikTok CEO Zhou Shouzhi (Shou Zi Chew) testified at a hearing before the House Commerce Committee, where members of the committee questioned Zhou abo...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/30/21/597c8f26-3135-1c90-9743-2727c6771a73/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/30/21/57727202-9d45-418b-faba-0a8530198de9/out.jpg" width="506" height="284">
 
 ---
 
