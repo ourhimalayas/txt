@@ -2,6 +2,20 @@
 ---
 
 
+[@gtv_newstalk 3/29/2023 4:30 PM UTC ](/content/gettr/p2cvznlf8cf.md)
+
+联邦星计划之最强Speaker大赛，新中国联邦联盟直播平台承办，大赛即将开幕。🎆🎆🎆🎆🎆🎆🎆
+
+谁是超级主播/最强SPEAKER，欢迎来挑战✊✊✊✊✊✊✊
+
+我们都是传播者，我们都是MILES GUO，我们寻找联邦星。
+
+首期（2023年），我们将比赛选出7位新中国联邦星。👏👏👏👏👏👏👏
+
+<img src="https://media.gettr.com/group3/getter/2023/03/29/16/5dcc8411-791d-beb7-115e-f71a7480897e/bc76fc3a341173faa2a8256c0f5bb57e.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/29/2023 6:59 PM UTC  - :tv:直播](/content/gettr/p2cwqva92e4.md)
 
 2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动 （下午场）
@@ -54,17 +68,11 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 
 ---
 
-[@gtv_newstalk 3/29/2023 4:30 PM UTC ](/content/gettr/p2cvznlf8cf.md)
+[@milesguo 3/30/2023 1:14 AM UTC ](/content/gettr/p2cy2wh2086.md)
 
-联邦星计划之最强Speaker大赛，新中国联邦联盟直播平台承办，大赛即将开幕。🎆🎆🎆🎆🎆🎆🎆
+2023.03.29 
 
-谁是超级主播/最强SPEAKER，欢迎来挑战✊✊✊✊✊✊✊
-
-我们都是传播者，我们都是MILES GUO，我们寻找联邦星。
-
-首期（2023年），我们将比赛选出7位新中国联邦星。👏👏👏👏👏👏👏
-
-<img src="https://media.gettr.com/group3/getter/2023/03/29/16/5dcc8411-791d-beb7-115e-f71a7480897e/bc76fc3a341173faa2a8256c0f5bb57e.jpg" width="506" height="284">
+自3 月 15 日郭先生被FBI带走后，美国和其他西方社会对此事件表达了强烈的关注，多家英文媒体和电视持续关注和报道了315事件， 3月29日，Gateway Pundit再一次发表文章，指出315事件标志着中共将美国司法系统武器化达到了顶峰。作者马修*帕隆波（Matt Palumbo）是美国畅销书作家，他指出，郭先生案子从一开始就是被中共操控的虚假指控， 经手郭先生案子的纽约南区联邦检察官达米安·威廉姆斯（Damian Willi...
 
 ---
 
@@ -189,14 +197,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 03/27/2023 Former prosecutor and law professor David Clements: For Mr. Miles Guo, even his home country deadly set against him, where else would he go? So there's no "flight risk" for him, and this case is a white-collar accusation...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/28/10/7c8c1350-39c4-a519-87eb-f56c859853d9/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/28/2023 9:03 AM UTC  - :tv:直播](/content/gettr/p2crl7g4256.md)
-
-3/27/2023 David Clements, former prosecutor and professor of law: What has happened to Miles Guo is simply because he is dangerous to the CCP. It is laughable to say that Miles Guo has caused greater harm to the community than SBF,...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/28/08/17bb0522-66f9-e884-6d32-95373e13edfd/out.jpg" width="506" height="284">
 
 ---
 
