@@ -10,6 +10,12 @@
 
 ---
 
+[@littleant123 3/31/2023 1:27 AM UTC ](/content/gettr/c1u7gh6d395.md)
+
+#为什么是3月15日？1. 3.14已经有2个议员已经签名支持国会调查对文贵先生司法超限战；2. 3.17有重大投资机构入场，签合同，喜币会一飞冲天，至少1000以上。中共选择这一天动手就是抢钱来了，害怕普通战友拥有财富。喜币上公链就是打通了一切 ；3. 米歇尔的案件，害怕文贵先生到庭作证。
+
+---
+
 [@milesguo 3/31/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2d16u357c3.md)
 
 3/29/2023  Because the SEC has been delaying the return of GTV investors' money, many people were unable to flee Communist China, and some sadly died from the CCP virus and COVID vaccines. Free Miles Guo and take down the CCP!
@@ -25,6 +31,14 @@
 3/29/2023 Nicole with Ann Vandersteel: Mr. Miles Guo is confident that there are Americans who will do justice to him and he will walk out of the federal jail with dignity. He firmly believes that all American traitors will be expo...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/31/00/9c9bb379-5581-cd0a-aabd-21f1ae6c4c9a/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2d0ziqf6a6.md)
+
+3/29/2023  On the same day, Gateway Pundit and Newsmax published articles by the renowned writer Matt Palumbo, exposing once again that Mr. Miles Guo and Ms. Yvette Wang were framed and jailed by the CCP enablers within the DOJ. Mr...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/31/00/a0b77d58-dce0-6310-b7c2-e9e47977a6bf/out.jpg" width="506" height="284">
 
 ---
 
@@ -85,14 +99,6 @@ Last Thursday TikTok CEO Zhou Shouzhi (Shou Zi Chew) testified at a hearing befo
 03/29/2023 Nicole interview on Winn Tucson: Mr. Miles Guo is a victim of weaponization of the DOJ and FBI, which is why he was arrested. It is pure double standard for the same prosecutor to allow the founder of FTX to be released ...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/30/04/f1eb702e-314f-f346-abbc-e2e33f70f808/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2d0ziqf6a6.md)
-
-3/29/2023  On the same day, Gateway Pundit and Newsmax published articles by the renowned writer Matt Palumbo, exposing once again that Mr. Miles Guo and Ms. Yvette Wang were framed and jailed by the CCP enablers within the DOJ. Mr...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/31/00/a0b77d58-dce0-6310-b7c2-e9e47977a6bf/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +179,6 @@ Washington Times
 2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动 （下午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/29/2023 5:09 PM UTC  - :tv:直播](/content/gettr/p2cwlod56b6.md)
-
-2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
-
-<img src="https://media.gettr.com/group5/origin/2023/03/29/16/ac43ca51-bc4f-7f39-2bb9-c7883384cfee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
