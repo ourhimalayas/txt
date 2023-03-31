@@ -2,6 +2,26 @@
 ---
 
 
+[@milesguo 3/31/2023 5:33 PM UTC  - :tv:直播](/content/gettr/p2d3v3v21dc.md)
+
+2023.03.31 Nicole on America First News, talking about the outrageous, ongoing detention of Mr. Guo
+
+<img src="https://media.gettr.com/group12/origin/2023/03/31/17/72d57ace-a808-aa54-61a2-eeeebd4f4b71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@wyw626 3/31/2023 1:41 PM UTC  - :tv:直播](/content/gettr/p2d2y8ya74b.md)
+
+The real reason why Miles Guo was arrested: CCP fears that Mr. Guo will testify in Pras Michel's trial and confirm the CCP's persecution of Mr. Guo and the BGY of the United States
+
+
+
+Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出庭作证，做...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/31/13/ae95e005-173b-190d-064f-b3de4a3935ad/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/31/2023 3:25 PM UTC  - :tv:直播](/content/gettr/p2d3con206a.md)
 
 DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
@@ -18,15 +38,15 @@ DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals O
 
 ---
 
-[@wyw626 3/31/2023 1:41 PM UTC  - :tv:直播](/content/gettr/p2d2y8ya74b.md)
+[@milesguo 3/31/2023 5:42 PM UTC  - :tv:直播](/content/gettr/p2d3oni9fd9.md)
 
-The real reason why Miles Guo was arrested: CCP fears that Mr. Guo will testify in Pras Michel's trial and confirm the CCP's persecution of Mr. Guo and the BGY of the United States
+2023.03.31 #freemilesguo #nfsc #moslableak #fbi #takedowntheccp #ccpvirus #COVID 
 
+DEFUSE提案! 這項耗資 1400 萬美元的提案可能會解答了中共病毒問題. 
 
+The DEFUSE Proposal! This proposal for $14 million may solve the CCP Virus question.
 
-Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出庭作证，做...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/31/13/ae95e005-173b-190d-064f-b3de4a3935ad/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/31/17/b3a46ab6-9c3e-9f2d-3467-dc96a78176bf/out.jpg" width="506" height="284">
 
 ---
 
@@ -126,14 +146,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 
 ---
 
-[@milesguo 3/31/2023 12:15 AM UTC  - :tv:直播](/content/gettr/p2d17tu692f.md)
-
-2023.03.30 Nicole看七哥 长岛哥谈七哥近况及315真相 （4K版）
-
-<img src="https://media.gettr.com/group9/origin/2023/03/30/23/622f8524-0967-c27b-497d-f5888cb21fee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@milesguo 3/31/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2d16u357c3.md)
 
 3/29/2023  Because the SEC has been delaying the return of GTV investors' money, many people were unable to flee Communist China, and some sadly died from the CCP virus and COVID vaccines. Free Miles Guo and take down the CCP!
@@ -157,14 +169,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 3/29/2023  On the same day, Gateway Pundit and Newsmax published articles by the renowned writer Matt Palumbo, exposing once again that Mr. Miles Guo and Ms. Yvette Wang were framed and jailed by the CCP enablers within the DOJ. Mr...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/31/00/a0b77d58-dce0-6310-b7c2-e9e47977a6bf/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:14 AM UTC  - :tv:直播](/content/gettr/p2d0ufg968b.md)
-
-2023.03.30 Nicole看七哥 长岛哥谈七哥近况及315真相
-
-<img src="https://media.gettr.com/group8/origin/2023/03/31/00/e5178b40-73c6-5c49-f522-e138531af6fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
