@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/30/2023 11:25 PM UTC  - :tv:直播](/content/gettr/p2d174c592c.md)
+
+2023.03.30 Breaking News: President Trump Indicted by CCP-Infiltrated DOJ
+
+<img src="https://media.gettr.com/group9/origin/2023/03/30/23/55122cc0-a0ab-0d10-44b4-516656b6b59a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/30/2023 9:41 PM UTC  - :tv:直播](/content/gettr/p2d0k83d691.md)
 
 2023.03.30 #nfsc #mosinsight #TikTok #bantiktok #takedowntheccp 
@@ -46,11 +54,11 @@ Last Thursday TikTok CEO Zhou Shouzhi (Shou Zi Chew) testified at a hearing befo
 
 ---
 
-[@milesguo 3/30/2023 11:25 PM UTC  - :tv:直播](/content/gettr/p2d174c592c.md)
+[@milesguo 3/31/2023 12:14 AM UTC  - :tv:直播](/content/gettr/p2d0ufg968b.md)
 
-2023.03.30 Breaking News: President Trump Indicted by CCP-Infiltrated DOJ
+2023.03.30 Nicole看七哥 长岛哥谈七哥近况及315真相
 
-<img src="https://media.gettr.com/group9/origin/2023/03/30/23/55122cc0-a0ab-0d10-44b4-516656b6b59a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/03/31/00/e5178b40-73c6-5c49-f522-e138531af6fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,32 +183,6 @@ https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictur
 我今天真地跨过了自己心理上的一关。杀人不过头点地。最坏如何？诬陷我也把我关进去？那又如何？我的孩子，父母，家人因郭先生没打疫苗，躲过了生死一截。还有比等待死亡，或者更确切的说家里人一个个慢慢死去更可怕的吗？儿孙自有儿孙福。我的孩子必定如我般坚强，一定能勇敢的面对生活的磨难。不消灭共产党，面对他们的就是如钝刀割肉一般的苦。最糟的后果我都可以面对，现在就是奋力搏一个最好的未来💪🏻
 
 <img src="https://media.gettr.com/group6/getter/2023/03/29/01/802d932d-9f77-32e0-4ce7-147aef3b764d/4c5ab29fcaf2242175ddf7a25d2a00af.jpg" width="506" height="284">
-
----
-
-[@redmaplejustice 3/28/2023 6:29 PM UTC  - :tv:直播](/content/gettr/p2ctejq13ef.md)
-
-为什么郭文贵先生会被FBI强制带走⁉️
-
-这不是郭先生第一次遭受不公和迫害‼️
-
-
-
-👉请看CCP是如何与 #卖美贼 勾兑企图遣返郭先生的——
-
-
-
-⚡#米歇尔 因参与遣返郭文贵先生，于3月27日在华盛顿开审
-
-
-
-🔥关注 #红叶正道，为您追踪案件进展🔥 
-
-
-
-#freemilesguonow
-
-<img src="https://media.gettr.com/group10/getter/2023/03/28/18/879007ef-8c12-f10a-27d1-c8cd1dfd93df/out.jpg" width="506" height="284">
 
 ---
 
