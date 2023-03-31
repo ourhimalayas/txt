@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 3/31/2023 3:25 PM UTC  - :tv:直播](/content/gettr/p2d3con206a.md)
+
+DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
+
+<img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/31/2023 12:46 PM UTC  - :tv:直播](/content/gettr/p2d3a679fc9.md)
 
 03/29/2023 #FreeMilesGuo Protest: The Whistleblowers' Movement is having much less difficulty now than it did five or six years ago. It looks like the CCP is getting its way now, but the situation in the U.S. is no longer the same....
@@ -10,11 +18,15 @@
 
 ---
 
-[@milesguo 3/31/2023 3:25 PM UTC  - :tv:直播](/content/gettr/p2d3con206a.md)
+[@wyw626 3/31/2023 1:41 PM UTC  - :tv:直播](/content/gettr/p2d2y8ya74b.md)
 
-DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
+The real reason why Miles Guo was arrested: CCP fears that Mr. Guo will testify in Pras Michel's trial and confirm the CCP's persecution of Mr. Guo and the BGY of the United States
 
-<img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出庭作证，做...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/31/13/ae95e005-173b-190d-064f-b3de4a3935ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +165,6 @@ DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals O
 2023.03.30 Nicole看七哥 长岛哥谈七哥近况及315真相
 
 <img src="https://media.gettr.com/group8/origin/2023/03/31/00/e5178b40-73c6-5c49-f522-e138531af6fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 11:25 PM UTC  - :tv:直播](/content/gettr/p2d174c592c.md)
-
-2023.03.30 Breaking News: President Trump Indicted by CCP-Infiltrated DOJ
-
-<img src="https://media.gettr.com/group9/origin/2023/03/30/23/55122cc0-a0ab-0d10-44b4-516656b6b59a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
