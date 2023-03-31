@@ -2,6 +2,40 @@
 ---
 
 
+[@milesguo 3/31/2023 12:15 AM UTC  - :tv:直播](/content/gettr/p2d17tu692f.md)
+
+2023.03.30 Nicole看七哥 长岛哥谈七哥近况及315真相 （4K版）
+
+<img src="https://media.gettr.com/group9/origin/2023/03/30/23/622f8524-0967-c27b-497d-f5888cb21fee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2d16u357c3.md)
+
+3/29/2023  Because the SEC has been delaying the return of GTV investors' money, many people were unable to flee Communist China, and some sadly died from the CCP virus and COVID vaccines. Free Miles Guo and take down the CCP!
+
+#Mi...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/31/00/e918b0ca-fb3a-820c-0437-a9083fd1cd4a/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2d14r87bb0.md)
+
+3/29/2023 Nicole with Ann Vandersteel: Mr. Miles Guo is confident that there are Americans who will do justice to him and he will walk out of the federal jail with dignity. He firmly believes that all American traitors will be expo...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/31/00/9c9bb379-5581-cd0a-aabd-21f1ae6c4c9a/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:14 AM UTC  - :tv:直播](/content/gettr/p2d0ufg968b.md)
+
+2023.03.30 Nicole看七哥 长岛哥谈七哥近况及315真相
+
+<img src="https://media.gettr.com/group8/origin/2023/03/31/00/e5178b40-73c6-5c49-f522-e138531af6fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/30/2023 11:25 PM UTC  - :tv:直播](/content/gettr/p2d174c592c.md)
 
 2023.03.30 Breaking News: President Trump Indicted by CCP-Infiltrated DOJ
@@ -54,11 +88,11 @@ Last Thursday TikTok CEO Zhou Shouzhi (Shou Zi Chew) testified at a hearing befo
 
 ---
 
-[@milesguo 3/31/2023 12:14 AM UTC  - :tv:直播](/content/gettr/p2d0ufg968b.md)
+[@milesguo 3/31/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2d0ziqf6a6.md)
 
-2023.03.30 Nicole看七哥 长岛哥谈七哥近况及315真相
+3/29/2023  On the same day, Gateway Pundit and Newsmax published articles by the renowned writer Matt Palumbo, exposing once again that Mr. Miles Guo and Ms. Yvette Wang were framed and jailed by the CCP enablers within the DOJ. Mr...
 
-<img src="https://media.gettr.com/group8/origin/2023/03/31/00/e5178b40-73c6-5c49-f522-e138531af6fa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/31/00/a0b77d58-dce0-6310-b7c2-e9e47977a6bf/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,42 +181,6 @@ Washington Times
 2023.03.29 NFSC SPEAKS WEDNESDAY WITH MORGONN MCMICHAEL
 
 <img src="https://media.gettr.com/group5/origin/2023/03/29/16/ac43ca51-bc4f-7f39-2bb9-c7883384cfee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@stevebannon 3/29/2023 6:49 AM UTC ](/content/gettr/p2cv6a6e351.md)
-
-The CCP’s # 1 priority in America—get anti-CCP warrior Miles Guo extradited asap…the plot to do that explodes in federal court this week in DC
-
- 
-
-
-
-https://www.dailymail.co.uk/news/article-11913723/Fugees-star-Pras-Michel-pictured...
-
----
-
-[@milesguo 3/29/2023 3:11 PM UTC  - :tv:直播](/content/gettr/p2cvudxcfb4.md)
-
-2023.03.29 新中国联邦人#FreeMilesGuo线下抗议行动
-
-<img src="https://media.gettr.com/group12/origin/2023/03/29/14/1569297c-b788-0fe7-1fc2-74c9de700e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@tommyinvan 3/24/2023 8:06 PM UTC  - :tv:直播](/content/gettr/p2ch1jx4034.md)
-
-文贵先生早在2022年7月27日直播中就提到病毒溯源最迟不超过23年3月份，而就在习近平和普金见面的当天，也就是3月20日，拜登总统签署了病毒溯源方案。我整理了几十个七哥从21年底以来数次直播中说病毒一定溯源的片段，为何七哥那么笃定病毒一定溯源？
-
-<img src="https://media.gettr.com/group5/getter/2023/03/24/20/86830fa7-5e9b-bac5-d0ba-a066ad637dcd/out.jpg" width="506" height="284">
-
----
-
-[@realfayfay 3/29/2023 1:21 AM UTC ](/content/gettr/p2cug7dcdc8.md)
-
-我今天真地跨过了自己心理上的一关。杀人不过头点地。最坏如何？诬陷我也把我关进去？那又如何？我的孩子，父母，家人因郭先生没打疫苗，躲过了生死一截。还有比等待死亡，或者更确切的说家里人一个个慢慢死去更可怕的吗？儿孙自有儿孙福。我的孩子必定如我般坚强，一定能勇敢的面对生活的磨难。不消灭共产党，面对他们的就是如钝刀割肉一般的苦。最糟的后果我都可以面对，现在就是奋力搏一个最好的未来💪🏻
-
-<img src="https://media.gettr.com/group6/getter/2023/03/29/01/802d932d-9f77-32e0-4ce7-147aef3b764d/4c5ab29fcaf2242175ddf7a25d2a00af.jpg" width="506" height="284">
 
 ---
 
