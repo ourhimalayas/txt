@@ -2,6 +2,96 @@
 ---
 
 
+[@milesguo 3/31/2023 12:46 PM UTC  - :tv:直播](/content/gettr/p2d3a679fc9.md)
+
+03/29/2023 #FreeMilesGuo Protest: The Whistleblowers' Movement is having much less difficulty now than it did five or six years ago. It looks like the CCP is getting its way now, but the situation in the U.S. is no longer the same....
+
+<img src="https://media.gettr.com/group7/getter/2023/03/31/12/a165b82b-2c20-a230-32fc-82ab63ddf0a3/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:46 PM UTC  - :tv:直播](/content/gettr/p2d31uy70c6.md)
+
+03/28/2023 In an interview with America First News, Nicole exposed how the CCP has hijacked China and turned it into a slavery and concentration camp. She further revealed that the corrupt government officials and people in power i...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/31/12/2ba2180e-1165-1269-6b77-db278e417cae/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:47 PM UTC  - :tv:直播](/content/gettr/p2d3564ef22.md)
+
+03/28/2023 In an interview with America First News, Nicole reveals that back in 2017, CCP’s No.1 enemy Miles Guo tipped off the FBI about the CCP’s 13579 plan to intentionally produce and release a deadly virus to destroy 7 countri...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/31/12/fd5a9b04-0a99-42bc-ec36-d2d719a72ee0/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:48 PM UTC  - :tv:直播](/content/gettr/p2d33xz2e08.md)
+
+03/28/2023 In an interview with America First News, Nicole provided an update on Miles Guo's arrest and highlighted that he is being held in federal jail due to his possession of exclusive Intel about how the CCP has corrupted the ...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/31/12/3174b594-46f1-19c1-9a5f-0e5039626ae7/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:48 PM UTC  - :tv:直播](/content/gettr/p2d37pjb8c3.md)
+
+03/29/2023 #FreeMilesGuo Protest: A fellow fighter says that the fellow fighters from NFSC stand out in front of US Capitol Hill to express their support and claims for Miles Guo and NFSC, as well as their firm resolve to let the c...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/31/12/d7b4af50-6193-c401-9f0c-18e88bd0a382/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:49 PM UTC  - :tv:直播](/content/gettr/p2d3893a514.md)
+
+03/29/2023 #FreeMilesGuo Protest: The CCP’s collaborators in the United States can deprive Mr. Miles Guo of his freedom for now but can never stop the demise of the CCP. Many student leaders of the 1989 Student Movement in China re...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/31/12/163e1a56-cd0b-df9c-23b0-c520b1bc7474/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:50 PM UTC  - :tv:直播](/content/gettr/p2d38k60d30.md)
+
+3/29/2023 Nicole with Ann Vandersteel: The U.S. has suffered many disasters due to the CCP, but Mr. Miles Guo, who is working tirelessly to save America, has been persecuted. On the other hand, "Huawei Princess" Meng Wanzhou and SB...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/31/12/8c35a808-3bfa-0bd1-659a-1223c2d8f941/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:51 PM UTC  - :tv:直播](/content/gettr/p2d310qd432.md)
+
+
+
+3/30/2023 Nicole with Kevin Alan: What happened to Mr. Miles Guo could happen to any US citizen. The American sellouts must be exposed! The CCP will never be able to weaponize the US judicial system unless there is assistance fro...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/31/12/cb154a46-e608-c377-796e-144c1c75a25e/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:52 PM UTC  - :tv:直播](/content/gettr/p2d2uk067f3.md)
+
+3/30/2023 Nicole with Kevin Alan: The CCP does not want Mr. Miles Guo to testify at Pras Michel’s trial because they are afraid Mr. Guo would expose how the CCP used George Higginbotham and other power brokers to orchestrate an int...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/31/12/71d6b59d-ecdf-c275-5526-5fd1f1bad375/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 12:52 PM UTC  - :tv:直播](/content/gettr/p2d38ex01f0.md)
+
+3/30/2023 Nicole with Kevin Alan: Pras Michel has successfully weaponized the Department of Justice to target Miles Guo, the Chinese Communist Party's top enemy! Behind the double standards of the US justice system toward Miles Guo...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/31/12/84ec8fbc-5ecf-f5dd-33c2-42557622b7a9/out.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_1 3/31/2023 3:36 AM UTC  - :tv:直播](/content/gettr/p2d1u1s5c63.md)
+
+03/28/2023 In an interview with America First News, Nicole exposed how the CCP has hijacked China and turned it into a slavery and concentration camp. She further revealed that the corrupt government officials and people in power i...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/31/03/f1cf9a1c-1616-1247-b2e2-fc50d45f4fbc/out.jpg" width="506" height="284">
+
+---
+
 [@littleant123 3/31/2023 1:27 AM UTC ](/content/gettr/c1u7gh6d395.md)
 
 #为什么是3月15日？1. 3.14已经有2个议员已经签名支持国会调查对文贵先生司法超限战；2. 3.17有重大投资机构入场，签合同，喜币会一飞冲天，至少1000以上。中共选择这一天动手就是抢钱来了，害怕普通战友拥有财富。喜币上公链就是打通了一切 ；3. 米歇尔的案件，害怕文贵先生到庭作证。
@@ -16,11 +106,11 @@
 
 ---
 
-[@gtranslators_1 3/31/2023 3:36 AM UTC  - :tv:直播](/content/gettr/p2d1u1s5c63.md)
+[@milesguo 3/31/2023 12:53 PM UTC  - :tv:直播](/content/gettr/p2d2iox4812.md)
 
-03/28/2023 In an interview with America First News, Nicole exposed how the CCP has hijacked China and turned it into a slavery and concentration camp. She further revealed that the corrupt government officials and people in power i...
+3/30/2023 Nicole with Kevin Alan: Pras Michel took part in the CCP's unrestricted lawfare against Mr. Miles Guo through the weaponization of US government agencies. He arranged for a meeting between George Higginbotham and Cui Tian...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/31/03/f1cf9a1c-1616-1247-b2e2-fc50d45f4fbc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/31/12/764abe1e-cea3-1a46-9e99-71a7af6469e4/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,112 +163,6 @@
 Last Thursday TikTok CEO Zhou Shouzhi (Shou Zi Chew) testified at a hearing before the House Commerce Committee, where members of the committee questioned Zhou about...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/30/21/57727202-9d45-418b-faba-0a8530198de9/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 7:05 PM UTC  - :tv:直播](/content/gettr/p2d06ep61c5.md)
-
-2023.03.30 Right Now with Ann Vandersteel ft. Nicole Tsai
-
-<img src="https://media.gettr.com/group7/origin/2023/03/30/18/65e3d9ea-62cf-e565-d5ca-a972aa4e1385/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 5:14 AM UTC  - :tv:直播](/content/gettr/p2cy7sycdbf.md)
-
-03/29/2023 Nicole: We did research about the background of the federal prosecutor and investigator from the SEC from the DOJ. The prosecutors and investigators are all from the big US law firms that represent the CCP kleptocrats. N...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/30/05/94d4c33b-f300-b1cc-526a-5baceb60ad78/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 4:47 AM UTC  - :tv:直播](/content/gettr/p2cyg9a5813.md)
-
-3/29/2023 The collusion between high officials of the SEC and DOJ and the CCP will make each of us a victim and insecure. We must all stand up together against the US traitors and the CCP!
-
-#MilesGuo #FreeMilesGuo #FreeMilesGuoNow ...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/30/04/1521de27-bec6-15d6-c57b-7721338fa10a/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 4:42 AM UTC  - :tv:直播](/content/gettr/p2cxmjc3f11.md)
-
-03/29/2023 Nicole interview on Winn Tucson: Mr. Miles Guo is a victim of weaponization of the DOJ and FBI, which is why he was arrested. It is pure double standard for the same prosecutor to allow the founder of FTX to be released ...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/30/04/f1eb702e-314f-f346-abbc-e2e33f70f808/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 4:43 AM UTC  - :tv:直播](/content/gettr/p2cy43ifd67.md)
-
-03/29/2023 In an interview with NFSC Speaks, Morgonn McMichael expresses her worries about the state of American freedoms, highlighting the weaponization of the government against the people. McMichael also points out the compromis...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/30/04/953c1021-5e03-3981-5f21-8c2d2e2e68b6/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 4:08 AM UTC  - :tv:直播](/content/gettr/p2cxv5b4cf8.md)
-
-【#FreeMilesGuoNow】3/29/2023: Mr. Miles Guo’s current legal persecution not only reveals to us who our enemies are, but also awakens Americans to the need to completely remove the traitors from within the SEC and DOJ.
-
-#MilesGuo #Fr...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/30/04/dbb5d5e4-258a-a868-9d6a-749a00208436/out.jpg" width="506" height="284">
-
----
-
-[@himalayaxzglb 3/30/2023 2:48 AM UTC  - :tv:直播](/content/gettr/p2cy62v303d.md)
-
-America is waking up !Victory must belong to the
-
-NFSC!!
-
-CONGRESS:STOP CCP'S WEAPONIZATION OF DOJ AND FBl, Investigate the political witch hunt
-
-against MILES GUO, FREE MILES GUO in
-
-Washington Times
-
-<img src="https://media.gettr.com/group7/getter/2023/03/30/02/dd09526d-ca22-e271-6b33-35ce8e4ba5f7/d9241a32a040023a3ffda5608239ae02.png" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 3:50 AM UTC  - :tv:直播](/content/gettr/p2cydek0c77.md)
-
-03/29/2023 Morgonn McMichael on NFSC Speaks: Mr. Miles Guo should not be indicted the way he is now, and it is unconstitutional for GTV's investment to be kept by the SEC. It shows that the CCP has infiltrated the American governme...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/30/03/641ccb4b-466f-2588-55a5-930259d5ef7e/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 1:25 AM UTC  - :tv:直播](/content/gettr/p2cy2iq5c3a.md)
-
-3/29/2023 Peter Navarro interviews War Room correspondent Jayne Zirkle: The trial of the  Pras Michel case will have a significant impact on the release of Miles Guo! Michel’s case truly demonstrates how deep the CCP's interference...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/30/01/509fa5b3-6b7f-94e3-d360-221440e672fe/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 1:14 AM UTC ](/content/gettr/p2cy2wh2086.md)
-
-2023.03.29 
-
-自3 月 15 日郭先生被FBI带走后，美国和其他西方社会对此事件表达了强烈的关注，多家英文媒体和电视持续关注和报道了315事件， 3月29日，Gateway Pundit再一次发表文章，指出315事件标志着中共将美国司法系统武器化达到了顶峰。作者马修*帕隆波（Matt Palumbo）是美国畅销书作家，他指出，郭先生案子从一开始就是被中共操控的虚假指控， 经手郭先生案子的纽约南区联邦检察官达米安·威廉姆斯（Damian Willi...
-
----
-
-[@gtv_newstalk 3/29/2023 4:30 PM UTC ](/content/gettr/p2cvznlf8cf.md)
-
-联邦星计划之最强Speaker大赛，新中国联邦联盟直播平台承办，大赛即将开幕。🎆🎆🎆🎆🎆🎆🎆
-
-谁是超级主播/最强SPEAKER，欢迎来挑战✊✊✊✊✊✊✊
-
-我们都是传播者，我们都是MILES GUO，我们寻找联邦星。
-
-首期（2023年），我们将比赛选出7位新中国联邦星。👏👏👏👏👏👏👏
-
-<img src="https://media.gettr.com/group3/getter/2023/03/29/16/5dcc8411-791d-beb7-115e-f71a7480897e/bc76fc3a341173faa2a8256c0f5bb57e.jpg" width="506" height="284">
 
 ---
 
