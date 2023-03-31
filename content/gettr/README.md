@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 3/31/2023 3:25 PM UTC  - :tv:直播](/content/gettr/p2d3con206a.md)
+
+DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
+
+<img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/31/2023 12:46 PM UTC  - :tv:直播](/content/gettr/p2d31uy70c6.md)
 
 03/28/2023 In an interview with America First News, Nicole exposed how the CCP has hijacked China and turned it into a slavery and concentration camp. She further revealed that the corrupt government officials and people in power i...
@@ -84,6 +92,14 @@
 
 ---
 
+[@milesguo 3/31/2023 12:53 PM UTC  - :tv:直播](/content/gettr/p2d2iox4812.md)
+
+3/30/2023 Nicole with Kevin Alan: Pras Michel took part in the CCP's unrestricted lawfare against Mr. Miles Guo through the weaponization of US government agencies. He arranged for a meeting between George Higginbotham and Cui Tian...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/31/12/764abe1e-cea3-1a46-9e99-71a7af6469e4/out.jpg" width="506" height="284">
+
+---
+
 [@gtranslators_1 3/31/2023 3:36 AM UTC  - :tv:直播](/content/gettr/p2d1u1s5c63.md)
 
 03/28/2023 In an interview with America First News, Nicole exposed how the CCP has hijacked China and turned it into a slavery and concentration camp. She further revealed that the corrupt government officials and people in power i...
@@ -103,14 +119,6 @@
 2023.03.30 Nicole看七哥 长岛哥谈七哥近况及315真相 （4K版）
 
 <img src="https://media.gettr.com/group9/origin/2023/03/30/23/622f8524-0967-c27b-497d-f5888cb21fee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:53 PM UTC  - :tv:直播](/content/gettr/p2d2iox4812.md)
-
-3/30/2023 Nicole with Kevin Alan: Pras Michel took part in the CCP's unrestricted lawfare against Mr. Miles Guo through the weaponization of US government agencies. He arranged for a meeting between George Higginbotham and Cui Tian...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/31/12/764abe1e-cea3-1a46-9e99-71a7af6469e4/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,16 +161,6 @@
 2023.03.30 Breaking News: President Trump Indicted by CCP-Infiltrated DOJ
 
 <img src="https://media.gettr.com/group9/origin/2023/03/30/23/55122cc0-a0ab-0d10-44b4-516656b6b59a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/30/2023 9:41 PM UTC  - :tv:直播](/content/gettr/p2d0k83d691.md)
-
-2023.03.30 #nfsc #mosinsight #TikTok #bantiktok #takedowntheccp 
-
-Last Thursday TikTok CEO Zhou Shouzhi (Shou Zi Chew) testified at a hearing before the House Commerce Committee, where members of the committee questioned Zhou about...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/30/21/57727202-9d45-418b-faba-0a8530198de9/out.jpg" width="506" height="284">
 
 ---
 
