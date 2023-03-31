@@ -10,6 +10,30 @@
 
 ---
 
+[@milesguo 3/31/2023 10:59 PM UTC  - :tv:直播](/content/gettr/p2d4hfr4869.md)
+
+2023.03.31 #nfsc #mos #Hcoin #himalayaexchange #binance #takedowntheccp
+
+喜交所与币安类似的处境下，喜币逆势上涨，财富流向即是人心所向。
+
+The Himalaya exchange and Binance are in a similar situation. Hcoin is still rising despite the counter-trend. The flow of we...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/31/22/1850293b-4a43-4b64-ca3f-7159da1a29bb/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 5:42 PM UTC  - :tv:直播](/content/gettr/p2d3oni9fd9.md)
+
+2023.03.31 #freemilesguo #nfsc #moslableak #fbi #takedowntheccp #ccpvirus #COVID 
+
+DEFUSE提案! 這項耗資 1400 萬美元的提案可能會解答了中共病毒問題. 
+
+The DEFUSE Proposal! This proposal for $14 million may solve the CCP Virus question.
+
+<img src="https://media.gettr.com/group11/getter/2023/03/31/17/b3a46ab6-9c3e-9f2d-3467-dc96a78176bf/out.jpg" width="506" height="284">
+
+---
+
 [@wyw626 3/31/2023 1:41 PM UTC  - :tv:直播](/content/gettr/p2d2y8ya74b.md)
 
 The real reason why Miles Guo was arrested: CCP fears that Mr. Guo will testify in Pras Michel's trial and confirm the CCP's persecution of Mr. Guo and the BGY of the United States
@@ -35,18 +59,6 @@ DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals O
 03/29/2023 #FreeMilesGuo Protest: The Whistleblowers' Movement is having much less difficulty now than it did five or six years ago. It looks like the CCP is getting its way now, but the situation in the U.S. is no longer the same....
 
 <img src="https://media.gettr.com/group7/getter/2023/03/31/12/a165b82b-2c20-a230-32fc-82ab63ddf0a3/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 5:42 PM UTC  - :tv:直播](/content/gettr/p2d3oni9fd9.md)
-
-2023.03.31 #freemilesguo #nfsc #moslableak #fbi #takedowntheccp #ccpvirus #COVID 
-
-DEFUSE提案! 這項耗資 1400 萬美元的提案可能會解答了中共病毒問題. 
-
-The DEFUSE Proposal! This proposal for $14 million may solve the CCP Virus question.
-
-<img src="https://media.gettr.com/group11/getter/2023/03/31/17/b3a46ab6-9c3e-9f2d-3467-dc96a78176bf/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,16 +155,6 @@ The DEFUSE Proposal! This proposal for $14 million may solve the CCP Virus quest
 [@littleant123 3/31/2023 1:27 AM UTC ](/content/gettr/c1u7gh6d395.md)
 
 #为什么是3月15日？1. 3.14已经有2个议员已经签名支持国会调查对文贵先生司法超限战；2. 3.17有重大投资机构入场，签合同，喜币会一飞冲天，至少1000以上。中共选择这一天动手就是抢钱来了，害怕普通战友拥有财富。喜币上公链就是打通了一切 ；3. 米歇尔的案件，害怕文贵先生到庭作证。
-
----
-
-[@milesguo 3/31/2023 12:25 AM UTC  - :tv:直播](/content/gettr/p2d16u357c3.md)
-
-3/29/2023  Because the SEC has been delaying the return of GTV investors' money, many people were unable to flee Communist China, and some sadly died from the CCP virus and COVID vaccines. Free Miles Guo and take down the CCP!
-
-#Mi...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/31/00/e918b0ca-fb3a-820c-0437-a9083fd1cd4a/out.jpg" width="506" height="284">
 
 ---
 
