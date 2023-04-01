@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/1/2023 7:12 AM UTC  - :tv:直播](/content/gettr/p2d5z6c049a.md)
+
+03/30/2023 Brother David: The Chinese Communist Party and their black hands in the American justice system chose to arrest Mr. Miles Guo on March 15, because, firstly, on March 14 we had signatures of two congressmen in support of ...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/01/07/5986ae37-825e-fbc4-7519-198b1f9ee2ed/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 5:22 AM UTC ](/content/gettr/p2d5azn0adf.md)
 
 2023年3月是美国历史上的至暗时刻，3月15日中共头号敌人-新中国联邦创始人郭先生被FBI非法逮捕，3月30日美国历史上第一个总统被起诉，在面对邪恶的中国共产党肆虐全球的时候，越来越多的美国人发现新中国联邦是自由世界对抗中共的最大盟友。 3月31日，Gateway Pundit再次发表雄文，为黑暗中的美国人民带来希望的光明。这篇题为“我们为什么需要新中国联邦“的文章，出自美国资深记者Kelly Walker之手。作者笔下的新中国联邦人宛如“宝剑锋从磨砺出，...
@@ -72,11 +80,17 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 
 ---
 
-[@milesguo 4/1/2023 7:12 AM UTC  - :tv:直播](/content/gettr/p2d5z6c049a.md)
+[@tangping 3/31/2023 7:56 PM UTC  - :tv:直播](/content/gettr/p2d4n0k36e0.md)
 
-03/30/2023 Brother David: The Chinese Communist Party and their black hands in the American justice system chose to arrest Mr. Miles Guo on March 15, because, firstly, on March 14 we had signatures of two congressmen in support of ...
+刚刚和磐石农场苍天大哥，Lina，青藤，Qmay一起接到七哥的电话........
 
-<img src="https://media.gettr.com/group3/getter/2023/04/01/07/5986ae37-825e-fbc4-7519-198b1f9ee2ed/out.jpg" width="506" height="284">
+七哥一切都安好，特别特别想念战友们！！
+
+向七哥汇报了GMUSIC目前的工作，按照七哥原计划如期上线的“灭共者徽章”的NFT项目进行得非常顺利且有条不紊，他特别高兴！七哥说GMUSIC做的太好了，相信将来一定会有更好更大的发展！
+
+七哥一再的嘱咐，现在我们手上一切的工作都不能停，战友们一定要坚持下去，不要被任何困难打倒，坚持磐石精神，团结第一，一定要让敌人看到我们的战友是无...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/31/19/2cd716fa-be42-24c2-8409-abc264b7fff0/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,14 +151,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
 
 <img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:48 PM UTC  - :tv:直播](/content/gettr/p2d37pjb8c3.md)
-
-03/29/2023 #FreeMilesGuo Protest: A fellow fighter says that the fellow fighters from NFSC stand out in front of US Capitol Hill to express their support and claims for Miles Guo and NFSC, as well as their firm resolve to let the c...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/31/12/d7b4af50-6193-c401-9f0c-18e88bd0a382/out.jpg" width="506" height="284">
 
 ---
 
