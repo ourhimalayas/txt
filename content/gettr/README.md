@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/1/2023 6:36 PM UTC  - :tv:直播](/content/gettr/p2d72cc6cec.md)
+
+2023.04.01 Right Now with Ann Vandersteel ft. Frank Lopez Jur & Nicole Tsai
+
+<img src="https://media.gettr.com/group7/origin/2023/03/30/18/65e3d9ea-62cf-e565-d5ca-a972aa4e1385/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 5:04 PM UTC  - :tv:直播](/content/gettr/p2d6t8g67b6.md)
 
 2023.04.01 Chris Rose's Conversation with Ava on CCP's Unrestricted Lawfare against We the People
@@ -30,11 +38,11 @@ Senior officials in China's financial system have been sacked one after another.
 
 ---
 
-[@milesguo 4/1/2023 6:36 PM UTC  - :tv:直播](/content/gettr/p2d72cc6cec.md)
+[@shareseatoriginal 4/1/2023 6:34 PM UTC ](/content/gettr/p2d7f478629.md)
 
-2023.04.01 Right Now with Ann Vandersteel ft. Frank Lopez Jur & Nicole Tsai
+刚刚跟七哥通了电话，他问了老椅子和DC农场的情况，我告诉他不要担心，老椅子群和DC农场的战友们都很稳定，团结，他非常高兴，让我转告大家，他非常想念大家。 他知道了十八楼的抗议，他知道我们在发出自己的呐喊，他很感动。他说他一直以来，以及现在所受的苦都值得，因为他有不离不弃的战友。 如果七哥不受现在这个苦，那么我们每个人都要遭受比他遭受的更大的苦。 我们战友的行动已经震撼了整个世界，他们没想到他们印象中懦弱，自私的中国人是如此的团队，勇敢，忠诚。 他让我转告大家...
 
-<img src="https://media.gettr.com/group7/origin/2023/03/30/18/65e3d9ea-62cf-e565-d5ca-a972aa4e1385/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/04/01/18/370778fc-7292-0acd-c3df-0c54e15560e1/1721dfb52779799ae2db6bd11274d74c.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 The Himalaya exchange and Binance are in a similar situation. Hcoin is still rising despite the counter-trend. The flow of we...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/31/22/1850293b-4a43-4b64-ca3f-7159da1a29bb/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 5:33 PM UTC  - :tv:直播](/content/gettr/p2d3v3v21dc.md)
-
-2023.03.31 Nicole on America First News, talking about the outrageous, ongoing detention of Mr. Guo
-
-<img src="https://media.gettr.com/group12/origin/2023/03/31/17/72d57ace-a808-aa54-61a2-eeeebd4f4b71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
