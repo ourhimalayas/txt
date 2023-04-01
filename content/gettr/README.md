@@ -2,11 +2,11 @@
 ---
 
 
-[@milesguo 3/31/2023 5:33 PM UTC  - :tv:直播](/content/gettr/p2d3v3v21dc.md)
+[@milesguo 4/1/2023 12:08 AM UTC  - :tv:直播](/content/gettr/p2d4rb87e34.md)
 
-2023.03.31 Nicole on America First News, talking about the outrageous, ongoing detention of Mr. Guo
+2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥（4K版）
 
-<img src="https://media.gettr.com/group12/origin/2023/03/31/17/72d57ace-a808-aa54-61a2-eeeebd4f4b71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/04/01/00/57b8b408-ed86-62fd-4983-936235faebaf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -19,6 +19,22 @@
 The Himalaya exchange and Binance are in a similar situation. Hcoin is still rising despite the counter-trend. The flow of we...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/31/22/1850293b-4a43-4b64-ca3f-7159da1a29bb/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 3/31/2023 5:33 PM UTC  - :tv:直播](/content/gettr/p2d3v3v21dc.md)
+
+2023.03.31 Nicole on America First News, talking about the outrageous, ongoing detention of Mr. Guo
+
+<img src="https://media.gettr.com/group12/origin/2023/03/31/17/72d57ace-a808-aa54-61a2-eeeebd4f4b71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 4/1/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2d548j1262.md)
+
+2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥
+
+<img src="https://media.gettr.com/group5/origin/2023/04/01/00/b5af4e32-6a8d-fbb5-d7cd-d37358ce16e0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals O
 [@littleant123 3/31/2023 1:27 AM UTC ](/content/gettr/c1u7gh6d395.md)
 
 #为什么是3月15日？1. 3.14已经有2个议员已经签名支持国会调查对文贵先生司法超限战；2. 3.17有重大投资机构入场，签合同，喜币会一飞冲天，至少1000以上。中共选择这一天动手就是抢钱来了，害怕普通战友拥有财富。喜币上公链就是打通了一切 ；3. 米歇尔的案件，害怕文贵先生到庭作证。
-
----
-
-[@milesguo 3/31/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2d14r87bb0.md)
-
-3/29/2023 Nicole with Ann Vandersteel: Mr. Miles Guo is confident that there are Americans who will do justice to him and he will walk out of the federal jail with dignity. He firmly believes that all American traitors will be expo...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/31/00/9c9bb379-5581-cd0a-aabd-21f1ae6c4c9a/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:26 AM UTC  - :tv:直播](/content/gettr/p2d0ziqf6a6.md)
-
-3/29/2023  On the same day, Gateway Pundit and Newsmax published articles by the renowned writer Matt Palumbo, exposing once again that Mr. Miles Guo and Ms. Yvette Wang were framed and jailed by the CCP enablers within the DOJ. Mr...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/31/00/a0b77d58-dce0-6310-b7c2-e9e47977a6bf/out.jpg" width="506" height="284">
 
 ---
 
