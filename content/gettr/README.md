@@ -2,6 +2,26 @@
 ---
 
 
+[@princeli 4/1/2023 3:29 AM UTC ](/content/gettr/p2d54ijab86.md)
+
+3/31/2023:
+
+
+
+郭先生律师团队最新发表的动议，要求立刻保释郭先生
+
+
+
+4月4日，七哥我们等您回家！
+
+
+
+完整文件：https://nfscofficial.com/wp-content/uploads/2023/03/Highlighted_Miles-Guo-Memo-for-Bail-0331.pdf
+
+<img src="https://media.gettr.com/group3/getter/2023/04/01/03/a96e821d-393f-9992-37b1-92e729e96b42/1f67727f2218c34e5db9c3dad0ba0132.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 4/1/2023 12:21 AM UTC  - :tv:直播](/content/gettr/p2d5e8u493c.md)
 
 Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-Soul
@@ -28,23 +48,21 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 
 ---
 
-[@princeli 4/1/2023 3:29 AM UTC ](/content/gettr/p2d54ijab86.md)
+[@milesguo 4/1/2023 4:28 AM UTC ](/content/gettr/p2d5waz22ec.md)
 
-3/31/2023:
-
-
-
-郭先生律师团队最新发表的动议，要求立刻保释郭先生
+3/31/23 Bloomberg: 
 
 
 
-4月4日，七哥我们等您回家！
+Mr. Guo has no risk of fleeing the U.S. and is not a danger to community. 
 
 
 
-完整文件：https://nfscofficial.com/wp-content/uploads/2023/03/Highlighted_Miles-Guo-Memo-for-Bail-0331.pdf
+Mr. Guo asked be bailed on $25 million bond, citing precedents including Sam Bankman-Fried of FTX.
 
-<img src="https://media.gettr.com/group3/getter/2023/04/01/03/a96e821d-393f-9992-37b1-92e729e96b42/1f67727f2218c34e5db9c3dad0ba0132.jpg" width="506" height="284">
+
+
+Bloomberg报道：郭先生没有任何离开美国的风险, ...
 
 ---
 
@@ -105,14 +123,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
 
 <img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:46 PM UTC  - :tv:直播](/content/gettr/p2d31uy70c6.md)
-
-03/28/2023 In an interview with America First News, Nicole exposed how the CCP has hijacked China and turned it into a slavery and concentration camp. She further revealed that the corrupt government officials and people in power i...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/31/12/2ba2180e-1165-1269-6b77-db278e417cae/out.jpg" width="506" height="284">
 
 ---
 
