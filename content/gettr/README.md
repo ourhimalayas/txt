@@ -10,11 +10,15 @@
 
 ---
 
-[@shareseatoriginal 4/1/2023 8:43 PM UTC ](/content/gettr/p2d7jj51fa7.md)
+[@milesguo 4/1/2023 9:58 PM UTC  - :tv:直播](/content/gettr/p2d85elcc1b.md)
 
-七哥还说，他觉得很对不起雁平，因为参加爆料革命，她失去了太多。 这次，她什么都不用做，只要不再跟随七哥，她可以立即回家。但是雁平很倔，没有接受任何条件，说：我就呆在这儿。
+2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose 
 
-<img src="https://media.gettr.com/group4/getter/2023/04/01/20/dac53b13-a4e8-a43e-4b6f-6ee984b98d6a/e2ad24339ab20d7d38388ad508ef2867.jpg" width="506" height="284">
+对郭文贵的错误指控表明了中共对美国司法机构的渗透
+
+False Accusations Against Guo Wengui Demonstrate Chinese Communist Party's Infiltration of U.S. Judiciary
+
+<img src="https://media.gettr.com/group12/getter/2023/04/01/21/87234766-b804-ac25-907c-a5e62e4bf25f/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +27,14 @@
 2023.04.01 Nicole看七哥 长岛哥谈七哥近况及生活规律（三）
 
 <img src="https://media.gettr.com/group3/origin/2023/04/01/21/97184d73-9b41-065a-d8fc-b82aa11609ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@shareseatoriginal 4/1/2023 8:43 PM UTC ](/content/gettr/p2d7jj51fa7.md)
+
+七哥还说，他觉得很对不起雁平，因为参加爆料革命，她失去了太多。 这次，她什么都不用做，只要不再跟随七哥，她可以立即回家。但是雁平很倔，没有接受任何条件，说：我就呆在这儿。
+
+<img src="https://media.gettr.com/group4/getter/2023/04/01/20/dac53b13-a4e8-a43e-4b6f-6ee984b98d6a/e2ad24339ab20d7d38388ad508ef2867.jpg" width="506" height="284">
 
 ---
 
@@ -211,18 +223,6 @@ Bloomberg报道：郭先生没有任何离开美国的风险, ...
 完整文件：https://nfscofficial.com/wp-content/uploads/2023/03/Highlighted_Miles-Guo-Memo-for-Bail-0331.pdf
 
 <img src="https://media.gettr.com/group3/getter/2023/04/01/03/a96e821d-393f-9992-37b1-92e729e96b42/1f67727f2218c34e5db9c3dad0ba0132.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 4/1/2023 12:21 AM UTC  - :tv:直播](/content/gettr/p2d5e8u493c.md)
-
-Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-Soul
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group10/origin/2023/04/01/00/91a99acf-cd68-3115-5fd9-8e2868820f1f/271f6e6ee6c9f28c393cfc99ea9808be.jpeg" width="506" height="284">
 
 ---
 
