@@ -10,6 +10,20 @@
 
 ---
 
+[@milesguo 4/1/2023 12:22 AM UTC ](/content/gettr/p2d4xuld03d.md)
+
+2023.03.31 战友们好，我是郭美。给大家报平安。爸爸很好。基本每天都打来电话。刚才他告诉我他今天健身做了三组平板撑。20次投球7次进球（依然还很骄傲的感觉）晚上吃了热火腿。他非常想念你们，让你们不要担心他的安全和状态。让你们挂念了。我和妈妈哥哥，两只小狗都非常的好，感谢你们的每一条留言，给了我们极大的力量和温暖🙏除了感谢，还是感谢！我干了，你们随意🍻😊
+
+---
+
+[@milesguo 4/1/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2d548j1262.md)
+
+2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥
+
+<img src="https://media.gettr.com/group5/origin/2023/04/01/00/b5af4e32-6a8d-fbb5-d7cd-d37358ce16e0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/31/2023 10:59 PM UTC  - :tv:直播](/content/gettr/p2d4hfr4869.md)
 
 2023.03.31 #nfsc #mos #Hcoin #himalayaexchange #binance #takedowntheccp
@@ -27,14 +41,6 @@ The Himalaya exchange and Binance are in a similar situation. Hcoin is still ris
 2023.03.31 Nicole on America First News, talking about the outrageous, ongoing detention of Mr. Guo
 
 <img src="https://media.gettr.com/group12/origin/2023/03/31/17/72d57ace-a808-aa54-61a2-eeeebd4f4b71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2d548j1262.md)
-
-2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥
-
-<img src="https://media.gettr.com/group5/origin/2023/04/01/00/b5af4e32-6a8d-fbb5-d7cd-d37358ce16e0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,12 +171,6 @@ DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals O
 03/28/2023 In an interview with America First News, Nicole exposed how the CCP has hijacked China and turned it into a slavery and concentration camp. She further revealed that the corrupt government officials and people in power i...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/31/03/f1cf9a1c-1616-1247-b2e2-fc50d45f4fbc/out.jpg" width="506" height="284">
-
----
-
-[@littleant123 3/31/2023 1:27 AM UTC ](/content/gettr/c1u7gh6d395.md)
-
-#为什么是3月15日？1. 3.14已经有2个议员已经签名支持国会调查对文贵先生司法超限战；2. 3.17有重大投资机构入场，签合同，喜币会一飞冲天，至少1000以上。中共选择这一天动手就是抢钱来了，害怕普通战友拥有财富。喜币上公链就是打通了一切 ；3. 米歇尔的案件，害怕文贵先生到庭作证。
 
 ---
 
