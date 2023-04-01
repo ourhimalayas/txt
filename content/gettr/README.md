@@ -2,14 +2,6 @@
 ---
 
 
-[@michaelyhon 4/1/2023 11:51 AM UTC  - :tv:直播](/content/gettr/p2d60or66d4.md)
-
-中共国家级贿赂一个说唱歌手  爆料 郭文贵 共产党 中共 政治 军事 经济 #shorts
-
-<img src="https://media.gettr.com/group10/getter/2023/04/01/11/75c28176-266b-bfb8-e2d1-098a43ff3c21/f0a77af01e41ba2b89cf2b88eee7998f.png" width="506" height="284">
-
----
-
 [@milesguo 4/1/2023 2:21 PM UTC  - :tv:直播](/content/gettr/p2d6e0x4dfa.md)
 
 2023.04.01 #freemilesguo #nfsc #mos #takedowntheccp 
@@ -19,6 +11,22 @@
 Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese people needs...
 
 <img src="https://media.gettr.com/group11/getter/2023/04/01/14/92d76316-629c-c79c-8d39-15cf0347d108/out.jpg" width="506" height="284">
+
+---
+
+[@michaelyhon 4/1/2023 11:51 AM UTC  - :tv:直播](/content/gettr/p2d60or66d4.md)
+
+中共国家级贿赂一个说唱歌手  爆料 郭文贵 共产党 中共 政治 军事 经济 #shorts
+
+<img src="https://media.gettr.com/group10/getter/2023/04/01/11/75c28176-266b-bfb8-e2d1-098a43ff3c21/f0a77af01e41ba2b89cf2b88eee7998f.png" width="506" height="284">
+
+---
+
+[@milesguo 4/1/2023 5:04 PM UTC  - :tv:直播](/content/gettr/p2d6t8g67b6.md)
+
+2023.04.01 Chris Rose's Conversation with Ava on CCP's Unrestricted Lawfare against We the People
+
+<img src="https://media.gettr.com/group3/origin/2023/04/01/16/02733070-cf46-7db8-89ef-18a8f9e26c95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ The real reason why Miles Guo was arrested: CCP fears that Mr. Guo will testify 
 Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出庭作证，做...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/31/13/ae95e005-173b-190d-064f-b3de4a3935ad/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 3:25 PM UTC  - :tv:直播](/content/gettr/p2d3con206a.md)
-
-DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
-
-<img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
