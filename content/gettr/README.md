@@ -2,6 +2,28 @@
 ---
 
 
+[@milesguo 4/1/2023 9:46 AM UTC  - :tv:直播](/content/gettr/p2d63ij1137.md)
+
+03/30/2023 David gives an update on the status of Mr. Miles Guo in the detention center. He says Mr. Guo is in good mental and physical status, and he remains as energetic as before. Mr. Guo warns that the forces behind and the CCP...
+
+<img src="https://media.gettr.com/group12/getter/2023/04/01/09/cd9105a2-bc15-a171-bf48-4fdc0573a09b/out.jpg" width="506" height="284">
+
+---
+
+[@tangping 3/31/2023 7:56 PM UTC  - :tv:直播](/content/gettr/p2d4n0k36e0.md)
+
+刚刚和磐石农场苍天大哥，Lina，青藤，Qmay一起接到七哥的电话........
+
+七哥一切都安好，特别特别想念战友们！！
+
+向七哥汇报了GMUSIC目前的工作，按照七哥原计划如期上线的“灭共者徽章”的NFT项目进行得非常顺利且有条不紊，他特别高兴！七哥说GMUSIC做的太好了，相信将来一定会有更好更大的发展！
+
+七哥一再的嘱咐，现在我们手上一切的工作都不能停，战友们一定要坚持下去，不要被任何困难打倒，坚持磐石精神，团结第一，一定要让敌人看到我们的战友是无...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/31/19/2cd716fa-be42-24c2-8409-abc264b7fff0/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 7:12 AM UTC  - :tv:直播](/content/gettr/p2d5z6c049a.md)
 
 03/30/2023 Brother David: The Chinese Communist Party and their black hands in the American justice system chose to arrest Mr. Miles Guo on March 15, because, firstly, on March 14 we had signatures of two congressmen in support of ...
@@ -80,17 +102,11 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 
 ---
 
-[@tangping 3/31/2023 7:56 PM UTC  - :tv:直播](/content/gettr/p2d4n0k36e0.md)
+[@milesguo 4/1/2023 9:49 AM UTC  - :tv:直播](/content/gettr/p2d5pf1fb6f.md)
 
-刚刚和磐石农场苍天大哥，Lina，青藤，Qmay一起接到七哥的电话........
+03/30/2023 David reveals that Miles Guo told his lawyers that as long as we can take down the CCP and can protect the money and interests of our fellow fighters, he would prefer to stay in the prison for the rest of his life. There...
 
-七哥一切都安好，特别特别想念战友们！！
-
-向七哥汇报了GMUSIC目前的工作，按照七哥原计划如期上线的“灭共者徽章”的NFT项目进行得非常顺利且有条不紊，他特别高兴！七哥说GMUSIC做的太好了，相信将来一定会有更好更大的发展！
-
-七哥一再的嘱咐，现在我们手上一切的工作都不能停，战友们一定要坚持下去，不要被任何困难打倒，坚持磐石精神，团结第一，一定要让敌人看到我们的战友是无...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/31/19/2cd716fa-be42-24c2-8409-abc264b7fff0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/04/01/09/75a051db-e53b-c754-299f-f05cd42f9159/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,22 +167,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
 
 <img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:49 PM UTC  - :tv:直播](/content/gettr/p2d3893a514.md)
-
-03/29/2023 #FreeMilesGuo Protest: The CCP’s collaborators in the United States can deprive Mr. Miles Guo of his freedom for now but can never stop the demise of the CCP. Many student leaders of the 1989 Student Movement in China re...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/31/12/163e1a56-cd0b-df9c-23b0-c520b1bc7474/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:50 PM UTC  - :tv:直播](/content/gettr/p2d38k60d30.md)
-
-3/29/2023 Nicole with Ann Vandersteel: The U.S. has suffered many disasters due to the CCP, but Mr. Miles Guo, who is working tirelessly to save America, has been persecuted. On the other hand, "Huawei Princess" Meng Wanzhou and SB...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/31/12/8c35a808-3bfa-0bd1-659a-1223c2d8f941/out.jpg" width="506" height="284">
 
 ---
 
