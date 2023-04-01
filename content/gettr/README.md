@@ -2,6 +2,18 @@
 ---
 
 
+[@newyorkrock 4/1/2023 12:21 AM UTC  - :tv:直播](/content/gettr/p2d5e8u493c.md)
+
+Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-Soul
+
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group10/origin/2023/04/01/00/91a99acf-cd68-3115-5fd9-8e2868820f1f/271f6e6ee6c9f28c393cfc99ea9808be.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 12:22 AM UTC ](/content/gettr/p2d4xuld03d.md)
 
 2023.03.31 战友们好，我是郭美。给大家报平安。爸爸很好。基本每天都打来电话。刚才他告诉我他今天健身做了三组平板撑。20次投球7次进球（依然还很骄傲的感觉）晚上吃了热火腿。他非常想念你们，让你们不要担心他的安全和状态。让你们挂念了。我和妈妈哥哥，两只小狗都非常的好，感谢你们的每一条留言，给了我们极大的力量和温暖🙏除了感谢，还是感谢！我干了，你们随意🍻😊
@@ -16,15 +28,23 @@
 
 ---
 
-[@newyorkrock 4/1/2023 12:21 AM UTC  - :tv:直播](/content/gettr/p2d5e8u493c.md)
+[@princeli 4/1/2023 3:29 AM UTC ](/content/gettr/p2d54ijab86.md)
 
-Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-Soul
+3/31/2023:
 
-歌手：Superman
 
-钢琴/歌手：QMAY
 
-<img src="https://media.gettr.com/group10/origin/2023/04/01/00/91a99acf-cd68-3115-5fd9-8e2868820f1f/271f6e6ee6c9f28c393cfc99ea9808be.jpeg" width="506" height="284">
+郭先生律师团队最新发表的动议，要求立刻保释郭先生
+
+
+
+4月4日，七哥我们等您回家！
+
+
+
+完整文件：https://nfscofficial.com/wp-content/uploads/2023/03/Highlighted_Miles-Guo-Memo-for-Bail-0331.pdf
+
+<img src="https://media.gettr.com/group3/getter/2023/04/01/03/a96e821d-393f-9992-37b1-92e729e96b42/1f67727f2218c34e5db9c3dad0ba0132.jpg" width="506" height="284">
 
 ---
 
@@ -85,14 +105,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
 
 <img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:46 PM UTC  - :tv:直播](/content/gettr/p2d3a679fc9.md)
-
-03/29/2023 #FreeMilesGuo Protest: The Whistleblowers' Movement is having much less difficulty now than it did five or six years ago. It looks like the CCP is getting its way now, but the situation in the U.S. is no longer the same....
-
-<img src="https://media.gettr.com/group7/getter/2023/03/31/12/a165b82b-2c20-a230-32fc-82ab63ddf0a3/out.jpg" width="506" height="284">
 
 ---
 
