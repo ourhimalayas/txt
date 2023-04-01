@@ -2,6 +2,14 @@
 ---
 
 
+[@shareseatoriginal 4/1/2023 6:34 PM UTC ](/content/gettr/p2d7f478629.md)
+
+刚刚跟七哥通了电话，他问了老椅子和DC农场的情况，我告诉他不要担心，老椅子群和DC农场的战友们都很稳定，团结，他非常高兴，让我转告大家，他非常想念大家。 他知道了十八楼的抗议，他知道我们在发出自己的呐喊，他很感动。他说他一直以来，以及现在所受的苦都值得，因为他有不离不弃的战友。 如果七哥不受现在这个苦，那么我们每个人都要遭受比他遭受的更大的苦。 我们战友的行动已经震撼了整个世界，他们没想到他们印象中懦弱，自私的中国人是如此的团队，勇敢，忠诚。 他让我转告大家...
+
+<img src="https://media.gettr.com/group10/getter/2023/04/01/18/370778fc-7292-0acd-c3df-0c54e15560e1/1721dfb52779799ae2db6bd11274d74c.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 6:36 PM UTC  - :tv:直播](/content/gettr/p2d72cc6cec.md)
 
 2023.04.01 Right Now with Ann Vandersteel ft. Frank Lopez Jur & Nicole Tsai
@@ -38,11 +46,15 @@ Senior officials in China's financial system have been sacked one after another.
 
 ---
 
-[@shareseatoriginal 4/1/2023 6:34 PM UTC ](/content/gettr/p2d7f478629.md)
+[@milesguo 4/1/2023 8:08 PM UTC  - :tv:直播](/content/gettr/p2d7q8e8628.md)
 
-刚刚跟七哥通了电话，他问了老椅子和DC农场的情况，我告诉他不要担心，老椅子群和DC农场的战友们都很稳定，团结，他非常高兴，让我转告大家，他非常想念大家。 他知道了十八楼的抗议，他知道我们在发出自己的呐喊，他很感动。他说他一直以来，以及现在所受的苦都值得，因为他有不离不弃的战友。 如果七哥不受现在这个苦，那么我们每个人都要遭受比他遭受的更大的苦。 我们战友的行动已经震撼了整个世界，他们没想到他们印象中懦弱，自私的中国人是如此的团队，勇敢，忠诚。 他让我转告大家...
+2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose
 
-<img src="https://media.gettr.com/group10/getter/2023/04/01/18/370778fc-7292-0acd-c3df-0c54e15560e1/1721dfb52779799ae2db6bd11274d74c.jpg" width="506" height="284">
+如果美国政府和FBI拿到郭文贵递交的情报证实了中共的生化武器的超限战计划之后付出了行动，COVID-19完全可能不会发生 
+
+If the U.S. government and the FBI took action after receiving the information submitted by Miles Guo and co...
+
+<img src="https://media.gettr.com/group6/getter/2023/04/01/20/e4a7e62d-3364-8303-010d-77ff79113fff/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,18 +211,6 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 The Himalaya exchange and Binance are in a similar situation. Hcoin is still rising despite the counter-trend. The flow of we...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/31/22/1850293b-4a43-4b64-ca3f-7159da1a29bb/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 5:42 PM UTC  - :tv:直播](/content/gettr/p2d3oni9fd9.md)
-
-2023.03.31 #freemilesguo #nfsc #moslableak #fbi #takedowntheccp #ccpvirus #COVID 
-
-DEFUSE提案! 這項耗資 1400 萬美元的提案可能會解答了中共病毒問題. 
-
-The DEFUSE Proposal! This proposal for $14 million may solve the CCP Virus question.
-
-<img src="https://media.gettr.com/group11/getter/2023/03/31/17/b3a46ab6-9c3e-9f2d-3467-dc96a78176bf/out.jpg" width="506" height="284">
 
 ---
 
