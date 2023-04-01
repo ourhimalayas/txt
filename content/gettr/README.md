@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/1/2023 5:04 PM UTC  - :tv:直播](/content/gettr/p2d6t8g67b6.md)
+
+2023.04.01 Chris Rose's Conversation with Ava on CCP's Unrestricted Lawfare against We the People
+
+<img src="https://media.gettr.com/group3/origin/2023/04/01/16/02733070-cf46-7db8-89ef-18a8f9e26c95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 2:21 PM UTC  - :tv:直播](/content/gettr/p2d6e0x4dfa.md)
 
 2023.04.01 #freemilesguo #nfsc #mos #takedowntheccp 
@@ -22,11 +30,11 @@ Senior officials in China's financial system have been sacked one after another.
 
 ---
 
-[@milesguo 4/1/2023 5:04 PM UTC  - :tv:直播](/content/gettr/p2d6t8g67b6.md)
+[@milesguo 4/1/2023 6:36 PM UTC  - :tv:直播](/content/gettr/p2d72cc6cec.md)
 
-2023.04.01 Chris Rose's Conversation with Ava on CCP's Unrestricted Lawfare against We the People
+2023.04.01 Right Now with Ann Vandersteel ft. Frank Lopez Jur & Nicole Tsai
 
-<img src="https://media.gettr.com/group3/origin/2023/04/01/16/02733070-cf46-7db8-89ef-18a8f9e26c95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/03/30/18/65e3d9ea-62cf-e565-d5ca-a972aa4e1385/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,18 +211,6 @@ DEFUSE提案! 這項耗資 1400 萬美元的提案可能會解答了中共病毒
 The DEFUSE Proposal! This proposal for $14 million may solve the CCP Virus question.
 
 <img src="https://media.gettr.com/group11/getter/2023/03/31/17/b3a46ab6-9c3e-9f2d-3467-dc96a78176bf/out.jpg" width="506" height="284">
-
----
-
-[@wyw626 3/31/2023 1:41 PM UTC  - :tv:直播](/content/gettr/p2d2y8ya74b.md)
-
-The real reason why Miles Guo was arrested: CCP fears that Mr. Guo will testify in Pras Michel's trial and confirm the CCP's persecution of Mr. Guo and the BGY of the United States
-
-
-
-Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出庭作证，做...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/31/13/ae95e005-173b-190d-064f-b3de4a3935ad/out.jpg" width="506" height="284">
 
 ---
 
