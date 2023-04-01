@@ -2,11 +2,55 @@
 ---
 
 
+[@michaelyhon 4/1/2023 11:51 AM UTC  - :tv:直播](/content/gettr/p2d60or66d4.md)
+
+中共国家级贿赂一个说唱歌手  爆料 郭文贵 共产党 中共 政治 军事 经济 #shorts
+
+<img src="https://media.gettr.com/group10/getter/2023/04/01/11/75c28176-266b-bfb8-e2d1-098a43ff3c21/f0a77af01e41ba2b89cf2b88eee7998f.png" width="506" height="284">
+
+---
+
+[@gbaby 4/1/2023 12:11 PM UTC  - :tv:直播](/content/gettr/p2d6kgl7d33.md)
+
+Nickie Lum Davis案卷宗显示中共深度参与美国司法腐败，单伟建私生子在美国司法体系、中国司法体系游走
+
+
+
+#MilesGuo  #FreeMilesGuoNow #CCP #DOJ #FBI
+
+#郭文贵  #立即释放郭文贵 #中共 #美国司法部 #联邦调查局
+
+<img src="https://media.gettr.com/group9/getter/2023/04/01/12/cbcaee28-ec77-7f19-d130-ccc37f876638/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 9:46 AM UTC  - :tv:直播](/content/gettr/p2d63ij1137.md)
 
 03/30/2023 David gives an update on the status of Mr. Miles Guo in the detention center. He says Mr. Guo is in good mental and physical status, and he remains as energetic as before. Mr. Guo warns that the forces behind and the CCP...
 
 <img src="https://media.gettr.com/group12/getter/2023/04/01/09/cd9105a2-bc15-a171-bf48-4fdc0573a09b/out.jpg" width="506" height="284">
+
+---
+
+[@shareseatoriginal 3/30/2023 11:37 AM UTC ](/content/gettr/p2cyfs04b9e.md)
+
+＂我是GTV投资人，表达我的心声，还文贵先生清白＂——来自战友Susan @Susan
+
+#freemilesguo
+
+我是GTV的投资者之一Susan，是因为了解GTV是一个灭共，传播真相和正义的平台才参与投资，但GTV被个别人报假案诬陷而被关闭，我的投资款被SEC冻结一年多后返还50%，但剩余款几个月过去了没有任何消息，造成无法估量的经济损失。
+
+郭文贵先生是爆料革命的创始人，他通过当时的GTV平台爆料告知世界病毒来自中共，疫苗是生化武器，中共通过一带一...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/30/11/d249d2cc-fe51-a42f-0ea0-f89558af6b99/b2098720b5141b66e2cc9decfd9bcdac.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/1/2023 9:49 AM UTC  - :tv:直播](/content/gettr/p2d5pf1fb6f.md)
+
+03/30/2023 David reveals that Miles Guo told his lawyers that as long as we can take down the CCP and can protect the money and interests of our fellow fighters, he would prefer to stay in the prison for the rest of his life. There...
+
+<img src="https://media.gettr.com/group9/getter/2023/04/01/09/75a051db-e53b-c754-299f-f05cd42f9159/out.jpg" width="506" height="284">
 
 ---
 
@@ -102,14 +146,6 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 
 ---
 
-[@milesguo 4/1/2023 9:49 AM UTC  - :tv:直播](/content/gettr/p2d5pf1fb6f.md)
-
-03/30/2023 David reveals that Miles Guo told his lawyers that as long as we can take down the CCP and can protect the money and interests of our fellow fighters, he would prefer to stay in the prison for the rest of his life. There...
-
-<img src="https://media.gettr.com/group9/getter/2023/04/01/09/75a051db-e53b-c754-299f-f05cd42f9159/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 4/1/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2d548j1262.md)
 
 2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥
@@ -167,32 +203,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
 
 <img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:51 PM UTC  - :tv:直播](/content/gettr/p2d310qd432.md)
-
-
-
-3/30/2023 Nicole with Kevin Alan: What happened to Mr. Miles Guo could happen to any US citizen. The American sellouts must be exposed! The CCP will never be able to weaponize the US judicial system unless there is assistance fro...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/31/12/cb154a46-e608-c377-796e-144c1c75a25e/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:52 PM UTC  - :tv:直播](/content/gettr/p2d2uk067f3.md)
-
-3/30/2023 Nicole with Kevin Alan: The CCP does not want Mr. Miles Guo to testify at Pras Michel’s trial because they are afraid Mr. Guo would expose how the CCP used George Higginbotham and other power brokers to orchestrate an int...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/31/12/71d6b59d-ecdf-c275-5526-5fd1f1bad375/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:52 PM UTC  - :tv:直播](/content/gettr/p2d38ex01f0.md)
-
-3/30/2023 Nicole with Kevin Alan: Pras Michel has successfully weaponized the Department of Justice to target Miles Guo, the Chinese Communist Party's top enemy! Behind the double standards of the US justice system toward Miles Guo...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/31/12/84ec8fbc-5ecf-f5dd-33c2-42557622b7a9/out.jpg" width="506" height="284">
 
 ---
 
