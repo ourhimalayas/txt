@@ -2,11 +2,49 @@
 ---
 
 
+[@milesguo 4/1/2023 9:13 PM UTC  - :tv:直播](/content/gettr/p2d7t07aeca.md)
+
+2023.04.01 Nicole看七哥  长岛哥谈七哥近况及生活规律（三）（4K版）
+
+<img src="https://media.gettr.com/group7/origin/2023/04/01/21/51bc1086-99f9-782e-631c-9e2f91e6a177/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@shareseatoriginal 4/1/2023 8:43 PM UTC ](/content/gettr/p2d7jj51fa7.md)
 
 七哥还说，他觉得很对不起雁平，因为参加爆料革命，她失去了太多。 这次，她什么都不用做，只要不再跟随七哥，她可以立即回家。但是雁平很倔，没有接受任何条件，说：我就呆在这儿。
 
 <img src="https://media.gettr.com/group4/getter/2023/04/01/20/dac53b13-a4e8-a43e-4b6f-6ee984b98d6a/e2ad24339ab20d7d38388ad508ef2867.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/1/2023 9:13 PM UTC  - :tv:直播](/content/gettr/p2d7gj93a1f.md)
+
+2023.04.01 Nicole看七哥 长岛哥谈七哥近况及生活规律（三）
+
+<img src="https://media.gettr.com/group3/origin/2023/04/01/21/97184d73-9b41-065a-d8fc-b82aa11609ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@octopus 4/1/2023 8:51 PM UTC ](/content/gettr/p2d7ldtb925.md)
+
+刚刚接到了七哥的电话，那熟悉的、中气十足的嗓音从耳机🎧里传了过来……8爪鱼妹妹……
+
+我这小心脏澎湃呀……
+
+表达了分分秒秒思念后，七哥说他很快出来的✊✊✊（我最爱听的）
+
+1、里面的生活并不咋地，8平米，两个人一个公用🚽，便秘都得上🤣。监狱有个小暴动，所以临时lockdown了……
+
+2、七哥说他这经历，会让很多兄弟姐妹家人躲过不公平待遇
+
+3、这次岛哥🈶️能力和淡定，让大家稳稳的面对发生的事情
+
+4、香草山要接受安红那里的老椅子，安排好老椅子
+
+...
+
+<img src="https://media.gettr.com/group6/getter/2023/04/01/20/78234093-502b-5eb4-2c2e-26c2b8dfa519/fefc1094362e23618cb9932210975ea1.jpg" width="506" height="284">
 
 ---
 
@@ -63,28 +101,6 @@ Senior officials in China's financial system have been sacked one after another.
 中共国家级贿赂一个说唱歌手  爆料 郭文贵 共产党 中共 政治 军事 经济 #shorts
 
 <img src="https://media.gettr.com/group10/getter/2023/04/01/11/75c28176-266b-bfb8-e2d1-098a43ff3c21/f0a77af01e41ba2b89cf2b88eee7998f.png" width="506" height="284">
-
----
-
-[@octopus 4/1/2023 8:51 PM UTC ](/content/gettr/p2d7ldtb925.md)
-
-刚刚接到了七哥的电话，那熟悉的、中气十足的嗓音从耳机🎧里传了过来……8爪鱼妹妹……
-
-我这小心脏澎湃呀……
-
-表达了分分秒秒思念后，七哥说他很快出来的✊✊✊（我最爱听的）
-
-1、里面的生活并不咋地，8平米，两个人一个公用🚽，便秘都得上🤣。监狱有个小暴动，所以临时lockdown了……
-
-2、七哥说他这经历，会让很多兄弟姐妹家人躲过不公平待遇
-
-3、这次岛哥🈶️能力和淡定，让大家稳稳的面对发生的事情
-
-4、香草山要接受安红那里的老椅子，安排好老椅子
-
-...
-
-<img src="https://media.gettr.com/group6/getter/2023/04/01/20/78234093-502b-5eb4-2c2e-26c2b8dfa519/fefc1094362e23618cb9932210975ea1.jpg" width="506" height="284">
 
 ---
 
@@ -207,20 +223,6 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group10/origin/2023/04/01/00/91a99acf-cd68-3115-5fd9-8e2868820f1f/271f6e6ee6c9f28c393cfc99ea9808be.jpeg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 12:22 AM UTC ](/content/gettr/p2d4xuld03d.md)
-
-2023.03.31 战友们好，我是郭美。给大家报平安。爸爸很好。基本每天都打来电话。刚才他告诉我他今天健身做了三组平板撑。20次投球7次进球（依然还很骄傲的感觉）晚上吃了热火腿。他非常想念你们，让你们不要担心他的安全和状态。让你们挂念了。我和妈妈哥哥，两只小狗都非常的好，感谢你们的每一条留言，给了我们极大的力量和温暖🙏除了感谢，还是感谢！我干了，你们随意🍻😊
-
----
-
-[@milesguo 4/1/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2d548j1262.md)
-
-2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥
-
-<img src="https://media.gettr.com/group5/origin/2023/04/01/00/b5af4e32-6a8d-fbb5-d7cd-d37358ce16e0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
