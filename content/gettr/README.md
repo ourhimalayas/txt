@@ -2,6 +2,12 @@
 ---
 
 
+[@milesguo 4/1/2023 5:22 AM UTC ](/content/gettr/p2d5azn0adf.md)
+
+2023年3月是美国历史上的至暗时刻，3月15日中共头号敌人-新中国联邦创始人郭先生被FBI非法逮捕，3月30日美国历史上第一个总统被起诉，在面对邪恶的中国共产党肆虐全球的时候，越来越多的美国人发现新中国联邦是自由世界对抗中共的最大盟友。 3月31日，Gateway Pundit再次发表雄文，为黑暗中的美国人民带来希望的光明。这篇题为“我们为什么需要新中国联邦“的文章，出自美国资深记者Kelly Walker之手。作者笔下的新中国联邦人宛如“宝剑锋从磨砺出，...
+
+---
+
 [@milesguo 4/1/2023 4:28 AM UTC ](/content/gettr/p2d5waz22ec.md)
 
 3/31/23 Bloomberg: 
@@ -66,9 +72,11 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 
 ---
 
-[@milesguo 4/1/2023 5:22 AM UTC ](/content/gettr/p2d5azn0adf.md)
+[@milesguo 4/1/2023 7:12 AM UTC  - :tv:直播](/content/gettr/p2d5z6c049a.md)
 
-2023年3月是美国历史上的至暗时刻，3月15日中共头号敌人-新中国联邦创始人郭先生被FBI非法逮捕，3月30日美国历史上第一个总统被起诉，在面对邪恶的中国共产党肆虐全球的时候，越来越多的美国人发现新中国联邦是自由世界对抗中共的最大盟友。 3月31日，Gateway Pundit再次发表雄文，为黑暗中的美国人民带来希望的光明。这篇题为“我们为什么需要新中国联邦“的文章，出自美国资深记者Kelly Walker之手。作者笔下的新中国联邦人宛如“宝剑锋从磨砺出，...
+03/30/2023 Brother David: The Chinese Communist Party and their black hands in the American justice system chose to arrest Mr. Miles Guo on March 15, because, firstly, on March 14 we had signatures of two congressmen in support of ...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/01/07/5986ae37-825e-fbc4-7519-198b1f9ee2ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -129,14 +137,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
 
 <img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:48 PM UTC  - :tv:直播](/content/gettr/p2d33xz2e08.md)
-
-03/28/2023 In an interview with America First News, Nicole provided an update on Miles Guo's arrest and highlighted that he is being held in federal jail due to his possession of exclusive Intel about how the CCP has corrupted the ...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/31/12/3174b594-46f1-19c1-9a5f-0e5039626ae7/out.jpg" width="506" height="284">
 
 ---
 
