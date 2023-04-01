@@ -10,6 +10,18 @@
 
 ---
 
+[@milesguo 4/1/2023 2:21 PM UTC  - :tv:直播](/content/gettr/p2d6e0x4dfa.md)
+
+2023.04.01 #freemilesguo #nfsc #mos #takedowntheccp 
+
+中共国金融系统高官纷纷落马 中国人的财富需要诺亚方舟，就是喜联储。香草上国际货币中心是通往财富的诺亚方舟的通道。
+
+Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese people needs...
+
+<img src="https://media.gettr.com/group11/getter/2023/04/01/14/92d76316-629c-c79c-8d39-15cf0347d108/out.jpg" width="506" height="284">
+
+---
+
 [@gbaby 4/1/2023 12:11 PM UTC  - :tv:直播](/content/gettr/p2d6kgl7d33.md)
 
 Nickie Lum Davis案卷宗显示中共深度参与美国司法腐败，单伟建私生子在美国司法体系、中国司法体系游走
@@ -24,14 +36,6 @@ Nickie Lum Davis案卷宗显示中共深度参与美国司法腐败，单伟建�
 
 ---
 
-[@milesguo 4/1/2023 9:46 AM UTC  - :tv:直播](/content/gettr/p2d63ij1137.md)
-
-03/30/2023 David gives an update on the status of Mr. Miles Guo in the detention center. He says Mr. Guo is in good mental and physical status, and he remains as energetic as before. Mr. Guo warns that the forces behind and the CCP...
-
-<img src="https://media.gettr.com/group12/getter/2023/04/01/09/cd9105a2-bc15-a171-bf48-4fdc0573a09b/out.jpg" width="506" height="284">
-
----
-
 [@shareseatoriginal 3/30/2023 11:37 AM UTC ](/content/gettr/p2cyfs04b9e.md)
 
 ＂我是GTV投资人，表达我的心声，还文贵先生清白＂——来自战友Susan @Susan
@@ -43,6 +47,14 @@ Nickie Lum Davis案卷宗显示中共深度参与美国司法腐败，单伟建�
 郭文贵先生是爆料革命的创始人，他通过当时的GTV平台爆料告知世界病毒来自中共，疫苗是生化武器，中共通过一带一...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/30/11/d249d2cc-fe51-a42f-0ea0-f89558af6b99/b2098720b5141b66e2cc9decfd9bcdac.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/1/2023 9:46 AM UTC  - :tv:直播](/content/gettr/p2d63ij1137.md)
+
+03/30/2023 David gives an update on the status of Mr. Miles Guo in the detention center. He says Mr. Guo is in good mental and physical status, and he remains as energetic as before. Mr. Guo warns that the forces behind and the CCP...
+
+<img src="https://media.gettr.com/group12/getter/2023/04/01/09/cd9105a2-bc15-a171-bf48-4fdc0573a09b/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +215,6 @@ Miles Guo被捕的真正原因：CCP恐惧郭先生在Pras Michel的庭审中出
 DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals Onto The Streets
 
 <img src="https://media.gettr.com/group8/origin/2023/03/31/15/fbd6ffac-e383-1c94-980c-6bdcb478f2ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 12:53 PM UTC  - :tv:直播](/content/gettr/p2d2iox4812.md)
-
-3/30/2023 Nicole with Kevin Alan: Pras Michel took part in the CCP's unrestricted lawfare against Mr. Miles Guo through the weaponization of US government agencies. He arranged for a meeting between George Higginbotham and Cui Tian...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/31/12/764abe1e-cea3-1a46-9e99-71a7af6469e4/out.jpg" width="506" height="284">
 
 ---
 
