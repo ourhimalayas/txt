@@ -2,6 +2,26 @@
 ---
 
 
+[@shareseatoriginal 4/1/2023 8:43 PM UTC ](/content/gettr/p2d7jj51fa7.md)
+
+七哥还说，他觉得很对不起雁平，因为参加爆料革命，她失去了太多。 这次，她什么都不用做，只要不再跟随七哥，她可以立即回家。但是雁平很倔，没有接受任何条件，说：我就呆在这儿。
+
+<img src="https://media.gettr.com/group4/getter/2023/04/01/20/dac53b13-a4e8-a43e-4b6f-6ee984b98d6a/e2ad24339ab20d7d38388ad508ef2867.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/1/2023 8:08 PM UTC  - :tv:直播](/content/gettr/p2d7q8e8628.md)
+
+2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose
+
+如果美国政府和FBI拿到郭文贵递交的情报证实了中共的生化武器的超限战计划之后付出了行动，COVID-19完全可能不会发生 
+
+If the U.S. government and the FBI took action after receiving the information submitted by Miles Guo and co...
+
+<img src="https://media.gettr.com/group6/getter/2023/04/01/20/e4a7e62d-3364-8303-010d-77ff79113fff/out.jpg" width="506" height="284">
+
+---
+
 [@shareseatoriginal 4/1/2023 6:34 PM UTC ](/content/gettr/p2d7f478629.md)
 
 刚刚跟七哥通了电话，他问了老椅子和DC农场的情况，我告诉他不要担心，老椅子群和DC农场的战友们都很稳定，团结，他非常高兴，让我转告大家，他非常想念大家。 他知道了十八楼的抗议，他知道我们在发出自己的呐喊，他很感动。他说他一直以来，以及现在所受的苦都值得，因为他有不离不弃的战友。 如果七哥不受现在这个苦，那么我们每个人都要遭受比他遭受的更大的苦。 我们战友的行动已经震撼了整个世界，他们没想到他们印象中懦弱，自私的中国人是如此的团队，勇敢，忠诚。 他让我转告大家...
@@ -46,15 +66,25 @@ Senior officials in China's financial system have been sacked one after another.
 
 ---
 
-[@milesguo 4/1/2023 8:08 PM UTC  - :tv:直播](/content/gettr/p2d7q8e8628.md)
+[@octopus 4/1/2023 8:51 PM UTC ](/content/gettr/p2d7ldtb925.md)
 
-2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose
+刚刚接到了七哥的电话，那熟悉的、中气十足的嗓音从耳机🎧里传了过来……8爪鱼妹妹……
 
-如果美国政府和FBI拿到郭文贵递交的情报证实了中共的生化武器的超限战计划之后付出了行动，COVID-19完全可能不会发生 
+我这小心脏澎湃呀……
 
-If the U.S. government and the FBI took action after receiving the information submitted by Miles Guo and co...
+表达了分分秒秒思念后，七哥说他很快出来的✊✊✊（我最爱听的）
 
-<img src="https://media.gettr.com/group6/getter/2023/04/01/20/e4a7e62d-3364-8303-010d-77ff79113fff/out.jpg" width="506" height="284">
+1、里面的生活并不咋地，8平米，两个人一个公用🚽，便秘都得上🤣。监狱有个小暴动，所以临时lockdown了……
+
+2、七哥说他这经历，会让很多兄弟姐妹家人躲过不公平待遇
+
+3、这次岛哥🈶️能力和淡定，让大家稳稳的面对发生的事情
+
+4、香草山要接受安红那里的老椅子，安排好老椅子
+
+...
+
+<img src="https://media.gettr.com/group6/getter/2023/04/01/20/78234093-502b-5eb4-2c2e-26c2b8dfa519/fefc1094362e23618cb9932210975ea1.jpg" width="506" height="284">
 
 ---
 
@@ -186,31 +216,11 @@ Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-
 
 ---
 
-[@milesguo 4/1/2023 12:08 AM UTC  - :tv:直播](/content/gettr/p2d4rb87e34.md)
-
-2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥（4K版）
-
-<img src="https://media.gettr.com/group6/origin/2023/04/01/00/57b8b408-ed86-62fd-4983-936235faebaf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@milesguo 4/1/2023 12:09 AM UTC  - :tv:直播](/content/gettr/p2d548j1262.md)
 
 2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥
 
 <img src="https://media.gettr.com/group5/origin/2023/04/01/00/b5af4e32-6a8d-fbb5-d7cd-d37358ce16e0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/31/2023 10:59 PM UTC  - :tv:直播](/content/gettr/p2d4hfr4869.md)
-
-2023.03.31 #nfsc #mos #Hcoin #himalayaexchange #binance #takedowntheccp
-
-喜交所与币安类似的处境下，喜币逆势上涨，财富流向即是人心所向。
-
-The Himalaya exchange and Binance are in a similar situation. Hcoin is still rising despite the counter-trend. The flow of we...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/31/22/1850293b-4a43-4b64-ca3f-7159da1a29bb/out.jpg" width="506" height="284">
 
 ---
 
