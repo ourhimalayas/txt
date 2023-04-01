@@ -2,6 +2,12 @@
 ---
 
 
+[@milesguo 4/1/2023 12:22 AM UTC ](/content/gettr/p2d4xuld03d.md)
+
+2023.03.31 战友们好，我是郭美。给大家报平安。爸爸很好。基本每天都打来电话。刚才他告诉我他今天健身做了三组平板撑。20次投球7次进球（依然还很骄傲的感觉）晚上吃了热火腿。他非常想念你们，让你们不要担心他的安全和状态。让你们挂念了。我和妈妈哥哥，两只小狗都非常的好，感谢你们的每一条留言，给了我们极大的力量和温暖🙏除了感谢，还是感谢！我干了，你们随意🍻😊
+
+---
+
 [@milesguo 4/1/2023 12:08 AM UTC  - :tv:直播](/content/gettr/p2d4rb87e34.md)
 
 2023.03.31 Nicole看七哥 小王子谈七哥案情进展（一）重磅！解读郭先生律师团队最新33页动议要求立刻保释七哥（4K版）
@@ -10,9 +16,15 @@
 
 ---
 
-[@milesguo 4/1/2023 12:22 AM UTC ](/content/gettr/p2d4xuld03d.md)
+[@newyorkrock 4/1/2023 12:21 AM UTC  - :tv:直播](/content/gettr/p2d5e8u493c.md)
 
-2023.03.31 战友们好，我是郭美。给大家报平安。爸爸很好。基本每天都打来电话。刚才他告诉我他今天健身做了三组平板撑。20次投球7次进球（依然还很骄傲的感觉）晚上吃了热火腿。他非常想念你们，让你们不要担心他的安全和状态。让你们挂念了。我和妈妈哥哥，两只小狗都非常的好，感谢你们的每一条留言，给了我们极大的力量和温暖🙏除了感谢，还是感谢！我干了，你们随意🍻😊
+Super-May线上直播音乐会 第四十九期：This World——Trip-Pop & Neo-Soul
+
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group10/origin/2023/04/01/00/91a99acf-cd68-3115-5fd9-8e2868820f1f/271f6e6ee6c9f28c393cfc99ea9808be.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +175,6 @@ DOJ Locks Up Prominent Anti-CCP Dissidences While Releashing Violent Criminals O
 3/30/2023 Nicole with Kevin Alan: Pras Michel took part in the CCP's unrestricted lawfare against Mr. Miles Guo through the weaponization of US government agencies. He arranged for a meeting between George Higginbotham and Cui Tian...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/31/12/764abe1e-cea3-1a46-9e99-71a7af6469e4/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 3/31/2023 3:36 AM UTC  - :tv:直播](/content/gettr/p2d1u1s5c63.md)
-
-03/28/2023 In an interview with America First News, Nicole exposed how the CCP has hijacked China and turned it into a slavery and concentration camp. She further revealed that the corrupt government officials and people in power i...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/31/03/f1cf9a1c-1616-1247-b2e2-fc50d45f4fbc/out.jpg" width="506" height="284">
 
 ---
 
