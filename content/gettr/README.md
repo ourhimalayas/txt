@@ -14,6 +14,26 @@ Both Miles Guo and President Trump lost a lot of wealth because they fought for.
 
 ---
 
+[@milesguo 4/1/2023 11:08 PM UTC  - :tv:直播](/content/gettr/p2d8c1f640c.md)
+
+2023.04.01 Miles Guo Part2 GTV Fraud with no victims The SEC Took the Money
+
+<img src="https://media.gettr.com/group11/origin/2023/04/01/23/bd3aa5c2-d91d-cf7a-0d46-fc772cc2d9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 4/1/2023 10:12 PM UTC  - :tv:直播](/content/gettr/p2d7n5qc347.md)
+
+2023.04.01  #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
+
+新中国联邦是我们推翻中国共产党最大的盟友！
+
+The New Federal State of China is our greatest ally in taking down the Chinese Communist Party (CCP)
+
+<img src="https://media.gettr.com/group4/getter/2023/04/01/22/307fe4d5-734f-43f6-fe77-ba44c9a1beab/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 9:58 PM UTC  - :tv:直播](/content/gettr/p2d85elcc1b.md)
 
 2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose 
@@ -31,18 +51,6 @@ False Accusations Against Guo Wengui Demonstrate Chinese Communist Party's Infil
 2023.04.01 Nicole看七哥  长岛哥谈七哥近况及生活规律（三）（4K版）
 
 <img src="https://media.gettr.com/group7/origin/2023/04/01/21/51bc1086-99f9-782e-631c-9e2f91e6a177/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 10:12 PM UTC  - :tv:直播](/content/gettr/p2d7n5qc347.md)
-
-2023.04.01  #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
-
-新中国联邦是我们推翻中国共产党最大的盟友！
-
-The New Federal State of China is our greatest ally in taking down the Chinese Communist Party (CCP)
-
-<img src="https://media.gettr.com/group4/getter/2023/04/01/22/307fe4d5-734f-43f6-fe77-ba44c9a1beab/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,12 +211,6 @@ Nickie Lum Davis案卷宗显示中共深度参与美国司法腐败，单伟建�
 03/30/2023 Brother David: The Chinese Communist Party and their black hands in the American justice system chose to arrest Mr. Miles Guo on March 15, because, firstly, on March 14 we had signatures of two congressmen in support of ...
 
 <img src="https://media.gettr.com/group3/getter/2023/04/01/07/5986ae37-825e-fbc4-7519-198b1f9ee2ed/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 5:22 AM UTC ](/content/gettr/p2d5azn0adf.md)
-
-2023年3月是美国历史上的至暗时刻，3月15日中共头号敌人-新中国联邦创始人郭先生被FBI非法逮捕，3月30日美国历史上第一个总统被起诉，在面对邪恶的中国共产党肆虐全球的时候，越来越多的美国人发现新中国联邦是自由世界对抗中共的最大盟友。 3月31日，Gateway Pundit再次发表雄文，为黑暗中的美国人民带来希望的光明。这篇题为“我们为什么需要新中国联邦“的文章，出自美国资深记者Kelly Walker之手。作者笔下的新中国联邦人宛如“宝剑锋从磨砺出，...
 
 ---
 
