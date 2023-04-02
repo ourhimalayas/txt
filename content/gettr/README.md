@@ -10,6 +10,18 @@
 
 ---
 
+[@wentianxiaomei1 4/2/2023 3:48 PM UTC  - :tv:直播](/content/gettr/p2da20s2581.md)
+
+七哥的话一次又一次的被验证
+
+#freemilesguonow 
+
+#freeyvettewang 
+
+<img src="https://media.gettr.com/group11/getter/2023/04/02/15/7ff52fd9-bd39-8334-beed-c3f60dc4158c/7549225aa7ab4d4d03851126c7c8a558.jpg" width="506" height="284">
+
+---
+
 [@miles 4/2/2023 3:00 PM UTC  - :tv:直播](/content/gettr/p2da1jw3a68.md)
 
 全球战友等着七哥回来 Waiting for Miles to Come back ，第280场 《分享时刻》局中局黑中黑系列2 金融帮势力
@@ -27,6 +39,16 @@
 #freeMilesGuo #FreeYvetteWang...
 
 <img src="https://media.gettr.com/group9/getter/2023/04/02/15/05db2bf0-5cde-f0c7-53ef-1d4584bc5361/out.jpg" width="506" height="284">
+
+---
+
+[@yixiao 4/2/2023 3:50 PM UTC  - :tv:直播](/content/gettr/p2da26he031.md)
+
+新中国联邦乌克兰救援队应西班牙巴塞罗那一家儿童慈善机构请求， 组织的一次专项救援行动，最终确定成功营救96名儿童及相关陪同老师共计113人。
+
+The Ukrainian Rescue Team of the New Federal State of China organized a special rescue operation at the request of a children's charity in Barcelona, Spain, an...
+
+<img src="https://media.gettr.com/group5/getter/2023/04/02/15/3cb13488-7c0f-0498-9b2c-c2ef9d1da1a5/out.jpg" width="506" height="284">
 
 ---
 
@@ -71,16 +93,6 @@ Senior officials in China's financial system have been sacked one after another.
 3/31/2023 Nicole with Kevin Alan: GTV is one of many independent media outlets covering the "laptop from hell." So, there is nothing wrong for GTV to report on an event that has already been exposed by other media outlets and is un...
 
 <img src="https://media.gettr.com/group7/getter/2023/04/02/05/2acce8a9-2e33-23b9-18be-39898c5ec679/out.jpg" width="506" height="284">
-
----
-
-[@yixiao 4/2/2023 3:50 PM UTC  - :tv:直播](/content/gettr/p2da26he031.md)
-
-新中国联邦乌克兰救援队应西班牙巴塞罗那一家儿童慈善机构请求， 组织的一次专项救援行动，最终确定成功营救96名儿童及相关陪同老师共计113人。
-
-The Ukrainian Rescue Team of the New Federal State of China organized a special rescue operation at the request of a children's charity in Barcelona, Spain, an...
-
-<img src="https://media.gettr.com/group5/getter/2023/04/02/15/3cb13488-7c0f-0498-9b2c-c2ef9d1da1a5/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,18 +199,6 @@ Both Miles Guo and President Trump lost a lot of wealth because they fought for.
 The New Federal State of China is our greatest ally in taking down the Chinese Communist Party (CCP)
 
 <img src="https://media.gettr.com/group4/getter/2023/04/01/22/307fe4d5-734f-43f6-fe77-ba44c9a1beab/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 9:58 PM UTC  - :tv:直播](/content/gettr/p2d85elcc1b.md)
-
-2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose 
-
-对郭文贵的错误指控表明了中共对美国司法机构的渗透
-
-False Accusations Against Guo Wengui Demonstrate Chinese Communist Party's Infiltration of U.S. Judiciary
-
-<img src="https://media.gettr.com/group12/getter/2023/04/01/21/87234766-b804-ac25-907c-a5e62e4bf25f/out.jpg" width="506" height="284">
 
 ---
 
