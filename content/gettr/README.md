@@ -2,6 +2,36 @@
 ---
 
 
+[@milesguo 4/2/2023 2:27 AM UTC  - :tv:直播](/content/gettr/p2d8rbga7ba.md)
+
+3/31/2023 Nicole with Kevin Alan: GTV was an independent platform for us to speak out freely. We are not critical of any American political party, and our only target is the CCP. However, we are still silenced in the U.S., and GTV ...
+
+<img src="https://media.gettr.com/group4/getter/2023/04/02/02/326d1d63-4da7-d51d-bd94-c0f12fe60ef4/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 2:27 AM UTC  - :tv:直播](/content/gettr/p2d8dm79f6e.md)
+
+ 3/31/2023 Nicole with Kevin Alan: During his detention, Mr. Miles Guo has not stopped working out and reading. He’s always been in good spirits and staying optimistic. Nothing can beat him!
+
+#freeMilesGuo #FreeYvetteWang #freeMile...
+
+<img src="https://media.gettr.com/group5/getter/2023/04/02/02/64151c1b-9b87-057b-a0f3-0c3837964fb4/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 12:14 AM UTC  - :tv:直播](/content/gettr/p2d8eaj3a9c.md)
+
+2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
+
+如果想要让美国重回正轨，让美国和中国人民重获自由，我们必须联合起来对付中国共产党 
+
+If we want to get America back on track and the American and Chinese people free again, we must unite against t...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/02/00/da3b65c1-7b49-ac47-29b3-285239a2bea3/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 11:08 PM UTC  - :tv:直播](/content/gettr/p2d8c1f640c.md)
 
 2023.04.01 Miles Guo Part2 GTV Fraud with no victims The SEC Took the Money
@@ -22,15 +52,11 @@ Both Miles Guo and President Trump lost a lot of wealth because they fought for.
 
 ---
 
-[@milesguo 4/2/2023 12:14 AM UTC  - :tv:直播](/content/gettr/p2d8eaj3a9c.md)
+[@milesguo 4/2/2023 2:28 AM UTC  - :tv:直播](/content/gettr/p2d8mbd11ec.md)
 
-2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
+3/31/2023 Nicole with Kevin Alan: Why does the CCP hate both Mr. Miles Guo and President Trump? It is simply because Mr. Guo fights for all the ordinary Chinese people, and President Trump took a tough stance against the CCP while ...
 
-如果想要让美国重回正轨，让美国和中国人民重获自由，我们必须联合起来对付中国共产党 
-
-If we want to get America back on track and the American and Chinese people free again, we must unite against t...
-
-<img src="https://media.gettr.com/group3/getter/2023/04/02/00/da3b65c1-7b49-ac47-29b3-285239a2bea3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/04/02/02/dc83c3bb-1554-01f0-91be-f0b82ac3eacd/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,36 +211,6 @@ Nickie Lum Davis案卷宗显示中共深度参与美国司法腐败，单伟建�
 郭文贵先生是爆料革命的创始人，他通过当时的GTV平台爆料告知世界病毒来自中共，疫苗是生化武器，中共通过一带一...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/30/11/d249d2cc-fe51-a42f-0ea0-f89558af6b99/b2098720b5141b66e2cc9decfd9bcdac.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 9:46 AM UTC  - :tv:直播](/content/gettr/p2d63ij1137.md)
-
-03/30/2023 David gives an update on the status of Mr. Miles Guo in the detention center. He says Mr. Guo is in good mental and physical status, and he remains as energetic as before. Mr. Guo warns that the forces behind and the CCP...
-
-<img src="https://media.gettr.com/group12/getter/2023/04/01/09/cd9105a2-bc15-a171-bf48-4fdc0573a09b/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 9:49 AM UTC  - :tv:直播](/content/gettr/p2d5pf1fb6f.md)
-
-03/30/2023 David reveals that Miles Guo told his lawyers that as long as we can take down the CCP and can protect the money and interests of our fellow fighters, he would prefer to stay in the prison for the rest of his life. There...
-
-<img src="https://media.gettr.com/group9/getter/2023/04/01/09/75a051db-e53b-c754-299f-f05cd42f9159/out.jpg" width="506" height="284">
-
----
-
-[@tangping 3/31/2023 7:56 PM UTC  - :tv:直播](/content/gettr/p2d4n0k36e0.md)
-
-刚刚和磐石农场苍天大哥，Lina，青藤，Qmay一起接到七哥的电话........
-
-七哥一切都安好，特别特别想念战友们！！
-
-向七哥汇报了GMUSIC目前的工作，按照七哥原计划如期上线的“灭共者徽章”的NFT项目进行得非常顺利且有条不紊，他特别高兴！七哥说GMUSIC做的太好了，相信将来一定会有更好更大的发展！
-
-七哥一再的嘱咐，现在我们手上一切的工作都不能停，战友们一定要坚持下去，不要被任何困难打倒，坚持磐石精神，团结第一，一定要让敌人看到我们的战友是无...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/31/19/2cd716fa-be42-24c2-8409-abc264b7fff0/out.jpg" width="506" height="284">
 
 ---
 
