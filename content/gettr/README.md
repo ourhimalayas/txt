@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/1/2023 11:08 PM UTC  - :tv:直播](/content/gettr/p2d8c1f640c.md)
+
+2023.04.01 Miles Guo Part2 GTV Fraud with no victims The SEC Took the Money
+
+<img src="https://media.gettr.com/group11/origin/2023/04/01/23/bd3aa5c2-d91d-cf7a-0d46-fc772cc2d9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 4/1/2023 10:06 PM UTC  - :tv:直播](/content/gettr/p2d7lsh4857.md)
 
 2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
@@ -14,11 +22,15 @@ Both Miles Guo and President Trump lost a lot of wealth because they fought for.
 
 ---
 
-[@milesguo 4/1/2023 11:08 PM UTC  - :tv:直播](/content/gettr/p2d8c1f640c.md)
+[@milesguo 4/2/2023 12:14 AM UTC  - :tv:直播](/content/gettr/p2d8eaj3a9c.md)
 
-2023.04.01 Miles Guo Part2 GTV Fraud with no victims The SEC Took the Money
+2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
 
-<img src="https://media.gettr.com/group11/origin/2023/04/01/23/bd3aa5c2-d91d-cf7a-0d46-fc772cc2d9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+如果想要让美国重回正轨，让美国和中国人民重获自由，我们必须联合起来对付中国共产党 
+
+If we want to get America back on track and the American and Chinese people free again, we must unite against t...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/02/00/da3b65c1-7b49-ac47-29b3-285239a2bea3/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +215,6 @@ Nickie Lum Davis案卷宗显示中共深度参与美国司法腐败，单伟建�
 七哥一再的嘱咐，现在我们手上一切的工作都不能停，战友们一定要坚持下去，不要被任何困难打倒，坚持磐石精神，团结第一，一定要让敌人看到我们的战友是无...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/31/19/2cd716fa-be42-24c2-8409-abc264b7fff0/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 7:12 AM UTC  - :tv:直播](/content/gettr/p2d5z6c049a.md)
-
-03/30/2023 Brother David: The Chinese Communist Party and their black hands in the American justice system chose to arrest Mr. Miles Guo on March 15, because, firstly, on March 14 we had signatures of two congressmen in support of ...
-
-<img src="https://media.gettr.com/group3/getter/2023/04/01/07/5986ae37-825e-fbc4-7519-198b1f9ee2ed/out.jpg" width="506" height="284">
 
 ---
 
