@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/2/2023 1:18 PM UTC  - :tv:直播](/content/gettr/p2d9nw62fef.md)
+
+03/30/2023 Nicole's interview with Ann Vandersteel: In 2017, when Miles Guo was about to drop the bombs on the CCP’s top government officials’ crimes against humanity, Voice of America abruptly cut off his live interview due to the...
+
+<img src="https://media.gettr.com/group7/getter/2023/04/02/13/a3b1f869-6556-f5f0-0753-616a36de561a/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/2/2023 11:51 AM UTC  - :tv:直播](/content/gettr/p2d9k6gbd80.md)
 
 03/30/2023 Nicole's interview with Ann Vandersteel: Recently, the Chinese Communist Party has reportedly given large donations to prestigious universities such as Harvard and Yale. This is the problem, the CCP has controlled this c...
@@ -26,11 +34,15 @@
 
 ---
 
-[@milesguo 4/2/2023 1:18 PM UTC  - :tv:直播](/content/gettr/p2d9nw62fef.md)
+[@milesguo 4/2/2023 3:02 PM UTC  - :tv:直播](/content/gettr/p2d9cob7bf8.md)
 
-03/30/2023 Nicole's interview with Ann Vandersteel: In 2017, when Miles Guo was about to drop the bombs on the CCP’s top government officials’ crimes against humanity, Voice of America abruptly cut off his live interview due to the...
+2023.04.02 2023.04.01 #freemilesguo #nfsc #mos #takedowntheccp 
 
-<img src="https://media.gettr.com/group7/getter/2023/04/02/13/a3b1f869-6556-f5f0-0753-616a36de561a/out.jpg" width="506" height="284">
+中共国金融系统高官纷纷落马 中国人的财富需要诺亚方舟，就是喜联储。香草山国际货币中心是通往财富的诺亚方舟的通道。
+
+Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese p...
+
+<img src="https://media.gettr.com/group7/getter/2023/04/02/15/4be3387a-d67d-08c7-fe61-61c2ad4648ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,18 +207,6 @@ False Accusations Against Guo Wengui Demonstrate Chinese Communist Party's Infil
 ...
 
 <img src="https://media.gettr.com/group6/getter/2023/04/01/20/78234093-502b-5eb4-2c2e-26c2b8dfa519/fefc1094362e23618cb9932210975ea1.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 8:08 PM UTC  - :tv:直播](/content/gettr/p2d7q8e8628.md)
-
-2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose
-
-如果美国政府和FBI拿到郭文贵递交的情报证实了中共的生化武器的超限战计划之后付出了行动，COVID-19完全可能不会发生 
-
-If the U.S. government and the FBI took action after receiving the information submitted by Miles Guo and co...
-
-<img src="https://media.gettr.com/group6/getter/2023/04/01/20/e4a7e62d-3364-8303-010d-77ff79113fff/out.jpg" width="506" height="284">
 
 ---
 
