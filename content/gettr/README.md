@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/2/2023 11:51 AM UTC  - :tv:直播](/content/gettr/p2d9k6gbd80.md)
+
+03/30/2023 Nicole's interview with Ann Vandersteel: Recently, the Chinese Communist Party has reportedly given large donations to prestigious universities such as Harvard and Yale. This is the problem, the CCP has controlled this c...
+
+<img src="https://media.gettr.com/group7/getter/2023/04/02/11/45880269-adb3-4eca-d69a-161aa81d66f1/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/2/2023 10:11 AM UTC  - :tv:直播](/content/gettr/p2d92e05591.md)
 
 03/30/2023 In the interview with Ann Vandersteel, Nicole reveals why the CCP, the Party of Davos, and the globalists want to target Miles Guo. Because over the past several decades, the CCP, Wall Street, and global elites got enric...
@@ -18,11 +26,11 @@
 
 ---
 
-[@milesguo 4/2/2023 11:51 AM UTC  - :tv:直播](/content/gettr/p2d9k6gbd80.md)
+[@milesguo 4/2/2023 1:18 PM UTC  - :tv:直播](/content/gettr/p2d9nw62fef.md)
 
-03/30/2023 Nicole's interview with Ann Vandersteel: Recently, the Chinese Communist Party has reportedly given large donations to prestigious universities such as Harvard and Yale. This is the problem, the CCP has controlled this c...
+03/30/2023 Nicole's interview with Ann Vandersteel: In 2017, when Miles Guo was about to drop the bombs on the CCP’s top government officials’ crimes against humanity, Voice of America abruptly cut off his live interview due to the...
 
-<img src="https://media.gettr.com/group7/getter/2023/04/02/11/45880269-adb3-4eca-d69a-161aa81d66f1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/04/02/13/a3b1f869-6556-f5f0-0753-616a36de561a/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ False Accusations Against Guo Wengui Demonstrate Chinese Communist Party's Infil
 If the U.S. government and the FBI took action after receiving the information submitted by Miles Guo and co...
 
 <img src="https://media.gettr.com/group6/getter/2023/04/01/20/e4a7e62d-3364-8303-010d-77ff79113fff/out.jpg" width="506" height="284">
-
----
-
-[@shareseatoriginal 4/1/2023 6:34 PM UTC ](/content/gettr/p2d7f478629.md)
-
-刚刚跟七哥通了电话，他问了老椅子和DC农场的情况，我告诉他不要担心，老椅子群和DC农场的战友们都很稳定，团结，他非常高兴，让我转告大家，他非常想念大家。 他知道了十八楼的抗议，他知道我们在发出自己的呐喊，他很感动。他说他一直以来，以及现在所受的苦都值得，因为他有不离不弃的战友。 如果七哥不受现在这个苦，那么我们每个人都要遭受比他遭受的更大的苦。 我们战友的行动已经震撼了整个世界，他们没想到他们印象中懦弱，自私的中国人是如此的团队，勇敢，忠诚。 他让我转告大家...
-
-<img src="https://media.gettr.com/group10/getter/2023/04/01/18/370778fc-7292-0acd-c3df-0c54e15560e1/1721dfb52779799ae2db6bd11274d74c.jpg" width="506" height="284">
 
 ---
 
