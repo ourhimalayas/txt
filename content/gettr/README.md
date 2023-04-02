@@ -2,6 +2,46 @@
 ---
 
 
+[@milesguo 4/2/2023 3:54 PM UTC  - :tv:直播](/content/gettr/p2da3ptc5e8.md)
+
+4/1/2023 Brother Changdao: Although the March 15 incident is the darkest moment for the Whistleblowers’ Movement, our fellow fighters’ firm support to Mr. Miles Guo and our perseverance in taking down the CCP have made our investor...
+
+<img src="https://media.gettr.com/group4/getter/2023/04/02/15/02fc5db7-c2d3-77f4-27bb-fe74fcf0ffa2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/2/2023 3:00 PM UTC  - :tv:直播](/content/gettr/p2da1jw3a68.md)
+
+全球战友等着七哥回来 Waiting for Miles to Come back ，第280场 《分享时刻》局中局黑中黑系列2 金融帮势力
+
+<img src="https://media.gettr.com/group12/origin/2023/04/01/15/0f087146-7a26-4c0d-b7bc-f27f997bf08b/3bad825ce339d07aef8e072b34233bdd.jpeg" width="506" height="284">
+
+---
+
+[@reuben_i17 4/2/2023 3:50 PM UTC  - :tv:直播](/content/gettr/p2da1hle539.md)
+
+04/02/2023 The decline of freedom in the United States: An ordinary American podcaster interpreted and commented on the case of Mr. Miles Guo’s forcibly taken away by the US Department of Justice!  
+
+
+
+#freeMilesGuo #FreeYvetteWang...
+
+<img src="https://media.gettr.com/group9/getter/2023/04/02/15/05db2bf0-5cde-f0c7-53ef-1d4584bc5361/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 3:02 PM UTC  - :tv:直播](/content/gettr/p2d9cob7bf8.md)
+
+2023.04.02 2023.04.01 #freemilesguo #nfsc #mos #takedowntheccp 
+
+中共国金融系统高官纷纷落马 中国人的财富需要诺亚方舟，就是喜联储。香草山国际货币中心是通往财富的诺亚方舟的通道。
+
+Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese p...
+
+<img src="https://media.gettr.com/group7/getter/2023/04/02/15/4be3387a-d67d-08c7-fe61-61c2ad4648ac/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/2/2023 1:18 PM UTC  - :tv:直播](/content/gettr/p2d9nw62fef.md)
 
 03/30/2023 Nicole's interview with Ann Vandersteel: In 2017, when Miles Guo was about to drop the bombs on the CCP’s top government officials’ crimes against humanity, Voice of America abruptly cut off his live interview due to the...
@@ -34,15 +74,13 @@
 
 ---
 
-[@milesguo 4/2/2023 3:02 PM UTC  - :tv:直播](/content/gettr/p2d9cob7bf8.md)
+[@yixiao 4/2/2023 3:50 PM UTC  - :tv:直播](/content/gettr/p2da26he031.md)
 
-2023.04.02 2023.04.01 #freemilesguo #nfsc #mos #takedowntheccp 
+新中国联邦乌克兰救援队应西班牙巴塞罗那一家儿童慈善机构请求， 组织的一次专项救援行动，最终确定成功营救96名儿童及相关陪同老师共计113人。
 
-中共国金融系统高官纷纷落马 中国人的财富需要诺亚方舟，就是喜联储。香草山国际货币中心是通往财富的诺亚方舟的通道。
+The Ukrainian Rescue Team of the New Federal State of China organized a special rescue operation at the request of a children's charity in Barcelona, Spain, an...
 
-Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese p...
-
-<img src="https://media.gettr.com/group7/getter/2023/04/02/15/4be3387a-d67d-08c7-fe61-61c2ad4648ac/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/04/02/15/3cb13488-7c0f-0498-9b2c-c2ef9d1da1a5/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,52 +199,6 @@ The New Federal State of China is our greatest ally in taking down the Chinese C
 False Accusations Against Guo Wengui Demonstrate Chinese Communist Party's Infiltration of U.S. Judiciary
 
 <img src="https://media.gettr.com/group12/getter/2023/04/01/21/87234766-b804-ac25-907c-a5e62e4bf25f/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 9:13 PM UTC  - :tv:直播](/content/gettr/p2d7t07aeca.md)
-
-2023.04.01 Nicole看七哥  长岛哥谈七哥近况及生活规律（三）（4K版）
-
-<img src="https://media.gettr.com/group7/origin/2023/04/01/21/51bc1086-99f9-782e-631c-9e2f91e6a177/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 9:13 PM UTC  - :tv:直播](/content/gettr/p2d7gj93a1f.md)
-
-2023.04.01 Nicole看七哥 长岛哥谈七哥近况及生活规律（三）
-
-<img src="https://media.gettr.com/group3/origin/2023/04/01/21/97184d73-9b41-065a-d8fc-b82aa11609ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@shareseatoriginal 4/1/2023 8:43 PM UTC ](/content/gettr/p2d7jj51fa7.md)
-
-七哥还说，他觉得很对不起雁平，因为参加爆料革命，她失去了太多。 这次，她什么都不用做，只要不再跟随七哥，她可以立即回家。但是雁平很倔，没有接受任何条件，说：我就呆在这儿。
-
-<img src="https://media.gettr.com/group4/getter/2023/04/01/20/dac53b13-a4e8-a43e-4b6f-6ee984b98d6a/e2ad24339ab20d7d38388ad508ef2867.jpg" width="506" height="284">
-
----
-
-[@octopus 4/1/2023 8:51 PM UTC ](/content/gettr/p2d7ldtb925.md)
-
-刚刚接到了七哥的电话，那熟悉的、中气十足的嗓音从耳机🎧里传了过来……8爪鱼妹妹……
-
-我这小心脏澎湃呀……
-
-表达了分分秒秒思念后，七哥说他很快出来的✊✊✊（我最爱听的）
-
-1、里面的生活并不咋地，8平米，两个人一个公用🚽，便秘都得上🤣。监狱有个小暴动，所以临时lockdown了……
-
-2、七哥说他这经历，会让很多兄弟姐妹家人躲过不公平待遇
-
-3、这次岛哥🈶️能力和淡定，让大家稳稳的面对发生的事情
-
-4、香草山要接受安红那里的老椅子，安排好老椅子
-
-...
-
-<img src="https://media.gettr.com/group6/getter/2023/04/01/20/78234093-502b-5eb4-2c2e-26c2b8dfa519/fefc1094362e23618cb9932210975ea1.jpg" width="506" height="284">
 
 ---
 
