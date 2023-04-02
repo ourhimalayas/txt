@@ -10,6 +10,28 @@
 
 ---
 
+[@milesguo 4/2/2023 10:11 AM UTC  - :tv:直播](/content/gettr/p2d92e05591.md)
+
+03/30/2023 In the interview with Ann Vandersteel, Nicole reveals why the CCP, the Party of Davos, and the globalists want to target Miles Guo. Because over the past several decades, the CCP, Wall Street, and global elites got enric...
+
+<img src="https://media.gettr.com/group12/getter/2023/04/02/10/5cef3949-b8ac-6a99-dd47-59cbb994344f/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 5:13 AM UTC  - :tv:直播](/content/gettr/p2d8ekl11ea.md)
+
+3/27/2023 郭文贵先生面对的不仅是中共，而且还有其它邪恶势力，他是全世界的英雄并备受尊重，大家不必担心郭先生的安全，我们还是该干什么干什么
+
+#郭文贵 #释放郭文贵 #立即释放郭文贵 #新中国联邦
+
+
+
+3/27/2023 Miles Guo is not only facing the CCP, but also other evil forces. He is the hero of the entire world and is highly ...
+
+<img src="https://media.gettr.com/group9/getter/2023/04/02/05/a9731892-826d-c2bb-648e-4d703744cddc/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/2/2023 3:44 AM UTC  - :tv:直播](/content/gettr/p2d8cel1a21.md)
 
 3/31/2023 Nicole with Kevin Alan:  The New Federal Stale of China stays outside of American politics, and we want to work with all political parties to take down the CCP.
@@ -37,20 +59,6 @@ MMr. Guo Wengui warned us all early on about the coming virus and the potential 
 3/31/2023 Nicole with Kevin Alan: GTV was an independent platform for us to speak out freely. We are not critical of any American political party, and our only target is the CCP. However, we are still silenced in the U.S., and GTV ...
 
 <img src="https://media.gettr.com/group4/getter/2023/04/02/02/326d1d63-4da7-d51d-bd94-c0f12fe60ef4/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 5:13 AM UTC  - :tv:直播](/content/gettr/p2d8ekl11ea.md)
-
-3/27/2023 郭文贵先生面对的不仅是中共，而且还有其它邪恶势力，他是全世界的英雄并备受尊重，大家不必担心郭先生的安全，我们还是该干什么干什么
-
-#郭文贵 #释放郭文贵 #立即释放郭文贵 #新中国联邦
-
-
-
-3/27/2023 Miles Guo is not only facing the CCP, but also other evil forces. He is the hero of the entire world and is highly ...
-
-<img src="https://media.gettr.com/group9/getter/2023/04/02/05/a9731892-826d-c2bb-648e-4d703744cddc/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ If the U.S. government and the FBI took action after receiving the information s
 2023.04.01 Right Now with Ann Vandersteel ft. Frank Lopez Jur & Nicole Tsai
 
 <img src="https://media.gettr.com/group7/origin/2023/03/30/18/65e3d9ea-62cf-e565-d5ca-a972aa4e1385/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 5:04 PM UTC  - :tv:直播](/content/gettr/p2d6t8g67b6.md)
-
-2023.04.01 Chris Rose's Conversation with Ava on CCP's Unrestricted Lawfare against We the People
-
-<img src="https://media.gettr.com/group3/origin/2023/04/01/16/02733070-cf46-7db8-89ef-18a8f9e26c95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
