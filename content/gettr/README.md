@@ -2,6 +2,24 @@
 ---
 
 
+[@milesguo 4/2/2023 5:12 AM UTC  - :tv:直播](/content/gettr/p2d8k119e99.md)
+
+3/31/2023 Nicole with Kevin Alan: GTV is one of many independent media outlets covering the "laptop from hell." So, there is nothing wrong for GTV to report on an event that has already been exposed by other media outlets and is un...
+
+<img src="https://media.gettr.com/group7/getter/2023/04/02/05/2acce8a9-2e33-23b9-18be-39898c5ec679/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 3:44 AM UTC  - :tv:直播](/content/gettr/p2d8cel1a21.md)
+
+3/31/2023 Nicole with Kevin Alan:  The New Federal Stale of China stays outside of American politics, and we want to work with all political parties to take down the CCP.
+
+#freeMilesGuo #FreeYvetteWang #freeMilesGuoNow #FreeYvetteW...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/02/03/63dc3a8d-1a22-1745-89d2-f1173f6d6aa3/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/2/2023 2:39 AM UTC  - :tv:直播](/content/gettr/p2d8p2x2454.md)
 
 2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
@@ -22,13 +40,17 @@ MMr. Guo Wengui warned us all early on about the coming virus and the potential 
 
 ---
 
-[@milesguo 4/2/2023 3:44 AM UTC  - :tv:直播](/content/gettr/p2d8cel1a21.md)
+[@milesguo 4/2/2023 5:13 AM UTC  - :tv:直播](/content/gettr/p2d8ekl11ea.md)
 
-3/31/2023 Nicole with Kevin Alan:  The New Federal Stale of China stays outside of American politics, and we want to work with all political parties to take down the CCP.
+3/27/2023 郭文贵先生面对的不仅是中共，而且还有其它邪恶势力，他是全世界的英雄并备受尊重，大家不必担心郭先生的安全，我们还是该干什么干什么
 
-#freeMilesGuo #FreeYvetteWang #freeMilesGuoNow #FreeYvetteW...
+#郭文贵 #释放郭文贵 #立即释放郭文贵 #新中国联邦
 
-<img src="https://media.gettr.com/group3/getter/2023/04/02/03/63dc3a8d-1a22-1745-89d2-f1173f6d6aa3/out.jpg" width="506" height="284">
+
+
+3/27/2023 Miles Guo is not only facing the CCP, but also other evil forces. He is the hero of the entire world and is highly ...
+
+<img src="https://media.gettr.com/group9/getter/2023/04/02/05/a9731892-826d-c2bb-648e-4d703744cddc/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,32 +207,6 @@ If the U.S. government and the FBI took action after receiving the information s
 2023.04.01 Chris Rose's Conversation with Ava on CCP's Unrestricted Lawfare against We the People
 
 <img src="https://media.gettr.com/group3/origin/2023/04/01/16/02733070-cf46-7db8-89ef-18a8f9e26c95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 2:21 PM UTC  - :tv:直播](/content/gettr/p2d6e0x4dfa.md)
-
-2023.04.01 #freemilesguo #nfsc #mos #takedowntheccp 
-
-中共国金融系统高官纷纷落马 中国人的财富需要诺亚方舟，就是喜联储。香草上国际货币中心是通往财富的诺亚方舟的通道。
-
-Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese people needs...
-
-<img src="https://media.gettr.com/group11/getter/2023/04/01/14/92d76316-629c-c79c-8d39-15cf0347d108/out.jpg" width="506" height="284">
-
----
-
-[@shareseatoriginal 3/30/2023 11:37 AM UTC ](/content/gettr/p2cyfs04b9e.md)
-
-＂我是GTV投资人，表达我的心声，还文贵先生清白＂——来自战友Susan @Susan
-
-#freemilesguo
-
-我是GTV的投资者之一Susan，是因为了解GTV是一个灭共，传播真相和正义的平台才参与投资，但GTV被个别人报假案诬陷而被关闭，我的投资款被SEC冻结一年多后返还50%，但剩余款几个月过去了没有任何消息，造成无法估量的经济损失。
-
-郭文贵先生是爆料革命的创始人，他通过当时的GTV平台爆料告知世界病毒来自中共，疫苗是生化武器，中共通过一带一...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/30/11/d249d2cc-fe51-a42f-0ea0-f89558af6b99/b2098720b5141b66e2cc9decfd9bcdac.jpg" width="506" height="284">
 
 ---
 
