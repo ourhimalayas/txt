@@ -2,14 +2,6 @@
 ---
 
 
-[@milesguo 4/2/2023 2:27 AM UTC  - :tv:直播](/content/gettr/p2d8rbga7ba.md)
-
-3/31/2023 Nicole with Kevin Alan: GTV was an independent platform for us to speak out freely. We are not critical of any American political party, and our only target is the CCP. However, we are still silenced in the U.S., and GTV ...
-
-<img src="https://media.gettr.com/group4/getter/2023/04/02/02/326d1d63-4da7-d51d-bd94-c0f12fe60ef4/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 4/2/2023 2:39 AM UTC  - :tv:直播](/content/gettr/p2d8p2x2454.md)
 
 2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
@@ -19,6 +11,24 @@
 MMr. Guo Wengui warned us all early on about the coming virus and the potential harm of vaccines, and if ...
 
 <img src="https://media.gettr.com/group3/getter/2023/04/02/02/cae74050-349c-bfc7-58dd-c5c58b4a2e26/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 2:27 AM UTC  - :tv:直播](/content/gettr/p2d8rbga7ba.md)
+
+3/31/2023 Nicole with Kevin Alan: GTV was an independent platform for us to speak out freely. We are not critical of any American political party, and our only target is the CCP. However, we are still silenced in the U.S., and GTV ...
+
+<img src="https://media.gettr.com/group4/getter/2023/04/02/02/326d1d63-4da7-d51d-bd94-c0f12fe60ef4/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 3:44 AM UTC  - :tv:直播](/content/gettr/p2d8cel1a21.md)
+
+3/31/2023 Nicole with Kevin Alan:  The New Federal Stale of China stays outside of American politics, and we want to work with all political parties to take down the CCP.
+
+#freeMilesGuo #FreeYvetteWang #freeMilesGuoNow #FreeYvetteW...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/02/03/63dc3a8d-1a22-1745-89d2-f1173f6d6aa3/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,20 +197,6 @@ If the U.S. government and the FBI took action after receiving the information s
 Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese people needs...
 
 <img src="https://media.gettr.com/group11/getter/2023/04/01/14/92d76316-629c-c79c-8d39-15cf0347d108/out.jpg" width="506" height="284">
-
----
-
-[@gbaby 4/1/2023 12:11 PM UTC  - :tv:直播](/content/gettr/p2d6kgl7d33.md)
-
-Nickie Lum Davis案卷宗显示中共深度参与美国司法腐败，单伟建私生子在美国司法体系、中国司法体系游走
-
-
-
-#MilesGuo  #FreeMilesGuoNow #CCP #DOJ #FBI
-
-#郭文贵  #立即释放郭文贵 #中共 #美国司法部 #联邦调查局
-
-<img src="https://media.gettr.com/group9/getter/2023/04/01/12/cbcaee28-ec77-7f19-d130-ccc37f876638/out.jpg" width="506" height="284">
 
 ---
 
