@@ -10,6 +10,18 @@
 
 ---
 
+[@milesguo 4/2/2023 2:39 AM UTC  - :tv:直播](/content/gettr/p2d8p2x2454.md)
+
+2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
+
+郭文贵x先生很早就提醒大家病毒的来临和疫苗的潜在伤害，如果我们听了他的警告，很多生命都不会失去
+
+MMr. Guo Wengui warned us all early on about the coming virus and the potential harm of vaccines, and if ...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/02/02/cae74050-349c-bfc7-58dd-c5c58b4a2e26/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/2/2023 2:27 AM UTC  - :tv:直播](/content/gettr/p2d8dm79f6e.md)
 
  3/31/2023 Nicole with Kevin Alan: During his detention, Mr. Miles Guo has not stopped working out and reading. He’s always been in good spirits and staying optimistic. Nothing can beat him!
@@ -17,6 +29,14 @@
 #freeMilesGuo #FreeYvetteWang #freeMile...
 
 <img src="https://media.gettr.com/group5/getter/2023/04/02/02/64151c1b-9b87-057b-a0f3-0c3837964fb4/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 2:28 AM UTC  - :tv:直播](/content/gettr/p2d8mbd11ec.md)
+
+3/31/2023 Nicole with Kevin Alan: Why does the CCP hate both Mr. Miles Guo and President Trump? It is simply because Mr. Guo fights for all the ordinary Chinese people, and President Trump took a tough stance against the CCP while ...
+
+<img src="https://media.gettr.com/group8/getter/2023/04/02/02/dc83c3bb-1554-01f0-91be-f0b82ac3eacd/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,14 +69,6 @@ If we want to get America back on track and the American and Chinese people free
 Both Miles Guo and President Trump lost a lot of wealth because they fought for...
 
 <img src="https://media.gettr.com/group5/getter/2023/04/01/22/abf02e22-8713-975b-219e-bb61cc9e0fb3/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 2:28 AM UTC  - :tv:直播](/content/gettr/p2d8mbd11ec.md)
-
-3/31/2023 Nicole with Kevin Alan: Why does the CCP hate both Mr. Miles Guo and President Trump? It is simply because Mr. Guo fights for all the ordinary Chinese people, and President Trump took a tough stance against the CCP while ...
-
-<img src="https://media.gettr.com/group8/getter/2023/04/02/02/dc83c3bb-1554-01f0-91be-f0b82ac3eacd/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +187,6 @@ If the U.S. government and the FBI took action after receiving the information s
 Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese people needs...
 
 <img src="https://media.gettr.com/group11/getter/2023/04/01/14/92d76316-629c-c79c-8d39-15cf0347d108/out.jpg" width="506" height="284">
-
----
-
-[@michaelyhon 4/1/2023 11:51 AM UTC  - :tv:直播](/content/gettr/p2d60or66d4.md)
-
-中共国家级贿赂一个说唱歌手  爆料 郭文贵 共产党 中共 政治 军事 经济 #shorts
-
-<img src="https://media.gettr.com/group10/getter/2023/04/01/11/75c28176-266b-bfb8-e2d1-098a43ff3c21/f0a77af01e41ba2b89cf2b88eee7998f.png" width="506" height="284">
 
 ---
 
