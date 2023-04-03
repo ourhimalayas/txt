@@ -10,6 +10,14 @@
 
 ---
 
+[@milesguo 4/3/2023 10:11 PM UTC  - :tv:直播](/content/gettr/p2ddve566ba.md)
+
+2023.04.03 NFSC Speaks Monday with Justine Brooke Murray  Who Is The Real Fraud?
+
+<img src="https://media.gettr.com/group5/origin/2023/04/03/21/5a463109-116c-a98d-5ac9-823b7718ce47/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 4/3/2023 7:17 PM UTC  - :tv:直播](/content/gettr/p2ddz1uc2ad.md)
 
 "When You Look Through The Charges For All Of His Online Businesses, They Basically All Come Down To The Allegation That Miles Guo Was Making False Statements. But, In Every Case, The SEC Comes In And Freezes The Assets Before The ...
@@ -23,6 +31,14 @@
 "I Posted On Twitter About Miles Guo's Case. I Received A Flood Of Messages From Investors — A Lot. But These Investors Were Not Angry With Miles Guo. They Were Telling Me He's Innocent, And They Were Begging For The U.S. Governmen...
 
 <img src="https://media.gettr.com/group12/getter/2023/04/03/19/6152d0bd-edab-0faa-3ac7-16063ea110a0/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 4/3/2023 8:29 PM UTC  - :tv:直播](/content/gettr/p2ddtaw91cc.md)
+
+"I Found This Next Part Shocking: In The New Press Release From The SEC In 2023, They Say, 'In A Related Matter, In September 2021, The SEC Charged GTV And Two Other Entities With Conducting An Illegal Unregistered Offering Of The ...
+
+<img src="https://media.gettr.com/group10/getter/2023/04/03/20/dbaba171-baab-99bc-3285-18d28322b388/out.jpg" width="506" height="284">
 
 ---
 
@@ -69,14 +85,6 @@ Please go follow @FinanceWolves and support his amazing work!
 #freeMilesGuo #FreeYvetteWang #...
 
 <img src="https://media.gettr.com/group5/getter/2023/04/03/03/70d4b20a-e1e6-deed-2f0f-43c6c6d3f0ae/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 4/3/2023 8:29 PM UTC  - :tv:直播](/content/gettr/p2ddtaw91cc.md)
-
-"I Found This Next Part Shocking: In The New Press Release From The SEC In 2023, They Say, 'In A Related Matter, In September 2021, The SEC Charged GTV And Two Other Entities With Conducting An Illegal Unregistered Offering Of The ...
-
-<img src="https://media.gettr.com/group10/getter/2023/04/03/20/dbaba171-baab-99bc-3285-18d28322b388/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Senior officials in China's financial system have been sacked one after another.
 03/30/2023 Nicole's interview with Ann Vandersteel: In 2017, when Miles Guo was about to drop the bombs on the CCP’s top government officials’ crimes against humanity, Voice of America abruptly cut off his live interview due to the...
 
 <img src="https://media.gettr.com/group7/getter/2023/04/02/13/a3b1f869-6556-f5f0-0753-616a36de561a/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 11:51 AM UTC  - :tv:直播](/content/gettr/p2d9k6gbd80.md)
-
-03/30/2023 Nicole's interview with Ann Vandersteel: Recently, the Chinese Communist Party has reportedly given large donations to prestigious universities such as Harvard and Yale. This is the problem, the CCP has controlled this c...
-
-<img src="https://media.gettr.com/group7/getter/2023/04/02/11/45880269-adb3-4eca-d69a-161aa81d66f1/out.jpg" width="506" height="284">
 
 ---
 
