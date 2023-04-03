@@ -2,14 +2,6 @@
 ---
 
 
-[@milesguo 4/2/2023 3:54 PM UTC  - :tv:直播](/content/gettr/p2da3ptc5e8.md)
-
-4/1/2023 Brother Changdao: Although the March 15 incident is the darkest moment for the Whistleblowers’ Movement, our fellow fighters’ firm support to Mr. Miles Guo and our perseverance in taking down the CCP have made our investor...
-
-<img src="https://media.gettr.com/group4/getter/2023/04/02/15/02fc5db7-c2d3-77f4-27bb-fe74fcf0ffa2/out.jpg" width="506" height="284">
-
----
-
 [@wentianxiaomei1 4/2/2023 3:48 PM UTC  - :tv:直播](/content/gettr/p2da20s2581.md)
 
 七哥的话一次又一次的被验证
@@ -19,6 +11,22 @@
 #freeyvettewang 
 
 <img src="https://media.gettr.com/group11/getter/2023/04/02/15/7ff52fd9-bd39-8334-beed-c3f60dc4158c/7549225aa7ab4d4d03851126c7c8a558.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/2/2023 3:54 PM UTC  - :tv:直播](/content/gettr/p2da3ptc5e8.md)
+
+4/1/2023 Brother Changdao: Although the March 15 incident is the darkest moment for the Whistleblowers’ Movement, our fellow fighters’ firm support to Mr. Miles Guo and our perseverance in taking down the CCP have made our investor...
+
+<img src="https://media.gettr.com/group4/getter/2023/04/02/15/02fc5db7-c2d3-77f4-27bb-fe74fcf0ffa2/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/3/2023 12:11 AM UTC  - :tv:直播](/content/gettr/p2db4b2e04c.md)
+
+4/1/2023 According to Miles Guo, "If the CCP is taken down, everywhere could be our holy land; if the CCP exists, everywhere could be our graveyard". We are fighting a life-or-death battle with the CCP and shouldn’t be bothered by ...
+
+<img src="https://media.gettr.com/group10/getter/2023/04/03/00/34b7bb81-d7c8-a478-aa61-e207a0ccf29a/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,18 +183,6 @@ If we want to get America back on track and the American and Chinese people free
 2023.04.01 Miles Guo Part2 GTV Fraud with no victims The SEC Took the Money
 
 <img src="https://media.gettr.com/group11/origin/2023/04/01/23/bd3aa5c2-d91d-cf7a-0d46-fc772cc2d9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 10:06 PM UTC  - :tv:直播](/content/gettr/p2d7lsh4857.md)
-
-2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
-
-郭文贵和川普总统都因为为自由而战为人民而战损失了大量的财富。美国两党要抛弃政治分歧联合消灭中国共产党才能拯救中国人民和美国人民，拯救美国这个国家。
-
-Both Miles Guo and President Trump lost a lot of wealth because they fought for...
-
-<img src="https://media.gettr.com/group5/getter/2023/04/01/22/abf02e22-8713-975b-219e-bb61cc9e0fb3/out.jpg" width="506" height="284">
 
 ---
 
