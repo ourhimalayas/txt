@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/3/2023 12:11 AM UTC  - :tv:直播](/content/gettr/p2db4b2e04c.md)
+
+4/1/2023 According to Miles Guo, "If the CCP is taken down, everywhere could be our holy land; if the CCP exists, everywhere could be our graveyard". We are fighting a life-or-death battle with the CCP and shouldn’t be bothered by ...
+
+<img src="https://media.gettr.com/group10/getter/2023/04/03/00/34b7bb81-d7c8-a478-aa61-e207a0ccf29a/out.jpg" width="506" height="284">
+
+---
+
 [@wentianxiaomei1 4/2/2023 3:48 PM UTC  - :tv:直播](/content/gettr/p2da20s2581.md)
 
 七哥的话一次又一次的被验证
@@ -22,11 +30,11 @@
 
 ---
 
-[@milesguo 4/3/2023 12:11 AM UTC  - :tv:直播](/content/gettr/p2db4b2e04c.md)
+[@milesguo 4/3/2023 12:28 AM UTC  - :tv:直播](/content/gettr/p2dbiba97d5.md)
 
-4/1/2023 According to Miles Guo, "If the CCP is taken down, everywhere could be our holy land; if the CCP exists, everywhere could be our graveyard". We are fighting a life-or-death battle with the CCP and shouldn’t be bothered by ...
+4/1/2023  It is Mr. Miles Guo’s bravery in facing over 70 lawsuits and the illegal detention that spares our fellow fighters from similar hardships. The 3∙15 incident has made more people better understand the CCP's infiltration of...
 
-<img src="https://media.gettr.com/group10/getter/2023/04/03/00/34b7bb81-d7c8-a478-aa61-e207a0ccf29a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/04/03/00/9a3deab1-7020-ec49-0a28-c009b00a957d/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,18 +191,6 @@ If we want to get America back on track and the American and Chinese people free
 2023.04.01 Miles Guo Part2 GTV Fraud with no victims The SEC Took the Money
 
 <img src="https://media.gettr.com/group11/origin/2023/04/01/23/bd3aa5c2-d91d-cf7a-0d46-fc772cc2d9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 10:12 PM UTC  - :tv:直播](/content/gettr/p2d7n5qc347.md)
-
-2023.04.01  #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
-
-新中国联邦是我们推翻中国共产党最大的盟友！
-
-The New Federal State of China is our greatest ally in taking down the Chinese Communist Party (CCP)
-
-<img src="https://media.gettr.com/group4/getter/2023/04/01/22/307fe4d5-734f-43f6-fe77-ba44c9a1beab/out.jpg" width="506" height="284">
 
 ---
 
