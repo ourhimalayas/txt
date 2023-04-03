@@ -2,6 +2,40 @@
 ---
 
 
+[@nsfcspeaksoffical 4/3/2023 6:47 PM UTC  - :tv:直播](/content/gettr/p2ddqcjc948.md)
+
+"Miles Guo Is Being Held In Prison In New York Without Bail. The Prosecutors Are Requesting That He Be Held In Prison And Not Let Out. This Is Very Strange. First, This Is Happening In New York, Where They're Letting Everyone Out O...
+
+<img src="https://media.gettr.com/group11/getter/2023/04/03/18/e21d06dc-94c0-3299-9d1f-7eb8b53ca397/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 4/3/2023 7:17 PM UTC  - :tv:直播](/content/gettr/p2ddz1uc2ad.md)
+
+"When You Look Through The Charges For All Of His Online Businesses, They Basically All Come Down To The Allegation That Miles Guo Was Making False Statements. But, In Every Case, The SEC Comes In And Freezes The Assets Before The ...
+
+<img src="https://media.gettr.com/group4/getter/2023/04/03/19/03643b56-fe12-49e1-a8c1-aa3833d341b9/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 4/3/2023 7:47 PM UTC  - :tv:直播](/content/gettr/p2ddcfgc91f.md)
+
+"I Posted On Twitter About Miles Guo's Case. I Received A Flood Of Messages From Investors — A Lot. But These Investors Were Not Angry With Miles Guo. They Were Telling Me He's Innocent, And They Were Begging For The U.S. Governmen...
+
+<img src="https://media.gettr.com/group12/getter/2023/04/03/19/6152d0bd-edab-0faa-3ac7-16063ea110a0/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/3/2023 5:04 PM UTC ](/content/gettr/p2ddc34ae2b.md)
+
+2023.04.03 
+
+From Chuck Callisto Twitter:
+
+BOMBSHELL REPORT: Chinese Billionaire Miles Guo warned America about CCP’s plan to use BIDEN’S JUSTICE SYSTEM to persecute Bannon and  indict Trump in order to stop Trump from the 2024 pre...
+
+---
+
 [@financewolves 4/3/2023 1:54 AM UTC ](/content/gettr/p2db8pw6c77.md)
 
 Is Miles Guo Innocent? - Please share this link! Big Tech is trying to censor this information https://www.youtube.com/watch?v=g6m8a3qikBI
@@ -38,13 +72,11 @@ Please go follow @FinanceWolves and support his amazing work!
 
 ---
 
-[@milesguo 4/3/2023 5:04 PM UTC ](/content/gettr/p2ddc34ae2b.md)
+[@nsfcspeaksoffical 4/3/2023 8:29 PM UTC  - :tv:直播](/content/gettr/p2ddtaw91cc.md)
 
-2023.04.03 
+"I Found This Next Part Shocking: In The New Press Release From The SEC In 2023, They Say, 'In A Related Matter, In September 2021, The SEC Charged GTV And Two Other Entities With Conducting An Illegal Unregistered Offering Of The ...
 
-From Chuck Callisto Twitter:
-
-BOMBSHELL REPORT: Chinese Billionaire Miles Guo warned America about CCP’s plan to use BIDEN’S JUSTICE SYSTEM to persecute Bannon and  indict Trump in order to stop Trump from the 2024 pre...
+<img src="https://media.gettr.com/group10/getter/2023/04/03/20/dbaba171-baab-99bc-3285-18d28322b388/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,46 +181,6 @@ Senior officials in China's financial system have been sacked one after another.
 03/30/2023 Nicole's interview with Ann Vandersteel: Recently, the Chinese Communist Party has reportedly given large donations to prestigious universities such as Harvard and Yale. This is the problem, the CCP has controlled this c...
 
 <img src="https://media.gettr.com/group7/getter/2023/04/02/11/45880269-adb3-4eca-d69a-161aa81d66f1/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 10:11 AM UTC  - :tv:直播](/content/gettr/p2d92e05591.md)
-
-03/30/2023 In the interview with Ann Vandersteel, Nicole reveals why the CCP, the Party of Davos, and the globalists want to target Miles Guo. Because over the past several decades, the CCP, Wall Street, and global elites got enric...
-
-<img src="https://media.gettr.com/group12/getter/2023/04/02/10/5cef3949-b8ac-6a99-dd47-59cbb994344f/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 5:12 AM UTC  - :tv:直播](/content/gettr/p2d8k119e99.md)
-
-3/31/2023 Nicole with Kevin Alan: GTV is one of many independent media outlets covering the "laptop from hell." So, there is nothing wrong for GTV to report on an event that has already been exposed by other media outlets and is un...
-
-<img src="https://media.gettr.com/group7/getter/2023/04/02/05/2acce8a9-2e33-23b9-18be-39898c5ec679/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 5:13 AM UTC  - :tv:直播](/content/gettr/p2d8ekl11ea.md)
-
-3/27/2023 郭文贵先生面对的不仅是中共，而且还有其它邪恶势力，他是全世界的英雄并备受尊重，大家不必担心郭先生的安全，我们还是该干什么干什么
-
-#郭文贵 #释放郭文贵 #立即释放郭文贵 #新中国联邦
-
-
-
-3/27/2023 Miles Guo is not only facing the CCP, but also other evil forces. He is the hero of the entire world and is highly ...
-
-<img src="https://media.gettr.com/group9/getter/2023/04/02/05/a9731892-826d-c2bb-648e-4d703744cddc/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 3:44 AM UTC  - :tv:直播](/content/gettr/p2d8cel1a21.md)
-
-3/31/2023 Nicole with Kevin Alan:  The New Federal Stale of China stays outside of American politics, and we want to work with all political parties to take down the CCP.
-
-#freeMilesGuo #FreeYvetteWang #freeMilesGuoNow #FreeYvetteW...
-
-<img src="https://media.gettr.com/group3/getter/2023/04/02/03/63dc3a8d-1a22-1745-89d2-f1173f6d6aa3/out.jpg" width="506" height="284">
 
 ---
 
