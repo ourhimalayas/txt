@@ -2,11 +2,23 @@
 ---
 
 
-[@milesguo 4/3/2023 12:28 AM UTC  - :tv:直播](/content/gettr/p2dbiba97d5.md)
+[@milesguo 4/3/2023 3:49 AM UTC  - :tv:直播](/content/gettr/p2dbvtpcc3e.md)
 
-4/1/2023  It is Mr. Miles Guo’s bravery in facing over 70 lawsuits and the illegal detention that spares our fellow fighters from similar hardships. The 3∙15 incident has made more people better understand the CCP's infiltration of...
+4/1/2023  Despite being detained, Mr. Miles Guo has never stopped working out or skipped a single day. This is why he can possess such a strong willpower and fighting spirit and maintain his energy.
 
-<img src="https://media.gettr.com/group5/getter/2023/04/03/00/9a3deab1-7020-ec49-0a28-c009b00a957d/out.jpg" width="506" height="284">
+#freeMilesGuo #FreeYvetteWang #...
+
+<img src="https://media.gettr.com/group5/getter/2023/04/03/03/70d4b20a-e1e6-deed-2f0f-43c6c6d3f0ae/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/3/2023 3:43 AM UTC  - :tv:直播](/content/gettr/p2dbdcf200a.md)
+
+4/1/2023 Nicole interview with Brother Changdao: What would the world be like without the New Federal State of China? Literally, we have woken up the Americans 5 years earlier 
+
+#freeMilesGuo #FreeYvetteWang #freeMilesGuoNow #FreeY...
+
+<img src="https://media.gettr.com/group7/getter/2023/04/03/03/00b68eed-3692-bd99-29f3-b099ef356461/out.jpg" width="506" height="284">
 
 ---
 
@@ -38,13 +50,11 @@
 
 ---
 
-[@milesguo 4/3/2023 3:43 AM UTC  - :tv:直播](/content/gettr/p2dbdcf200a.md)
+[@milesguo 4/3/2023 3:53 AM UTC  - :tv:直播](/content/gettr/p2dc0wlae32.md)
 
-4/1/2023 Nicole interview with Brother Changdao: What would the world be like without the New Federal State of China? Literally, we have woken up the Americans 5 years earlier 
+4/1/2023  It is Mr. Miles Guo’s bravery in facing over 70 lawsuits and the detention that spares our fellow fighters from similar hardships. The 3∙15 incident has made more people better understand the CCP's infiltration of the U.S...
 
-#freeMilesGuo #FreeYvetteWang #freeMilesGuoNow #FreeY...
-
-<img src="https://media.gettr.com/group7/getter/2023/04/03/03/00b68eed-3692-bd99-29f3-b099ef356461/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/04/03/03/d4c84e62-e2c0-55cb-470c-e2dee0ba1afd/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,18 +191,6 @@ MMr. Guo Wengui warned us all early on about the coming virus and the potential 
 3/31/2023 Nicole with Kevin Alan: Why does the CCP hate both Mr. Miles Guo and President Trump? It is simply because Mr. Guo fights for all the ordinary Chinese people, and President Trump took a tough stance against the CCP while ...
 
 <img src="https://media.gettr.com/group8/getter/2023/04/02/02/dc83c3bb-1554-01f0-91be-f0b82ac3eacd/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 12:14 AM UTC  - :tv:直播](/content/gettr/p2d8eaj3a9c.md)
-
-2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
-
-如果想要让美国重回正轨，让美国和中国人民重获自由，我们必须联合起来对付中国共产党 
-
-If we want to get America back on track and the American and Chinese people free again, we must unite against t...
-
-<img src="https://media.gettr.com/group3/getter/2023/04/02/00/da3b65c1-7b49-ac47-29b3-285239a2bea3/out.jpg" width="506" height="284">
 
 ---
 
