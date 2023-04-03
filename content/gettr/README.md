@@ -2,6 +2,12 @@
 ---
 
 
+[@financewolves 4/3/2023 1:54 AM UTC ](/content/gettr/p2db8pw6c77.md)
+
+Is Miles Guo Innocent? - Please share this link! Big Tech is trying to censor this information https://www.youtube.com/watch?v=g6m8a3qikBI
+
+---
+
 [@milesguo 4/3/2023 3:59 PM UTC ](/content/gettr/p2dctao083a.md)
 
 Please go follow @FinanceWolves and support his amazing work! 
@@ -32,9 +38,13 @@ Please go follow @FinanceWolves and support his amazing work!
 
 ---
 
-[@financewolves 4/3/2023 1:54 AM UTC ](/content/gettr/p2db8pw6c77.md)
+[@milesguo 4/3/2023 5:04 PM UTC ](/content/gettr/p2ddc34ae2b.md)
 
-Is Miles Guo Innocent? - Please share this link! Big Tech is trying to censor this information https://www.youtube.com/watch?v=g6m8a3qikBI
+2023.04.03 
+
+From Chuck Callisto Twitter:
+
+BOMBSHELL REPORT: Chinese Billionaire Miles Guo warned America about CCP’s plan to use BIDEN’S JUSTICE SYSTEM to persecute Bannon and  indict Trump in order to stop Trump from the 2024 pre...
 
 ---
 
@@ -179,18 +189,6 @@ Senior officials in China's financial system have been sacked one after another.
 #freeMilesGuo #FreeYvetteWang #freeMilesGuoNow #FreeYvetteW...
 
 <img src="https://media.gettr.com/group3/getter/2023/04/02/03/63dc3a8d-1a22-1745-89d2-f1173f6d6aa3/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 2:39 AM UTC  - :tv:直播](/content/gettr/p2d8p2x2454.md)
-
-2023.04.01 #freemilesguo #nfsc #mos #nfscspeaks #chrisrose #takedowntheccp 
-
-郭文贵x先生很早就提醒大家病毒的来临和疫苗的潜在伤害，如果我们听了他的警告，很多生命都不会失去
-
-MMr. Guo Wengui warned us all early on about the coming virus and the potential harm of vaccines, and if ...
-
-<img src="https://media.gettr.com/group3/getter/2023/04/02/02/cae74050-349c-bfc7-58dd-c5c58b4a2e26/out.jpg" width="506" height="284">
 
 ---
 
