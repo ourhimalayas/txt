@@ -2,11 +2,43 @@
 ---
 
 
+[@milesguo 4/3/2023 11:15 PM UTC  - :tv:直播](/content/gettr/p2de8ckdbe1.md)
+
+04/03/2023 In an interview on The John Fredericks Show, Nicole introduced the audience to the Chinese Communist Party's BGY scheme to infiltrate the U.S.: B stands for "blue," i.e., technology transfer, cyber attacks; G stands for ...
+
+<img src="https://media.gettr.com/group12/getter/2023/04/03/23/6ebb781c-519f-260d-50ee-179b8723f642/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/3/2023 11:17 PM UTC  - :tv:直播](/content/gettr/p2dejideaa1.md)
+
+04/03/2023 Nicole's interview on The John Fredericks Show: The Chinese Communist Party never intended to play fair with the United States, their ultimate goal is to take down and take over the United States. Whether the CCP has a g...
+
+<img src="https://media.gettr.com/group8/getter/2023/04/03/23/520a5fd3-8a31-3590-25bf-30e14b455f16/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/3/2023 11:10 PM UTC  - :tv:直播](/content/gettr/p2del752805.md)
 
 04/03/2023  #FreeMilesGuo #FreeYvetteWang Nicole in her interview with The John Frederick‘s Show: CCP’s plan to corrupt the US lawmakers does not differentiate the Republican Republican Party or the Democratic Party. For example, i...
 
 <img src="https://media.gettr.com/group7/getter/2023/04/03/23/4717b480-9655-8a7f-66d4-9c8bd18ff2cd/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/3/2023 11:23 PM UTC  - :tv:直播](/content/gettr/p2dek74787a.md)
+
+04/03/2023 #FreeMilesGuo #FreeYvetteWang Nicole in her interview with The John Frederick‘s Show: CCP’s plan to corrupt the US lawmakers does not differentiate the Republican Republican Party or the Democratic Party. For example, in...
+
+<img src="https://media.gettr.com/group10/getter/2023/04/03/23/0aaa550e-c8c3-a870-a061-70ec99fb3122/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/3/2023 11:13 PM UTC  - :tv:直播](/content/gettr/p2dduhgae03.md)
+
+ 04/03/2023 Trump's indictment is an outcome of the CCP’s plan to stop President Trump from its 2024 presidential bid. It shows that America's legal system has been weaponized by the CCP. The CCP has funded more than 70 lawsuits ag...
+
+<img src="https://media.gettr.com/group12/getter/2023/04/03/23/a1854df3-911e-ece7-dc5e-08d2faf477af/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +55,6 @@
 "Miles Guo Is Being Held In Prison In New York Without Bail. The Prosecutors Are Requesting That He Be Held In Prison And Not Let Out. This Is Very Strange. First, This Is Happening In New York, Where They're Letting Everyone Out O...
 
 <img src="https://media.gettr.com/group11/getter/2023/04/03/18/e21d06dc-94c0-3299-9d1f-7eb8b53ca397/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/3/2023 11:13 PM UTC  - :tv:直播](/content/gettr/p2dduhgae03.md)
-
- 04/03/2023 Trump's indictment is an outcome of the CCP’s plan to stop President Trump from its 2024 presidential bid. It shows that America's legal system has been weaponized by the CCP. The CCP has funded more than 70 lawsuits ag...
-
-<img src="https://media.gettr.com/group12/getter/2023/04/03/23/a1854df3-911e-ece7-dc5e-08d2faf477af/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,34 +163,6 @@ Please go follow @FinanceWolves and support his amazing work!
 #freeyvettewang 
 
 <img src="https://media.gettr.com/group11/getter/2023/04/02/15/7ff52fd9-bd39-8334-beed-c3f60dc4158c/7549225aa7ab4d4d03851126c7c8a558.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 3:54 PM UTC  - :tv:直播](/content/gettr/p2da3ptc5e8.md)
-
-4/1/2023 Brother Changdao: Although the March 15 incident is the darkest moment for the Whistleblowers’ Movement, our fellow fighters’ firm support to Mr. Miles Guo and our perseverance in taking down the CCP have made our investor...
-
-<img src="https://media.gettr.com/group4/getter/2023/04/02/15/02fc5db7-c2d3-77f4-27bb-fe74fcf0ffa2/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/2/2023 3:00 PM UTC  - :tv:直播](/content/gettr/p2da1jw3a68.md)
-
-全球战友等着七哥回来 Waiting for Miles to Come back ，第280场 《分享时刻》局中局黑中黑系列2 金融帮势力
-
-<img src="https://media.gettr.com/group12/origin/2023/04/01/15/0f087146-7a26-4c0d-b7bc-f27f997bf08b/3bad825ce339d07aef8e072b34233bdd.jpeg" width="506" height="284">
-
----
-
-[@reuben_i17 4/2/2023 3:50 PM UTC  - :tv:直播](/content/gettr/p2da1hle539.md)
-
-04/02/2023 The decline of freedom in the United States: An ordinary American podcaster interpreted and commented on the case of Mr. Miles Guo’s forcibly taken away by the US Department of Justice!  
-
-
-
-#freeMilesGuo #FreeYvetteWang...
-
-<img src="https://media.gettr.com/group9/getter/2023/04/02/15/05db2bf0-5cde-f0c7-53ef-1d4584bc5361/out.jpg" width="506" height="284">
 
 ---
 
