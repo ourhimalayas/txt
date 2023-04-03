@@ -2,11 +2,11 @@
 ---
 
 
-[@nsfcspeaksoffical 4/3/2023 6:47 PM UTC  - :tv:直播](/content/gettr/p2ddqcjc948.md)
+[@milesguo 4/3/2023 11:10 PM UTC  - :tv:直播](/content/gettr/p2del752805.md)
 
-"Miles Guo Is Being Held In Prison In New York Without Bail. The Prosecutors Are Requesting That He Be Held In Prison And Not Let Out. This Is Very Strange. First, This Is Happening In New York, Where They're Letting Everyone Out O...
+04/03/2023  #FreeMilesGuo #FreeYvetteWang Nicole in her interview with The John Frederick‘s Show: CCP’s plan to corrupt the US lawmakers does not differentiate the Republican Republican Party or the Democratic Party. For example, i...
 
-<img src="https://media.gettr.com/group11/getter/2023/04/03/18/e21d06dc-94c0-3299-9d1f-7eb8b53ca397/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/04/03/23/4717b480-9655-8a7f-66d4-9c8bd18ff2cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 2023.04.03 NFSC Speaks Monday with Justine Brooke Murray  Who Is The Real Fraud?
 
 <img src="https://media.gettr.com/group5/origin/2023/04/03/21/5a463109-116c-a98d-5ac9-823b7718ce47/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 4/3/2023 6:47 PM UTC  - :tv:直播](/content/gettr/p2ddqcjc948.md)
+
+"Miles Guo Is Being Held In Prison In New York Without Bail. The Prosecutors Are Requesting That He Be Held In Prison And Not Let Out. This Is Very Strange. First, This Is Happening In New York, Where They're Letting Everyone Out O...
+
+<img src="https://media.gettr.com/group11/getter/2023/04/03/18/e21d06dc-94c0-3299-9d1f-7eb8b53ca397/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/3/2023 11:13 PM UTC  - :tv:直播](/content/gettr/p2dduhgae03.md)
+
+ 04/03/2023 Trump's indictment is an outcome of the CCP’s plan to stop President Trump from its 2024 presidential bid. It shows that America's legal system has been weaponized by the CCP. The CCP has funded more than 70 lawsuits ag...
+
+<img src="https://media.gettr.com/group12/getter/2023/04/03/23/a1854df3-911e-ece7-dc5e-08d2faf477af/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,26 +177,6 @@ Please go follow @FinanceWolves and support his amazing work!
 The Ukrainian Rescue Team of the New Federal State of China organized a special rescue operation at the request of a children's charity in Barcelona, Spain, an...
 
 <img src="https://media.gettr.com/group5/getter/2023/04/02/15/3cb13488-7c0f-0498-9b2c-c2ef9d1da1a5/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 3:02 PM UTC  - :tv:直播](/content/gettr/p2d9cob7bf8.md)
-
-2023.04.02 2023.04.01 #freemilesguo #nfsc #mos #takedowntheccp 
-
-中共国金融系统高官纷纷落马 中国人的财富需要诺亚方舟，就是喜联储。香草山国际货币中心是通往财富的诺亚方舟的通道。
-
-Senior officials in China's financial system have been sacked one after another. The wealth of the Chinese p...
-
-<img src="https://media.gettr.com/group7/getter/2023/04/02/15/4be3387a-d67d-08c7-fe61-61c2ad4648ac/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 1:18 PM UTC  - :tv:直播](/content/gettr/p2d9nw62fef.md)
-
-03/30/2023 Nicole's interview with Ann Vandersteel: In 2017, when Miles Guo was about to drop the bombs on the CCP’s top government officials’ crimes against humanity, Voice of America abruptly cut off his live interview due to the...
-
-<img src="https://media.gettr.com/group7/getter/2023/04/02/13/a3b1f869-6556-f5f0-0753-616a36de561a/out.jpg" width="506" height="284">
 
 ---
 
