@@ -2,6 +2,18 @@
 ---
 
 
+[@milesguo 4/3/2023 3:59 PM UTC ](/content/gettr/p2dctao083a.md)
+
+Please go follow @FinanceWolves and support his amazing work! 
+
+#FreeMilesGuo
+
+
+
+“I hope they let him [Miles Guo] out on bail, but in my opinion, I think the judge should throw out this case for prosecutorial misconduct and malicio...
+
+---
+
 [@milesguo 4/3/2023 2:01 PM UTC  - :tv:直播](/content/gettr/p2dd3sodb1b.md)
 
 2023.04.03 Is Miles Guo Innocent?
@@ -20,15 +32,9 @@
 
 ---
 
-[@milesguo 4/3/2023 3:59 PM UTC ](/content/gettr/p2dctao083a.md)
+[@financewolves 4/3/2023 1:54 AM UTC ](/content/gettr/p2db8pw6c77.md)
 
-Please go follow @FinanceWolves and support his amazing work! 
-
-#FreeMilesGuo
-
-
-
-“I hope they let him [Miles Guo] out on bail, but in my opinion, I think the judge should throw out this case for prosecutorial misconduct and malicio...
+Is Miles Guo Innocent? - Please share this link! Big Tech is trying to censor this information https://www.youtube.com/watch?v=g6m8a3qikBI
 
 ---
 
@@ -185,14 +191,6 @@ Senior officials in China's financial system have been sacked one after another.
 MMr. Guo Wengui warned us all early on about the coming virus and the potential harm of vaccines, and if ...
 
 <img src="https://media.gettr.com/group3/getter/2023/04/02/02/cae74050-349c-bfc7-58dd-c5c58b4a2e26/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 2:28 AM UTC  - :tv:直播](/content/gettr/p2d8mbd11ec.md)
-
-3/31/2023 Nicole with Kevin Alan: Why does the CCP hate both Mr. Miles Guo and President Trump? It is simply because Mr. Guo fights for all the ordinary Chinese people, and President Trump took a tough stance against the CCP while ...
-
-<img src="https://media.gettr.com/group8/getter/2023/04/02/02/dc83c3bb-1554-01f0-91be-f0b82ac3eacd/out.jpg" width="506" height="284">
 
 ---
 
