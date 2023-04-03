@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/3/2023 2:01 PM UTC  - :tv:直播](/content/gettr/p2dd3sodb1b.md)
+
+2023.04.03 Is Miles Guo Innocent?
+
+<img src="https://media.gettr.com/group10/origin/2023/04/03/13/3c309335-9fe1-753b-28f7-b799083143da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 4/3/2023 3:49 AM UTC  - :tv:直播](/content/gettr/p2dbvtpcc3e.md)
 
 4/1/2023  Despite being detained, Mr. Miles Guo has never stopped working out or skipped a single day. This is why he can possess such a strong willpower and fighting spirit and maintain his energy.
@@ -12,11 +20,15 @@
 
 ---
 
-[@milesguo 4/3/2023 2:01 PM UTC  - :tv:直播](/content/gettr/p2dd3sodb1b.md)
+[@milesguo 4/3/2023 3:59 PM UTC ](/content/gettr/p2dctao083a.md)
 
-2023.04.03 Is Miles Guo Innocent?
+Please go follow @FinanceWolves and support his amazing work! 
 
-<img src="https://media.gettr.com/group10/origin/2023/04/03/13/3c309335-9fe1-753b-28f7-b799083143da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#FreeMilesGuo
+
+
+
+“I hope they let him [Miles Guo] out on bail, but in my opinion, I think the judge should throw out this case for prosecutorial misconduct and malicio...
 
 ---
 
@@ -173,16 +185,6 @@ Senior officials in China's financial system have been sacked one after another.
 MMr. Guo Wengui warned us all early on about the coming virus and the potential harm of vaccines, and if ...
 
 <img src="https://media.gettr.com/group3/getter/2023/04/02/02/cae74050-349c-bfc7-58dd-c5c58b4a2e26/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 2:27 AM UTC  - :tv:直播](/content/gettr/p2d8dm79f6e.md)
-
- 3/31/2023 Nicole with Kevin Alan: During his detention, Mr. Miles Guo has not stopped working out and reading. He’s always been in good spirits and staying optimistic. Nothing can beat him!
-
-#freeMilesGuo #FreeYvetteWang #freeMile...
-
-<img src="https://media.gettr.com/group5/getter/2023/04/02/02/64151c1b-9b87-057b-a0f3-0c3837964fb4/out.jpg" width="506" height="284">
 
 ---
 
