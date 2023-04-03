@@ -2,6 +2,14 @@
 ---
 
 
+[@milesguo 4/3/2023 12:28 AM UTC  - :tv:直播](/content/gettr/p2dbiba97d5.md)
+
+4/1/2023  It is Mr. Miles Guo’s bravery in facing over 70 lawsuits and the illegal detention that spares our fellow fighters from similar hardships. The 3∙15 incident has made more people better understand the CCP's infiltration of...
+
+<img src="https://media.gettr.com/group5/getter/2023/04/03/00/9a3deab1-7020-ec49-0a28-c009b00a957d/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/3/2023 12:11 AM UTC  - :tv:直播](/content/gettr/p2db4b2e04c.md)
 
 4/1/2023 According to Miles Guo, "If the CCP is taken down, everywhere could be our holy land; if the CCP exists, everywhere could be our graveyard". We are fighting a life-or-death battle with the CCP and shouldn’t be bothered by ...
@@ -30,11 +38,13 @@
 
 ---
 
-[@milesguo 4/3/2023 12:28 AM UTC  - :tv:直播](/content/gettr/p2dbiba97d5.md)
+[@milesguo 4/3/2023 3:43 AM UTC  - :tv:直播](/content/gettr/p2dbdcf200a.md)
 
-4/1/2023  It is Mr. Miles Guo’s bravery in facing over 70 lawsuits and the illegal detention that spares our fellow fighters from similar hardships. The 3∙15 incident has made more people better understand the CCP's infiltration of...
+4/1/2023 Nicole interview with Brother Changdao: What would the world be like without the New Federal State of China? Literally, we have woken up the Americans 5 years earlier 
 
-<img src="https://media.gettr.com/group5/getter/2023/04/03/00/9a3deab1-7020-ec49-0a28-c009b00a957d/out.jpg" width="506" height="284">
+#freeMilesGuo #FreeYvetteWang #freeMilesGuoNow #FreeY...
+
+<img src="https://media.gettr.com/group7/getter/2023/04/03/03/00b68eed-3692-bd99-29f3-b099ef356461/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ MMr. Guo Wengui warned us all early on about the coming virus and the potential 
 If we want to get America back on track and the American and Chinese people free again, we must unite against t...
 
 <img src="https://media.gettr.com/group3/getter/2023/04/02/00/da3b65c1-7b49-ac47-29b3-285239a2bea3/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/1/2023 11:08 PM UTC  - :tv:直播](/content/gettr/p2d8c1f640c.md)
-
-2023.04.01 Miles Guo Part2 GTV Fraud with no victims The SEC Took the Money
-
-<img src="https://media.gettr.com/group11/origin/2023/04/01/23/bd3aa5c2-d91d-cf7a-0d46-fc772cc2d9d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
