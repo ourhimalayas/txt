@@ -12,6 +12,22 @@
 
 ---
 
+[@milesguo 4/3/2023 2:01 PM UTC  - :tv:直播](/content/gettr/p2dd3sodb1b.md)
+
+2023.04.03 Is Miles Guo Innocent?
+
+<img src="https://media.gettr.com/group10/origin/2023/04/03/13/3c309335-9fe1-753b-28f7-b799083143da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 4/3/2023 3:53 AM UTC  - :tv:直播](/content/gettr/p2dc0wlae32.md)
+
+4/1/2023  It is Mr. Miles Guo’s bravery in facing over 70 lawsuits and the detention that spares our fellow fighters from similar hardships. The 3∙15 incident has made more people better understand the CCP's infiltration of the U.S...
+
+<img src="https://media.gettr.com/group6/getter/2023/04/03/03/d4c84e62-e2c0-55cb-470c-e2dee0ba1afd/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/3/2023 3:43 AM UTC  - :tv:直播](/content/gettr/p2dbdcf200a.md)
 
 4/1/2023 Nicole interview with Brother Changdao: What would the world be like without the New Federal State of China? Literally, we have woken up the Americans 5 years earlier 
@@ -47,14 +63,6 @@
 4/1/2023 Brother Changdao: Although the March 15 incident is the darkest moment for the Whistleblowers’ Movement, our fellow fighters’ firm support to Mr. Miles Guo and our perseverance in taking down the CCP have made our investor...
 
 <img src="https://media.gettr.com/group4/getter/2023/04/02/15/02fc5db7-c2d3-77f4-27bb-fe74fcf0ffa2/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/3/2023 3:53 AM UTC  - :tv:直播](/content/gettr/p2dc0wlae32.md)
-
-4/1/2023  It is Mr. Miles Guo’s bravery in facing over 70 lawsuits and the detention that spares our fellow fighters from similar hardships. The 3∙15 incident has made more people better understand the CCP's infiltration of the U.S...
-
-<img src="https://media.gettr.com/group6/getter/2023/04/03/03/d4c84e62-e2c0-55cb-470c-e2dee0ba1afd/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Senior officials in China's financial system have been sacked one after another.
 MMr. Guo Wengui warned us all early on about the coming virus and the potential harm of vaccines, and if ...
 
 <img src="https://media.gettr.com/group3/getter/2023/04/02/02/cae74050-349c-bfc7-58dd-c5c58b4a2e26/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/2/2023 2:27 AM UTC  - :tv:直播](/content/gettr/p2d8rbga7ba.md)
-
-3/31/2023 Nicole with Kevin Alan: GTV was an independent platform for us to speak out freely. We are not critical of any American political party, and our only target is the CCP. However, we are still silenced in the U.S., and GTV ...
-
-<img src="https://media.gettr.com/group4/getter/2023/04/02/02/326d1d63-4da7-d51d-bd94-c0f12fe60ef4/out.jpg" width="506" height="284">
 
 ---
 
