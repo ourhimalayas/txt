@@ -10,19 +10,23 @@
 
 ---
 
+[@milesguo 4/4/2023 3:31 AM UTC  - :tv:直播](/content/gettr/p2deipke48e.md)
+
+2023.04.03 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
+
+新中国联邦在4月8日至9日组织了 "释放郭文贵 "的集会活动。
+
+The NFSC is organizing a "Free Miles Guo" rally on Apr 8 to 9.
+
+<img src="https://media.gettr.com/group5/getter/2023/04/04/03/009f6f7e-b50c-064d-62e2-aee199584b90/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/4/2023 1:13 AM UTC  - :tv:直播](/content/gettr/p2dej2i8122.md)
 
 04/03/2023 The CCP has funded more than 70 lawsuits against Mr. Miles Guo in the US. The CCP enriched and compromised U.S. law practitioners with the BGY plan. If we do not find these people out, they will weaponize the U.S. legal ...
 
 <img src="https://media.gettr.com/group6/getter/2023/04/04/01/7d2af3db-9a50-b44f-6b6c-d006d2741a02/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/2/2023 3:00 PM UTC  - :tv:直播](/content/gettr/p2da1jw3a68.md)
-
-全球战友等着七哥回来 Waiting for Miles to Come back ，第280场 《分享时刻》局中局黑中黑系列2 金融帮势力
-
-<img src="https://media.gettr.com/group12/origin/2023/04/01/15/0f087146-7a26-4c0d-b7bc-f27f997bf08b/3bad825ce339d07aef8e072b34233bdd.jpeg" width="506" height="284">
 
 ---
 
