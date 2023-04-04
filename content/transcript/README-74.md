@@ -3,6 +3,8 @@
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月29日第二次直播 20190729_2香港发生了什么情况 中共在以日计的步伐奔向灭亡](/content/transcript/2019/07/20190729-53482904.md)
+
 [2019年7月28号文贵报平安全文字版](/content/transcript/2019/07/20190728-53740505.md)
 
 [郭文贵2019年7月28日视频 20190728_1双面间谍．文贵，在＂床＂上报平安！](/content/transcript/2019/07/20190728-53478848.md)
@@ -50,8 +52,6 @@
 [2019年7月23日直播全文字版](/content/transcript/2019/07/20190723-53672891.md)
 
 [2019年7月23日文贵大直播全文字版：李鹏为什么一见人就问89年当时你在哪？](/content/transcript/2019/07/20190723-53684192.md)
-
-[郭文贵2019年7月23日第一次直播 20190723_1李鹏89年在哪里Why did Li Peng always ask whoever he met "Back in 1989, where were you when it ...](/content/transcript/2019/07/20190723-53482868.md)
 
 
 ## 頁面 74/110 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)

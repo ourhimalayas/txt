@@ -3,6 +3,8 @@
 
 ## 頁面 75/110 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月23日第一次直播 20190723_1李鹏89年在哪里Why did Li Peng always ask whoever he met "Back in 1989, where were you when it ...](/content/transcript/2019/07/20190723-53482868.md)
+
 [郭文贵2019年7月23日第二次直播 20190723_2尊敬的战友们好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！](/content/transcript/2019/07/20190723-53482853.md)
 
 [郭文贵2019年7月23日直播 20190723_3黑客后第二段高清版](/content/transcript/2019/07/20190723-53478078.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年7月10日视频 20190710尊敬的战友们好．不要计较任何的名．利．不要评价香港的抗议运动的阶段性的得失……我们只有一个目标．灭共．其他都不重要，一切都是刚刚开始](/content/transcript/2019/07/20190710-53482895.md)
 
 [2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-53576475.md)
-
-[郭文贵2019年7月9日视频 20190709香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-53482880.md)
 
 
 ## 頁面 75/110 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)

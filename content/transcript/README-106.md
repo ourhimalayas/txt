@@ -3,6 +3,8 @@
 
 ## 頁面 106/110 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技](/content/transcript/2017/08/20170827-53483544.md)
+
 [郭文贵2017年8月27日直播 20170827_1](/content/transcript/2017/08/20170827-53482786.md)
 
 [郭文贵2017年8月26日视频 20170826老兵通过新加坡发来视频 翻墙软件偷信息 美政府对海航的关注达到我们的目的](/content/transcript/2017/08/20170826-53483541.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！](/content/transcript/2017/08/20170807-53483893.md)
 
 [郭文贵2017年8月7日直播 20170807_2马英九是...](/content/transcript/2017/08/20170807-53483510.md)
-
-[郭文贵2017年8月6日直播 20170806党内已怨声载道，北戴河会议群魔乱咬.](/content/transcript/2017/08/20170806-53483511.md)
 
 
 ## 頁面 106/110 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)

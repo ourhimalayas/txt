@@ -3,6 +3,8 @@
 
 ## 頁面 110/110 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月4日视频 20170504_2秦伟平专访郭文贵（弹幕版）](/content/transcript/2017/05/20170504-53483769.md)
+
 [郭文贵2017年5月4日视频 20170504_1](/content/transcript/2017/05/20170504-53483749.md)
 
 [郭文贵2017年5月3日视频 20170503_1](/content/transcript/2017/05/20170503-53483733.md)

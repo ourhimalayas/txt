@@ -3,6 +3,8 @@
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月28日视频 20181028_2 法國政府對王健之死案的判決](/content/transcript/2018/10/20181028-53478346.md)
+
 [郭文贵2018年10月27日视频 20181027_1基金经理Kyle Bass网站被共匪攻击；王健发布会场地被共匪骚扰（提出用N倍价钱来取消发布会）](/content/transcript/2018/10/20181027-53478344.md)
 
 [郭文贵2018年10月26日视频 20181026你们健身了吗！一切都是刚开始！谈港币和人⺠币 的汇率](/content/transcript/2018/10/20181026-53479089.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年10月15日视频 20181015_1孟宏偉事件之後 好多人開始被抓](/content/transcript/2018/10/20181015-53478362.md)
 
 [郭文贵2018年10月14日视频 20181014_2](/content/transcript/2018/10/20181014-53478360.md)
-
-[郭文贵2018年10月14日视频 20181014_1](/content/transcript/2018/10/20181014-53478356.md)
 
 
 ## 頁面 88/110 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)

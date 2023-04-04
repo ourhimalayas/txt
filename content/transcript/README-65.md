@@ -11,6 +11,8 @@
 
 [郭文贵2019年11月3日第一次直播 20191103_1在山上小憩时与战友们闲聊](/content/transcript/2019/11/20191103-53483333.md)
 
+[2019年11月2日文贵大直播全文字版：感谢在中央公园相遇的战友那些暖心的话，感谢那些来自香港的战友们那些感动人的话，只有灭共才能让我们更加的安全和幸福，我们有共同的目标……我们有上天赋予的使命](/content/transcript/2019/11/20191102-53939201.md)
+
 [郭文贵2019年11月2日第一次直播 20191102_1在中央公园与战友分享美景](/content/transcript/2019/11/20191102-53483407.md)
 
 [郭文贵2019年11月2日第二次直播 20191102_2文贵讲成功，胜利和信仰：中国现在像灭亡前的大清朝 谈共产党即将倒台的三大因素](/content/transcript/2019/11/20191102-53483401.md)
@@ -45,13 +47,11 @@
 
 [2019年10月27日文贵大直播全文字版：与战友闲聊](/content/transcript/2019/10/20191027-53925834.md)
 
-[2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-53919845.md)
-
 [2019年10月26日 文贵和战友谈北京局势和四中全会 全文字版](/content/transcript/2019/10/20191026-53924902.md)
 
-[郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中](/content/transcript/2019/10/20191026-53483262.md)
+[2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-53919845.md)
 
-[郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-53479093.md)
+[郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中](/content/transcript/2019/10/20191026-53483262.md)
 
 
 ## 頁面 65/110 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)

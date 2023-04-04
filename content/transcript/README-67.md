@@ -3,6 +3,8 @@
 
 ## 頁面 67/110 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月15日视频 20191015_2香港人權民主法案在美國眾議院已經通過的意義和給我們的啟迪！可敬可爱的香港人，用行动证明给我们．口炮．恐惧都是死路一条．只有抗争才能得到自己想要的！](/content/transcript/2019/10/20191015-53479067.md)
+
 [2019年10月14日 郭文贵先生游艇机舱报平安直播 全文字版](/content/transcript/2019/10/20191014-53903412.md)
 
 [郭文贵2019年10月14日视频 20191014游艇机舱报平安直播45分钟版](/content/transcript/2019/10/20191014-53483666.md)
@@ -50,8 +52,6 @@
 [2019年10月7日文贵大直播全文字版：谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/transcript/2019/10/20191007-53901441.md)
 
 [郭文贵2019年10月7日 20191007谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/transcript/2019/10/20191007-53483676.md)
-
-[](/content/transcript/2019/10/20191006-53899554.md)
 
 
 ## 頁面 67/110 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)

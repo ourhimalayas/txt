@@ -3,6 +3,8 @@
 
 ## 頁面 79/110 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月1日视频 20190601_2两狗相遇勇者胜，snow与笨笨的抢食之战，输赢不在大小](/content/transcript/2019/06/20190601-53478678.md)
+
 [郭文贵2019年5月31日视频 20190531 林郑月娥触动中共最敏感神经 Carrie Lam put CCP on alert! 10000s banned on Twitter! Save all proofs of the ban!](/content/transcript/2019/05/20190531-53482488.md)
 
 [郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天](/content/transcript/2019/05/20190530-53478676.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来](/content/transcript/2019/05/20190511-53482568.md)
 
 [郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow](/content/transcript/2019/05/20190511-53478706.md)
-
-[郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people](/content/transcript/2019/05/20190510-53482540.md)
 
 
 ## 頁面 79/110 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)

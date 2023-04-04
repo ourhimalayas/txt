@@ -3,6 +3,8 @@
 
 ## 頁面 109/110 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月24日 20170524呼吁推友不要冲动](/content/transcript/2017/05/20170524-53483816.md)
+
 [郭文贵2017年5月23日视频 20170523](/content/transcript/2017/05/20170523-53483802.md)
 
 [郭文贵2017年5月22日直播 20170522_1回覆潘石屹](/content/transcript/2017/05/20170522-53483799.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年5月6日视频 20170506](/content/transcript/2017/05/20170506-53483774.md)
 
 [郭文贵2017年5月5日视频 20170505](/content/transcript/2017/05/20170505-53483763.md)
-
-[郭文贵2017年5月4日视频 20170504_2秦伟平专访郭文贵（弹幕版）](/content/transcript/2017/05/20170504-53483769.md)
 
 
 ## 頁面 109/110 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
