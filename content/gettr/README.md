@@ -2,11 +2,35 @@
 ---
 
 
+[@milesguo 4/4/2023 1:13 AM UTC  - :tv:直播](/content/gettr/p2defwnc432.md)
+
+04/03/2023 #FreeMilesGuo #FreeYvetteWang Nicole in her interview with The John Frederick‘s Show: CCP’s plan to corrupt the US lawmakers does not differentiate the Republican Republican Party or the Democratic Party. For example, in...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/04/01/97a39d57-f72c-a859-915b-570681ad8ed6/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/4/2023 1:13 AM UTC  - :tv:直播](/content/gettr/p2dej2i8122.md)
+
+04/03/2023 The CCP has funded more than 70 lawsuits against Mr. Miles Guo in the US. The CCP enriched and compromised U.S. law practitioners with the BGY plan. If we do not find these people out, they will weaponize the U.S. legal ...
+
+<img src="https://media.gettr.com/group6/getter/2023/04/04/01/7d2af3db-9a50-b44f-6b6c-d006d2741a02/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/2/2023 3:00 PM UTC  - :tv:直播](/content/gettr/p2da1jw3a68.md)
 
 全球战友等着七哥回来 Waiting for Miles to Come back ，第280场 《分享时刻》局中局黑中黑系列2 金融帮势力
 
 <img src="https://media.gettr.com/group12/origin/2023/04/01/15/0f087146-7a26-4c0d-b7bc-f27f997bf08b/3bad825ce339d07aef8e072b34233bdd.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 4/4/2023 1:14 AM UTC  - :tv:直播](/content/gettr/p2dem5n50b2.md)
+
+04/03/2023 In an interview on The John Fredericks Show, Nicole introduced the audience to the Chinese Communist Party's BGY scheme to infiltrate the U.S.: B stands for "blue," i.e., technology transfer, cyber attacks; G stands for ...
+
+<img src="https://media.gettr.com/group8/getter/2023/04/04/01/2121b32a-68c4-a9e5-076b-42d85c1c64ee/out.jpg" width="506" height="284">
 
 ---
 
@@ -19,30 +43,6 @@
 #freeMilesGuo #FreeYvetteWang...
 
 <img src="https://media.gettr.com/group9/getter/2023/04/02/15/05db2bf0-5cde-f0c7-53ef-1d4584bc5361/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/3/2023 11:15 PM UTC  - :tv:直播](/content/gettr/p2de8ckdbe1.md)
-
-04/03/2023 In an interview on The John Fredericks Show, Nicole introduced the audience to the Chinese Communist Party's BGY scheme to infiltrate the U.S.: B stands for "blue," i.e., technology transfer, cyber attacks; G stands for ...
-
-<img src="https://media.gettr.com/group12/getter/2023/04/03/23/6ebb781c-519f-260d-50ee-179b8723f642/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/3/2023 11:50 PM UTC  - :tv:直播](/content/gettr/p2desljc779.md)
-
-04/03/2023 The CCP has funded more than 70 lawsuits against Mr. Miles Guo in the US. The CCP enriched and compromised U.S. law practitioners with the BGY plan. If we do not find these people out, they will weaponize the U.S. legal ...
-
-<img src="https://media.gettr.com/group9/getter/2023/04/03/23/b0ef4592-6605-337c-6313-65e487111b7c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/3/2023 11:23 PM UTC  - :tv:直播](/content/gettr/p2dek74787a.md)
-
-04/03/2023 #FreeMilesGuo #FreeYvetteWang Nicole in her interview with The John Frederick‘s Show: CCP’s plan to corrupt the US lawmakers does not differentiate the Republican Republican Party or the Democratic Party. For example, in...
-
-<img src="https://media.gettr.com/group10/getter/2023/04/03/23/0aaa550e-c8c3-a870-a061-70ec99fb3122/out.jpg" width="506" height="284">
 
 ---
 
