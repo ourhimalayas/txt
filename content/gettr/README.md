@@ -2,6 +2,18 @@
 ---
 
 
+[@milesguo 4/4/2023 4:51 AM UTC  - :tv:直播](/content/gettr/p2deqkzed5d.md)
+
+2023.04.04 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
+
+中共对司法部和联邦调查局的武器化是真实的，大卫-尼诺相信越来越多的人将加入举报人运动。这是现在的趋势。
+
+The CCP's weaponization of the DOJ and FBI is real, David Nino believes more and more people will join the Whis...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/04/04/49fc43eb-c7be-e25d-59cf-6d0cd5f58d3e/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/4/2023 4:38 AM UTC  - :tv:直播](/content/gettr/p2dfdtn4a60.md)
 
 2023.04.03 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
@@ -34,15 +46,13 @@ The NFSC is organizing a "Free Miles Guo" rally on Apr 8 to 9.
 
 ---
 
-[@milesguo 4/4/2023 4:51 AM UTC  - :tv:直播](/content/gettr/p2deqkzed5d.md)
+[@milesguo 4/4/2023 5:15 AM UTC  - :tv:直播](/content/gettr/p2dewo658ab.md)
 
 2023.04.04 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
 
-中共对司法部和联邦调查局的武器化是真实的，大卫-尼诺相信越来越多的人将加入举报人运动。这是现在的趋势。
+法官不予郭文贵保释，声称有逃离风险。文贵这个中共头号敌人还能跑回中共吗 Judge denies Guo Wengui bail, claims flight risk. Can Wengui, the CCP's number one enemy, still run back to the CCP
 
-The CCP's weaponization of the DOJ and FBI is real, David Nino believes more and more people will join the Whis...
-
-<img src="https://media.gettr.com/group3/getter/2023/04/04/04/49fc43eb-c7be-e25d-59cf-6d0cd5f58d3e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/04/04/05/4e07d914-6a5b-c37d-a45d-e55ce9742521/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,18 +181,6 @@ Please go follow @FinanceWolves and support his amazing work!
 4/1/2023 According to Miles Guo, "If the CCP is taken down, everywhere could be our holy land; if the CCP exists, everywhere could be our graveyard". We are fighting a life-or-death battle with the CCP and shouldn’t be bothered by ...
 
 <img src="https://media.gettr.com/group10/getter/2023/04/03/00/34b7bb81-d7c8-a478-aa61-e207a0ccf29a/out.jpg" width="506" height="284">
-
----
-
-[@wentianxiaomei1 4/2/2023 3:48 PM UTC  - :tv:直播](/content/gettr/p2da20s2581.md)
-
-七哥的话一次又一次的被验证
-
-#freemilesguonow 
-
-#freeyvettewang 
-
-<img src="https://media.gettr.com/group11/getter/2023/04/02/15/7ff52fd9-bd39-8334-beed-c3f60dc4158c/7549225aa7ab4d4d03851126c7c8a558.jpg" width="506" height="284">
 
 ---
 
