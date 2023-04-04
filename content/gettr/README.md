@@ -2,14 +2,6 @@
 ---
 
 
-[@milesguo 4/4/2023 1:13 AM UTC  - :tv:直播](/content/gettr/p2defwnc432.md)
-
-04/03/2023 #FreeMilesGuo #FreeYvetteWang Nicole in her interview with The John Frederick‘s Show: CCP’s plan to corrupt the US lawmakers does not differentiate the Republican Republican Party or the Democratic Party. For example, in...
-
-<img src="https://media.gettr.com/group3/getter/2023/04/04/01/97a39d57-f72c-a859-915b-570681ad8ed6/out.jpg" width="506" height="284">
-
----
-
 [@milesguo 4/4/2023 3:31 AM UTC  - :tv:直播](/content/gettr/p2deipke48e.md)
 
 2023.04.03 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
@@ -19,6 +11,26 @@
 The NFSC is organizing a "Free Miles Guo" rally on Apr 8 to 9.
 
 <img src="https://media.gettr.com/group5/getter/2023/04/04/03/009f6f7e-b50c-064d-62e2-aee199584b90/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/4/2023 1:13 AM UTC  - :tv:直播](/content/gettr/p2defwnc432.md)
+
+04/03/2023 #FreeMilesGuo #FreeYvetteWang Nicole in her interview with The John Frederick‘s Show: CCP’s plan to corrupt the US lawmakers does not differentiate the Republican Republican Party or the Democratic Party. For example, in...
+
+<img src="https://media.gettr.com/group3/getter/2023/04/04/01/97a39d57-f72c-a859-915b-570681ad8ed6/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 4/4/2023 4:38 AM UTC  - :tv:直播](/content/gettr/p2dfdtn4a60.md)
+
+2023.04.03 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
+
+NFSC一直被censor，人民越来越相信独立媒体，不再相信主流媒体。
+
+The NFSC has been censor and the people are increasingly trusting the independent media and no longer trust the mainstream medi...
+
+<img src="https://media.gettr.com/group11/getter/2023/04/04/04/9b5624d6-7b32-6b30-fa77-3a116f263928/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,18 +47,6 @@ The NFSC is organizing a "Free Miles Guo" rally on Apr 8 to 9.
 04/03/2023 In an interview on The John Fredericks Show, Nicole introduced the audience to the Chinese Communist Party's BGY scheme to infiltrate the U.S.: B stands for "blue," i.e., technology transfer, cyber attacks; G stands for ...
 
 <img src="https://media.gettr.com/group8/getter/2023/04/04/01/2121b32a-68c4-a9e5-076b-42d85c1c64ee/out.jpg" width="506" height="284">
-
----
-
-[@reuben_i17 4/2/2023 3:50 PM UTC  - :tv:直播](/content/gettr/p2da1hle539.md)
-
-04/02/2023 The decline of freedom in the United States: An ordinary American podcaster interpreted and commented on the case of Mr. Miles Guo’s forcibly taken away by the US Department of Justice!  
-
-
-
-#freeMilesGuo #FreeYvetteWang...
-
-<img src="https://media.gettr.com/group9/getter/2023/04/02/15/05db2bf0-5cde-f0c7-53ef-1d4584bc5361/out.jpg" width="506" height="284">
 
 ---
 
