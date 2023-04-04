@@ -2,6 +2,18 @@
 ---
 
 
+[@milesguo 4/4/2023 4:38 AM UTC  - :tv:直播](/content/gettr/p2dfdtn4a60.md)
+
+2023.04.03 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
+
+NFSC一直被censor，人民越来越相信独立媒体，不再相信主流媒体。
+
+The NFSC has been censor and the people are increasingly trusting the independent media and no longer trust the mainstream medi...
+
+<img src="https://media.gettr.com/group11/getter/2023/04/04/04/9b5624d6-7b32-6b30-fa77-3a116f263928/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 4/4/2023 3:31 AM UTC  - :tv:直播](/content/gettr/p2deipke48e.md)
 
 2023.04.03 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
@@ -22,15 +34,15 @@ The NFSC is organizing a "Free Miles Guo" rally on Apr 8 to 9.
 
 ---
 
-[@milesguo 4/4/2023 4:38 AM UTC  - :tv:直播](/content/gettr/p2dfdtn4a60.md)
+[@milesguo 4/4/2023 4:51 AM UTC  - :tv:直播](/content/gettr/p2deqkzed5d.md)
 
-2023.04.03 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
+2023.04.04 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
 
-NFSC一直被censor，人民越来越相信独立媒体，不再相信主流媒体。
+中共对司法部和联邦调查局的武器化是真实的，大卫-尼诺相信越来越多的人将加入举报人运动。这是现在的趋势。
 
-The NFSC has been censor and the people are increasingly trusting the independent media and no longer trust the mainstream medi...
+The CCP's weaponization of the DOJ and FBI is real, David Nino believes more and more people will join the Whis...
 
-<img src="https://media.gettr.com/group11/getter/2023/04/04/04/9b5624d6-7b32-6b30-fa77-3a116f263928/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/04/04/04/49fc43eb-c7be-e25d-59cf-6d0cd5f58d3e/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +183,6 @@ Please go follow @FinanceWolves and support his amazing work!
 #freeyvettewang 
 
 <img src="https://media.gettr.com/group11/getter/2023/04/02/15/7ff52fd9-bd39-8334-beed-c3f60dc4158c/7549225aa7ab4d4d03851126c7c8a558.jpg" width="506" height="284">
-
----
-
-[@yixiao 4/2/2023 3:50 PM UTC  - :tv:直播](/content/gettr/p2da26he031.md)
-
-新中国联邦乌克兰救援队应西班牙巴塞罗那一家儿童慈善机构请求， 组织的一次专项救援行动，最终确定成功营救96名儿童及相关陪同老师共计113人。
-
-The Ukrainian Rescue Team of the New Federal State of China organized a special rescue operation at the request of a children's charity in Barcelona, Spain, an...
-
-<img src="https://media.gettr.com/group5/getter/2023/04/02/15/3cb13488-7c0f-0498-9b2c-c2ef9d1da1a5/out.jpg" width="506" height="284">
 
 ---
 
