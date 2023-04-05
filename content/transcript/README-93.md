@@ -1,7 +1,9 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 93/111 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年8月13日第二次直播 20180813_2西方国家正在形成正义联盟共同反击中共的纳谇主义扩张！](/content/transcript/2018/08/20180813-53482486.md)
 
 [郭文贵2018年8月13日视频 20180813_3健身视频](/content/transcript/2018/08/20180813-53477246.md)
 
@@ -51,7 +53,5 @@
 
 [郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！](/content/transcript/2018/07/20180728-53478063.md)
 
-[郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！](/content/transcript/2018/07/20180722-53482468.md)
 
-
-## 頁面 93/110 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 93/111 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

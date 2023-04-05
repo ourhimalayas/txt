@@ -1,7 +1,9 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 107/111 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年8月7日直播 20170807_2马英九是...](/content/transcript/2017/08/20170807-53483510.md)
 
 [郭文贵2017年8月6日直播 20170806党内已怨声载道，北戴河会议群魔乱咬.](/content/transcript/2017/08/20170806-53483511.md)
 
@@ -51,7 +53,5 @@
 
 [郭文贵2017年7月6日 20170706王岐山的新豪宅．及孟建柱傅政华的真实关系与丰富多彩的性生活！](/content/transcript/2017/07/20170706-53483885.md)
 
-[郭文贵2017年7月5日 20170705文贵又要试试网络了！谈谈王岐山．孟建柱．傅政华．在十九大到底想要什么？](/content/transcript/2017/07/20170705-53483879.md)
 
-
-## 頁面 107/110 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 107/111 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

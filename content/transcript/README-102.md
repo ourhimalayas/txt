@@ -1,7 +1,9 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 102/111 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年1月11日直播 20180111_2](/content/transcript/2018/01/20180111-53482825.md)
 
 [郭文贵2018年1月11日直播 20180111_1](/content/transcript/2018/01/20180111-53482823.md)
 
@@ -51,7 +53,5 @@
 
 [郭文贵2017年11月15日视频 20171115_4HBO專訪 Exiled Chinese Billionaire Uses YouTube To Wage A War On Corruption HBO](/content/transcript/2017/11/20171115-53477394.md)
 
-[郭文贵2017年11月15日视频 20171115_3在游艇上早餐 Instagram直播](/content/transcript/2017/11/20171115-53477196.md)
 
-
-## 頁面 102/110 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 102/111 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

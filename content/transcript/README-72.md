@@ -1,7 +1,9 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 72/111 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年8月23日第二次直播 20190823_2歐美這兩天將宣布1.對香港及共產黨高官個人進行制裁 2.取消香港關係法及其自由貿易區地位 3.歐美將有一系列對香港的保護措施及政策](/content/transcript/2019/08/20190823-53483165.md)
 
 [2019年8月20日文贵大直播：王岐山的侄子抢夺盘古大观的「斩龙刀」](/content/transcript/2019/08/20190820-53795571.md)
 
@@ -51,7 +53,5 @@
 
 [郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事](/content/transcript/2019/08/20190809-53478896.md)
 
-[2019年8月8日《文贵大直播》全文字版： 中共对世界布下的天罗地网，并不能阻止中共灭亡的步伐](/content/transcript/2019/08/20190808-53739868.md)
 
-
-## 頁面 72/110 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 72/111 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

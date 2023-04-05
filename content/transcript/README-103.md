@@ -1,7 +1,9 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 103/110 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 103/111 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年11月15日视频 20171115_3在游艇上早餐 Instagram直播](/content/transcript/2017/11/20171115-53477196.md)
 
 [郭文贵2017年11月13日直播 20171113_1](/content/transcript/2017/11/20171113-53482807.md)
 
@@ -51,7 +53,5 @@
 
 [郭文贵2017年10月12日视频 20171012_2准备资料避开郭七条里不反的人，国内人不要冲动](/content/transcript/2017/10/20171012-53476929.md)
 
-[郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料](/content/transcript/2017/10/20171010-53476924.md)
 
-
-## 頁面 103/110 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 103/111 [**<**](/content/transcript/README-102.md) [1](/content/transcript/README.md) ... [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) **103** [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-104.md) [查看全部](/content/transcript/README-all.md)

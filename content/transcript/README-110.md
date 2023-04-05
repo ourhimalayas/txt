@@ -1,7 +1,9 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 110/110 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [查看全部](/content/transcript/README-all.md)
+## 頁面 110/111 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年5月5日视频 20170505](/content/transcript/2017/05/20170505-53483763.md)
 
 [郭文贵2017年5月4日视频 20170504_2秦伟平专访郭文贵（弹幕版）](/content/transcript/2017/05/20170504-53483769.md)
 
@@ -51,7 +53,5 @@
 
 [郭文贵2004年8月1日视频 20040801北顶娘娘庙附近的龙卷风](/content/transcript/2004/08/20040801-53483539.md)
 
-[](/content/transcript/1969/12/19691231-53925856.md)
 
-
-## 頁面 110/110 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [查看全部](/content/transcript/README-all.md)
+## 頁面 110/111 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)

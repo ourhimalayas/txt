@@ -1,7 +1,9 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 97/110 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 97/111 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/transcript/2018/04/20180421-53482360.md)
 
 [郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！](/content/transcript/2018/04/20180420-53482348.md)
 
@@ -51,7 +53,5 @@
 
 [郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）](/content/transcript/2018/03/20180331-53482084.md)
 
-[郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子](/content/transcript/2018/03/20180330-53482016.md)
 
-
-## 頁面 97/110 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [110](/content/transcript/README-110.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 97/111 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)
