@@ -2,15 +2,25 @@
 ---
 
 
-[@milesguo 4/4/2023 4:51 AM UTC  - :tv:直播](/content/gettr/p2deqkzed5d.md)
+[@yixiao 4/2/2023 3:50 PM UTC  - :tv:直播](/content/gettr/p2da26he031.md)
 
-2023.04.04 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
+新中国联邦乌克兰救援队应西班牙巴塞罗那一家儿童慈善机构请求， 组织的一次专项救援行动，最终确定成功营救96名儿童及相关陪同老师共计113人。
 
-中共对司法部和联邦调查局的武器化是真实的，大卫-尼诺相信越来越多的人将加入举报人运动。这是现在的趋势。
+The Ukrainian Rescue Team of the New Federal State of China organized a special rescue operation at the request of a children's charity in Barcelona, Spain, an...
 
-The CCP's weaponization of the DOJ and FBI is real, David Nino believes more and more people will join the Whis...
+<img src="https://media.gettr.com/group5/getter/2023/04/02/15/3cb13488-7c0f-0498-9b2c-c2ef9d1da1a5/out.jpg" width="506" height="284">
 
-<img src="https://media.gettr.com/group3/getter/2023/04/04/04/49fc43eb-c7be-e25d-59cf-6d0cd5f58d3e/out.jpg" width="506" height="284">
+---
+
+[@wentianxiaomei1 4/2/2023 3:48 PM UTC  - :tv:直播](/content/gettr/p2da20s2581.md)
+
+七哥的话一次又一次的被验证
+
+#freemilesguonow 
+
+#freeyvettewang 
+
+<img src="https://media.gettr.com/group11/getter/2023/04/02/15/7ff52fd9-bd39-8334-beed-c3f60dc4158c/7549225aa7ab4d4d03851126c7c8a558.jpg" width="506" height="284">
 
 ---
 
@@ -43,16 +53,6 @@ The NFSC is organizing a "Free Miles Guo" rally on Apr 8 to 9.
 04/03/2023 #FreeMilesGuo #FreeYvetteWang Nicole in her interview with The John Frederick‘s Show: CCP’s plan to corrupt the US lawmakers does not differentiate the Republican Republican Party or the Democratic Party. For example, in...
 
 <img src="https://media.gettr.com/group3/getter/2023/04/04/01/97a39d57-f72c-a859-915b-570681ad8ed6/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 4/4/2023 5:15 AM UTC  - :tv:直播](/content/gettr/p2dewo658ab.md)
-
-2023.04.04 #freemilesguo #nfsc #mos #Ninoscorner #takedowntheccp 
-
-法官不予郭文贵保释，声称有逃离风险。文贵这个中共头号敌人还能跑回中共吗 Judge denies Guo Wengui bail, claims flight risk. Can Wengui, the CCP's number one enemy, still run back to the CCP
-
-<img src="https://media.gettr.com/group12/getter/2023/04/04/05/4e07d914-6a5b-c37d-a45d-e55ce9742521/out.jpg" width="506" height="284">
 
 ---
 
