@@ -3,6 +3,8 @@
 
 ## 頁面 90/111 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月3日视频 20181003_4](/content/transcript/2018/10/20181003-53478317.md)
+
 [郭文贵2018年10月3日视频 20181003_3](/content/transcript/2018/10/20181003-53478315.md)
 
 [郭文贵2018年10月3日视频 20181003_2](/content/transcript/2018/10/20181003-53478309.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年9月18日视频 20180918_2選購西裝布料](/content/transcript/2018/09/20180918-53478272.md)
 
 [郭文贵2018年9月18日视频 20180918_1](/content/transcript/2018/09/20180918-53478268.md)
-
-[郭文贵2018年9月17日视频 20180917(全程無駭客干擾版)王健死亡事件真相有重大进展，法国司法部已经正式立案全面重新调查！](/content/transcript/2018/09/20180917-53482563.md)
 
 
 ## 頁面 90/111 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

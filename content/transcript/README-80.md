@@ -3,6 +3,8 @@
 
 ## 頁面 80/111 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来](/content/transcript/2019/05/20190511-53482568.md)
+
 [郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow](/content/transcript/2019/05/20190511-53478706.md)
 
 [郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people](/content/transcript/2019/05/20190510-53482540.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年4月27日视频 20190427_2-(文貴完整版) 文贵、班农、路德直播：班农先生谈关于当前委的众多问题? 文貴談当前委在美国有什么重要影响力？揭露一带一路的本质](/content/transcript/2019/04/20190427-53478656.md)
 
 [郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊](/content/transcript/2019/04/20190426-53478648.md)
-
-[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）](/content/transcript/2019/04/20190425-53478643.md)
 
 
 ## 頁面 80/111 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

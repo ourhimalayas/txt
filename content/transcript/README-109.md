@@ -3,6 +3,8 @@
 
 ## 頁面 109/111 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月26日 20170526现在随时爆料，随时爆料啊](/content/transcript/2017/05/20170526-53484104.md)
+
 [郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔](/content/transcript/2017/05/20170525-53483826.md)
 
 [郭文贵2017年5月24日 20170524呼吁推友不要冲动](/content/transcript/2017/05/20170524-53483816.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年5月7日 20170507_2向大家报平安的小视频 2](/content/transcript/2017/05/20170507-53483781.md)
 
 [郭文贵2017年5月7日 20170507_1向大家报平安的小视频 1](/content/transcript/2017/05/20170507-53483777.md)
-
-[郭文贵2017年5月6日视频 20170506](/content/transcript/2017/05/20170506-53483774.md)
 
 
 ## 頁面 109/111 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)

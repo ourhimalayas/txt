@@ -3,6 +3,8 @@
 
 ## 頁面 79/111 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月2日谈林郑卖港 20190602班农与郭文贵谈林郑卖港、6月4日新中国建国日、欧洲反共革命](/content/transcript/2019/06/20190602-53482509.md)
+
 [郭文贵2019年6月1日视频 20190601文贵报平安直播！无论任何方式的任何人的＂偷＂都是错的．都应感到可耻……我们今天的爆料革命！就是为了我们中国儿童！有一个美好的健康的国家和未来](/content/transcript/2019/06/20190601-53482496.md)
 
 [郭文贵2019年6月1日视频 20190601_2两狗相遇勇者胜，snow与笨笨的抢食之战，输赢不在大小](/content/transcript/2019/06/20190601-53478678.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月12日视频 20190512母亲才是我们的国．父母才是我们的家！我们的家！愿中国所有的母亲，不要把自己的儿女送给共产党这个非法组织！任何一个加入共产党的家庭都有可能将受到全世界的制裁，未来无法到世界各](/content/transcript/2019/05/20190512-53482577.md)
 
 [郭文贵2019年5月12日视频 20190512_2应战友们的要求．发一个snow视频，这是与SNOW散步的小视频](/content/transcript/2019/05/20190512-53478709.md)
-
-[郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来](/content/transcript/2019/05/20190511-53482568.md)
 
 
 ## 頁面 79/111 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)

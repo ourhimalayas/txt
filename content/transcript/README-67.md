@@ -3,6 +3,8 @@
 
 ## 頁面 67/111 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年10月15日文贵先生大直播全文字版：船上直播，天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/content/transcript/2019/10/20191015-53912045.md)
+
 [郭文贵2019年10月15日 20191015天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/content/transcript/2019/10/20191015-53483331.md)
 
 [郭文贵2019年10月15日视频 20191015_2香港人權民主法案在美國眾議院已經通過的意義和給我們的啟迪！可敬可爱的香港人，用行动证明给我们．口炮．恐惧都是死路一条．只有抗争才能得到自己想要的！](/content/transcript/2019/10/20191015-53479067.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年10月8日视频 20191008_2郭文貴先生苦口婆心地教育snow吃餐禮儀snow躺在郭先生懷裏有點犯睏不知聽進去了沒有](/content/transcript/2019/10/20191008-53479044.md)
 
 [郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了](/content/transcript/2019/10/20191008-53479042.md)
-
-[2019年10月7日文贵大直播全文字版：谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/transcript/2019/10/20191007-53901441.md)
 
 
 ## 頁面 67/111 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 73/111 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事](/content/transcript/2019/08/20190809-53478896.md)
+
 [2019年8月8日《文贵大直播》全文字版： 中共对世界布下的天罗地网，并不能阻止中共灭亡的步伐](/content/transcript/2019/08/20190808-53739868.md)
 
 [郭文贵2019年8月8日视频 201908088th Aug Mr. Guo's broadcast: CCP's sophisticated plan to take over the world will...](/content/transcript/2019/08/20190808-53482953.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年7月30日视频 20190730_1(精華自26分04秒起至35分27秒)习近平上位、必灭薄熙来、贾庆林出场、李源潮书生、南普陀计划](/content/transcript/2019/07/20190730-53478867.md)
 
 [2019年7月29日文贵大直播全文字版：共产党已经进入倒计时](/content/transcript/2019/07/20190729-53805567.md)
-
-[2019年7月29日文贵大直播全文字版：共产党已经进入倒计时](/content/transcript/2019/07/20190729-53805587.md)
 
 
 ## 頁面 73/111 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

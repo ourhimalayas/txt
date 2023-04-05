@@ -3,6 +3,8 @@
 
 ## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中](/content/transcript/2019/10/20191026-53483262.md)
+
 [郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-53479093.md)
 
 [2019年10月25日文贵大直播全文字版：再谈直播彭斯副总统演讲的重大意义](/content/transcript/2019/10/20191025-53919805.md)
@@ -50,8 +52,6 @@
 [2019年10月16日、17日郭文贵先生直播视频 共产党利用黑社会杀手手段 残害香港议员岑子杰先生以及被害真相浮出水面（合集）全文字版](/content/transcript/2019/10/20191016-53906068.md)
 
 [郭文贵2019年10月16日视频 20191016_1共产党利用黑社会杀手手段 残害香港议员岑子杰先生](/content/transcript/2019/10/20191016-53479069.md)
-
-[2019年10月15日文贵先生大直播全文字版：船上直播，天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/content/transcript/2019/10/20191015-53912045.md)
 
 
 ## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)

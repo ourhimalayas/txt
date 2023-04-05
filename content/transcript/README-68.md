@@ -3,6 +3,8 @@
 
 ## 頁面 68/111 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年10月7日文贵大直播全文字版：谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/transcript/2019/10/20191007-53901441.md)
+
 [郭文贵2019年10月7日 20191007谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/transcript/2019/10/20191007-53483676.md)
 
 [](/content/transcript/2019/10/20191006-53899554.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年9月29日 20190929_2连线北京姑娘聊天室](/content/transcript/2019/09/20190929-53478061.md)
 
 [2019年9月28郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临全文字版](/content/transcript/2019/09/20190928-53863711.md)
-
-[郭文贵2019年9月28日 20190928香港即将迎来关键一战，国庆就是CCP的末日，美将清算盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/transcript/2019/09/20190928-53483204.md)
 
 
 ## 頁面 68/111 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 85/111 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案](/content/transcript/2019/01/20190109-53478498.md)
+
 [郭文贵2019年1月8日视频 20190108春晚搞不搞，听听战友们的心声](/content/transcript/2019/01/20190108-53481905.md)
 
 [郭文贵2019年1月7日视频 20190107报平安直播被黑客掉未成功的视频。谈马云和被双规的成钢以及懒人郭宝胜的案子](/content/transcript/2019/01/20190107-53481879.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年12月21日视频 20181221_1昨天美國司法部的行動還不是特別大的事 大事還沒開始呢 明年三月才開始 那時候可就不是亂扔刀叉這個級別的了](/content/transcript/2018/12/20181221-53478449.md)
 
 [郭文贵2018年12月20日视频 20181220要對你的嫂子好 對你的弟妹好 你的運氣才會好](/content/transcript/2018/12/20181220-53483696.md)
-
-[郭文贵2018年12月19日视频 20181219改革開放40年大會確定要往回走 大家準備吃草吧](/content/transcript/2018/12/20181219-53483694.md)
 
 
 ## 頁面 85/111 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

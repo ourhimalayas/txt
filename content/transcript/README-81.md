@@ -3,6 +3,8 @@
 
 ## 頁面 81/111 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）](/content/transcript/2019/04/20190425-53478643.md)
+
 [郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！](/content/transcript/2019/04/20190424-53482382.md)
 
 [郭文贵2019年4月23日视频 20190423_1親愛的戰友 今天有三撥牛人來紐約開會 耗子們也正向著鼠夾狂奔](/content/transcript/2019/04/20190423-53478639.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年4月9日视频 20190409谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事！](/content/transcript/2019/04/20190409-53482255.md)
 
 [郭文贵2019年4月9日视频 20190409_2现在向战友们分享喜马拉雅大使馆内部的法制基金的办公室的一小部分．战友餐厅．以及法制基金的办公区](/content/transcript/2019/04/20190409-53478579.md)
-
-[郭文贵2019年4月7日视频 20190407美．欧．日．等将对中资国营．香港自贸协定．中共及香港官员的一系列的立法制栽．或调查．或列入黑名单．行动．将是中共灭亡的第一步！](/content/transcript/2019/04/20190407-53482253.md)
 
 
 ## 頁面 81/111 [**<**](/content/transcript/README-80.md) [1](/content/transcript/README.md) ... [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) **81** [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-82.md) [查看全部](/content/transcript/README-all.md)

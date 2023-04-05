@@ -3,6 +3,8 @@
 
 ## 頁面 69/111 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年9月28日 20190928香港即将迎来关键一战，国庆就是CCP的末日，美将清算盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/transcript/2019/09/20190928-53483204.md)
+
 [2019年9月27日文贵大直播全文字版：文贵，班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/transcript/2019/09/20190927-53867898.md)
 
 [郭文贵2019年9月27日 20190927文贵班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/transcript/2019/09/20190927-53483195.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年9月15日 20190915王岐山乱港七策坐镇指挥黑警察施暴港人，香港已成为恐惧之港，全球正义力量迅速集结，现在已是黑白对决（美国的白对CCP的黑）！我们目前以传播香港危机真相为核心！中共被灭](/content/transcript/2019/09/20190915-53483120.md)
 
 [2019年9月14日文贵大直播全文字版：从共产党昨天在香港疯狂，说明了共产党是个彻彻底底的大流氓](/content/transcript/2019/09/20190914-53847682.md)
-
-[郭文贵2019年9月14日 20190914尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！](/content/transcript/2019/09/20190914-53483095.md)
 
 
 ## 頁面 69/111 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)

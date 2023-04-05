@@ -3,6 +3,8 @@
 
 ## 頁面 72/111 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月23日第一次直播 20190823_1习近平和川普总统会互相宣布成为敌人吗？习近平为什么说川普不是我的朋友？](/content/transcript/2019/08/20190823-53483175.md)
+
 [郭文贵2019年8月23日第二次直播 20190823_2歐美這兩天將宣布1.對香港及共產黨高官個人進行制裁 2.取消香港關係法及其自由貿易區地位 3.歐美將有一系列對香港的保護措施及政策](/content/transcript/2019/08/20190823-53483165.md)
 
 [2019年8月20日文贵大直播：王岐山的侄子抢夺盘古大观的「斩龙刀」](/content/transcript/2019/08/20190820-53795571.md)
@@ -50,8 +52,6 @@
 [2019年8月9日《郭文贵大直播》全文字版：船上报平安直播](/content/transcript/2019/08/20190809-53739787.md)
 
 [郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe](/content/transcript/2019/08/20190809-53482977.md)
-
-[郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事](/content/transcript/2019/08/20190809-53478896.md)
 
 
 ## 頁面 72/111 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

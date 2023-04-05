@@ -3,6 +3,8 @@
 
 ## 頁面 93/111 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月13日第一次直播 20180813_1大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/content/transcript/2018/08/20180813-53482491.md)
+
 [郭文贵2018年8月13日第二次直播 20180813_2西方国家正在形成正义联盟共同反击中共的纳谇主义扩张！](/content/transcript/2018/08/20180813-53482486.md)
 
 [郭文贵2018年8月13日视频 20180813_3健身视频](/content/transcript/2018/08/20180813-53477246.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年8月4日视频 20180804出发去会晤一位刚与王岐山见过面的重要朋友，感叹水上美景](/content/transcript/2018/08/20180804-53477224.md)
 
 [郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家](/content/transcript/2018/07/20180730-53477219.md)
-
-[郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！](/content/transcript/2018/07/20180728-53478063.md)
 
 
 ## 頁面 93/111 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

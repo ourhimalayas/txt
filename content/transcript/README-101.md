@@ -3,6 +3,8 @@
 
 ## 頁面 101/111 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月7日第一次直播 20180207_1从海航王健的年终讲话看出海航及王岐山、孟建柱欲将他们的盗国行径变成习主席责任及国家行为、国家扩张战略、一带一路需要](/content/transcript/2018/02/20180207-53483970.md)
+
 [郭文贵2018年2月6日第三次直播 20180206_3向大家报告关于今天2月6日取消与陈军先生见面的过程！](/content/transcript/2018/02/20180206-53484050.md)
 
 [郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明](/content/transcript/2018/02/20180206-53483964.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年1月18日视频 20180118时间飞逝 文贵先生宠物狗snow的成长全记录](/content/transcript/2018/01/20180118-53477351.md)
 
 [郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富](/content/transcript/2018/01/20180115-53483963.md)
-
-[郭文贵2018年1月13日 20180113加拿大挺郭后援会2018年首次挺郭聚会（2）](/content/transcript/2018/01/20180113-53484199.md)
 
 
 ## 頁面 101/111 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)

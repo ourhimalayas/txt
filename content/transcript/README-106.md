@@ -3,6 +3,8 @@
 
 ## 頁面 106/111 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午](/content/transcript/2017/08/20170828-53483549.md)
+
 [郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实](/content/transcript/2017/08/20170827-53483547.md)
 
 [郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技](/content/transcript/2017/08/20170827-53483544.md)
@@ -50,8 +52,6 @@
 [郭文贵2017年8月9日第一次直播 20170809_1试试网络：一个台湾老朋友一个国内老领导与我通过电话后的感受](/content/transcript/2017/08/20170809-53483912.md)
 
 [郭文贵2017年8月9日第二次直播 20170809_2报平安直播---关于四川地震 &#124; 海航贯军刘呈杰的爹](/content/transcript/2017/08/20170809-53483909.md)
-
-[郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！](/content/transcript/2017/08/20170807-53483893.md)
 
 
 ## 頁面 106/111 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)

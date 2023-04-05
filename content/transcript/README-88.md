@@ -3,6 +3,8 @@
 
 ## 頁面 88/111 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月29日视频 20181029文貴應邀擔任全球反CCP聯盟獨立顧問](/content/transcript/2018/10/20181029-53479582.md)
+
 [郭文贵2018年10月28日视频 20181028欧洲对CCP的看法正在改变！](/content/transcript/2018/10/20181028-53479380.md)
 
 [郭文贵2018年10月28日视频 20181028_2 法國政府對王健之死案的判決](/content/transcript/2018/10/20181028-53478346.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年10月17日参加路德访谈 20181017法国大革命与共产党的打土豪分田地的根本不同！也必将引起流血革命！西方国家已经开始实施对中国共产党的清除方案！无人可以改变！](/content/transcript/2018/10/20181017-53477946.md)
 
 [郭文贵2018年10月16日视频 20181016郭文贵直播 政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油](/content/transcript/2018/10/20181016-53482775.md)
-
-[郭文贵2018年10月15日视频 20181015_1孟宏偉事件之後 好多人開始被抓](/content/transcript/2018/10/20181015-53478362.md)
 
 
 ## 頁面 88/111 [**<**](/content/transcript/README-87.md) [1](/content/transcript/README.md) ... [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) **88** [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-89.md) [查看全部](/content/transcript/README-all.md)
