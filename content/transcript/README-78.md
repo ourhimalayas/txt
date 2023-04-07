@@ -3,6 +3,10 @@
 
 ## 頁面 78/111 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月15日视频 20190615郭先生緊急喊話香港616必須上街](/content/transcript/2019/06/20190615-53482758.md)
+
+[2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”](/content/transcript/2019/06/20190614-53537318.md)
+
 [郭文贵2019年6月14日 20190614林郑月娥提出辞职，取消”逃犯条例”；叶刘淑仪提出硬挺通过”逃犯条例”](/content/transcript/2019/06/20190614-53482749.md)
 
 [郭文贵2019年6月13日第一次直播 20190613_1郭文贵直播喜马拉雅大使馆呼吁关注香港的明天，私家车可以帮助香港人民费用文贵出](/content/transcript/2019/06/20190613-53482738.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年6月8日视频 20190608_2大家看看這些設備都不如路德先生的一個手指頭 中國人的智慧太沒問題了](/content/transcript/2019/06/20190608-53478687.md)
 
 [郭文贵2019年6月7日视频 20190607香港的事真搞大了](/content/transcript/2019/06/20190607-53482525.md)
-
-[郭文贵2019年6月5日视频 20190605庞皮奥的讲话与香港6.9日大游行……](/content/transcript/2019/06/20190605-53482517.md)
-
-[郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街](/content/transcript/2019/06/20190603-53478685.md)
 
 
 ## 頁面 78/111 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

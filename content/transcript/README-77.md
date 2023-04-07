@@ -3,6 +3,10 @@
 
 ## 頁面 77/111 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月2日视频 20190702_1据文贵了解和瞎蒙．G20会议．此次大版G20．是中美会议当中最紧张，最严肃．最奇怪．最没有确定性的．的双边会议！后面的故事．很多．该文贵开完庭后，详细向大家汇报，大利爆料革命…](/content/transcript/2019/07/20190702-53478766.md)
+
+[2019年7月1日文贵在DC直播全文字版：讲香港七一大游行合集](/content/transcript/2019/07/20190701-53563928.md)
+
 [郭文贵2019年7月1日视频 20190701_2香港昨天的游行，更加证明了港人不是靠黑手推动追求正义，而是港人抗拒共产党的恶法、和追求法治、自由、民主的力量，而自发的运动](/content/transcript/2019/07/20190701-53478761.md)
 
 [2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜](/content/transcript/2019/06/20190630-53557790.md)
@@ -48,10 +52,6 @@
 [2019年6月16日直播全文字版：文贵如何看共产党在香港耍诈、使狠](/content/transcript/2019/06/20190616-53555395.md)
 
 [郭文贵2019年6月16日视频 20190616_1在深圳珠海，香港中资大楼里的解放军埋伏．并没有撒啊，共产党正在何机破坏……制造社会动乱，栽赃香港人](/content/transcript/2019/06/20190616-53478751.md)
-
-[郭文贵2019年6月15日视频 20190615郭先生緊急喊話香港616必須上街](/content/transcript/2019/06/20190615-53482758.md)
-
-[2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”](/content/transcript/2019/06/20190614-53537318.md)
 
 
 ## 頁面 77/111 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

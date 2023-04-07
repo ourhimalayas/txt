@@ -3,6 +3,10 @@
 
 ## 頁面 87/111 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月24日视频 20181124_1](/content/transcript/2018/11/20181124-53478538.md)
+
+[郭文贵2018年11月22日视频 20181122_1应很多战友的要求．录一个SNOW小视频！祝大家感恩节快乐！](/content/transcript/2018/11/20181122-53478536.md)
+
 [郭文贵2018年11月21日视频 20181121丢掉放弃幻想，只要共产党存在一天我们就没有安全之日... 亲人员工们忘掉过去的文贵吧，现在的文贵，是承负着上天的使命和十四亿人民对我的寄托，我不能只为你们活着](/content/transcript/2018/11/20181121-53482337.md)
 
 [郭文贵2018年11月20日第二次直播 20181120_2信息发布会 : Miles Guo Press Briefing on 11/20/2018](/content/transcript/2018/11/20181120-53483704.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年11月4日视频 20181104_1共产党最爱的床上运动 与西方的马拉松活动有什么不同！周末一笑！](/content/transcript/2018/11/20181104-53478385.md)
 
 [郭文贵2018年11月1日视频 20181101王岐山帮助川普赢选举](/content/transcript/2018/11/20181101-53480025.md)
-
-[郭文贵2018年10月31日视频 20181031在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/transcript/2018/10/20181031-53479826.md)
-
-[郭文贵2018年10月30日视频 20181030_1](/content/transcript/2018/10/20181030-53478381.md)
 
 
 ## 頁面 87/111 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)

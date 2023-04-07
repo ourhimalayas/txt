@@ -3,6 +3,10 @@
 
 ## 頁面 95/111 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年6月27日直播 20180627_2一边抽雪茄一边直播（第一段）](/content/transcript/2018/06/20180627-53477951.md)
+
+[郭文贵2018年6月27日视频 20180627_4在船上远眺曼哈顿](/content/transcript/2018/06/20180627-53477208.md)
+
 [郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！](/content/transcript/2018/06/20180625-53483818.md)
 
 [郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠](/content/transcript/2018/06/20180623-53477204.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年5月22日视频第二部分 20180522_2谈委内瑞拉．马来西亚．是我们借鉴走向喜马拉雅的好榜样！岳文海的腐败！](/content/transcript/2018/05/20180522-53483751.md)
 
 [郭文贵2018年5月22日视频第一部分 20180522_1谈与王岐山刘志华一起战斗的日子！](/content/transcript/2018/05/20180522-53483738.md)
-
-[郭文贵2018年5月17日视频 20180517谈马来西亚、委内瑞拉、信仰和理想](/content/transcript/2018/05/20180517-53482402.md)
-
-[郭文贵2018年5月13日直播 20180513_1文贵的人生导师之一昨晚上仙鹤而去！！！????????????](/content/transcript/2018/05/20180513-53477806.md)
 
 
 ## 頁面 95/111 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
