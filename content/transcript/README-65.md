@@ -3,6 +3,8 @@
 
 ## 頁面 65/111 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部](/content/transcript/2019/11/20191106-53483384.md)
+
 [郭文贵2019年11月6日第三次直播 20191106_3“文贵和路德在喜马拉雅大使馆直播”上部 共产党创造了几个荒唐政治事件(2)](/content/transcript/2019/11/20191106-53483365.md)
 
 [郭文贵2019年11月6日第二次直播 20191106_2共产党创造了几个荒唐政治事件(1)](/content/transcript/2019/11/20191106-53483346.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年10月28日视频 20191028_3Snow](/content/transcript/2019/10/20191028-53479098.md)
 
 [郭文贵2019年10月28日视频 20191028_2战友们，北京的戏已经开始上演了，会要开始了，会发生什么呢](/content/transcript/2019/10/20191028-53479095.md)
-
-[郭文贵2019年10月27日视频 20191027试直播与战友闲聊](/content/transcript/2019/10/20191027-53483275.md)
 
 
 ## 頁面 65/111 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)

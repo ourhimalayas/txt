@@ -3,6 +3,8 @@
 
 ## 頁面 101/111 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月9日第一次直播 20180209_1从美国朋友口中得知杨洁篪访问美国正式通知美国．王岐山将代表中国作为国家副主席全面处理，中美关系????????????这是真的吗？如果是真的．文贵将决定将在纽约设24小时＂灵堂＂．祈祷．感谢上](/content/transcript/2018/02/20180209-53484072.md)
+
 [郭文贵2018年2月9日第二次直播 20180209_2关于陈军在推特上的公开造假……说谎．文贵将在近日直播有关他的欺骗及骗人真！](/content/transcript/2018/02/20180209-53484071.md)
 
 [郭文贵2018年2月8日 20180208文贵报平安视频，再谈陈军的虚伪与荒唐，及现在各方形势表明，中国的经济出现大问题，中国未来的一年将出现巨大的变数和不稳定; 习主席危险，盗国贼可能将成功，我们](/content/transcript/2018/02/20180208-53484070.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年1月28日视频 20180128_2Snow太可爱了](/content/transcript/2018/01/20180128-53477374.md)
 
 [郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗](/content/transcript/2018/01/20180127-53477366.md)
-
-[郭文贵2018年1月21日直播 20180121_1](/content/transcript/2018/01/20180121-53482787.md)
 
 
 ## 頁面 101/111 [**<**](/content/transcript/README-100.md) [1](/content/transcript/README.md) ... [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) **101** [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-102.md) [查看全部](/content/transcript/README-all.md)

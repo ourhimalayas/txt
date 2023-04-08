@@ -3,6 +3,8 @@
 
 ## 頁面 79/111 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月8日视频 20190608香港6.9上街若能持续几天彻底改变香港](/content/transcript/2019/06/20190608-53482529.md)
+
 [郭文贵2019年6月8日视频 20190608_2大家看看這些設備都不如路德先生的一個手指頭 中國人的智慧太沒問題了](/content/transcript/2019/06/20190608-53478687.md)
 
 [郭文贵2019年6月7日视频 20190607香港的事真搞大了](/content/transcript/2019/06/20190607-53482525.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年5月18日 20190518爆料王建之死原视频！世界上谁都没有](/content/transcript/2019/05/20190518-53482602.md)
 
 [郭文贵2019年5月16日视频 20190516_2川普回到紐約 將宴請誰呢 大家都猜是七哥](/content/transcript/2019/05/20190516-53478716.md)
-
-[郭文贵2019年5月16日视频 20190516_1西藏新疆香港台灣的同胞們 你們千萬不要放棄 我們將迎來偉大的時刻](/content/transcript/2019/05/20190516-53478713.md)
 
 
 ## 頁面 79/111 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)

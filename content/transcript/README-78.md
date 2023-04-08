@@ -3,6 +3,8 @@
 
 ## 頁面 78/111 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月17日视频 20190617支持香港反送中抗议](/content/transcript/2019/06/20190617-53482778.md)
+
 [2019年6月16日直播全文字版：文贵如何看共产党在香港耍诈、使狠](/content/transcript/2019/06/20190616-53555395.md)
 
 [郭文贵2019年6月16日视频 20190616_1在深圳珠海，香港中资大楼里的解放军埋伏．并没有撒啊，共产党正在何机破坏……制造社会动乱，栽赃香港人](/content/transcript/2019/06/20190616-53478751.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年6月9日直播 20190609_2班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播中部分！](/content/transcript/2019/06/20190609-53482181.md)
 
 [郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！](/content/transcript/2019/06/20190609-53482134.md)
-
-[郭文贵2019年6月8日视频 20190608香港6.9上街若能持续几天彻底改变香港](/content/transcript/2019/06/20190608-53482529.md)
 
 
 ## 頁面 78/111 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

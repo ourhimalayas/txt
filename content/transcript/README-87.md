@@ -3,6 +3,8 @@
 
 ## 頁面 87/111 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月25日视频 20181125_3](/content/transcript/2018/11/20181125-53478545.md)
+
 [郭文贵2018年11月25日视频 20181125_2](/content/transcript/2018/11/20181125-53478543.md)
 
 [郭文贵2018年11月25日视频 20181125_1](/content/transcript/2018/11/20181125-53478541.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年11月8日视频 20181108王岐山与习近平谁将成为最后的共产党永久的实际控制人](/content/transcript/2018/11/20181108-53480477.md)
 
 [郭文贵2018年11月7日视频 20181107美國中期選舉後感想](/content/transcript/2018/11/20181107-53480280.md)
-
-[郭文贵2018年11月5日视频 20181105_1](/content/transcript/2018/11/20181105-53478387.md)
 
 
 ## 頁面 87/111 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)

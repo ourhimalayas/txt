@@ -3,6 +3,8 @@
 
 ## 頁面 67/111 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-53483191.md)
+
 [郭文贵2019年10月18日视频 20191018_2一個半小时后，纽约时间18号上午9點半到10點之间．文贵将在郭媒体．开始今天的直播！不爆料，就是与战友们聊天](/content/transcript/2019/10/20191018-53479073.md)
 
 [郭文贵2019年10月17日视频 20191017_1岑子杰被害背後的真相已逐漸浮出水面 我們一定要追究 我今天整天參加秘密聽證會 不能直播](/content/transcript/2019/10/20191017-53479071.md)
@@ -50,8 +52,6 @@
 [2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁  全文字版](/content/transcript/2019/10/20191009-53909199.md)
 
 [2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁 全文字版](/content/transcript/2019/10/20191009-53906184.md)
-
-[郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/transcript/2019/10/20191009-53483302.md)
 
 
 ## 頁面 67/111 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)

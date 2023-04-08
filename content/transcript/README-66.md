@@ -3,6 +3,8 @@
 
 ## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月27日视频 20191027试直播与战友闲聊](/content/transcript/2019/10/20191027-53483275.md)
+
 [郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极](/content/transcript/2019/10/20191027-53479094.md)
 
 [2019年10月27日文贵大直播全文字版：与战友闲聊](/content/transcript/2019/10/20191027-53925834.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年10月20日视频 20191020_1大家分享纽约雨天船上时光](/content/transcript/2019/10/20191020-53479075.md)
 
 [2019年10月18日文贵大直播全文字版：郭先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-53912078.md)
-
-[郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-53483191.md)
 
 
 ## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)

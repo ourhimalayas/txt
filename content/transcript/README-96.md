@@ -3,6 +3,8 @@
 
 ## 頁面 96/111 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年5月24日视频 20180524栗战书秘书因为董文彪．曲龙．王岐山被抓！](/content/transcript/2018/05/20180524-53482408.md)
+
 [郭文贵2018年5月22日视频第二部分 20180522_2谈委内瑞拉．马来西亚．是我们借鉴走向喜马拉雅的好榜样！岳文海的腐败！](/content/transcript/2018/05/20180522-53483751.md)
 
 [郭文贵2018年5月22日视频第一部分 20180522_1谈与王岐山刘志华一起战斗的日子！](/content/transcript/2018/05/20180522-53483738.md)
@@ -50,8 +52,6 @@
 [郭文贵2018年4月24日视频 20180424在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！ 《战友同行》](/content/transcript/2018/04/20180424-53482318.md)
 
 [郭文贵2018年4月24日视频 20180424_4我正在赛船呢](/content/transcript/2018/04/20180424-53477412.md)
-
-[郭文贵2018年4月24日视频 20180424_3文汇怎么造的假文件呢？详情，请看现在的路徳专访！文贵己经提供了部分信息给路德先生了！一切都是刚刚开始！愚蠢的盗国贼．又给文贵送大礼了！](/content/transcript/2018/04/20180424-53477408.md)
 
 
 ## 頁面 96/111 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
