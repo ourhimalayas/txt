@@ -3,6 +3,10 @@
 
 ## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极](/content/transcript/2019/10/20191027-53479094.md)
+
+[2019年10月27日文贵大直播全文字版：与战友闲聊](/content/transcript/2019/10/20191027-53925834.md)
+
 [2019年10月26日 文贵和战友谈北京局势和四中全会 全文字版](/content/transcript/2019/10/20191026-53924902.md)
 
 [2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-53919845.md)
@@ -48,10 +52,6 @@
 [2019年10月18日文贵大直播全文字版：郭先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-53912078.md)
 
 [郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-53483191.md)
-
-[郭文贵2019年10月18日视频 20191018_2一個半小时后，纽约时间18号上午9點半到10點之间．文贵将在郭媒体．开始今天的直播！不爆料，就是与战友们聊天](/content/transcript/2019/10/20191018-53479073.md)
-
-[郭文贵2019年10月17日视频 20191017_1岑子杰被害背後的真相已逐漸浮出水面 我們一定要追究 我今天整天參加秘密聽證會 不能直播](/content/transcript/2019/10/20191017-53479071.md)
 
 
 ## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
