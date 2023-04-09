@@ -3,6 +3,8 @@
 
 ## 頁面 111/111 [**<**](/content/transcript/README-110.md) [1](/content/transcript/README.md) ... [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) **111** [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年4月25日 20170425_1感谢推友过九万第一部分](/content/transcript/2017/04/20170425-53483715.md)
+
 [郭文贵2017年4月19日视频 20170419VOA 专访](/content/transcript/2017/04/20170419-53483710.md)
 
 [郭文贵2017年3月8日明镜专访第二期 20170308《法治與社會》第7期](/content/transcript/2017/03/20170308-53484424.md)

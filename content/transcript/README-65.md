@@ -29,6 +29,8 @@
 
 [郭文贵2019年11月2日第二次直播 20191102_2文贵讲成功，胜利和信仰：中国现在像灭亡前的大清朝 谈共产党即将倒台的三大因素](/content/transcript/2019/11/20191102-53483401.md)
 
+[2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版](/content/transcript/2019/10/20191030-53949413.md)
+
 [郭文贵2019年10月30日特别节目上集 20191030文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/transcript/2019/10/20191030-53483386.md)
 
 [郭文贵2019年10月30日视频 20191030_3凯琳、酒庄及文贵私人厨师现场烹煮过程直播，sara、江财神、路徳先生和庄烈宏先生一起享受美食、美酒——特别节目](/content/transcript/2019/10/20191030-53479123.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年10月28日视频 20191028_4【Joe庄随手拍】郭文贵先生说至今没人谈到“区块链”的关键性](/content/transcript/2019/10/20191028-53479100.md)
 
 [郭文贵2019年10月28日视频 20191028_3Snow](/content/transcript/2019/10/20191028-53479098.md)
-
-[郭文贵2019年10月28日视频 20191028_2战友们，北京的戏已经开始上演了，会要开始了，会发生什么呢](/content/transcript/2019/10/20191028-53479095.md)
 
 
 ## 頁面 65/111 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
