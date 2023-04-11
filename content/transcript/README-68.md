@@ -3,6 +3,8 @@
 
 ## 頁面 68/111 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁  全文字版](/content/transcript/2019/10/20191009-53909199.md)
+
 [2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁 全文字版](/content/transcript/2019/10/20191009-53906184.md)
 
 [郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/transcript/2019/10/20191009-53483302.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年10月1日 20191001_2郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！](/content/transcript/2019/10/20191001-53477486.md)
 
 [郭文贵2019年9月30日视频 20190930_2直播测试](/content/transcript/2019/09/20190930-53479027.md)
-
-[郭文贵2019年9月30日视频 20190930_1北京阅兵 郭媒体进入战备状态 天安門廣場的國慶晚宴音樂晚會將有事發生](/content/transcript/2019/09/20190930-53479018.md)
 
 
 ## 頁面 68/111 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)

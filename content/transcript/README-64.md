@@ -23,6 +23,8 @@
 
 [郭文贵2019年11月16日 20191116习近平讲话对香港有本质影响；建议香港的孩子们撤离](/content/transcript/2019/11/20191116-53483459.md)
 
+[2019年11月15日郭文贵直播建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 全文字版\n](/content/transcript/2019/11/20191115-53954821.md)
+
 [郭文贵2019年11月15日视频 20191115建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 文贵去华盛顿办大事；香港法案一定会过](/content/transcript/2019/11/20191115-53483456.md)
 
 [郭文贵2019年11月14日第一次直播 20191114_1](/content/transcript/2019/11/20191114-53483446.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年11月8日视频 20191108_1正在為香港人權與民主法案準備材料](/content/transcript/2019/11/20191108-53479129.md)
 
 [2019年11月7日文贵大直播全文字版：中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资](/content/transcript/2019/11/20191107-53946213.md)
-
-[郭文贵2019年11月7日 20191107中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资](/content/transcript/2019/11/20191107-53483409.md)
 
 
 ## 頁面 64/111 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
