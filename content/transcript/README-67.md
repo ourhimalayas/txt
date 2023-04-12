@@ -3,6 +3,12 @@
 
 ## 頁面 67/111 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年10月21日文贵大直播全文字版：第一次直播；第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/content/transcript/2019/10/20191021-53916881.md)
+
+[郭文贵2019年10月21日第二次紧急直播 20191021_2陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/content/transcript/2019/10/20191021-53483205.md)
+
+[郭文贵2019年10月21日第一次直播 20191021_1](/content/transcript/2019/10/20191021-53483198.md)
+
 [郭文贵2019年10月20日视频 20191020_1大家分享纽约雨天船上时光](/content/transcript/2019/10/20191020-53479075.md)
 
 [2019年10月18日文贵大直播全文字版：郭先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-53912078.md)
@@ -46,12 +52,6 @@
 [郭文贵2019年10月12日视频 20191012_3与战友们分SNOW吃酸奶的片刻… …一切都是刚刚开始！](/content/transcript/2019/10/20191012-53479056.md)
 
 [郭文贵2019年10月12日视频 20191012_2我太太刚刚为我组装的太空母舰……一切都是刚刚开始！](/content/transcript/2019/10/20191012-53479049.md)
-
-[2019年10月10日文贵大直播全文字版：报平安直播，台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/transcript/2019/10/20191010-53900627.md)
-
-[郭文贵2019年10月10日视频 20191010台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/transcript/2019/10/20191010-53483308.md)
-
-[郭文贵2019年10月10日视频 20191010_2今天的SNOW有了很大的变化 比香港警察表现的好得多了(拿Snow跟港警比 對Snow太殘忍了)](/content/transcript/2019/10/20191010-53479048.md)
 
 
 ## 頁面 67/111 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
