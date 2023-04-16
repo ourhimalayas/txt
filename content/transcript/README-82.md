@@ -1,57 +1,57 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 82/111 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 82/112 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
-[郭文贵2019年4月15日第一次直播 20190415_1下午三点！显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！一切都是刚刚开始！](/content/transcript/2019/04/20190415-53482301.md)
+[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）](/content/transcript/2019/04/20190425-1089155.md)
 
-[郭文贵2019年4月15日第二次直播 20190415_2接下来的爆料有些会是让人无法接受的……人性丑恶行为！＂世上有些人的恶已经超过魔鬼????＂与共产党一起的任何人任何事情都比妖怪还要让人憎恶……](/content/transcript/2019/04/20190415-53482297.md)
+[郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！](/content/transcript/2019/04/20190424-1092894.md)
 
-[郭文贵2019年4月13日第一次直播 20190413_1什么叫蓝通？为什么刘鹤将遣返爆料战友等21人作为中美贸易交易的条件！](/content/transcript/2019/04/20190413-53482288.md)
+[郭文贵2019年4月23日视频 20190423_1親愛的戰友 今天有三撥牛人來紐約開會 耗子們也正向著鼠夾狂奔](/content/transcript/2019/04/20190423-1089151.md)
 
-[郭文贵2019年4月13日第二次直播 20190413_2郭文贵直播谈盗国贼的财富以及这周发生的大事！ 江家集团在中国的实际实力和未来的下场！](/content/transcript/2019/04/20190413-53482269.md)
+[郭文贵2019年4月22日视频 20190422_2半小时后，纽约时间上午1000北京时间晚上1000．文贵直播报平安．谈谈对伊朗石油的制裁意味着什么？和盗国贼有什么关系](/content/transcript/2019/04/20190422-1089149.md)
 
-[郭文贵2019年4月13日第三次直播 20190413_3给战友们的四条建议！紧急通知，战友必看！](/content/transcript/2019/04/20190413-53482261.md)
+[郭文贵2019年4月22日 20190422伊朗的石油制栽意味着共产党推行独栽盗国制度．将受到法治．民主社会制度的全面反击！](/content/transcript/2019/04/20190422-1092886.md)
 
-[郭文贵2019年4月11日视频 20190411_1谈谈美国和欧洲接下来的联合行动！再谈谈在伦敦被抓朴的阿桑奇和当前危机委员会！](/content/transcript/2019/04/20190411-53478591.md)
+[郭文贵2019年4月21日 20190421文贵为什么要揭穿．李嘉诚．马云．郭台铭．江志诚！](/content/transcript/2019/04/20190421-1092870.md)
 
-[郭文贵2019年4月10日视频 20190410_2所谓的美国名主持Larry King与俄罗斯美女Dolgva Anastasia造谣文贵的事情．还在进一步的确定详细的信息中，律师建议咱不能就有关问题直播](/content/transcript/2019/04/20190410-53478585.md)
+[郭文贵2019年4月20日视频 20190420班农先生与文贵谈郭台铭选台湾总统 : Steve Bannon and Miles Guo, a dialogue on Terry Gou’s presidential bid](/content/transcript/2019/04/20190420-1092861.md)
 
-[郭文贵2019年4月10日视频 20190410_1 很多战友发给我说Larry King还有俄罗斯美女Dolgva Anastasia又开始找我们事了……造我们谣了，还有很多基金打电话取消跟我的合作！](/content/transcript/2019/04/20190410-53478583.md)
+[郭文贵2019年4月19日视频 20190419明早將與班農一起直播, 班農說的話文貴不負責, 因為他可能違反郭七條](/content/transcript/2019/04/20190419-1089147.md)
 
-[郭文贵2019年4月9日视频 20190409谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事！](/content/transcript/2019/04/20190409-53482255.md)
+[郭文贵2019年4月18日视频 20190418_2正在准备20号上午9点的直播！](/content/transcript/2019/04/20190418-1089144.md)
 
-[郭文贵2019年4月9日视频 20190409_2现在向战友们分享喜马拉雅大使馆内部的法制基金的办公室的一小部分．战友餐厅．以及法制基金的办公区](/content/transcript/2019/04/20190409-53478579.md)
+[郭文贵2019年4月18日视频 20190418_1一个难忘的日子……2017年与VOA龚小夏女士．东方先生……在我家的釆访！断播二周年．文贵回顾这两年来爆料的一些人和事……一切都是刚刚开始](/content/transcript/2019/04/20190418-1092834.md)
 
-[郭文贵2019年4月7日视频 20190407美．欧．日．等将对中资国营．香港自贸协定．中共及香港官员的一系列的立法制栽．或调查．或列入黑名单．行动．将是中共灭亡的第一步！](/content/transcript/2019/04/20190407-53482253.md)
+[郭文贵2019年4月17日视频 20190417_1在喜馬拉雅大使館試衛星WIFI](/content/transcript/2019/04/20190417-1089114.md)
 
-[郭文贵2019年4月6日视频 20190406班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/transcript/2019/04/20190406-53482234.md)
+[郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)](/content/transcript/2019/04/20190417-1089130.md)
 
-[郭文贵2019年4月6日视频 20190406_2应战友们的要求．展示一下喜马拉雅大使馆直播间！这是战友们在美国纽约的家的的9分之一！](/content/transcript/2019/04/20190406-53478577.md)
+[郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)](/content/transcript/2019/04/20190417-1089142.md)
 
-[郭文贵2019年4月3日视频 20190403_1万分感谢科罗拉洲的战友们……你们的勇敢与智慧……让文贵感动至极……一切都要看结果！](/content/transcript/2019/04/20190403-53478662.md)
+[郭文贵2019年4月16日视频 20190416_220分钟左右文贵将在郭媒体直播报平安！不爆料就是谈谈，昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息](/content/transcript/2019/04/20190416-1089106.md)
 
-[郭文贵2019年4月2日视频 20190402尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵向战友们报告在加洲开会的感受．和睡在帐篷的原因与地点！一切都是刚刚开始！【挺郭小妹】](/content/transcript/2019/04/20190402-53482200.md)
+[郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展](/content/transcript/2019/04/20190416-1092824.md)
 
-[郭文贵2019年4月2日视频 20190402_2万分感谢潜伏的战友们的重大贡献](/content/transcript/2019/04/20190402-53478575.md)
+[郭文贵2019年4月15日第二次直播 20190415_2接下来的爆料有些会是让人无法接受的……人性丑恶行为！＂世上有些人的恶已经超过魔鬼????＂与共产党一起的任何人任何事情都比妖怪还要让人憎恶……](/content/transcript/2019/04/20190415-1092809.md)
 
-[郭文贵2019年4月1日视频 20190401_1郭文贵先生美国加州报平安：帐内论灭共，血誓定决心！](/content/transcript/2019/04/20190401-53478660.md)
+[郭文贵2019年4月15日第一次直播 20190415_1下午三点！显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！一切都是刚刚开始！](/content/transcript/2019/04/20190415-1092813.md)
 
-[郭文贵2019年3月31日视频 20190331_1尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵在加州圣巴巴拉向大家报平安！一切都是刚刚开始！](/content/transcript/2019/03/20190331-53478657.md)
+[郭文贵2019年4月13日第三次直播 20190413_3给战友们的四条建议！紧急通知，战友必看！](/content/transcript/2019/04/20190413-1092773.md)
 
-[郭文贵2019年3月30日视频 20190330_1文贵在加州向战友们报平安！有的事情爆得太早 把事情都毀了 而且毀得很嚴重](/content/transcript/2019/03/20190330-53478654.md)
+[郭文贵2019年4月13日第二次直播 20190413_2郭文贵直播谈盗国贼的财富以及这周发生的大事！ 江家集团在中国的实际实力和未来的下场！](/content/transcript/2019/04/20190413-1092781.md)
 
-[郭文贵2019年3月29日浴火重生 20190329超人归来](/content/transcript/2019/03/20190329-53482196.md)
+[郭文贵2019年4月13日第一次直播 20190413_1什么叫蓝通？为什么刘鹤将遣返爆料战友等21人作为中美贸易交易的条件！](/content/transcript/2019/04/20190413-1092800.md)
 
-[郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。](/content/transcript/2019/03/20190307-53478651.md)
+[郭文贵2019年4月11日视频 20190411_1谈谈美国和欧洲接下来的联合行动！再谈谈在伦敦被抓朴的阿桑奇和当前危机委员会！](/content/transcript/2019/04/20190411-1089103.md)
 
-[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？](/content/transcript/2019/03/20190305-53482172.md)
+[郭文贵2019年4月10日视频 20190410_1 很多战友发给我说Larry King还有俄罗斯美女Dolgva Anastasia又开始找我们事了……造我们谣了，还有很多基金打电话取消跟我的合作！](/content/transcript/2019/04/20190410-1089095.md)
 
-[郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……](/content/transcript/2019/03/20190304-53482161.md)
+[郭文贵2019年4月10日视频 20190410_2所谓的美国名主持Larry King与俄罗斯美女Dolgva Anastasia造谣文贵的事情．还在进一步的确定详细的信息中，律师建议咱不能就有关问题直播](/content/transcript/2019/04/20190410-1089097.md)
 
-[郭文贵2019年3月3日视频 20190303金正恩为什么直接回朝鲜为什么要枪毙．偷拍金正恩视频的中国人吗？](/content/transcript/2019/03/20190303-53482155.md)
+[郭文贵2019年4月9日视频 20190409_2现在向战友们分享喜马拉雅大使馆内部的法制基金的办公室的一小部分．战友餐厅．以及法制基金的办公区](/content/transcript/2019/04/20190409-1089091.md)
 
-[郭文贵2019年3月2日 20190302和Sara,安红,路德,邱先生谈话](/content/transcript/2019/03/20190302-53482151.md)
+[郭文贵2019年4月9日视频 20190409谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事！](/content/transcript/2019/04/20190409-1092767.md)
 
 
-## 頁面 82/111 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 82/112 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

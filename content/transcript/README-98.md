@@ -1,57 +1,57 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 98/111 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 98/112 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
 
-[郭文贵2018年4月9日视频 20180409尊敬的战友们好：文贵为什么在华盛顿！](/content/transcript/2018/04/20180409-53482244.md)
+[郭文贵2018年4月22日视频1 20180422_1要射向明镜的10个问彈！](/content/transcript/2018/04/20180422-1092827.md)
 
-[郭文贵2018年4月7日第二次直播 20180407_2吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/transcript/2018/04/20180407-53483681.md)
+[郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/transcript/2018/04/20180421-1092872.md)
 
-[郭文贵2018年4月7日第一次直播 20180407_1谈吴小晖在华尔道夫酒店保险箱藏着什么以及与胡舒立和海航的逻辑关系](/content/transcript/2018/04/20180407-53482292.md)
+[郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！](/content/transcript/2018/04/20180420-1092860.md)
 
-[郭文贵2018年4月6日视频 20180406谈王岐山抓吴小晖是打邓家威胁美国总统的一箭多雕之计](/content/transcript/2018/04/20180406-53482282.md)
+[郭文贵2018年4月19日第三次直播 20180419_3VOG断播一周年回顾之——路德提问](/content/transcript/2018/04/20180419-1088143.md)
 
-[郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁](/content/transcript/2018/04/20180405-53482232.md)
+[郭文贵2018年4月19日第四次直播 20180419_4-419VOA断播门一周年回顾 網友提問 & 評何頻的為人](/content/transcript/2018/04/20180419-1088189.md)
 
-[郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！](/content/transcript/2018/04/20180404-53482140.md)
+[郭文贵2018年4月19日第二次直播 20180419_2谈明镜](/content/transcript/2018/04/20180419-1092817.md)
 
-[郭文贵2018年4月3日第二次直播 20180403_2中国企业家都是盗国贼资本的代孕者！](/content/transcript/2018/04/20180403-53482314.md)
+[郭文贵2018年4月19日第一次直播 20180419_1419VOA断播门一周年回顾](/content/transcript/2018/04/20180419-1092853.md)
 
-[郭文贵2018年4月3日第一次直播 20180403_1-在未来的几天我将向大家谈一下关于吴晓辉和向俊波以及他背后的真实故事他也是香港警察与盗国贼的谋害者之一他的黑幕会也让大家震惊万分](/content/transcript/2018/04/20180403-53482108.md)
+[郭文贵2018年4月16日视频 20180416_2我正在马阿拉哥庄园的对面的海上](/content/transcript/2018/04/20180416-1087685.md)
 
-[郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180402-53483683.md)
+[郭文贵2018年4月16日在Livestrem 20180416谈墙内方老先生和开放海南夺命岛](/content/transcript/2018/04/20180416-1092806.md)
 
-[郭文贵2018年4月2日视频 20180402_2我将向大家谈一下关于吴小晖和项俊波以及他们背后的真实故事](/content/transcript/2018/04/20180402-53477166.md)
+[郭文贵2018年4月14日视频 20180414谈美国及盟国导弹袭击叙利亚是中国的第二次战略机会还是盗国贼盗国的最大机会](/content/transcript/2018/04/20180414-1092792.md)
 
-[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）](/content/transcript/2018/03/20180331-53482084.md)
+[郭文贵2018年4月13日直播 20180413_2跟战友分享下美景，不聊贸易战，南海军演，王岐山访美和杨洁篪](/content/transcript/2018/04/20180413-1088038.md)
 
-[郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子](/content/transcript/2018/03/20180330-53482016.md)
+[郭文贵2018年4月13日视频 20180413_1谈为什么要爆杨洁篪的料](/content/transcript/2018/04/20180413-1092787.md)
 
-[郭文贵2018年3月29日视频第二部分 20180329_2谈为什么西方政府现在开始关注黑港警事件](/content/transcript/2018/03/20180329-53482000.md)
+[郭文贵2018年4月12日直播 20180412_1在华盛顿的两天行程，夏夜良会不会在自己的家庭旅馆里按摄像头！](/content/transcript/2018/04/20180412-1087951.md)
 
-[郭文贵2018年3月29日视频第一部分 20180329_1回答战友们香港警察查封各银行账号用的什么法律手续](/content/transcript/2018/03/20180329-53481942.md)
+[郭文贵2018年4月12日直播 20180412_2内涵段子是中国民主法治自由的新纪元！](/content/transcript/2018/04/20180412-1087978.md)
 
-[郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体](/content/transcript/2018/03/20180329-53477161.md)
+[郭文贵2018年4月10日视频 20180410文贵谈见宝胜．与到底该不该反习！](/content/transcript/2018/04/20180410-1092780.md)
 
-[郭文贵2018年3月28日第二次直播 20180328_2谈香港黑警察与金正恩访华](/content/transcript/2018/03/20180328-53482002.md)
+[郭文贵2018年4月9日视频 20180409尊敬的战友们好：文贵为什么在华盛顿！](/content/transcript/2018/04/20180409-1092756.md)
 
-[郭文贵2018年3月28日第一次直播 20180328_1谈香港警察如何黑抓我们的员工和钱](/content/transcript/2018/03/20180328-53481918.md)
+[郭文贵2018年4月7日第一次直播 20180407_1谈吴小晖在华尔道夫酒店保险箱藏着什么以及与胡舒立和海航的逻辑关系](/content/transcript/2018/04/20180407-1092804.md)
 
-[郭文贵2018年3月27日直播 20180327_2不允许任何劵商买卖方正股票为的啥？](/content/transcript/2018/03/20180327-53477421.md)
+[郭文贵2018年4月7日第二次直播 20180407_2吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/transcript/2018/04/20180407-1094193.md)
 
-[郭文贵2018年3月27日直播 20180327_1-海航3月29日要重新洗牌．王岐山要干什么大事](/content/transcript/2018/03/20180327-53477386.md)
+[郭文贵2018年4月6日视频 20180406谈王岐山抓吴小晖是打邓家威胁美国总统的一箭多雕之计](/content/transcript/2018/04/20180406-1092794.md)
 
-[郭文贵2018年3月26日第一次直播 20180326_1不能将爆料变成娱乐](/content/transcript/2018/03/20180326-53483687.md)
+[郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁](/content/transcript/2018/04/20180405-1092744.md)
 
-[郭文贵2018年3月26日第二次直播 20180326_2谈他们为什么让一个女人裸站几个小时](/content/transcript/2018/03/20180326-53481970.md)
+[郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！](/content/transcript/2018/04/20180404-1092652.md)
 
-[郭文贵2018年3月24日视频 20180324报平安短视频](/content/transcript/2018/03/20180324-53481957.md)
+[郭文贵2018年4月3日第一次直播 20180403_1-在未来的几天我将向大家谈一下关于吴晓辉和向俊波以及他背后的真实故事他也是香港警察与盗国贼的谋害者之一他的黑幕会也让大家震惊万分](/content/transcript/2018/04/20180403-1092620.md)
 
-[郭文贵2018年3月21日视频 20180321谈江曾两家是如何以65%的利息放高利贷的](/content/transcript/2018/03/20180321-53481917.md)
+[郭文贵2018年4月3日第二次直播 20180403_2中国企业家都是盗国贼资本的代孕者！](/content/transcript/2018/04/20180403-1092826.md)
 
-[郭文贵2018年3月21日直播 20180321_2报平安短视频](/content/transcript/2018/03/20180321-53477363.md)
+[郭文贵2018年4月2日视频 20180402_2我将向大家谈一下关于吴小晖和项俊波以及他们背后的真实故事](/content/transcript/2018/04/20180402-1087678.md)
 
-[郭文贵2018年3月20日第二次直播 20180320_2谈盗国贼靠吴征能依法治国实现中国梦吗](/content/transcript/2018/03/20180320-53481862.md)
+[郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180402-1094195.md)
 
 
-## 頁面 98/111 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 98/112 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
