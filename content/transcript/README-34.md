@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 34/112 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年3月17日盖特 20210317_4已经开始的G支付和金融系统．和我们的媒体平台．将是惟一一个打破共产党金融垄断，媒体垄断……奴役14亿中国人民……威胁全香港同胞的唯一的力量．和唯一的综合灭共平台！](/content/transcript/2021/03/20210317-1090950.md)
-
-[郭文贵2021年3月16日盖特 20210316_1尊敬的战友们好……很多战友这几天发了很多信息！问关于一些孝敬孝顺和养老．过程当中的实际客观的矛盾和问题，并给文贵提出了很多的建议，文贵在此谈谈个人的想法和办法！](/content/transcript/2021/03/20210316-1090927.md)
-
-[郭文贵2021年3月16日盖特 20210316_2尊敬的战友们好．这是今天第二次发的盖特……谈谈，以毒灭共．和台湾香港面临的巨大的挑战！](/content/transcript/2021/03/20210316-1090929.md)
-
-[郭文贵2021年3月16日盖特 20210316_3没钱的文贵只能吃点粗茶淡饭！](/content/transcript/2021/03/20210316-1090930.md)
+## 頁面 34/111 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年3月16日盖特 20210316_4文贵在此，拜托，所有的战友．在汇款的时候，务必要填全．填准确．所有的汇款信息，避免给自己．或他人．带来更多的不方便。这是我们共同成长的过程。我们要做好享受财富．驾驭财富，让](/content/transcript/2021/03/20210316-1090934.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年3月8日直播 20210308_1文贵将在农历2月初二，即3月14号直播怀念母亲；各农场和联盟不要忘记灭共的使命；战友们要学会感恩；Gnews，GTV正飞速发展壮大，感谢义工的付出，希望更多战友加入](/content/transcript/2021/03/20210308-1090851.md)
 
+[郭文贵2021年3月7日盖特 20210307_1国际巨头 (鳄鱼????￼)投资基金．在对大陆的金融市场价值．风险全面调查后．决定将投入大陆的资金撤出，可能部分????????????投入到我们G系列！一切都已经开始！](/content/transcript/2021/03/20210307-1090848.md)
 
-## 頁面 34/112 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年3月6日盖特 20210306_1尊敬的战友们好！文贵和大家聊聊。西方媒体的堕落的真正的本质……和对我们所有每个人的危害是什么？香港的董栽倒？和当年的邓痰￼倒．撒切尔夫人之间有什么样的关系？意味着什么？](/content/transcript/2021/03/20210306-1090846.md)
+
+[郭文贵2021年3月5日盖特 20210305_5尊敬的战友们好，我们会马上直播！](/content/transcript/2021/03/20210305-1089834.md)
+
+[郭文贵2021年3月5日盖特 20210305_1回答无数个战友．问七哥的一个问题，现在可不可以迅速地加入……做空港币．挣大钱](/content/transcript/2021/03/20210305-1090834.md)
+
+
+## 頁面 34/111 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)

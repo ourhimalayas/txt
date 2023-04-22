@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 48/112 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年8月20日直播 20200820_1文贵紧急直播：班农先生被捕是共产党的垂死反击，只会让灭共意志更坚定，让灭共力量更强大！](/content/transcript/2020/08/20200820-1092739.md)
-
-[郭文贵2020年8月20日盖特 20200820_28月20号 尊敬的战友们好，我一直以来所说的。新中国联邦．爆料革命灭共运动，在八月份．九月份是最重要的](/content/transcript/2020/08/20200820-1092748.md)
-
-[郭文贵2020年8月19日视频 20200819_3三马要出大事了吗？](/content/transcript/2020/08/20200819-1090020.md)
+## 頁面 48/111 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年8月19日盖特 20200819_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？一切都已经开始](/content/transcript/2020/08/20200819-1092726.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年8月4日盖特 20200804_28月4号非常抱歉一些战友．有一些GTV股权，现在要部分转让有关这些要求信息没有及时回复……请战友们能够理解](/content/transcript/2020/08/20200804-1092447.md)
 
+[郭文贵2020年8月4日直播 20200804_3GTV的价值用金钱无法衡量，历史的机遇无法计算，这都是因为战友的信任和支持](/content/transcript/2020/08/20200804-1092464.md)
 
-## 頁面 48/112 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年8月4日直播 20200804_4共产党的内斗将是一场人类前所未有的政治大劫难](/content/transcript/2020/08/20200804-1092485.md)
+
+[郭文贵2020年8月4日直播 20200804_5文贵与班农聊GTV和中共黑客](/content/transcript/2020/08/20200804-1092492.md)
+
+
+## 頁面 48/111 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)

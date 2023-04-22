@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 108/112 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2017年8月7日直播 20170807_2马英九是...](/content/transcript/2017/08/20170807-1094022.md)
-
-[郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！](/content/transcript/2017/08/20170807-1094405.md)
-
-[郭文贵2017年8月6日直播 20170806党内已怨声载道，北戴河会议群魔乱咬.](/content/transcript/2017/08/20170806-1094023.md)
+## 頁面 108/111 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2017年8月5日视频 20170805_2](/content/transcript/2017/08/20170805-1094027.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2017年7月8日 20170708文贵与王岐山的啪啪啪的能力比较](/content/transcript/2017/07/20170708-1094404.md)
 
+[郭文贵2017年7月6日 20170706王岐山的新豪宅．及孟建柱傅政华的真实关系与丰富多彩的性生活！](/content/transcript/2017/07/20170706-1094397.md)
 
-## 頁面 108/112 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2017年7月5日 20170705文贵又要试试网络了！谈谈王岐山．孟建柱．傅政华．在十九大到底想要什么？](/content/transcript/2017/07/20170705-1094391.md)
+
+[郭文贵2017年7月4日 20170704文贵个人如何看美国与中国不同！美国为什么没有王岐山傅政华这样的盗国贼？](/content/transcript/2017/07/20170704-1094369.md)
+
+
+## 頁面 108/111 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

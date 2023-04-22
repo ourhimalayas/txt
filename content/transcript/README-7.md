@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 7/112 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2022年4月13日盖特 20220413_2尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉????????????????????????????????????????明天上午我会抽时间直播半小时左右，一切都已经开始！](/content/transcript/2022/04/20220413-1091683.md)
-
-[郭文贵2022年4月12日盖特 20220412_1尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！](/content/transcript/2022/04/20220412-1091678.md)
-
-[郭文贵2022年4月11日直播 20220411_1试试直播](/content/transcript/2022/04/20220411-1090879.md)
-
-[郭文贵2022年4月11日盖特 20220411_2尊敬的战友们好……中国已经进入人道大灾难的时刻……](/content/transcript/2022/04/20220411-1091675.md)
+## 頁面 7/111 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年4月10日直播 20220410_1习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](/content/transcript/2022/04/20220410-1090863.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2022年3月18日盖特 20220318_2尊敬的战友们好……共产党和俄罗斯的生死相依的关系什么时候完球蛋！世界的经济危机什么时候是最坏的时候？香港病毒的感染率，和死亡率．成了世界之谜！](/content/transcript/2022/03/20220318-1090670.md)
 
+[郭文贵2022年3月18日盖特 20220318_3尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！](/content/transcript/2022/03/20220318-1090675.md)
 
-## 頁面 7/112 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2022年3月18日直播 20220318_1](/content/transcript/2022/03/20220318-1090829.md)
+
+[郭文贵2022年3月17日直播 20220317_1俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](/content/transcript/2022/03/20220317-1090817.md)
+
+[郭文贵2022年3月16日盖特 20220316_1尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……共产党的经济和将实行的攻台计划！引发了党内的剧烈的政治斗争。共产党人为了保](/content/transcript/2022/03/20220316-1090666.md)
+
+
+## 頁面 7/111 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)

@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 61/112 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年1月19日 20200119惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！](/content/transcript/2020/01/20200119-1092312.md)
-
-[郭文贵2020年1月18日 20200118刘鹤招待会取消预示着什么](/content/transcript/2020/01/20200118-1092293.md)
-
-[郭文贵2020年1月17日谈中美贸易战内幕 20200117贸易协议为何一定是滑稽的结](/content/transcript/2020/01/20200117-1091616.md)
+## 頁面 61/111 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年1月15日第一次直播 20200115_1谈美国白宫建筑意义](/content/transcript/2020/01/20200115-1091598.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2019年12月30日第二次直播 20191230_2第二次直播向战友询问1/22和春节晚会的举办形式，有惊人王健死亡照片出示](/content/transcript/2019/12/20191230-1094155.md)
 
+[郭文贵2019年12月29日连线钢铁侠 20191229聊中国的教育和如何面对的性](/content/transcript/2019/12/20191229-1094163.md)
 
-## 頁面 61/112 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2019年12月28日谈细丝的行为 20191228又一个郭宝胜欺诈的案例](/content/transcript/2019/12/20191228-1094145.md)
+
+[郭文贵2019年12月27日视频 20191227文貴衷心的感谢洛杉矶⋯⋯的战友们，⋯⋯⋯⋯一切都是剛剛開始！](/content/transcript/2019/12/20191227-1094124.md)
+
+
+## 頁面 61/111 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)

@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 4/112 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
-
-[2022年10月18日郭文贵盖特 共产党的腐败、傲慢狂妄自](/content/transcript/2022/10/20221018-1098069.md)
-
-[2022年10月17日郭文贵盖特 坚持为真不破是灭共的绝对利器](/content/transcript/2022/10/20221017-1098068.md)
-
-[2022年10月16日《文贵大直播》中共二十大究竟想干什么？](/content/transcript/2022/10/20221016-1098067.md)
-
-[2022年10月14日 新中国联邦三剑客浪漫聚核晚餐 全文字版](/content/transcript/2022/10/20221014-1098065.md)
+## 頁面 4/111 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
 
 [2022年10月14日 新中国联邦三剑客浪漫聚核晚餐 全文字版（下）](/content/transcript/2022/10/20221014-1098066.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2022年9月18日直播 20220918_1普京得了什么病？What kind of disease is Putin having？](/content/transcript/2022/09/20220918-1091961.md)
 
+[郭文贵2022年9月17日盖特 20220917_1尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都](/content/transcript/2022/09/20220917-1092357.md)
 
-## 頁面 4/112 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2022年9月16日盖特 20220916_1尊敬的战友们好，世界巨变．和全球人民将面对的各种不确定性，和疫苗灾难，只有新中国联邦人……有无限美好的未来，我们要互相珍惜，永远不要忘了，消灭中国共产党，是我们凝聚的相聚．](/content/transcript/2022/09/20220916-1092351.md)
+
+[郭文贵2022年9月15日直播 20220915_19月15号七哥乱聊直播](/content/transcript/2022/09/20220915-1091938.md)
+
+[郭文贵2022年9月15日盖特 20220915_2尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天](/content/transcript/2022/09/20220915-1092342.md)
+
+
+## 頁面 4/111 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)

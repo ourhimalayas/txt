@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 51/112 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦](/content/transcript/2020/07/20200711-1089943.md)
-
-[郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）](/content/transcript/2020/07/20200710-1089907.md)
-
-[郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）](/content/transcript/2020/07/20200710-1089909.md)
+## 頁面 51/111 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年7月10日视频 20200710_3文贵先生再次参加班农战斗室节目片段（3）](/content/transcript/2020/07/20200710-1089910.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年6月28日直播 20200628香港问责法案最后一分钟被大打折扣；成功营救郝海东之子：GTV投资进展；中共对付新中国联邦的烂招](/content/transcript/2020/06/20200628-1092167.md)
 
+[郭文贵2020年6月25日直播 20200625_1杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/transcript/2020/06/20200625-1092129.md)
 
-## 頁面 51/112 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年6月25日直播 20200625_2夏威夷会面杨洁篪再次的威胁，美国和将华人都列为犯罪分子的背后故事](/content/transcript/2020/06/20200625-1092221.md)
+
+[郭文贵2020年6月24日视频 20200624_1文贵与战友们分享今天媳妇做的大锅菜](/content/transcript/2020/06/20200624-1089886.md)
+
+
+## 頁面 51/111 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)

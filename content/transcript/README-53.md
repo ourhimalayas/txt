@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 53/112 [**<**](/content/transcript/README-52.md) [1](/content/transcript/README.md) ... [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) **53** [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-54.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/content/transcript/2020/06/20200610-1092566.md)
-
-[郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录](/content/transcript/2020/06/20200609-1089033.md)
-
-[郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？](/content/transcript/2020/06/20200609-1092363.md)
+## 頁面 53/111 [**<**](/content/transcript/README-52.md) [1](/content/transcript/README.md) ... [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) **53** [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-54.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年6月9日 20200609_1关于G币的退款．诉讼．赔偿．一些问题．及如何拥有投资GTV老股的机会！的一些回答。](/content/transcript/2020/06/20200609-1092536.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年5月25日视频 20200525_2共产党对战友们涌跃的投资的恐惧????用威胁其他国银行不配合投资付款！](/content/transcript/2020/05/20200525-1092059.md)
 
+[郭文贵2020年5月25日视频 20200525_3如何解决共产党对我们投资的封杀．请战友们准备好六四宣言，讲遇到的挑战和挫折。](/content/transcript/2020/05/20200525-1092378.md)
 
-## 頁面 53/112 [**<**](/content/transcript/README-52.md) [1](/content/transcript/README.md) ... [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) **53** [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-54.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊](/content/transcript/2020/05/20200523-1089009.md)
+
+[郭文贵2020年5月23日第一次GTV直播 20200523_1从中国的五四民主运动和北京天安门的六四事件与美国的七四建国日．来看今天人类的大灾难……](/content/transcript/2020/05/20200523-1092041.md)
+
+
+## 頁面 53/111 [**<**](/content/transcript/README-52.md) [1](/content/transcript/README.md) ... [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) **53** [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-54.md) [查看全部](/content/transcript/README-all.md)

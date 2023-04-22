@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 63/112 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2019年12月9日第一次直播 20191209_1文贵成为国际外汇交易中心；GPOST募捐比特币是被黑客，假信息](/content/transcript/2019/12/20191209-1094205.md)
-
-[郭文贵2019年12月9日第二次直播 20191209_2爆王健彩色尸体照片 “王健死亡真相大披露”下部](/content/transcript/2019/12/20191209-1094233.md)
-
-[郭文贵2019年12月8日第一次直播 20191208_1审判郭宝胜的最后一天](/content/transcript/2019/12/20191208-1094069.md)
+## 頁面 63/111 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年12月8日第二次直播 20191208_2昨天香港游行又一次震惊世界；香港抗议最大价值：教会大陆人上街和如何坚持到底，共产党必灭](/content/transcript/2019/12/20191208-1094183.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2019年11月24日视频 20191124_3为了庆祝香港区议会选举的伟大胜利，今天我们要做了家常菜来庆祝庆祝，一切都是刚刚开始](/content/transcript/2019/11/20191124-1089673.md)
 
+[郭文贵2019年11月24日视频 20191124_4 燉魚頭慶賀香港區議員選舉大贏](/content/transcript/2019/11/20191124-1089675.md)
 
-## 頁面 63/112 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2019年11月24日 20191124马装助威香港公投选举议员](/content/transcript/2019/11/20191124-1093943.md)
+
+[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界](/content/transcript/2019/11/20191123-1094161.md)
+
+
+## 頁面 63/111 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)

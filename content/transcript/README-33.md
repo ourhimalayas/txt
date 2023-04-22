@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 33/112 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年3月27日盖特 20210327_2想想儿时没有材火．没有粮食做饭吃的生活……和今天的世界相比，我们真是太幸福了，这是没有在西方世界生活过的人……无法懂得的……没有对比就没有真相……锅里煮着的大锅菜蒸的包子…](/content/transcript/2021/03/20210327-1091050.md)
-
-[郭文贵2021年3月26日盖特 20210326_1不美国的宪政危机．经济危机．必将导致美欧日的经济危机．和世界的经济危机。在美国的恶性膨胀，将彻底的改变美国的经济现状，中共的擀面杖的经济必将彻底崩塌。这是新中国联邦最大的机](/content/transcript/2021/03/20210326-1091040.md)
-
-[郭文贵2021年3月26日盖特 20210326_2尊敬的战友们好！应很多战友的要求，明天3月27号上午9:30文贵乱聊直播！一切都已经开始！](/content/transcript/2021/03/20210326-1091044.md)
-
-[郭文贵2021年3月25日盖特 20210325_1共产党的第低级谎言传染了几代人，让我们很多中国人．不懂得思考．连起码的逻辑思维都没有．新中国联邦人将彻底改变这一切，全世界正在以毒灭共的革命当中，一切都已经开始！](/content/transcript/2021/03/20210325-1091029.md)
+## 頁面 33/111 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年3月25日盖特 20210325_2希望所有过去做过义工的战友们……尽快的和我们新成立的几个老战友信息核对工作组！和对过去义工战友信息的战友们的有关情况！完成我们对这些战友过去付出一些补偿，一切都已经开始！](/content/transcript/2021/03/20210325-1091033.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年3月17日盖特 20210317_3很多战友发给我关于孝敬父母的一些事情．和故事，包括一些自己的观点．以及我向黄艳女士公开道歉，引起国内媒体．及官场的巨大震动的事件．谈谈自己的看法……](/content/transcript/2021/03/20210317-1090948.md)
 
+[郭文贵2021年3月17日盖特 20210317_4已经开始的G支付和金融系统．和我们的媒体平台．将是惟一一个打破共产党金融垄断，媒体垄断……奴役14亿中国人民……威胁全香港同胞的唯一的力量．和唯一的综合灭共平台！](/content/transcript/2021/03/20210317-1090950.md)
 
-## 頁面 33/112 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年3月16日盖特 20210316_1尊敬的战友们好……很多战友这几天发了很多信息！问关于一些孝敬孝顺和养老．过程当中的实际客观的矛盾和问题，并给文贵提出了很多的建议，文贵在此谈谈个人的想法和办法！](/content/transcript/2021/03/20210316-1090927.md)
+
+[郭文贵2021年3月16日盖特 20210316_2尊敬的战友们好．这是今天第二次发的盖特……谈谈，以毒灭共．和台湾香港面临的巨大的挑战！](/content/transcript/2021/03/20210316-1090929.md)
+
+[郭文贵2021年3月16日盖特 20210316_3没钱的文贵只能吃点粗茶淡饭！](/content/transcript/2021/03/20210316-1090930.md)
+
+
+## 頁面 33/111 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)

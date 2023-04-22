@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 28/112 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年5月29日盖特 20210529_3尊敬的菜弄好应很多专业的要求发一个Snow 的视频！](/content/transcript/2021/05/20210529-1091454.md)
-
-[郭文贵2021年5月29日盖特 20210529_47哥边开会边做着我们山东莘县的古城郭氏烧鸡．这是我小时候最想吃的最爱吃的，我老家古城的郭氏烧鸡！我会将共产党如同楚，这个机一样，慢慢地将它们煮熟煮透……而且要程序化的耐心的将](/content/transcript/2021/05/20210529-1091456.md)
-
-[郭文贵2021年5月28日盖特 20210528_1尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！](/content/transcript/2021/05/20210528-1091447.md)
-
-[郭文贵2021年5月27日直播 20210527_1中共把贸易全球化变成全球贸易中国化，强奸联合国组织，新中国联邦拯救了世界；关于武汉实验室在过去48小时已发生根本变化；6月4号新中国联邦一周年活动意义非凡](/content/transcript/2021/05/20210527-1091431.md)
+## 頁面 28/111 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年5月27日盖特 20210527_2尊敬的战友们好！先来120个热身……一会儿和战友们乱聊一切都已经开始了！](/content/transcript/2021/05/20210527-1091433.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年5月18日盖特 20210518_1尊敬的战友们好．今天的盖特提前来了啊……](/content/transcript/2021/05/20210518-1091375.md)
 
+[郭文贵2021年5月18日盖特 20210518_2从早晨6:00到现在，基本上没有吃任何东西．开了一整天的会和采访，但是还是要锻炼．不要给自己任何理由放弃自己的目标……和背叛自己的承诺！](/content/transcript/2021/05/20210518-1091377.md)
 
-## 頁面 28/112 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年5月18日盖特 20210518_3第三次兄弟姐妹们，这个看上去容易的锻炼模式……非常非常的艰难，非常非常的危险．千万千万不要模仿．务必注意自己的身体安全第一！科学锻炼．才能达到，我们健身强心的目的！](/content/transcript/2021/05/20210518-1091381.md)
+
+[郭文贵2021年5月17日盖特 20210517_1回答很多国内战友问七哥．是否应该投资刚刚复出的过去的中国亿万富豪们的项目！七哥如何看待，现在比特币和加密货币的混乱！](/content/transcript/2021/05/20210517-1091369.md)
+
+[郭文贵2021年5月17日盖特 20210517_2尊敬的战友们好，由于明天一整天的特别重要的事情的安排，上午没有时间发盖特，所以现在先发一个盖特！谈谈今天共产党操控的火鸡龚．????粑傅．在华盛顿邮报和所谓的一个．AI黑客网站。两](/content/transcript/2021/05/20210517-1091371.md)
+
+
+## 頁面 28/111 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

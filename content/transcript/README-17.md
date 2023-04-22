@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 17/112 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年10月18日盖特 20211018_1神秘的世界不．神秘的人类，神秘的宇宙，有着无穷无尽的我们未知的力量，这事预义太大了????](/content/transcript/2021/10/20211018-1093647.md)
-
-[郭文贵2021年10月18日盖特直播 20211018_2直播测试](/content/transcript/2021/10/20211018-1093696.md)
-
-[郭文贵2021年10月17日直播 20211017_1青蒿素的神奇功效；爆料孙力军，傅政华和江志诚在新加坡被抓的细节；中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争；经过疫苗灾难，灭共之后，人类会走向更好的](/content/transcript/2021/10/20211017-1093602.md)
-
-[郭文贵2021年10月17日盖特 20211017_2这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间](/content/transcript/2021/10/20211017-1093643.md)
+## 頁面 17/111 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年10月16日直播 20211016_1揭秘摇滚巨星郭文贵先生与新中国联邦战友们现场录音实况](/content/transcript/2021/10/20211016-1093461.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年10月5日直播 20211005_1中共国真实的地方债是15万亿美元；基金就是钱的中介，金融票据就是纸，是奴役中国人的工具，中共埋下金融的雷，全人类都要为此付出代价；中共的邪恶让华人的命运前所未有的危险；虚拟币区](/content/transcript/2021/10/20211005-1093317.md)
 
+[郭文贵2021年10月4日盖特 20211004_1衷心地感谢，国内外很多战友发来的对昨天大直播的反馈和信息。但是所有的国内的公检法的爷们儿，扪心自问，你们对得起自己的良知，和自己是个人的条件吗？自己曾经被傅振华，孙力军，孟](/content/transcript/2021/10/20211004-1093268.md)
 
-## 頁面 17/112 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年10月3日盖特 20211003_3尊敬的战友们好！物无美恶．过则为灾。运动，一定要智慧的运动，千万不要伤了肌肉和身体，否则后悔莫及，健身绝对不能逞强，就像爆料革命灭共事业也一样，不要硬撑．在愉悦快乐，轻松中](/content/transcript/2021/10/20211003-1093259.md)
+
+[郭文贵2021年10月3日盖特 20211003_4人性啊……人……性啊……人性——啊人……性……啊](/content/transcript/2021/10/20211003-1093262.md)
+
+[郭文贵2021年10月3日直播 20211003_1中共外交部是情报机关；爆料程国平，大使倪坚；王毅，杨洁篪，王沪宁一定被抓；外交部和政法委的腐败黑暗关系；傅政华与文贵的通话录音变声的真相；习王江曾厮杀的核心；病毒解药一定都](/content/transcript/2021/10/20211003-1093570.md)
+
+
+## 頁面 17/111 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)

@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 18/112 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年10月4日盖特 20211004_1衷心地感谢，国内外很多战友发来的对昨天大直播的反馈和信息。但是所有的国内的公检法的爷们儿，扪心自问，你们对得起自己的良知，和自己是个人的条件吗？自己曾经被傅振华，孙力军，孟](/content/transcript/2021/10/20211004-1093268.md)
-
-[郭文贵2021年10月3日盖特 20211003_3尊敬的战友们好！物无美恶．过则为灾。运动，一定要智慧的运动，千万不要伤了肌肉和身体，否则后悔莫及，健身绝对不能逞强，就像爆料革命灭共事业也一样，不要硬撑．在愉悦快乐，轻松中](/content/transcript/2021/10/20211003-1093259.md)
-
-[郭文贵2021年10月3日盖特 20211003_4人性啊……人……性啊……人性——啊人……性……啊](/content/transcript/2021/10/20211003-1093262.md)
-
-[郭文贵2021年10月3日直播 20211003_1中共外交部是情报机关；爆料程国平，大使倪坚；王毅，杨洁篪，王沪宁一定被抓；外交部和政法委的腐败黑暗关系；傅政华与文贵的通话录音变声的真相；习王江曾厮杀的核心；病毒解药一定都](/content/transcript/2021/10/20211003-1093570.md)
+## 頁面 18/111 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年10月3日盖特 20211003_2衷心地感谢，今天所有的战友们，参与的六个小时的大直播，感谢所有的台前幕后的工作的兄弟姐妹们，七哥还是感觉，意犹未尽，????????????现在还想马上直播，咋弄咧咋弄咧？](/content/transcript/2021/10/20211003-1093571.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年9月17日直播 20210917_1恒大就是旁氏骗局，中国有2.5亿人卷入，这是国家金融灾难，世界灾难；不打疫苗就是财富；SEC和解协议和纽约州总检查长的保证书的重大意义，中共司法超限战彻底失败，报假案的一定会得到严](/content/transcript/2021/09/20210917-1093112.md)
 
+[郭文贵2021年9月17日直播 20210917_2新中国联邦庆贺马丁·班农先生百岁生日快乐！The New Federal State of China Wishes Mr. Marty Bannon A Happy 100th Birthday!](/content/transcript/2021/09/20210917-1093150.md)
 
-## 頁面 18/112 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年9月16日盖特 20210916_1尊敬的战友们好，昨天的直播，在国际政治和金融领域和有智慧的战友眼里是完全不同的一个直播的意义的结果。新中国联盟的国际大使……那瓦罗先生的加入！对我爆料革命和新中国联邦意味着](/content/transcript/2021/09/20210916-1093153.md)
+
+[郭文贵2021年9月16日盖特 20210916_2共产党正在海外穷凶极恶的派遣他那些垃圾兵团……脑残兵团……伺机报复我们的爆料革命。继他们在美国的法律超限战巨大失败后，已经导致很多平爆小组的人被免职。我们的战友们要做好准备](/content/transcript/2021/09/20210916-1093159.md)
+
+[郭文贵2021年9月16日盖特 20210916_3七哥今天有两场球赛????……一大1⃣️小……](/content/transcript/2021/09/20210916-1093161.md)
+
+
+## 頁面 18/111 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

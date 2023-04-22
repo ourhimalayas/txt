@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 16/112 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年11月2日盖特 20211102_1尊敬的战友们好！永远不要忘了灭共是我们的最终使命！建立一个让中国有独立的法治……信仰的自由．民主的社会的新中国联邦共和国，是我们的信仰，和必须实现的目标，一切都已经开始！](/content/transcript/2021/11/20211102-1093543.md)
-
-[郭文贵2021年11月2日盖特直播 20211102_2](/content/transcript/2021/11/20211102-1093546.md)
-
-[郭文贵2021年11月1日直播 20211101_1“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](/content/transcript/2021/11/20211101-1093905.md)
-
-[郭文贵2021年11月1日直播 20211101_2“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （下）](/content/transcript/2021/11/20211101-1094058.md)
+## 頁面 16/111 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年10月31日盖特直播 20211031_1](/content/transcript/2021/10/20211031-1093540.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年10月19日盖特 20211019_1尊敬的战友们好……杰克．马．去西班牙意味着什么？](/content/transcript/2021/10/20211019-1093698.md)
 
+[郭文贵2021年10月18日盖特 20211018_1神秘的世界不．神秘的人类，神秘的宇宙，有着无穷无尽的我们未知的力量，这事预义太大了????](/content/transcript/2021/10/20211018-1093647.md)
 
-## 頁面 16/112 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年10月18日盖特直播 20211018_2直播测试](/content/transcript/2021/10/20211018-1093696.md)
+
+[郭文贵2021年10月17日直播 20211017_1青蒿素的神奇功效；爆料孙力军，傅政华和江志诚在新加坡被抓的细节；中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争；经过疫苗灾难，灭共之后，人类会走向更好的](/content/transcript/2021/10/20211017-1093602.md)
+
+[郭文贵2021年10月17日盖特 20211017_2这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间](/content/transcript/2021/10/20211017-1093643.md)
+
+
+## 頁面 16/111 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)

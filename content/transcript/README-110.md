@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 110/112 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2017年5月26日 20170526现在随时爆料，随时爆料啊](/content/transcript/2017/05/20170526-1094616.md)
-
-[郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔](/content/transcript/2017/05/20170525-1094338.md)
-
-[郭文贵2017年5月24日 20170524呼吁推友不要冲动](/content/transcript/2017/05/20170524-1094328.md)
+## 頁面 110/111 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2017年5月23日视频 20170523](/content/transcript/2017/05/20170523-1094314.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2017年5月7日 20170507_2向大家报平安的小视频 2](/content/transcript/2017/05/20170507-1094293.md)
 
+[郭文贵2017年5月6日视频 20170506](/content/transcript/2017/05/20170506-1094286.md)
 
-## 頁面 110/112 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2017年5月5日视频 20170505](/content/transcript/2017/05/20170505-1094275.md)
+
+[郭文贵2017年5月4日视频 20170504_1](/content/transcript/2017/05/20170504-1094261.md)
+
+
+## 頁面 110/111 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)

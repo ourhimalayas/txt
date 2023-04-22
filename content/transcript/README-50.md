@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 50/112 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年7月20日视频 20200720_1大家想一想为什么郭先生和班农在船上待了这么久，就是为了做对中共的军事部署](/content/transcript/2020/07/20200720-1089981.md)
-
-[郭文贵2020年7月19日直播 20200719_1不要受“缺爹党”的影响；灭共和解决CCP病毒都到了关键时刻；大力传播今天福克斯采访班农的节目](/content/transcript/2020/07/20200719-1092484.md)
-
-[郭文贵2020年7月19日连线大卫上集 20200719_2](/content/transcript/2020/07/20200719-1092497.md)
+## 頁面 50/111 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年7月19日连线大卫下集 20200719_3](/content/transcript/2020/07/20200719-1092513.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年7月11日视频 20200711_5大日子大日子啊天大的日子啊兄弟姐妹们准备好酒吧](/content/transcript/2020/07/20200711-1089941.md)
 
+[郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦](/content/transcript/2020/07/20200711-1089943.md)
 
-## 頁面 50/112 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）](/content/transcript/2020/07/20200710-1089907.md)
+
+[郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）](/content/transcript/2020/07/20200710-1089909.md)
+
+
+## 頁面 50/111 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)

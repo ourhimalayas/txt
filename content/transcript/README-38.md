@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 38/112 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年1月29日盖特 20210129_2从昨天到今天火爆了的我们的爆料革命．和新中国联邦.和G系列．与这个疯狂的世界的疯狂几个事件的内在逻辑的重要性……](/content/transcript/2021/01/20210129-1090501.md)
-
-[郭文贵2021年1月28日直播 20210128_1受骗九指王的战友们要行动；美四大帮派都来找文贵合作，美，欧，日，俄将形成灭共联盟；Gclub年会预告](/content/transcript/2021/01/20210128-1090487.md)
-
-[郭文贵2021年1月28日盖特 20210128_2关于几club春节年会的一些战友咨询的问题的回答．再次呼吁被VOG ．九指王．欺骗的战友们！积极提供各种证据和信息，以维护战友的安全和利益！](/content/transcript/2021/01/20210128-1090492.md)
-
-[郭文贵2021年1月27日直播 20210127_1GTV已经创造神话；因投资VOG受威胁的战友请与喜联盟联系；共和党与共产党的对决现在已经开始，美国两党的目标都是灭共](/content/transcript/2021/01/20210127-1090474.md)
+## 頁面 38/111 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年1月27日盖特 20210127_2全球联合灭共……全球为了自己的生存，必须灭共……和爆料革命新联邦中国的联合灭共．将是世界正义的力量！和政治安全必然的结果……共产党你完了！](/content/transcript/2021/01/20210127-1090478.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年1月19日盖特 20210119_3这是爆料革命新中国联邦最重要的胜利一天．这是灭共的911行动，我们伟大的彭佩奥国务卿和美国的政府和美国不露名的正义的力量，给我们在这特殊的日子里送来的大礼！为了对路德访谈．在一](/content/transcript/2021/01/20210119-1090406.md)
 
+[郭文贵2021年1月18日盖特 20210118_2](/content/transcript/2021/01/20210118-1089842.md)
 
-## 頁面 38/112 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年1月18日盖特 20210118_3](/content/transcript/2021/01/20210118-1089845.md)
+
+[郭文贵2021年1月18日盖特 20210118_4](/content/transcript/2021/01/20210118-1089859.md)
+
+[郭文贵2021年1月18日盖特 20210118_5](/content/transcript/2021/01/20210118-1089865.md)
+
+
+## 頁面 38/111 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

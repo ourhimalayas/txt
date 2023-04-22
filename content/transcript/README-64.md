@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 64/112 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2019年11月24日视频 20191124_4 燉魚頭慶賀香港區議員選舉大贏](/content/transcript/2019/11/20191124-1089675.md)
-
-[郭文贵2019年11月24日 20191124马装助威香港公投选举议员](/content/transcript/2019/11/20191124-1093943.md)
-
-[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界](/content/transcript/2019/11/20191123-1094161.md)
+## 頁面 64/111 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年11月22日视频 20191122_1Snow 尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵今天上午没有直播，一切都是刚刚开始！](/content/transcript/2019/11/20191122-1089670.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2019年11月14日第二次直播 20191114_2香港一定赢！三分钟香港抗议实况](/content/transcript/2019/11/20191114-1093952.md)
 
+[郭文贵2019年11月14日第一次直播 20191114_1](/content/transcript/2019/11/20191114-1093958.md)
 
-## 頁面 64/112 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
+[2019年11月12日文贵大直播全文字版：关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1078972.md)
+
+[郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1093948.md)
+
+
+## 頁面 64/111 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)

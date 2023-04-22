@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 8/112 [**<**](/content/transcript/README-7.md) [1](/content/transcript/README.md) ... [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) **8** [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-9.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2022年3月18日盖特 20220318_3尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！](/content/transcript/2022/03/20220318-1090675.md)
-
-[郭文贵2022年3月18日直播 20220318_1](/content/transcript/2022/03/20220318-1090829.md)
-
-[郭文贵2022年3月17日直播 20220317_1俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](/content/transcript/2022/03/20220317-1090817.md)
-
-[郭文贵2022年3月16日盖特 20220316_1尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……共产党的经济和将实行的攻台计划！引发了党内的剧烈的政治斗争。共产党人为了保](/content/transcript/2022/03/20220316-1090666.md)
+## 頁面 8/111 [**<**](/content/transcript/README-7.md) [1](/content/transcript/README.md) ... [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) **8** [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-9.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年3月15日直播 20220315_1香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对](/content/transcript/2022/03/20220315-1090722.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2022年2月26日直播 20220226_2紧急直播 救援在乌克兰中国同胞和美国友人方案](/content/transcript/2022/02/20220226-1090301.md)
 
+[郭文贵2022年2月25日直播 20220225_1乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒](/content/transcript/2022/02/20220225-1090232.md)
 
-## 頁面 8/112 [**<**](/content/transcript/README-7.md) [1](/content/transcript/README.md) ... [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) **8** [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-9.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2022年2月24日直播 20220224_1台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福????????????](/content/transcript/2022/02/20220224-1090190.md)
+
+[郭文贵2022年2月24日盖特 20220224_2尊敬的战友们好．世界被邪恶的共产党和魔鬼制造的战争所笼罩……7哥想说的话，都在下面的视频中了！](/content/transcript/2022/02/20220224-1090202.md)
+
+[郭文贵2022年2月23日直播 20220223_1普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事；继2月18日大直播后 世界发生了哪些改变；喜币、喜贷款、喜抵押](/content/transcript/2022/02/20220223-1090184.md)
+
+
+## 頁面 8/111 [**<**](/content/transcript/README-7.md) [1](/content/transcript/README.md) ... [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) **8** [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-9.md) [查看全部](/content/transcript/README-all.md)

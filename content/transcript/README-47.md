@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 47/112 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年9月3日盖特 202009039月3号 尊敬的战友们好．全球联合灭共！和全球联合依法灭贼！进入了新的时代，为了维护新中国联邦……和战友们安全．与利益。和家人应有的尊](/content/transcript/2020/09/20200903-1092730.md)
-
-[郭文贵2020年9月1日直播 20200901我们的GTV首次使用OBS全功能平台摄像机直播共产党在蒙古正在幻想灭族罪。](/content/transcript/2020/09/20200901-1092721.md)
-
-[郭文贵2020年9月1日盖特 20200901_29月1号 尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？感谢战友们的文字。昨天这跑调的歌声的包容和支持，希望不要再传](/content/transcript/2020/09/20200901-1092727.md)
+## 頁面 47/111 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年8月31日盖特 20200831_1尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？听说又要有大锤要落下呀，谁知道啊？文贵想了解正义力量](/content/transcript/2020/08/20200831-1092695.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年8月21日盖特 20200821_28月21号 我们要让吴争．马云．哀立搏一敌．泥扣大V死．华尔街的．死地方夫汶……一个个地为共产党效劳，伤害，爆料革命的人付出必须付出代](/content/transcript/2020/08/20200821-1092610.md)
 
+[郭文贵2020年8月20日直播 20200820_1文贵紧急直播：班农先生被捕是共产党的垂死反击，只会让灭共意志更坚定，让灭共力量更强大！](/content/transcript/2020/08/20200820-1092739.md)
 
-## 頁面 47/112 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年8月20日盖特 20200820_28月20号 尊敬的战友们好，我一直以来所说的。新中国联邦．爆料革命灭共运动，在八月份．九月份是最重要的](/content/transcript/2020/08/20200820-1092748.md)
+
+[郭文贵2020年8月19日视频 20200819_3三马要出大事了吗？](/content/transcript/2020/08/20200819-1090020.md)
+
+
+## 頁面 47/111 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)

@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 89/112 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2018年10月29日视频 20181029文貴應邀擔任全球反CCP聯盟獨立顧問](/content/transcript/2018/10/20181029-1090094.md)
-
-[郭文贵2018年10月28日视频 20181028_2 法國政府對王健之死案的判決](/content/transcript/2018/10/20181028-1088858.md)
-
-[郭文贵2018年10月28日视频 20181028欧洲对CCP的看法正在改变！](/content/transcript/2018/10/20181028-1089892.md)
+## 頁面 89/111 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2018年10月27日视频 20181027_1基金经理Kyle Bass网站被共匪攻击；王健发布会场地被共匪骚扰（提出用N倍价钱来取消发布会）](/content/transcript/2018/10/20181027-1088856.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2018年10月16日视频 20181016郭文贵直播 政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油](/content/transcript/2018/10/20181016-1093287.md)
 
+[郭文贵2018年10月15日视频 20181015_1孟宏偉事件之後 好多人開始被抓](/content/transcript/2018/10/20181015-1088874.md)
 
-## 頁面 89/112 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2018年10月14日视频 20181014_1](/content/transcript/2018/10/20181014-1088868.md)
+
+[郭文贵2018年10月14日视频 20181014_2](/content/transcript/2018/10/20181014-1088872.md)
+
+
+## 頁面 89/111 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

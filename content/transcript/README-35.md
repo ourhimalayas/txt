@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 35/112 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年3月7日盖特 20210307_1国际巨头 (鳄鱼????￼)投资基金．在对大陆的金融市场价值．风险全面调查后．决定将投入大陆的资金撤出，可能部分????????????投入到我们G系列！一切都已经开始！](/content/transcript/2021/03/20210307-1090848.md)
-
-[郭文贵2021年3月6日盖特 20210306_1尊敬的战友们好！文贵和大家聊聊。西方媒体的堕落的真正的本质……和对我们所有每个人的危害是什么？香港的董栽倒？和当年的邓痰￼倒．撒切尔夫人之间有什么样的关系？意味着什么？](/content/transcript/2021/03/20210306-1090846.md)
-
-[郭文贵2021年3月5日盖特 20210305_5尊敬的战友们好，我们会马上直播！](/content/transcript/2021/03/20210305-1089834.md)
-
-[郭文贵2021年3月5日盖特 20210305_1回答无数个战友．问七哥的一个问题，现在可不可以迅速地加入……做空港币．挣大钱](/content/transcript/2021/03/20210305-1090834.md)
+## 頁面 35/111 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年3月5日盖特 20210305_2我最爱的Gfahion竟然是洗后大大缩水．变成了童装????????????……太疯狂了](/content/transcript/2021/03/20210305-1090836.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年2月25日盖特 20210225_2今天七哥和战友开玩笑撒娇说．七哥变老的视频，发出后，收到了无数战友对七哥哥……的健康的关心的信息.…文贵万分的感谢，只要真心灭共．就不会衰老，这是最好的长生不老的妙方](/content/transcript/2021/02/20210225-1090760.md)
 
+[郭文贵2021年2月24日直播 20210224_1美国沼泽地只能与新中国联邦合作；中共20大保江山，指定习的接班人；虚拟货币获得美国支付牌照的重大意义](/content/transcript/2021/02/20210224-1090751.md)
 
-## 頁面 35/112 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年2月24日盖特 20210224_2国内的很多战友发的信息不能一一回信息——请大家原谅、以毒灭共．以钱灭共！正在全世界全面火热????开始……无人可以阻挡新中国联邦拯救中国人和世界人民的胜利✌️✌️✌️✌️✌️……](/content/transcript/2021/02/20210224-1090753.md)
+
+[郭文贵2021年2月23日盖特 20210223_1回答很多战友．关于江泽民家族．大本营移居新加坡的真正的用心……和对爆料革命的影响…](/content/transcript/2021/02/20210223-1090745.md)
+
+[郭文贵2021年2月23日盖特 20210223_2很多战友给我发来的有关信息没发一回复在这里自己衷心地抱歉，很多战友让我回答刚刚习近平的讲话……中国共产党的江山．属于人民的……是什么意思？](/content/transcript/2021/02/20210223-1090748.md)
+
+
+## 頁面 35/111 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)

@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 30/112 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年5月8日盖特 20210508_1七哥要给所有的战友们．每个人准备一个看不着摸不着，却每个人都想要的礼物……作为6月4号的，新中国联邦一周年礼物．大家猜猜是什么呢？](/content/transcript/2021/05/20210508-1091287.md)
-
-[郭文贵2021年5月7日盖特 20210507_1中国共产党这个流氓政府．为什么要在全国封杀购买比特币．和加密货币？只要共产党不让干的事儿，都是世界上最伟大的事儿，只要共产党让干的事儿．一定是世界上最坏的事！](/content/transcript/2021/05/20210507-1091276.md)
-
-[郭文贵2021年5月7日盖特 20210507_2应很多战友的要求．再录制第二段盖特．加密货币的最重要的价值是．无阻碍的全球即时流通．绝对的隐私和保密性．更重要的是零成本的点对点的绝对安全交易！还有很多很多与人类的尊严．民](/content/transcript/2021/05/20210507-1091278.md)
-
-[郭文贵2021年5月7日盖特 20210507_3加密货币，如果被枪顶着脑袋支付给非关的第三方意味着什么？共产党为什么大肆的宣传，不让买虚拟货币和加密货币！可自己去推广D C E P的中共加密货币呢？](/content/transcript/2021/05/20210507-1091281.md)
+## 頁面 30/111 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年5月6日盖特 20210506_1流氓的中国共产党，真的是到了最后的疯狂的时刻，我们战友们该如何应对这共产党最后的疯狂呢？](/content/transcript/2021/05/20210506-1091307.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年4月26日盖特 20210426_1尊敬的战友们好！为什么中国的赵婷的父母能培养出这样的孩子！为什么几十亿的中国人．却只出了一个这样有良知的中国艺术家赵婷！](/content/transcript/2021/04/20210426-1091256.md)
 
+[郭文贵2021年4月25日直播 20210425_1川普总统卸任后最后悔的三件事！拜登欧洲之行意义为何？中共内部经济一塌糊涂，民生银行是中国经济最大的雷！习已经成为孤家“险”人，以共灭共的重点是曾家是否出手。](/content/transcript/2021/04/20210425-1091201.md)
 
-## 頁面 30/112 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年4月25日盖特 20210425_2应战友们的要求．发一段SNOW的视频](/content/transcript/2021/04/20210425-1091252.md)
+
+[郭文贵2021年4月24日盖特 20210424_1天津哈爾濱上海抓捕了很多的官員, 很多是王岐山在中紀委時的親信馬仔; 國內現在最具實力的絕不是習近平而是曾慶紅, 增的家人全是軍方的, 級別又高; 文貴爆了航空母艦的事後中南坑震怒](/content/transcript/2021/04/20210424-1091233.md)
+
+[郭文贵2021年4月23日直播 20210423_1智囊团失信，军事被美打击，数字人民币DCEP被全世界抵制，习成孤家寡人；国内政治变化正在发生中；此次开庭希望能让新中国联邦人认识到媒体和法律的力量](/content/transcript/2021/04/20210423-1091220.md)
+
+
+## 頁面 30/111 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

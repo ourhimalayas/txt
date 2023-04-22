@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 41/112 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年12月26日盖特 20201226_5我们战友中藏龙卧虎，新中国联邦和爆料革命的力量……正在发挥着不可估量的拯救全世界……和全中国人民的作用……没有方方面面的战友的付出……文贵和爆料革命不可能走到今天……什么都](/content/transcript/2020/12/20201226-1090158.md)
-
-[郭文贵2020年12月25日直播 20201225_1文贵圣诞直播](/content/transcript/2020/12/20201225-1090148.md)
-
-[郭文贵2020年12月25日音频聊天 20201225_2郭先生喜马拉雅大使馆discord群答疑录音](/content/transcript/2020/12/20201225-1090289.md)
-
-[郭文贵2020年12月24日盖特 20201224_4郝海東夫婦中大獎了 買了八個中了三個20201224之4](/content/transcript/2020/12/20201224-1089734.md)
+## 頁面 41/111 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年12月24日盖特 20201224_1平安夜快乐……你们感受到最不平安夜的感觉了吗？](/content/transcript/2020/12/20201224-1090139.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2020年12月14日盖特 20201214_2今天所有谷歌油管断网的背后真相和最后推倒共产党的防火墙，都是紧密相联的关系，推翻共產黨互聯網的行動已經開始了](/content/transcript/2020/12/20201214-1090082.md)
 
+[郭文贵2020年12月13日盖特 20201213_1GTV的投资者用自己的智慧和金钱证明了自己到底是聪明人……还是大笨蛋……好日子只是刚刚开始！](/content/transcript/2020/12/20201213-1090069.md)
 
-## 頁面 41/112 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年12月13日盖特 20201213_2明天14号后天15号就像几周以前，我说过的一样，这是关键的日子，你们会很开心，会很兴奋的](/content/transcript/2020/12/20201213-1090072.md)
+
+[郭文贵2020年12月12日盖特 20201212_1文贵喝咖啡喝醉了……乱聊，并回答很多朋友在昨天直播后的一些有关沼泽地里的关切！](/content/transcript/2020/12/20201212-1090067.md)
+
+[郭文贵2020年12月11日直播 20201211_1文贵直播谈真实的川普总统；正义的力量超乎我们的想象！](/content/transcript/2020/12/20201211-1090042.md)
+
+
+## 頁面 41/111 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)

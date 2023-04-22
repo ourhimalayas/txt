@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 86/112 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案](/content/transcript/2019/01/20190109-1089010.md)
-
-[郭文贵2019年1月8日视频 20190108春晚搞不搞，听听战友们的心声](/content/transcript/2019/01/20190108-1092417.md)
-
-[郭文贵2019年1月7日视频 20190107_2-财新再一次造谣说陈刚和郭文贵有关系；郭媒体可以定位黑客IP地址；春晚邀请凯琳女做一个节目回答网友提问。](/content/transcript/2019/01/20190107-1089008.md)
+## 頁面 86/111 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年1月7日视频 20190107报平安直播被黑客掉未成功的视频。谈马云和被双规的成钢以及懒人郭宝胜的案子](/content/transcript/2019/01/20190107-1092391.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2018年12月20日视频 20181220要對你的嫂子好 對你的弟妹好 你的運氣才會好](/content/transcript/2018/12/20181220-1094208.md)
 
+[郭文贵2018年12月19日视频 20181219改革開放40年大會確定要往回走 大家準備吃草吧](/content/transcript/2018/12/20181219-1094206.md)
 
-## 頁面 86/112 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2018年12月18日视频 20181218_1某部門已開始對過去在網路上造我的謠的人那個那個那個](/content/transcript/2018/12/20181218-1088936.md)
+
+[郭文贵2018年12月17日视频 20181217关于昨天被删除的视频和路德Sara女](/content/transcript/2018/12/20181217-1091943.md)
+
+
+## 頁面 86/111 [**<**](/content/transcript/README-85.md) [1](/content/transcript/README.md) ... [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) **86** [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-87.md) [查看全部](/content/transcript/README-all.md)

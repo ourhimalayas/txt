@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 66/112 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2019年11月2日第一次直播 20191102_1在中央公园与战友分享美景](/content/transcript/2019/11/20191102-1093919.md)
-
-[2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版](/content/transcript/2019/10/20191030-1080376.md)
-
-[郭文贵2019年10月30日特别节目下集 20191030_1与路德，sara，江财神在喜马拉雅谈区块链](/content/transcript/2019/10/20191030-1088553.md)
+## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年10月30日视频 20191030_2厨师，从今天凌晨300为我们的Sara女士．老江．路德．庄烈宏先生的午餐．烹制的法国鸭腿和5A级的日本和牛肉，我们一起在直播中吃](/content/transcript/2019/10/20191030-1089620.md)
 
@@ -53,5 +47,11 @@
 
 [2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲](/content/transcript/2019/10/20191024-1087427.md)
 
+[郭文贵2019年10月24日 20191024谈彭斯副总统演讲](/content/transcript/2019/10/20191024-1093743.md)
 
-## 頁面 66/112 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
+[2019年10月23日 郭文贵先生直播：中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！全文字版](/content/transcript/2019/10/20191023-1087424.md)
+
+[郭文贵2019年10月23日视频 20191023_2Snow練習走伸展台](/content/transcript/2019/10/20191023-1089592.md)
+
+
+## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)

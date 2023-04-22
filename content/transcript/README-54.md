@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 54/112 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年5月25日视频 20200525_3如何解决共产党对我们投资的封杀．请战友们准备好六四宣言，讲遇到的挑战和挫折。](/content/transcript/2020/05/20200525-1092378.md)
-
-[郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊](/content/transcript/2020/05/20200523-1089009.md)
-
-[郭文贵2020年5月23日第一次GTV直播 20200523_1从中国的五四民主运动和北京天安门的六四事件与美国的七四建国日．来看今天人类的大灾难……](/content/transcript/2020/05/20200523-1092041.md)
+## 頁面 54/111 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年5月23日GTV第二次直播 20200523_2文贵如何看待十几天后的六四……新宣言和内心的感受。](/content/transcript/2020/05/20200523-1092288.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年5月6日连线Twins 20200506](/content/transcript/2020/05/20200506-1092031.md)
 
+[郭文贵2020年5月5日视频 20200505](/content/transcript/2020/05/20200505-1092015.md)
 
-## 頁面 54/112 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年5月4日视频 20200504共产党完蛋前的疯狂……及爆料革命必须扮演的角色……让中国人财富和子孙安全的雅典娜计划](/content/transcript/2020/05/20200504-1092007.md)
+
+[郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..](/content/transcript/2020/05/20200503-1089003.md)
+
+
+## 頁面 54/111 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)

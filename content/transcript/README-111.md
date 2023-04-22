@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 111/112 [**<**](/content/transcript/README-110.md) [1](/content/transcript/README.md) ... [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) **111** [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-112.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2017年5月6日视频 20170506](/content/transcript/2017/05/20170506-1094286.md)
-
-[郭文贵2017年5月5日视频 20170505](/content/transcript/2017/05/20170505-1094275.md)
-
-[郭文贵2017年5月4日视频 20170504_1](/content/transcript/2017/05/20170504-1094261.md)
+## 頁面 111/111 [**<**](/content/transcript/README-110.md) [1](/content/transcript/README.md) ... [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) **111** [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2017年5月4日视频 20170504_2秦伟平专访郭文贵（弹幕版）](/content/transcript/2017/05/20170504-1094281.md)
 
@@ -53,5 +47,9 @@
 
 [郭文贵2015年视频 2015_1傅政华威胁郭文贵先生的秘密通话⎟The secret phone conversation between Miles Guo and Fu Zhenghua in 2015](/content/transcript/2014/12/20141231-1093459.md)
 
+[郭文贵2004年8月1日视频 20040801北顶娘娘庙附近的龙卷风](/content/transcript/2004/08/20040801-1094051.md)
 
-## 頁面 111/112 [**<**](/content/transcript/README-110.md) [1](/content/transcript/README.md) ... [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) **111** [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-112.md) [查看全部](/content/transcript/README-all.md)
+[](/content/transcript/1969/12/19691231-1087431.md)
+
+
+## 頁面 111/111 [**<**](/content/transcript/README-110.md) [1](/content/transcript/README.md) ... [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) **111** [查看全部](/content/transcript/README-all.md)

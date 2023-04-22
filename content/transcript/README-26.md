@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 26/112 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年6月25日直播 20210625_1国际形势已发生重大变化；西方对华人看法的改变；西方在南海有统一行动；一旦病毒来源确定，将对中南坑直接斩首！](/content/transcript/2021/06/20210625-1091580.md)
-
-[郭文贵2021年6月24日盖特 20210624_1尊敬的战友们好……共产党的内部斗争，加速了侵略台湾的可能！新中国联邦……绝对不能成为自私投机贪婪人的发财平台！](/content/transcript/2021/06/20210624-1091592.md)
-
-[郭文贵2021年6月24日盖特 20210624_2第二段：关于很多想加入GTV工作的战友们的一些问题的回复！](/content/transcript/2021/06/20210624-1091596.md)
-
-[郭文贵2021年6月23日直播 20210623_1东利诉SV案历时三年，文贵从未放弃，这次胜诉的重大意义；共产党利用其控制的律师事务所进行司法超限战对美国的威胁；文贵给大家带来G系列新的希望与未来！](/content/transcript/2021/06/20210623-1091618.md)
+## 頁面 26/111 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年6月22日盖特 20210622_1中共国的经济和金融系统正在用政治维稳的方式，阻止银行和房地产的崩盘！在新的世界各种威胁情况下，新中国联邦和爆料革命的所有的兄弟姐妹们．一定做好最严肃的准备，并同时要紧紧地团](/content/transcript/2021/06/20210622-1091583.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年6月11日盖特 20210611_1尊敬的战友们好！回应战友们！这几天给我发的信息．有关路德访谈和科学家访谈！当中的一系列的不好的感觉！我们一定要记住，唯真不破．知恩感恩的．爆料革命团结是一切根本性的原则！只](/content/transcript/2021/06/20210611-1091536.md)
 
+[郭文贵2021年6月10日盖特 20210610_1今天上午10:30在国会山询问关于闫博士来美国，以及他给美国政府的报告的有关事情！说明了什么？新中国联邦和爆料革命走到今天实在实在太不容易，无数个背后的伟大的．有巨大成功的影响力的](/content/transcript/2021/06/20210610-1091530.md)
 
-## 頁面 26/112 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年6月9日盖特 20210609_1尊敬的战友们好！复旦．南京等地区爆发的一系列的抗议事件．和在中共国的国内发生一系列的残暴杀人……都是共产党奴隶抢夺和非法统治中国人民必然发生的一个轮回的结果，欧中协议失败和](/content/transcript/2021/06/20210609-1091526.md)
+
+[郭文贵2021年6月8日盖特 20210608_1尊敬的战友们好14亿同胞．和孩子们的绝望……中共经济的即将的崩溃……和社会治安的动乱……和美军即将长期派驻台湾……保护台湾……宣布台湾成为主权独立的国家……这些事件的发生这意味](/content/transcript/2021/06/20210608-1091524.md)
+
+[郭文贵2021年6月7日直播 20210607_164后大家需要抓紧完成的几件大事，与各农场联系；宣布联盟农场的变动，介绍铁血组新成员](/content/transcript/2021/06/20210607-1091520.md)
+
+
+## 頁面 26/111 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

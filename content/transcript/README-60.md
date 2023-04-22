@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 60/112 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年2月6日视频 20200206_2文贵接受班农先生War Room 访问](/content/transcript/2020/02/20200206-1088896.md)
-
-[郭文贵2020年2月6日视频 20200206接受班农先生战斗室访谈 谈武](/content/transcript/2020/02/20200206-1091713.md)
-
-[郭文贵2020年2月5日视频 20200205_1我们法治基金已经准备好了一亿个口罩！请问中共我们该如何送到我们血缘的同胞手里？寄诸囗罩．善至血缘！](/content/transcript/2020/02/20200205-1089764.md)
+## 頁面 60/111 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年2月3日直播 20200203_2谈共产党官方一直掩盖武汉真相第二部分](/content/transcript/2020/02/20200203-1088889.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年1月20日谈非典真相 20200120西方人如何看待勤劳的中国人](/content/transcript/2020/01/20200120-1091624.md)
 
+[郭文贵2020年1月19日 20200119惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！](/content/transcript/2020/01/20200119-1092312.md)
 
-## 頁面 60/112 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年1月18日 20200118刘鹤招待会取消预示着什么](/content/transcript/2020/01/20200118-1092293.md)
+
+[郭文贵2020年1月17日谈中美贸易战内幕 20200117贸易协议为何一定是滑稽的结](/content/transcript/2020/01/20200117-1091616.md)
+
+
+## 頁面 60/111 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)

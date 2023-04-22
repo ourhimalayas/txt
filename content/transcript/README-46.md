@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 46/112 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年9月19日做客战斗室 20200919_7班农战斗室 郭文贵专场 E395 中文整理](/content/transcript/2020/09/20200919-1092855.md)
-
-[郭文贵2020年9月19日直播 20200919_1谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（一）](/content/transcript/2020/09/20200919-1092924.md)
-
-[郭文贵2020年9月19日直播 20200919_2谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（二）](/content/transcript/2020/09/20200919-1092930.md)
+## 頁面 46/111 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年9月19日盖特 20200919_3尊敬的香港同胞们……你们的流血．牺牲．将迎来香港新的生命．新的时刻，一切从昨天开始！](/content/transcript/2020/09/20200919-1092934.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年9月4日盖特 202009049月4号 衷心的感谢????????????????????????????国内外的战友，因为昨天大连法院．没收了我家人和同事的65套房子。我的很多家人和同事被赶到大街上去……](/content/transcript/2020/09/20200904-1092732.md)
 
+[郭文贵2020年9月3日盖特 202009039月3号 尊敬的战友们好．全球联合灭共！和全球联合依法灭贼！进入了新的时代，为了维护新中国联邦……和战友们安全．与利益。和家人应有的尊](/content/transcript/2020/09/20200903-1092730.md)
 
-## 頁面 46/112 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年9月1日直播 20200901我们的GTV首次使用OBS全功能平台摄像机直播共产党在蒙古正在幻想灭族罪。](/content/transcript/2020/09/20200901-1092721.md)
+
+[郭文贵2020年9月1日盖特 20200901_29月1号 尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？感谢战友们的文字。昨天这跑调的歌声的包容和支持，希望不要再传](/content/transcript/2020/09/20200901-1092727.md)
+
+
+## 頁面 46/111 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)

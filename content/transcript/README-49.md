@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 49/112 [**<**](/content/transcript/README-48.md) [1](/content/transcript/README.md) ... [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) **49** [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-50.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年8月4日直播 20200804_3GTV的价值用金钱无法衡量，历史的机遇无法计算，这都是因为战友的信任和支持](/content/transcript/2020/08/20200804-1092464.md)
-
-[郭文贵2020年8月4日直播 20200804_4共产党的内斗将是一场人类前所未有的政治大劫难](/content/transcript/2020/08/20200804-1092485.md)
-
-[郭文贵2020年8月4日直播 20200804_5文贵与班农聊GTV和中共黑客](/content/transcript/2020/08/20200804-1092492.md)
+## 頁面 49/111 [**<**](/content/transcript/README-48.md) [1](/content/transcript/README.md) ... [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) **49** [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-50.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年8月4日直播 20200804_6香港黑警的所作所为永不可饶恕，但对99.9%的党员大赦，因为爆料革命的绝对中坚力量还是在中共和国内战友](/content/transcript/2020/08/20200804-1092498.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年7月22日直播 20200722拜请所有的海外华人一定要团结一致，做好准备迎接全世界灭共对华人安全和生活的影响！](/content/transcript/2020/07/20200722-1092335.md)
 
+[郭文贵2020年7月20日视频 20200720_1大家想一想为什么郭先生和班农在船上待了这么久，就是为了做对中共的军事部署](/content/transcript/2020/07/20200720-1089981.md)
 
-## 頁面 49/112 [**<**](/content/transcript/README-48.md) [1](/content/transcript/README.md) ... [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) **49** [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-50.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年7月19日直播 20200719_1不要受“缺爹党”的影响；灭共和解决CCP病毒都到了关键时刻；大力传播今天福克斯采访班农的节目](/content/transcript/2020/07/20200719-1092484.md)
+
+[郭文贵2020年7月19日连线大卫上集 20200719_2](/content/transcript/2020/07/20200719-1092497.md)
+
+
+## 頁面 49/111 [**<**](/content/transcript/README-48.md) [1](/content/transcript/README.md) ... [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) **49** [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-50.md) [查看全部](/content/transcript/README-all.md)

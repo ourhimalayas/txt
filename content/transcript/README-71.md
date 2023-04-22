@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 71/112 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-1093585.md)
-
-[2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-1098221.md)
-
-[郭文贵2019年9月10日视频 20190910_1文贵在凌晨6 00先向大家报平安了，昨天路德的晚餐, 加上他兒子弄壞船上的沙發, 至少毀了我十萬美元, TNND, 非叫路德賠不可](/content/transcript/2019/09/20190910-1089510.md)
+## 頁面 71/111 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年9月9日第二次直播 20190909_2尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以没收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？](/content/transcript/2019/09/20190909-1093564.md)
 
@@ -53,5 +47,11 @@
 
 [2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版](/content/transcript/2019/09/20190901-1098216.md)
 
+[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港](/content/transcript/2019/08/20190831-1089504.md)
 
-## 頁面 71/112 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港](/content/transcript/2019/08/20190829-1089460.md)
+
+[郭文贵2019年8月29日视频 20190829_2马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(一)](/content/transcript/2019/08/20190829-1089464.md)
+
+
+## 頁面 71/111 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)

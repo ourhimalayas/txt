@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 109/112 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2017年7月6日 20170706王岐山的新豪宅．及孟建柱傅政华的真实关系与丰富多彩的性生活！](/content/transcript/2017/07/20170706-1094397.md)
-
-[郭文贵2017年7月5日 20170705文贵又要试试网络了！谈谈王岐山．孟建柱．傅政华．在十九大到底想要什么？](/content/transcript/2017/07/20170705-1094391.md)
-
-[郭文贵2017年7月4日 20170704文贵个人如何看美国与中国不同！美国为什么没有王岐山傅政华这样的盗国贼？](/content/transcript/2017/07/20170704-1094369.md)
+## 頁面 109/111 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2017年7月3日第一次直播 20170703_1王岐山和傅政华将如何毁掉中国](/content/transcript/2017/07/20170703-1094342.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2017年5月29日关于王歧山 20170529关于王歧山](/content/transcript/2017/05/20170529-1094349.md)
 
+[郭文贵2017年5月26日 20170526现在随时爆料，随时爆料啊](/content/transcript/2017/05/20170526-1094616.md)
 
-## 頁面 109/112 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔](/content/transcript/2017/05/20170525-1094338.md)
+
+[郭文贵2017年5月24日 20170524呼吁推友不要冲动](/content/transcript/2017/05/20170524-1094328.md)
+
+
+## 頁面 109/111 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)

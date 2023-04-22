@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 39/112 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年1月18日盖特 20210118_2](/content/transcript/2021/01/20210118-1089842.md)
-
-[郭文贵2021年1月18日盖特 20210118_3](/content/transcript/2021/01/20210118-1089845.md)
-
-[郭文贵2021年1月18日盖特 20210118_4](/content/transcript/2021/01/20210118-1089859.md)
-
-[郭文贵2021年1月18日盖特 20210118_5](/content/transcript/2021/01/20210118-1089865.md)
+## 頁面 39/111 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年1月18日盖特 20210118_6](/content/transcript/2021/01/20210118-1089869.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年1月6日直播 20210106_1文贵直播：美国大选决战时刻（一）](/content/transcript/2021/01/20210106-1090298.md)
 
+[郭文贵2021年1月6日直播 20210106_2文贵直播：美国大选决战时刻（二）](/content/transcript/2021/01/20210106-1090322.md)
 
-## 頁面 39/112 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年1月5日盖特 20210105_1北京在过去24小时发生了什么？华尔街为什么出尔反尔……取消对中共的电信公司的制裁，一切都已经开始！](/content/transcript/2021/01/20210105-1090295.md)
+
+[郭文贵2021年1月4日直播 20210104_1](/content/transcript/2021/01/20210104-1090265.md)
+
+[郭文贵2021年1月4日盖特 20210104_2刚刚直播当中忘掉两个问题在这里向战友们再报告一下，希望战友们高度配合．喜马拉雅联盟委员会的战友之家．为战友们解决麻烦！和提供可靠的帮助！](/content/transcript/2021/01/20210104-1090267.md)
+
+
+## 頁面 39/111 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

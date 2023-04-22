@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 11/112 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2022年1月22日盖特 20220122_3尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！](/content/transcript/2022/01/20220122-1089777.md)
-
-[郭文贵2022年1月21日直播 20220121_1全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](/content/transcript/2022/01/20220121-1089622.md)
-
-[郭文贵2022年1月21日直播 20220121_2喜马拉雅纽约磐石农场开幕典礼](/content/transcript/2022/01/20220121-1089689.md)
-
-[郭文贵2022年1月20日盖特 20220120_1尊敬的战友们好……共产党正在被冬季奥林匹克运动会．房地产崩盘．内部政治斗争……释放观状病毒等等一系列的事情埋葬中！希望中国同胞们不要成为他们的殉葬品，一切都已经开始！](/content/transcript/2022/01/20220120-1089726.md)
+## 頁面 11/111 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年1月19日直播 20220119_1太平联盟官司背后的故事；达沃斯已成中共倒闭论坛；与西方经济脱钩洞察其奸；疫苗政策盼转机有备无患](/content/transcript/2022/01/20220119-1089545.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2022年1月4日盖特直播 20220104_1](/content/transcript/2022/01/20220104-1088542.md)
 
+[郭文贵2022年1月3日盖特直播 20220103_1健身乱聊吃过](/content/transcript/2022/01/20220103-1088546.md)
 
-## 頁面 11/112 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2022年1月2日盖特 20220102_1尊敬的战友们好，万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息，有一些战友的问题无法一一回复，我在这里．一并回答，一切都已经开始！](/content/transcript/2022/01/20220102-1088526.md)
+
+[郭文贵2022年1月1日直播 20220101_1文贵大直播 元旦特别节目 正道至善 除恶建邦](/content/transcript/2022/01/20220101-1094270.md)
+
+[郭文贵2021年12月31日直播 20211231_1《我是音雄》第二季总决赛暨跨年颁奖典礼](/content/transcript/2021/12/20211231-1094004.md)
+
+
+## 頁面 11/111 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)

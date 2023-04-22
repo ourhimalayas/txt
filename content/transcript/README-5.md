@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 5/112 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2022年9月17日盖特 20220917_1尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都](/content/transcript/2022/09/20220917-1092357.md)
-
-[郭文贵2022年9月16日盖特 20220916_1尊敬的战友们好，世界巨变．和全球人民将面对的各种不确定性，和疫苗灾难，只有新中国联邦人……有无限美好的未来，我们要互相珍惜，永远不要忘了，消灭中国共产党，是我们凝聚的相聚．](/content/transcript/2022/09/20220916-1092351.md)
-
-[郭文贵2022年9月15日直播 20220915_19月15号七哥乱聊直播](/content/transcript/2022/09/20220915-1091938.md)
-
-[郭文贵2022年9月15日盖特 20220915_2尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天](/content/transcript/2022/09/20220915-1092342.md)
+## 頁面 5/111 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2022年9月14日盖特 20220914_1尊敬的战友们好小视频来了……](/content/transcript/2022/09/20220914-1092332.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2022年5月2日直播 20220502_1七哥乱聊](/content/transcript/2022/05/20220502-1091528.md)
 
+[郭文贵2022年5月1日直播 20220501_1俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌](/content/transcript/2022/05/20220501-1091523.md)
 
-## 頁面 5/112 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2022年4月30日盖特 20220430_2尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！](/content/transcript/2022/04/20220430-1091723.md)
+
+[郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来](/content/transcript/2022/04/20220429-1091452.md)
+
+[郭文贵2022年4月29日盖特 20220429_2尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！](/content/transcript/2022/04/20220429-1091719.md)
+
+
+## 頁面 5/111 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)

@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 3/112 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
-
-[2023年01月01日新中国联邦2023元旦大直播（第四部分）全文字版](/content/transcript/2023/01/20230101-1098124.md)
-
-[2023年01月01日新中国联邦2023元旦大直播 （第二部分）全文字版](/content/transcript/2023/01/20230101-1098129.md)
-
-[2022年12月29日 凤凰涅槃三度 生命浴火几重 无色无相无我 万法归于灭共 文贵闭关二十一天出关大直播  全文字版](/content/transcript/2022/12/20221229-1098118.md)
-
-[2022年12月6日 文贵先生父亲离世公告视频《全文字版》](/content/transcript/2022/12/20221206-1098112.md)
+## 頁面 3/111 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
 
 [2022年12月4日《文贵大直播》全文字版 共产党将会如何使用核酸检测这个政治武器](/content/transcript/2022/12/20221204-1098111.md)
 
@@ -53,5 +45,13 @@
 
 [2022年10月19日《文贵大直播》全文字版：如何和新中国联邦的战友们一起面对有史以来最大的生存危机](/content/transcript/2022/10/20221019-1098070.md)
 
+[2022年10月18日郭文贵盖特 共产党的腐败、傲慢狂妄自](/content/transcript/2022/10/20221018-1098069.md)
 
-## 頁面 3/112 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)
+[2022年10月17日郭文贵盖特 坚持为真不破是灭共的绝对利器](/content/transcript/2022/10/20221017-1098068.md)
+
+[2022年10月16日《文贵大直播》中共二十大究竟想干什么？](/content/transcript/2022/10/20221016-1098067.md)
+
+[2022年10月14日 新中国联邦三剑客浪漫聚核晚餐 全文字版](/content/transcript/2022/10/20221014-1098065.md)
+
+
+## 頁面 3/111 [**<**](/content/transcript/README-2.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) **3** [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-4.md) [查看全部](/content/transcript/README-all.md)

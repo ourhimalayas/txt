@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 76/112 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2019年7月22日视频 20190722聊聊．钥匙吴．和．Walle  French．造谣：欺骗的伎俩](/content/transcript/2019/07/20190722-1093361.md)
-
-[2019年7月22日 直播全文字版](/content/transcript/2019/07/20190722-1098117.md)
-
-[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版](/content/transcript/2019/07/20190721-1089349.md)
+## 頁面 76/111 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年7月21日视频 20190721爆料革命进入全球共同灭共的新时代 Miles live stream: the Exposé Revolution has entered a new age of eliminating the CCP...](/content/transcript/2019/07/20190721-1093343.md)
 
@@ -53,5 +47,11 @@
 
 [2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-1098105.md)
 
+[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始](/content/transcript/2019/07/20190708-1089300.md)
 
-## 頁面 76/112 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着](/content/transcript/2019/07/20190708-1089302.md)
+
+[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天](/content/transcript/2019/07/20190708-1089307.md)
+
+
+## 頁面 76/111 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)

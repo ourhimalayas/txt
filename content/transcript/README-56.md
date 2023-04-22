@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 56/112 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年4月15日视频 20200415](/content/transcript/2020/04/20200415-1091897.md)
-
-[郭文贵2020年4月14日视频 20200414_2过去的24小时华盛顿、欧洲、日本、俄罗斯全面开始了依法灭共、全球自动灭共的新的时代](/content/transcript/2020/04/20200414-1089815.md)
-
-[郭文贵2020年4月14日视频 20200414爆料革命拯救的同胞和战友们留言，彻底感动了文贵](/content/transcript/2020/04/20200414-1091882.md)
+## 頁面 56/111 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年4月13日视频 20200413_1](/content/transcript/2020/04/20200413-1089811.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年4月4日GTV视频 20200404_5与sara连线第二次](/content/transcript/2020/04/20200404-1088954.md)
 
+[郭文贵2020年4月4日视频 20200404_2文贵烦请战友们提供这些关乎香港命运的资料，美国决策层急需！](/content/transcript/2020/04/20200404-1089781.md)
 
-## 頁面 56/112 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年4月4日 20200404谈CCP病毒让人类陷入巨大灾难，明年5月份前不可能解决，CCP必灭只是时间问题！](/content/transcript/2020/04/20200404-1092042.md)
+
+[郭文贵2020年4月3日GTV视频 20200403_4](/content/transcript/2020/04/20200403-1088921.md)
+
+
+## 頁面 56/111 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)

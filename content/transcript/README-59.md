@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 59/112 [**<**](/content/transcript/README-58.md) [1](/content/transcript/README.md) ... [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) **59** [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-60.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年3月6日视频 20200306_2感谢台湾，日本，香港的战友们为我们的战友还有法制基金的捐款者．几周以来冒着风险一直发送口罩！一切已经开始！](/content/transcript/2020/03/20200306-1089018.md)
-
-[郭文贵2020年3月6日视频 20200306_1郭文贵先生直播晒画玩艺术品](/content/transcript/2020/03/20200306-1089771.md)
-
-[郭文贵2020年3月5日视频 20200305_1与战友们分享文贵一天战役后韵晚餐……一切已经开始](/content/transcript/2020/03/20200305-1089765.md)
+## 頁面 59/111 [**<**](/content/transcript/README-58.md) [1](/content/transcript/README.md) ... [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) **59** [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-60.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年3月4日全世界反击CCP 20200304等着看吧，全世界反击CCP！一切已经开始！](/content/transcript/2020/03/20200304-1091891.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年2月8日第二次直播 20200208_2由美国专家确定病毒非蝙蝠传播，而是来自武汉实验室人工制毒](/content/transcript/2020/02/20200208-1091732.md)
 
+[郭文贵2020年2月6日视频 20200206_2文贵接受班农先生War Room 访问](/content/transcript/2020/02/20200206-1088896.md)
 
-## 頁面 59/112 [**<**](/content/transcript/README-58.md) [1](/content/transcript/README.md) ... [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) **59** [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-60.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年2月6日视频 20200206接受班农先生战斗室访谈 谈武](/content/transcript/2020/02/20200206-1091713.md)
+
+[郭文贵2020年2月5日视频 20200205_1我们法治基金已经准备好了一亿个口罩！请问中共我们该如何送到我们血缘的同胞手里？寄诸囗罩．善至血缘！](/content/transcript/2020/02/20200205-1089764.md)
+
+
+## 頁面 59/111 [**<**](/content/transcript/README-58.md) [1](/content/transcript/README.md) ... [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) **59** [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-60.md) [查看全部](/content/transcript/README-all.md)

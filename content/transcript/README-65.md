@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 65/112 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2019年11月14日第一次直播 20191114_1](/content/transcript/2019/11/20191114-1093958.md)
-
-[2019年11月12日文贵大直播全文字版：关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1078972.md)
-
-[郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1093948.md)
+## 頁面 65/111 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
 
 [2019年11月11日文贵大直播全文字版：文贵与班农先生紧急直播关于香港](/content/transcript/2019/11/20191111-1079328.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2019年11月2日第二次直播 20191102_2文贵讲成功，胜利和信仰：中国现在像灭亡前的大清朝 谈共产党即将倒台的三大因素](/content/transcript/2019/11/20191102-1093913.md)
 
+[郭文贵2019年11月2日第一次直播 20191102_1在中央公园与战友分享美景](/content/transcript/2019/11/20191102-1093919.md)
 
-## 頁面 65/112 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
+[2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版](/content/transcript/2019/10/20191030-1080376.md)
+
+[郭文贵2019年10月30日特别节目下集 20191030_1与路德，sara，江财神在喜马拉雅谈区块链](/content/transcript/2019/10/20191030-1088553.md)
+
+
+## 頁面 65/111 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)

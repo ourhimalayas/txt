@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 13/112 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年12月23日盖特 20211223_1尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视](/content/transcript/2021/12/20211223-1093881.md)
-
-[郭文贵2021年12月22日直播 20211222_1iTunes全球打榜记录- Hcoin To The Moon；中美之间会取消关税，Vice的报导在冬奥会之前帮助中共做的一场政治宣传，中国老百姓将付出巨大代价；莘县古城鸳鸯饼和河南胡辣汤；疫苗灾难的最新数据；彭](/content/transcript/2021/12/20211222-1094211.md)
-
-[郭文贵2021年12月22日视频 20211222_2关于郭文贵先生接受HBO Vice采访的背后真相](/content/transcript/2021/12/20211222-1094294.md)
-
-[郭文贵2021年12月20日盖特 20211220_1尊敬的战友们好，你们健身了吗？传播C C P的病毒和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211220-1093871.md)
+## 頁面 13/111 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年12月20日盖特 20211220_2尊敬的战友们好．冬奥会的政治游戏唯一的受伤害的就10亿中国人民……所有的中国人将为这个完全没有任何价值的政治国际上的愚蠢的秀……付出几千亿美元的代价可悲，可怜．可恨至极……这是](/content/transcript/2021/12/20211220-1093878.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年12月1日直播 20211201_1Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](/content/transcript/2021/12/20211201-1094346.md)
 
+[郭文贵2021年11月30日直播 20211130_1健身直播](/content/transcript/2021/11/20211130-1094257.md)
 
-## 頁面 13/112 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年11月29日盖特 20211129_1全世界的经济即将崩溃之时，随之而来的是社会动乱……政治危机，以及局域战争的开始……新中国联邦人要团结在一起，共同渡过这个人类的世纪大灾难！](/content/transcript/2021/11/20211129-1093668.md)
+
+[郭文贵2021年11月28日直播 20211128_1新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](/content/transcript/2021/11/20211128-1094249.md)
+
+[郭文贵2021年11月27日盖特 20211127_1尊敬的战友们好……你们建身了吗？你们传播CCP病毒和疫苗解药的真相了吗？一切都已经开始!](/content/transcript/2021/11/20211127-1093666.md)
+
+
+## 頁面 13/111 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)

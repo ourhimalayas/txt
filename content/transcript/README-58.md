@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 58/112 [**<**](/content/transcript/README-57.md) [1](/content/transcript/README.md) ... [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) **58** [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-59.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2020年3月22日视频 20200322_1關於舉報Inty](/content/transcript/2020/03/20200322-1089792.md)
-
-[郭文贵2020年3月22日视频 20200322_2關於舉報Inty](/content/transcript/2020/03/20200322-1089794.md)
-
-[郭文贵2020年3月22日视频 20200322_3關於舉報Inty](/content/transcript/2020/03/20200322-1089797.md)
+## 頁面 58/111 [**<**](/content/transcript/README-57.md) [1](/content/transcript/README.md) ... [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) **58** [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-59.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2020年3月22日视频 20200322_4文贵先生船上直播，inty不能取关和进行生命威胁一定要留好证据，我们一定会对他们进行法律诉讼，我们一定大赢，CCP Virus！](/content/transcript/2020/03/20200322-1089800.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2020年3月7日 20200307谈CCP冠状病毒始于香港，必将终于香港！](/content/transcript/2020/03/20200307-1091909.md)
 
+[郭文贵2020年3月6日视频 20200306_2感谢台湾，日本，香港的战友们为我们的战友还有法制基金的捐款者．几周以来冒着风险一直发送口罩！一切已经开始！](/content/transcript/2020/03/20200306-1089018.md)
 
-## 頁面 58/112 [**<**](/content/transcript/README-57.md) [1](/content/transcript/README.md) ... [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) **58** [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-59.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2020年3月6日视频 20200306_1郭文贵先生直播晒画玩艺术品](/content/transcript/2020/03/20200306-1089771.md)
+
+[郭文贵2020年3月5日视频 20200305_1与战友们分享文贵一天战役后韵晚餐……一切已经开始](/content/transcript/2020/03/20200305-1089765.md)
+
+
+## 頁面 58/111 [**<**](/content/transcript/README-57.md) [1](/content/transcript/README.md) ... [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) **58** [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-59.md) [查看全部](/content/transcript/README-all.md)

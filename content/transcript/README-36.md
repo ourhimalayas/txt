@@ -1,15 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 36/112 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2021年2月24日直播 20210224_1美国沼泽地只能与新中国联邦合作；中共20大保江山，指定习的接班人；虚拟货币获得美国支付牌照的重大意义](/content/transcript/2021/02/20210224-1090751.md)
-
-[郭文贵2021年2月24日盖特 20210224_2国内的很多战友发的信息不能一一回信息——请大家原谅、以毒灭共．以钱灭共！正在全世界全面火热????开始……无人可以阻挡新中国联邦拯救中国人和世界人民的胜利✌️✌️✌️✌️✌️……](/content/transcript/2021/02/20210224-1090753.md)
-
-[郭文贵2021年2月23日盖特 20210223_1回答很多战友．关于江泽民家族．大本营移居新加坡的真正的用心……和对爆料革命的影响…](/content/transcript/2021/02/20210223-1090745.md)
-
-[郭文贵2021年2月23日盖特 20210223_2很多战友给我发来的有关信息没发一回复在这里自己衷心地抱歉，很多战友让我回答刚刚习近平的讲话……中国共产党的江山．属于人民的……是什么意思？](/content/transcript/2021/02/20210223-1090748.md)
+## 頁面 36/111 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2021年2月22日盖特 20210222_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？一切都已经开始！](/content/transcript/2021/02/20210222-1090739.md)
 
@@ -53,5 +45,13 @@
 
 [郭文贵2021年2月12日视频巴黎和澳喜 20210212_5悉尼澳喜和巴黎七星大年初一联合晚会](/content/transcript/2021/02/20210212-1090795.md)
 
+[郭文贵2021年2月11日直播 20210211_1辛丑年文贵看春晚](/content/transcript/2021/02/20210211-1090623.md)
 
-## 頁面 36/112 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2021年2月9日盖特 20210209_12月9号尊敬的战友您好，上海的几个老杂毛为什么要说……庚政辛丑钱．民生不稳要出大麻烦……？](/content/transcript/2021/02/20210209-1090615.md)
+
+[郭文贵2021年2月8日盖特 20210208_1尊敬的战友们好，你们健身了吗？中共即将崩塌的经济和党员们对未来财富安全的恐惧，正在改变着世界的经济的格局……，美国总统拜登将与习近平新春通话……](/content/transcript/2021/02/20210208-1090611.md)
+
+[郭文贵2021年2月7日直播 20210207_1 给战友们做美食；要用行动反击九指妖](/content/transcript/2021/02/20210207-1090609.md)
+
+
+## 頁面 36/111 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)

@@ -1,13 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 69/112 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
-
-[郭文贵2019年10月4日 20191004谈香港动用紧急法，出台禁止蒙面条例](/content/transcript/2019/10/20191004-1093733.md)
-
-[2019年10月4日文贵大直播全文字版：谈香港动用紧急法，出台禁止蒙面条例](/content/transcript/2019/10/20191004-1098243.md)
-
-[郭文贵2019年10月3日视频 20191003_1香港将实施宵禁令 变相戒严 大抓捕](/content/transcript/2019/10/20191003-1089547.md)
+## 頁面 69/111 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
 
 [郭文贵2019年10月2日视频 20191002_1美国CAI通过最高技术 扫描‘十一’军演无人机 发现都是假的](/content/transcript/2019/10/20191002-1089541.md)
 
@@ -53,5 +47,11 @@
 
 [郭文贵2019年9月24日视频 20190924_3直播吃红烧肉，阅兵后美女按需分配](/content/transcript/2019/09/20190924-1088578.md)
 
+[郭文贵2019年9月24日第二次直播 20190924_2红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.](/content/transcript/2019/09/20190924-1093675.md)
 
-## 頁面 69/112 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
+[郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！](/content/transcript/2019/09/20190924-1093697.md)
+
+[2019年9月24日文贵大直播全文字版：红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.](/content/transcript/2019/09/20190924-1098239.md)
+
+
+## 頁面 69/111 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
