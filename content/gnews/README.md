@@ -2,6 +2,9 @@
 ---
 
 
+#### [1MDB Goldman Sachs Tim Leissner為中共上海幫洗錢詐騙關鍵人物](/content/gnews/1351618.md)
+Roger Ng辯護律師Marc Agnifilo馬可·阿格尼菲洛在法庭外對記者們表示，美國檢察官把黃宗華Roger Ng當成了替罪羊，這些罪行是其他人犯下的，包括共犯轉成證人的蒂姆·萊斯納Tim Leissner，蒂姆·萊斯納正敲定他此生最大的交易。 `6/2/2023 8:51 AM UTC GNEWSTAIWAN`
+
 #### [【秘翻在线】因支持中共病毒疫苗，川普与选民发生争执](/content/gnews/1351667.md)
 在周四的一次活动中，前总统川普与爱荷华州选民因为COVID-19（中共病毒）疫苗问题发生争执 `6/2/2023 8:49 AM UTC 秘密翻譯組G-Translators`
 
@@ -26,9 +29,6 @@
 #### [【秘翻在线】参议员保罗：除非揭秘COVID-19文件，否则阻止拜登的提名人](/content/gnews/1350920.md)
 尼迪州参议员兰德·保罗（Rand Paul）表示，他将阻止总统乔·拜登的提名人，直到与COVID-19（中共病毒）有关的文件被公布 `6/2/2023 2:50 AM UTC 秘密翻譯組G-Translators`
 
-#### [众议院议员Kim、Bera率领两党通过决议 纪念1989年天安门广场大屠杀的受难者](/content/gnews/1350640.md)
-众议院议员Kim、Bera率领两党通过决议，纪念1989年天安门广场大屠杀的受难者，并谴责发生在中共国和香港的人权镇压。 `6/2/2023 1:04 AM UTC 爱哭鬼`
-
-#### [1MDB Goldman Sachs Tim Leissner為中共上海幫洗錢詐騙關鍵人物](/content/gnews/1351618.md)
-Roger Ng辯護律師Marc Agnifilo馬可·阿格尼菲洛在法庭外對記者們表示，美國檢察官把黃宗華Roger Ng當成了替罪羊，這些罪行是其他人犯下的，包括共犯轉成證人的蒂姆·萊斯納Tim Leissner，蒂姆·萊斯納正敲定他此生最大的交易。 `6/2/2023 8:51 AM UTC GNEWSTAIWAN`
+#### [快讯：比特币的著名批评家和黄金的倡导者彼得-希夫推出他自己的NFT](/content/gnews/1351734.md)
+比特币的著名批评家和黄金的倡导者彼得-希夫(Peter Schiff)，正在通过在比特币平台上推出他自己的NFT艺术收藏品，这让加密货币社区哗然。 `6/2/2023 9:07 AM UTC SugarPup-Eden燎原`
 
