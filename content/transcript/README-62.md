@@ -3,6 +3,8 @@
 
 ## 頁面 62/111 [**<**](/content/transcript/README-61.md) [1](/content/transcript/README.md) ... [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) **62** [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-63.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年12月27日视频 20191227文貴衷心的感谢洛杉矶⋯⋯的战友们，⋯⋯⋯⋯一切都是剛剛開始！](/content/transcript/2019/12/20191227-1094124.md)
+
 [郭文贵2019年12月26日视频 20191226_2要往下一站了 衷心地感謝鳳凰城Phoenix 所有的兄弟姐妹們](/content/transcript/2019/12/20191226-1089745.md)
 
 [郭文贵2019年12月26日视频 20191226谈中共经济正在崩溃 习王之战全面开启](/content/transcript/2019/12/20191226-1094119.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年12月9日第一次直播 20191209_1文贵成为国际外汇交易中心；GPOST募捐比特币是被黑客，假信息](/content/transcript/2019/12/20191209-1094205.md)
 
 [郭文贵2019年12月9日第二次直播 20191209_2爆王健彩色尸体照片 “王健死亡真相大披露”下部](/content/transcript/2019/12/20191209-1094233.md)
-
-[郭文贵2019年12月8日第一次直播 20191208_1审判郭宝胜的最后一天](/content/transcript/2019/12/20191208-1094069.md)
 
 
 ## 頁面 62/111 [**<**](/content/transcript/README-61.md) [1](/content/transcript/README.md) ... [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) **62** [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-63.md) [查看全部](/content/transcript/README-all.md)

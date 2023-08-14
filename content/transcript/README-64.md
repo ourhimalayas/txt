@@ -3,6 +3,8 @@
 
 ## 頁面 64/111 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界](/content/transcript/2019/11/20191123-1094161.md)
+
 [郭文贵2019年11月22日视频 20191122_1Snow 尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵今天上午没有直播，一切都是刚刚开始！](/content/transcript/2019/11/20191122-1089670.md)
 
 [郭文贵2019年11月21日视频 20191121_2 郭文貴來電 13604~21016妄议热线 328期 2019年11月21日 郭文贵爆料证实王健是被精心策划的谋杀，郭文贵来电，王健可能没死，墓里疑是日本人](/content/transcript/2019/11/20191121-1089668.md)
@@ -16,6 +18,8 @@
 [郭文贵2019年11月20日视频 20191120_3即將開始的直播將是滅共歷史上的傳奇](/content/transcript/2019/11/20191120-1089662.md)
 
 [郭文贵2019年11月20日 20191120“纪念1120新闻发布会一周：揭秘王健之死”下部](/content/transcript/2019/11/20191120-1094024.md)
+
+[2019年11月20日文贵大直播全文字版：王建之死 两周年（上）](/content/transcript/2019/11/20191120-1243310.md)
 
 [郭文贵2019年11月19日第二次直播 20191119_2一整天直播的大概安排和香港理工大的背后故事。](/content/transcript/2019/11/20191119-1093981.md)
 
@@ -48,10 +52,6 @@
 [郭文贵2019年11月14日第二次直播 20191114_2香港一定赢！三分钟香港抗议实况](/content/transcript/2019/11/20191114-1093952.md)
 
 [郭文贵2019年11月14日第一次直播 20191114_1](/content/transcript/2019/11/20191114-1093958.md)
-
-[2019年11月12日文贵大直播全文字版：关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1078972.md)
-
-[郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1093948.md)
 
 
 ## 頁面 64/111 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)

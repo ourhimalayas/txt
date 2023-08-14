@@ -3,6 +3,10 @@
 
 ## 頁面 72/111 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港](/content/transcript/2019/08/20190829-1089460.md)
+
+[郭文贵2019年8月29日视频 20190829_2马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(一)](/content/transcript/2019/08/20190829-1089464.md)
+
 [郭文贵2019年8月29日视频 20190829_3马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(二)](/content/transcript/2019/08/20190829-1089468.md)
 
 [2019年8月29日文贵大直播全文字版：中共是恐怖组织白宫已过10万;芬太尼, 假美元是中共3F美国的部分国家行动核心战略](/content/transcript/2019/08/20190829-1098217.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年8月17日 20190817（原声） 班农与文贵先生谈：香港危机 美国即将必须采取的行动](/content/transcript/2019/08/20190817-1093591.md)
 
 [2019年8月17号文贵大直播全文字版：回复有关今早直播后，大家发来的私信问题……](/content/transcript/2019/08/20190817-1098189.md)
-
-[郭文贵2019年8月16日视频 20190816尊敬的战友们好．你们传播香港危机的真相了吗？香港反送中运动．已经变成了国际集体反共的运动，战友们和香港同胞们一定要抓住机会，赢得这场前所未有的灭共战争，一切](/content/transcript/2019/08/20190816-1093561.md)
-
-[2019年8月16日文貴大直播全文字版：你们传播香港危机的真相了吗？香港反送中运动......](/content/transcript/2019/08/20190816-1098188.md)
 
 
 ## 頁面 72/111 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

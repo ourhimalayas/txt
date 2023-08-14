@@ -3,6 +3,10 @@
 
 ## 頁面 25/111 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年7月7日盖特 20210707_1尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？国内的金融．上市．银行．企业．国际大玩家纷纷倒闭……接下来将发生什么样的事情呢？](/content/transcript/2021/07/20210707-1091669.md)
+
+[郭文贵2021年7月6日盖特 20210706_1尊敬的战友们好．共产党内部已经开始瓦解了，请跟随并珍惜新中国联邦、爆料革命。](/content/transcript/2021/07/20210706-1091674.md)
+
 [郭文贵2021年7月6日盖特 20210706_2尊敬的兄弟姐妹们，七哥的盖特太少人关注了．班农都10万了，我才3万啊，好可怜呢。](/content/transcript/2021/07/20210706-1091676.md)
 
 [郭文贵2021年7月6日盖特 20210706_3Dear comrades-in-arms, have you exercised yet?  Is the truth about the Hong Kong crisis spreading the C C P virus?](/content/transcript/2021/07/20210706-1091679.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年6月25日直播 20210625_1国际形势已发生重大变化；西方对华人看法的改变；西方在南海有统一行动；一旦病毒来源确定，将对中南坑直接斩首！](/content/transcript/2021/06/20210625-1091580.md)
 
 [郭文贵2021年6月24日盖特 20210624_1尊敬的战友们好……共产党的内部斗争，加速了侵略台湾的可能！新中国联邦……绝对不能成为自私投机贪婪人的发财平台！](/content/transcript/2021/06/20210624-1091592.md)
-
-[郭文贵2021年6月24日盖特 20210624_2第二段：关于很多想加入GTV工作的战友们的一些问题的回复！](/content/transcript/2021/06/20210624-1091596.md)
-
-[郭文贵2021年6月23日直播 20210623_1东利诉SV案历时三年，文贵从未放弃，这次胜诉的重大意义；共产党利用其控制的律师事务所进行司法超限战对美国的威胁；文贵给大家带来G系列新的希望与未来！](/content/transcript/2021/06/20210623-1091618.md)
 
 
 ## 頁面 25/111 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 21/111 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年8月24日盖特 20210824_2尊敬的战友们好．马上要开始的直播，继续谈疫苗灾难将给世界的经济，我们每个人生活．带来什么样的影响，从昨天到今天．太多战友给我发来的自己家人．朋友．打疫苗后的严重的后果的一个](/content/transcript/2021/08/20210824-1092194.md)
+
+[郭文贵2021年8月24日直播 20210824_1中共病毒和疫苗的生化超限战对世界经济的前所未有的打击；疫苗灾难给人类带来什么样危机；经济负增长意味着什么；有毒的口罩和疫苗都含有氧化石墨烯；新中国联邦农场战友全面开始互助互](/content/transcript/2021/08/20210824-1092799.md)
+
 [郭文贵2021年8月23日盖特 20210823_2尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机．C C P病毒真相了吗？](/content/transcript/2021/08/20210823-1092192.md)
 
 [郭文贵2021年8月23日直播 20210823_1中共病毒疫苗到底是什么；共产党的放毒计划；中共放毒传染的方式就是“疫苗”；这场生化大战美国和西方国家是输家，是北京和俄罗斯合作进行的超限战；每个战友都是传播病毒疫苗真相的信](/content/transcript/2021/08/20210823-1092722.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年8月12日盖特 20210812_1尊敬的战友好！你们健身了吗？你传播C C P病毒，香港危机郑州人祸真相了吗？一切都已经开始！](/content/transcript/2021/08/20210812-1092091.md)
 
 [郭文贵2021年8月12日盖特 20210812_2尊敬的战友们好。我们新中国联邦所有的战友们……都应该认真的看一看，珍惜．我们的面临着什么样前所未有的国际形势．天助新中国联邦……](/content/transcript/2021/08/20210812-1092093.md)
-
-[郭文贵2021年8月12日盖特 20210812_3第二段盖特．我们新中国联邦的战友们永远要记住．维护不包括共产党中国的利益，中国人的安全和利益……是永远不可妥协的原则……永远是我们的核心中的核心。](/content/transcript/2021/08/20210812-1092096.md)
-
-[郭文贵2021年8月12日盖特 20210812_4吃饺饺喽…](/content/transcript/2021/08/20210812-1092099.md)
 
 
 ## 頁面 21/111 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)

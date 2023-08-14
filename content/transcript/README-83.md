@@ -3,6 +3,10 @@
 
 ## 頁面 83/111 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月6日视频 20190406_2应战友们的要求．展示一下喜马拉雅大使馆直播间！这是战友们在美国纽约的家的的9分之一！](/content/transcript/2019/04/20190406-1089089.md)
+
+[郭文贵2019年4月6日视频 20190406班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/transcript/2019/04/20190406-1092746.md)
+
 [郭文贵2019年4月3日视频 20190403_1万分感谢科罗拉洲的战友们……你们的勇敢与智慧……让文贵感动至极……一切都要看结果！](/content/transcript/2019/04/20190403-1089174.md)
 
 [郭文贵2019年4月2日视频 20190402_2万分感谢潜伏的战友们的重大贡献](/content/transcript/2019/04/20190402-1089087.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年2月22日直播 20190222_2连接调试](/content/transcript/2019/02/20190222-1088624.md)
 
 [郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情](/content/transcript/2019/02/20190222-1092426.md)
-
-[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！](/content/transcript/2019/02/20190221-1092858.md)
-
-[郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1](/content/transcript/2019/02/20190220-1089132.md)
 
 
 ## 頁面 83/111 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

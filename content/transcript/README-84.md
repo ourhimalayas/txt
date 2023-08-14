@@ -3,6 +3,10 @@
 
 ## 頁面 84/111 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！](/content/transcript/2019/02/20190221-1092858.md)
+
+[郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1](/content/transcript/2019/02/20190220-1089132.md)
+
 [郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2](/content/transcript/2019/02/20190220-1089145.md)
 
 [郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡](/content/transcript/2019/02/20190219-1092852.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。](/content/transcript/2019/01/20190128-1089049.md)
 
 [郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！](/content/transcript/2019/01/20190127-1092365.md)
-
-[郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉](/content/transcript/2019/01/20190125-1092356.md)
-
-[郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大](/content/transcript/2019/01/20190124-1092339.md)
 
 
 ## 頁面 84/111 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

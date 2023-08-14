@@ -3,6 +3,8 @@
 
 ## 頁面 63/111 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年12月8日第一次直播 20191208_1审判郭宝胜的最后一天](/content/transcript/2019/12/20191208-1094069.md)
+
 [郭文贵2019年12月8日第二次直播 20191208_2昨天香港游行又一次震惊世界；香港抗议最大价值：教会大陆人上街和如何坚持到底，共产党必灭](/content/transcript/2019/12/20191208-1094183.md)
 
 [郭文贵2019年12月7日视频 20191207_1火鸡龚的造谣诽谤对法治基金造成伤害，她一定要赔偿](/content/transcript/2019/12/20191207-1088009.md)
@@ -50,8 +52,6 @@
 [郭文贵2019年11月24日视频 20191124_4 燉魚頭慶賀香港區議員選舉大贏](/content/transcript/2019/11/20191124-1089675.md)
 
 [郭文贵2019年11月24日 20191124马装助威香港公投选举议员](/content/transcript/2019/11/20191124-1093943.md)
-
-[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界](/content/transcript/2019/11/20191123-1094161.md)
 
 
 ## 頁面 63/111 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)

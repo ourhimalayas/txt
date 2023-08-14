@@ -3,6 +3,8 @@
 
 ## 頁面 45/111 [**<**](/content/transcript/README-44.md) [1](/content/transcript/README.md) ... [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) **45** [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-46.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年10月12日盖特 20201012_2尊敬的战友们好，全球自发的惩贼．要真相．维护华人形象的现象．已经得到了很多正义的有识之士！和法律人士！的绝对的支持……我们](/content/transcript/2020/10/20201012-1093129.md)
+
 [郭文贵2020年10月9日盖特 20201009尊敬的战友们好……任何事情，只要依法做事，没有任何人可以伤害我们——我们要绝对的相信美国的司法系统！在美国的法律面前绝对人人](/content/transcript/2020/10/20201009-1093105.md)
 
 [郭文贵2020年10月8日盖特 20201008尊敬的战友们好……全球的战友的一致行动……和坚定地灭掉共产党和惩罚贼行动，正在得到全世界有良知的人认可和支持……维护海外的华人](/content/transcript/2020/10/20201008-1093101.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年9月19日做客战斗室 20200919_7班农战斗室 郭文贵专场 E395 中文整理](/content/transcript/2020/09/20200919-1092855.md)
 
 [郭文贵2020年9月19日直播 20200919_1谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（一）](/content/transcript/2020/09/20200919-1092924.md)
-
-[郭文贵2020年9月19日直播 20200919_2谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（二）](/content/transcript/2020/09/20200919-1092930.md)
 
 
 ## 頁面 45/111 [**<**](/content/transcript/README-44.md) [1](/content/transcript/README.md) ... [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) **45** [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-46.md) [查看全部](/content/transcript/README-all.md)

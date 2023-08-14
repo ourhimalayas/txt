@@ -3,6 +3,8 @@
 
 ## 頁面 54/111 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年5月23日第一次GTV直播 20200523_1从中国的五四民主运动和北京天安门的六四事件与美国的七四建国日．来看今天人类的大灾难……](/content/transcript/2020/05/20200523-1092041.md)
+
 [郭文贵2020年5月23日GTV第二次直播 20200523_2文贵如何看待十几天后的六四……新宣言和内心的感受。](/content/transcript/2020/05/20200523-1092288.md)
 
 [郭文贵2020年5月23日GTV第三次直播 20200523_3文贵不会带任何战友参与做空港币重新认识香港保护香港，是我们每个中国人起码的道德底线。](/content/transcript/2020/05/20200523-1092401.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年5月5日视频 20200505](/content/transcript/2020/05/20200505-1092015.md)
 
 [郭文贵2020年5月4日视频 20200504共产党完蛋前的疯狂……及爆料革命必须扮演的角色……让中国人财富和子孙安全的雅典娜计划](/content/transcript/2020/05/20200504-1092007.md)
-
-[郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..](/content/transcript/2020/05/20200503-1089003.md)
 
 
 ## 頁面 54/111 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)

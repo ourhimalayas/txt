@@ -3,6 +3,10 @@
 
 ## 頁面 15/111 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年11月15日盖特 20211115_2尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……](/content/transcript/2021/11/20211115-1093604.md)
+
+[郭文贵2021年11月15日盖特 20211115_3尊敬的战友们好，我们开始吃馍馍．吃饭饭喽……](/content/transcript/2021/11/20211115-1093610.md)
+
 [郭文贵2021年11月15日盖特 20211115_4应战友们的要求……发一个SNOW 的小视频????](/content/transcript/2021/11/20211115-1093618.md)
 
 [郭文贵2021年11月14日直播 20211114_1香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在；班农被司法部起诉的意义；全球金融危机及G系列生态圈；](/content/transcript/2021/11/20211114-1093728.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年11月2日盖特 20211102_1尊敬的战友们好！永远不要忘了灭共是我们的最终使命！建立一个让中国有独立的法治……信仰的自由．民主的社会的新中国联邦共和国，是我们的信仰，和必须实现的目标，一切都已经开始！](/content/transcript/2021/11/20211102-1093543.md)
 
 [郭文贵2021年11月2日盖特直播 20211102_2](/content/transcript/2021/11/20211102-1093546.md)
-
-[郭文贵2021年11月1日直播 20211101_1“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](/content/transcript/2021/11/20211101-1093905.md)
-
-[郭文贵2021年11月1日直播 20211101_2“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （下）](/content/transcript/2021/11/20211101-1094058.md)
 
 
 ## 頁面 15/111 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

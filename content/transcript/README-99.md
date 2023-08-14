@@ -3,6 +3,10 @@
 
 ## 頁面 99/111 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子](/content/transcript/2018/03/20180330-1092528.md)
+
+[郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体](/content/transcript/2018/03/20180329-1087673.md)
+
 [郭文贵2018年3月29日视频第一部分 20180329_1回答战友们香港警察查封各银行账号用的什么法律手续](/content/transcript/2018/03/20180329-1092454.md)
 
 [郭文贵2018年3月29日视频第二部分 20180329_2谈为什么西方政府现在开始关注黑港警事件](/content/transcript/2018/03/20180329-1092512.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年3月13日直播 20180313_1上天赐予的又一个巨大的礼物 —美国新国务卿！对盗国贼将是巨大打击](/content/transcript/2018/03/20180313-1087843.md)
 
 [郭文贵2018年3月13日直播 20180313_2陈军拥有多少明镜股份？身为民运大佬，又被边控，为什么他可以随时进出中国？](/content/transcript/2018/03/20180313-1087856.md)
-
-[郭文贵2018年3月13日直播 20180313_3明镜的股权用什么可以证明和陈军有关系！](/content/transcript/2018/03/20180313-1087868.md)
-
-[郭文贵2018年3月12日视频第二部分 20180312_2文贵拜托战友们的新行动．推特拉黑．YouTube 取关不打盗国贼的任何人任何媒体！全力以赴支持自由中国．爆料！支持路上德就是无尚功德！](/content/transcript/2018/03/20180312-1092066.md)
 
 
 ## 頁面 99/111 [**<**](/content/transcript/README-98.md) [1](/content/transcript/README.md) ... [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) **99** [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-100.md) [查看全部](/content/transcript/README-all.md)

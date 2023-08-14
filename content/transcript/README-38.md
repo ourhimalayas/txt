@@ -3,6 +3,10 @@
 
 ## 頁面 38/111 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年1月28日盖特 20210128_2关于几club春节年会的一些战友咨询的问题的回答．再次呼吁被VOG ．九指王．欺骗的战友们！积极提供各种证据和信息，以维护战友的安全和利益！](/content/transcript/2021/01/20210128-1090492.md)
+
+[郭文贵2021年1月27日直播 20210127_1GTV已经创造神话；因投资VOG受威胁的战友请与喜联盟联系；共和党与共产党的对决现在已经开始，美国两党的目标都是灭共](/content/transcript/2021/01/20210127-1090474.md)
+
 [郭文贵2021年1月27日盖特 20210127_2全球联合灭共……全球为了自己的生存，必须灭共……和爆料革命新联邦中国的联合灭共．将是世界正义的力量！和政治安全必然的结果……共产党你完了！](/content/transcript/2021/01/20210127-1090478.md)
 
 [郭文贵2021年1月27日盖特 20210127_3回答，战友们．关于共产党中南坑的老杂毛们……为什么把中国的唯一的龙形建筑……龙头，改成鸟头！](/content/transcript/2021/01/20210127-1090482.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年1月18日盖特 20210118_2](/content/transcript/2021/01/20210118-1089842.md)
 
 [郭文贵2021年1月18日盖特 20210118_3](/content/transcript/2021/01/20210118-1089845.md)
-
-[郭文贵2021年1月18日盖特 20210118_4](/content/transcript/2021/01/20210118-1089859.md)
-
-[郭文贵2021年1月18日盖特 20210118_5](/content/transcript/2021/01/20210118-1089865.md)
 
 
 ## 頁面 38/111 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

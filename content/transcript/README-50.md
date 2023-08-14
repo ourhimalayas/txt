@@ -3,6 +3,8 @@
 
 ## 頁面 50/111 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年7月19日连线大卫上集 20200719_2](/content/transcript/2020/07/20200719-1092497.md)
+
 [郭文贵2020年7月19日连线大卫下集 20200719_3](/content/transcript/2020/07/20200719-1092513.md)
 
 [郭文贵2020年7月18日视频 20200718_1同声传译⎢班农战斗室特别节目⎢回击：美国的全球灭共行动 嘉宾郭文贵先生谈虚假经济，超限战，信息战，科技战，和国内洪灾](/content/transcript/2020/07/20200718-1089977.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦](/content/transcript/2020/07/20200711-1089943.md)
 
 [郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）](/content/transcript/2020/07/20200710-1089907.md)
-
-[郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）](/content/transcript/2020/07/20200710-1089909.md)
 
 
 ## 頁面 50/111 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)

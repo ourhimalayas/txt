@@ -3,6 +3,10 @@
 
 ## 頁面 10/111 [**<**](/content/transcript/README-9.md) [1](/content/transcript/README.md) ... [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) **10** [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-11.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年2月4日直播 20220204_2冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮](/content/transcript/2022/02/20220204-1090306.md)
+
+[郭文贵2022年2月3日盖特 20220203_1尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害⚠️正在被更多的人认清真相，并且将带动全球病毒溯源停止疫苗灾难的大运动????……全球灭共全面开始！共产党你玩球蛋了！](/content/transcript/2022/02/20220203-1090311.md)
+
 [郭文贵2022年2月2日直播 20220202_1中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线 股市 数字货币](/content/transcript/2022/02/20220202-1090252.md)
 
 [郭文贵2022年2月1日直播 20220201_1壬寅年新春大直播](/content/transcript/2022/02/20220201-1090187.md)
@@ -48,10 +52,6 @@
 [郭文贵2022年1月22日盖特 20220122_3尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！](/content/transcript/2022/01/20220122-1089777.md)
 
 [郭文贵2022年1月21日直播 20220121_1全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](/content/transcript/2022/01/20220121-1089622.md)
-
-[郭文贵2022年1月21日直播 20220121_2喜马拉雅纽约磐石农场开幕典礼](/content/transcript/2022/01/20220121-1089689.md)
-
-[郭文贵2022年1月20日盖特 20220120_1尊敬的战友们好……共产党正在被冬季奥林匹克运动会．房地产崩盘．内部政治斗争……释放观状病毒等等一系列的事情埋葬中！希望中国同胞们不要成为他们的殉葬品，一切都已经开始！](/content/transcript/2022/01/20220120-1089726.md)
 
 
 ## 頁面 10/111 [**<**](/content/transcript/README-9.md) [1](/content/transcript/README.md) ... [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) **10** [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-11.md) [查看全部](/content/transcript/README-all.md)

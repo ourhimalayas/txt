@@ -3,6 +3,10 @@
 
 ## 頁面 19/111 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年9月16日盖特 20210916_2共产党正在海外穷凶极恶的派遣他那些垃圾兵团……脑残兵团……伺机报复我们的爆料革命。继他们在美国的法律超限战巨大失败后，已经导致很多平爆小组的人被免职。我们的战友们要做好准备](/content/transcript/2021/09/20210916-1093159.md)
+
+[郭文贵2021年9月16日盖特 20210916_3七哥今天有两场球赛????……一大1⃣️小……](/content/transcript/2021/09/20210916-1093161.md)
+
 [郭文贵2021年9月16日盖特 20210916_4七哥在近两年后。来到了这个房子！让我极为的震惊，他们对房子的损坏伤害和这种极度的破坏，实在让我失望透顶！一个多月了，很多清洁工和维修工都不能完成整个房子有维修和清洁。已经面](/content/transcript/2021/09/20210916-1093164.md)
 
 [郭文贵2021年9月16日盖特 20210916_5看了这个房子的花园和曾经相比简直是无法形容的恼怒，这是清理了一个多月以后的情况！很多车的垃圾已经清理出去了，太烂了路大脑骗！](/content/transcript/2021/09/20210916-1093167.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年9月5日直播 20210905_1从苏联切尔诺贝利核事件看今天的中共；最纯最多的青蒿素在美国和加拿大；克里访华将要谈判的内容；陆金所是对西方的经济炸弹，经济病毒，每一股的变化背后都是蓝金黄；马明哲就是中国的](/content/transcript/2021/09/20210905-1092984.md)
 
 [郭文贵2021年9月4日盖特 20210904_1尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？](/content/transcript/2021/09/20210904-1092921.md)
-
-[郭文贵2021年9月4日盖特 20210904_2解药的事儿太大了..太大了..太大了..](/content/transcript/2021/09/20210904-1092925.md)
-
-[郭文贵2021年9月4日盖特 20210904_3G俱乐部所有会员的小玩貝！](/content/transcript/2021/09/20210904-1092928.md)
 
 
 ## 頁面 19/111 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

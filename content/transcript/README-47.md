@@ -3,6 +3,8 @@
 
 ## 頁面 47/111 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年9月1日盖特 20200901_29月1号 尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？感谢战友们的文字。昨天这跑调的歌声的包容和支持，希望不要再传](/content/transcript/2020/09/20200901-1092727.md)
+
 [郭文贵2020年8月31日盖特 20200831_1尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？听说又要有大锤要落下呀，谁知道啊？文贵想了解正义力量](/content/transcript/2020/08/20200831-1092695.md)
 
 [郭文贵2020年8月31日盖特 20200831_2昨天非常有名的＂特务＂〈网传〉……曾宏．驱船百里……来到了LADEYMAY船边……高声大喊要杀文贵 弄死文贵……文贵在此非常害怕](/content/transcript/2020/08/20200831-1092697.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年8月20日直播 20200820_1文贵紧急直播：班农先生被捕是共产党的垂死反击，只会让灭共意志更坚定，让灭共力量更强大！](/content/transcript/2020/08/20200820-1092739.md)
 
 [郭文贵2020年8月20日盖特 20200820_28月20号 尊敬的战友们好，我一直以来所说的。新中国联邦．爆料革命灭共运动，在八月份．九月份是最重要的](/content/transcript/2020/08/20200820-1092748.md)
-
-[郭文贵2020年8月19日视频 20200819_3三马要出大事了吗？](/content/transcript/2020/08/20200819-1090020.md)
 
 
 ## 頁面 47/111 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)

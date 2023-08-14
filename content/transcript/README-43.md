@@ -3,6 +3,10 @@
 
 ## 頁面 43/111 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年11月29日盖特 20201129_1尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201129-1093160.md)
+
+[郭文贵2020年11月28日直播 20201128_1习下定决心攻打台湾，香港经济正处在最后崩盘的挣扎中，美国大选越滑稽我们越有机会！](/content/transcript/2020/11/20201128-1093331.md)
+
 [郭文贵2020年11月27日直播 20201127_1大选从滑到稽，川普总统百分之一万当选，战友们要团结、要行动！](/content/transcript/2020/11/20201127-1093312.md)
 
 [郭文贵2020年11月27日盖特 20201127_22020年11月27號尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201127-1093316.md)
@@ -31,8 +35,6 @@
 
 [郭文贵2020年11月20日直播 20201120_4王建之死 两周年](/content/transcript/2020/11/20201120-1093255.md)
 
-[2020年11月20日文贵大直播全文字版：王建之死 两周年（上）](/content/transcript/2020/11/20201120-1243310.md)
-
 [郭文贵2020年11月19日直播 20201119_1](/content/transcript/2020/11/20201119-1093232.md)
 
 [郭文贵2020年11月18日盖特 20201118尊敬的戰友，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201118-1093215.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年11月15日盖特 20201115_2衷心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！](/content/transcript/2020/11/20201115-1093183.md)
 
 [郭文贵2020年11月15日盖特 20201115_32心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！](/content/transcript/2020/11/20201115-1093185.md)
-
-[郭文贵2020年11月15日直播 20201115_4连线唐平，威廉王](/content/transcript/2020/11/20201115-1093212.md)
 
 
 ## 頁面 43/111 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)

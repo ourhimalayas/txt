@@ -3,6 +3,10 @@
 
 ## 頁面 73/111 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月16日视频 20190816尊敬的战友们好．你们传播香港危机的真相了吗？香港反送中运动．已经变成了国际集体反共的运动，战友们和香港同胞们一定要抓住机会，赢得这场前所未有的灭共战争，一切](/content/transcript/2019/08/20190816-1093561.md)
+
+[2019年8月16日文貴大直播全文字版：你们传播香港危机的真相了吗？香港反送中运动......](/content/transcript/2019/08/20190816-1098188.md)
+
 [郭文贵2019年8月15日视频 20190815Greetings honored friends! Have you done any workout? Have you spreaded the truth of...](/content/transcript/2019/08/20190815-1093554.md)
 
 [2019年8月15日文贵大直播全文字版：报平安直播](/content/transcript/2019/08/20190815-1098187.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年8月6日 20190806美国将中共定位汇率操纵国的](/content/transcript/2019/08/20190806-1093483.md)
 
 [2019年8月6日《文贵大直播》全文字版： 谈美国将中共定位汇率操纵国的意义](/content/transcript/2019/08/20190806-1098169.md)
-
-[郭文贵2019年8月5日视频 20190805香港大劫在即……希望香港的四个不要脸群体．能站在正义的一边帮助上街的孩子们。](/content/transcript/2019/08/20190805-1093464.md)
-
-[2019年8月5日文贵大直播全文字版：香港大劫在即······](/content/transcript/2019/08/20190805-1098157.md)
 
 
 ## 頁面 73/111 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

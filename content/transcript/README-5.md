@@ -15,6 +15,10 @@
 
 [郭文贵2022年9月10日直播 20220910_1回響 ∙ 水调歌头 2022年中秋特别节目](/content/transcript/2022/09/20220910-1091817.md)
 
+[test](/content/transcript/2022/07/20220701-1552498.md)
+
+[2022年6月3日《郭先生战友见面会直播》全文字版](/content/transcript/2022/06/20220603-1552460.md)
+
 [郭文贵2022年5月13日直播 20220513_1最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用](/content/transcript/2022/05/20220513-1091627.md)
 
 [郭文贵2022年5月13日直播 20220513_2七哥与战友们连线吃播](/content/transcript/2022/05/20220513-1091656.md)
@@ -48,10 +52,6 @@
 [郭文贵2022年5月1日直播 20220501_1俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌](/content/transcript/2022/05/20220501-1091523.md)
 
 [郭文贵2022年4月30日盖特 20220430_2尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！](/content/transcript/2022/04/20220430-1091723.md)
-
-[郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来](/content/transcript/2022/04/20220429-1091452.md)
-
-[郭文贵2022年4月29日盖特 20220429_2尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！](/content/transcript/2022/04/20220429-1091719.md)
 
 
 ## 頁面 5/111 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)

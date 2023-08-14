@@ -3,6 +3,10 @@
 
 ## 頁面 95/111 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！](/content/transcript/2018/07/20180722-1092909.md)
+
+[郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！](/content/transcript/2018/07/20180722-1092980.md)
+
 [郭文贵2018年7月21日直播 20180721_1老领导又来电话了 王建夫人请保存好手机上的证据](/content/transcript/2018/07/20180721-1088561.md)
 
 [郭文贵2018年7月21日直播 20180721_2王健的妻子,和王伟处境都很危险,吴征去法国见谁了](/content/transcript/2018/07/20180721-1088571.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年6月27日视频 20180627](/content/transcript/2018/06/20180627-1094345.md)
 
 [郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！](/content/transcript/2018/06/20180625-1094330.md)
-
-[郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠](/content/transcript/2018/06/20180623-1087716.md)
-
-[郭文贵2018年6月21日视频 20180621世界大局正在向反盗国贼的趋势发展](/content/transcript/2018/06/20180621-1087711.md)
 
 
 ## 頁面 95/111 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

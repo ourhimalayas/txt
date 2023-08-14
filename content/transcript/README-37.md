@@ -3,6 +3,10 @@
 
 ## 頁面 37/111 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年2月8日盖特 20210208_1尊敬的战友们好，你们健身了吗？中共即将崩塌的经济和党员们对未来财富安全的恐惧，正在改变着世界的经济的格局……，美国总统拜登将与习近平新春通话……](/content/transcript/2021/02/20210208-1090611.md)
+
+[郭文贵2021年2月7日直播 20210207_1 给战友们做美食；要用行动反击九指妖](/content/transcript/2021/02/20210207-1090609.md)
+
 [郭文贵2021年2月6日盖特 20210206_1尊敬的战友们好……为什么有些国家和中共减少往来．停止合作后，共产党病毒的感染率和死亡率双双下降，为什么共产党的高官．和家人都不带口罩，却不被传染．C C P的经济已经到了崩溃的边缘](/content/transcript/2021/02/20210206-1090591.md)
 
 [郭文贵2021年2月6日盖特 20210206_2C C P病毒????无论从经济和生活方式……政治各个方面-都已经不可逆转的开启了……人类的大重启模式……文贵在中央公园向战友们视频汇报及时的世界在发生什么？](/content/transcript/2021/02/20210206-1090594.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年1月29日盖特 20210129_2从昨天到今天火爆了的我们的爆料革命．和新中国联邦.和G系列．与这个疯狂的世界的疯狂几个事件的内在逻辑的重要性……](/content/transcript/2021/01/20210129-1090501.md)
 
 [郭文贵2021年1月28日直播 20210128_1受骗九指王的战友们要行动；美四大帮派都来找文贵合作，美，欧，日，俄将形成灭共联盟；Gclub年会预告](/content/transcript/2021/01/20210128-1090487.md)
-
-[郭文贵2021年1月28日盖特 20210128_2关于几club春节年会的一些战友咨询的问题的回答．再次呼吁被VOG ．九指王．欺骗的战友们！积极提供各种证据和信息，以维护战友的安全和利益！](/content/transcript/2021/01/20210128-1090492.md)
-
-[郭文贵2021年1月27日直播 20210127_1GTV已经创造神话；因投资VOG受威胁的战友请与喜联盟联系；共和党与共产党的对决现在已经开始，美国两党的目标都是灭共](/content/transcript/2021/01/20210127-1090474.md)
 
 
 ## 頁面 37/111 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

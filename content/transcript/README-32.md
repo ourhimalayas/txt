@@ -3,6 +3,10 @@
 
 ## 頁面 32/111 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年4月10日盖特 20210410_1尊敬的战友好????????????共产党的战狼外交．为什么迅速地变成了疯狗外交……人人喊打，美国将对台湾有一系列的行动，这是我们爆料革命在三年前就说过的．全球联合灭共是我们三年前在全球推](/content/transcript/2021/04/20210410-1091184.md)
+
+[郭文贵2021年4月9日直播 20210409_1中共的意淫反而将帮助更快灭共；国内富豪都是复制偷窃技术，不是企业家；美国只能与英日印合作联合灭共；中共控制比特币，人民币数字化，消灭美元；美国人已经相信能灭共](/content/transcript/2021/04/20210409-1091147.md)
+
 [郭文贵2021年4月9日盖特 20210409_2与战友们分享为G翻身设计新系列产品选择布．皮料的感觉！](/content/transcript/2021/04/20210409-1091175.md)
 
 [郭文贵2021年4月9日盖特 20210409_3在七哥为了赚点吃饭钱．为基金审核投资材料后的一些感想。为什么中国只有．混家．骗家．没有企业家，这就是中国共产党以黑治国……以假治国的结果！](/content/transcript/2021/04/20210409-1091179.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年3月27日盖特 20210327_2想想儿时没有材火．没有粮食做饭吃的生活……和今天的世界相比，我们真是太幸福了，这是没有在西方世界生活过的人……无法懂得的……没有对比就没有真相……锅里煮着的大锅菜蒸的包子…](/content/transcript/2021/03/20210327-1091050.md)
 
 [郭文贵2021年3月26日盖特 20210326_1不美国的宪政危机．经济危机．必将导致美欧日的经济危机．和世界的经济危机。在美国的恶性膨胀，将彻底的改变美国的经济现状，中共的擀面杖的经济必将彻底崩塌。这是新中国联邦最大的机](/content/transcript/2021/03/20210326-1091040.md)
-
-[郭文贵2021年3月26日盖特 20210326_2尊敬的战友们好！应很多战友的要求，明天3月27号上午9:30文贵乱聊直播！一切都已经开始！](/content/transcript/2021/03/20210326-1091044.md)
-
-[郭文贵2021年3月25日盖特 20210325_1共产党的第低级谎言传染了几代人，让我们很多中国人．不懂得思考．连起码的逻辑思维都没有．新中国联邦人将彻底改变这一切，全世界正在以毒灭共的革命当中，一切都已经开始！](/content/transcript/2021/03/20210325-1091029.md)
 
 
 ## 頁面 32/111 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 85/111 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉](/content/transcript/2019/01/20190125-1092356.md)
+
+[郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大](/content/transcript/2019/01/20190124-1092339.md)
+
 [郭文贵2019年1月23日视频 20190123华盛顿上空弥漫这共同的目标：灭共](/content/transcript/2019/01/20190123-1092324.md)
 
 [郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始](/content/transcript/2019/01/20190122-1089046.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...](/content/transcript/2019/01/20190110-1092156.md)
 
 [郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案](/content/transcript/2019/01/20190109-1089010.md)
-
-[郭文贵2019年1月8日视频 20190108春晚搞不搞，听听战友们的心声](/content/transcript/2019/01/20190108-1092417.md)
-
-[郭文贵2019年1月7日视频 20190107_2-财新再一次造谣说陈刚和郭文贵有关系；郭媒体可以定位黑客IP地址；春晚邀请凯琳女做一个节目回答网友提问。](/content/transcript/2019/01/20190107-1089008.md)
 
 
 ## 頁面 85/111 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

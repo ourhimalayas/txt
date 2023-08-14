@@ -3,6 +3,10 @@
 
 ## 頁面 14/111 [**<**](/content/transcript/README-13.md) [1](/content/transcript/README.md) ... [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) **14** [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-15.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年11月28日直播 20211128_1新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](/content/transcript/2021/11/20211128-1094249.md)
+
+[郭文贵2021年11月27日盖特 20211127_1尊敬的战友们好……你们建身了吗？你们传播CCP病毒和疫苗解药的真相了吗？一切都已经开始!](/content/transcript/2021/11/20211127-1093666.md)
+
 [郭文贵2021年11月26日盖特 20211126_2昨天发出这个视频没有声音，这是怎么回事呢？在发发试试……](/content/transcript/2021/11/20211126-1093663.md)
 
 [郭文贵2021年11月26日直播 20211126_1再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](/content/transcript/2021/11/20211126-1094198.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年11月16日盖特直播 20211116_2无论是对神和人都要兑现你的承诺](/content/transcript/2021/11/20211116-1093626.md)
 
 [郭文贵2021年11月15日盖特 20211115_1尊敬的战友们好，你们健身了吗？传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/11/20211115-1093600.md)
-
-[郭文贵2021年11月15日盖特 20211115_2尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……](/content/transcript/2021/11/20211115-1093604.md)
-
-[郭文贵2021年11月15日盖特 20211115_3尊敬的战友们好，我们开始吃馍馍．吃饭饭喽……](/content/transcript/2021/11/20211115-1093610.md)
 
 
 ## 頁面 14/111 [**<**](/content/transcript/README-13.md) [1](/content/transcript/README.md) ... [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) **14** [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-15.md) [查看全部](/content/transcript/README-all.md)

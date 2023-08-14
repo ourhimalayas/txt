@@ -3,6 +3,8 @@
 
 ## 頁面 49/111 [**<**](/content/transcript/README-48.md) [1](/content/transcript/README.md) ... [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) **49** [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-50.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年8月4日直播 20200804_5文贵与班农聊GTV和中共黑客](/content/transcript/2020/08/20200804-1092492.md)
+
 [郭文贵2020年8月4日直播 20200804_6香港黑警的所作所为永不可饶恕，但对99.9%的党员大赦，因为爆料革命的绝对中坚力量还是在中共和国内战友](/content/transcript/2020/08/20200804-1092498.md)
 
 [郭文贵2020年8月4日直播 20200804_7香港黑警的所作所为永不可饶恕，但对99.9%的党员大赦，因为爆料革命的绝对中坚力量还是在中共和国内战友](/content/transcript/2020/08/20200804-1092504.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年7月20日视频 20200720_1大家想一想为什么郭先生和班农在船上待了这么久，就是为了做对中共的军事部署](/content/transcript/2020/07/20200720-1089981.md)
 
 [郭文贵2020年7月19日直播 20200719_1不要受“缺爹党”的影响；灭共和解决CCP病毒都到了关键时刻；大力传播今天福克斯采访班农的节目](/content/transcript/2020/07/20200719-1092484.md)
-
-[郭文贵2020年7月19日连线大卫上集 20200719_2](/content/transcript/2020/07/20200719-1092497.md)
 
 
 ## 頁面 49/111 [**<**](/content/transcript/README-48.md) [1](/content/transcript/README.md) ... [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) **49** [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-50.md) [查看全部](/content/transcript/README-all.md)

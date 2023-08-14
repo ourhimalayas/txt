@@ -3,6 +3,10 @@
 
 ## 頁面 20/111 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年9月4日盖特 20210904_2解药的事儿太大了..太大了..太大了..](/content/transcript/2021/09/20210904-1092925.md)
+
+[郭文贵2021年9月4日盖特 20210904_3G俱乐部所有会员的小玩貝！](/content/transcript/2021/09/20210904-1092928.md)
+
 [郭文贵2021年9月4日盖特 20210904_5两轮摩托车在草地上滑……弄了个三轮摩托车试试……](/content/transcript/2021/09/20210904-1092929.md)
 
 [郭文贵2021年9月4日盖特 20210904_4蒙古铁马在大草原上](/content/transcript/2021/09/20210904-1092931.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年8月26日直播 20210826_2摇滚歌神文贵先生现场签名直播](/content/transcript/2021/08/20210826-1092650.md)
 
 [郭文贵2021年8月25日直播 20210825_1如果疫苗不被停止，世界从过去政治家利用疫苗将成为所有政治家的噩梦！](/content/transcript/2021/08/20210825-1092372.md)
-
-[郭文贵2021年8月24日盖特 20210824_2尊敬的战友们好．马上要开始的直播，继续谈疫苗灾难将给世界的经济，我们每个人生活．带来什么样的影响，从昨天到今天．太多战友给我发来的自己家人．朋友．打疫苗后的严重的后果的一个](/content/transcript/2021/08/20210824-1092194.md)
-
-[郭文贵2021年8月24日直播 20210824_1中共病毒和疫苗的生化超限战对世界经济的前所未有的打击；疫苗灾难给人类带来什么样危机；经济负增长意味着什么；有毒的口罩和疫苗都含有氧化石墨烯；新中国联邦农场战友全面开始互助互](/content/transcript/2021/08/20210824-1092799.md)
 
 
 ## 頁面 20/111 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 40/111 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年1月4日直播 20210104_1](/content/transcript/2021/01/20210104-1090265.md)
+
+[郭文贵2021年1月4日盖特 20210104_2刚刚直播当中忘掉两个问题在这里向战友们再报告一下，希望战友们高度配合．喜马拉雅联盟委员会的战友之家．为战友们解决麻烦！和提供可靠的帮助！](/content/transcript/2021/01/20210104-1090267.md)
+
 [郭文贵2021年1月3日盖特 20210103_1爆料革命又为美国做出了巨大贡献。唯真不破就是爆料革命百战百胜的法宝……爆料革命的跟随者将如海啸般的爆发，一切都已经开始](/content/transcript/2021/01/20210103-1090261.md)
 
 [郭文贵2021年1月2日盖特 20210102_1尊敬的战友们好！你们健身了吗？你们传播CCP病毒……香港危机真相了真相了吗？华盛顿将48小时不眠不休的斗争……结果将是如何？一切都已经开始！](/content/transcript/2021/01/20210102-1090258.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年12月26日盖特 20201226_5我们战友中藏龙卧虎，新中国联邦和爆料革命的力量……正在发挥着不可估量的拯救全世界……和全中国人民的作用……没有方方面面的战友的付出……文贵和爆料革命不可能走到今天……什么都](/content/transcript/2020/12/20201226-1090158.md)
 
 [郭文贵2020年12月25日直播 20201225_1文贵圣诞直播](/content/transcript/2020/12/20201225-1090148.md)
-
-[郭文贵2020年12月25日音频聊天 20201225_2郭先生喜马拉雅大使馆discord群答疑录音](/content/transcript/2020/12/20201225-1090289.md)
-
-[郭文贵2020年12月24日盖特 20201224_4郝海東夫婦中大獎了 買了八個中了三個20201224之4](/content/transcript/2020/12/20201224-1089734.md)
 
 
 ## 頁面 40/111 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

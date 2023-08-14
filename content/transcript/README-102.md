@@ -3,6 +3,10 @@
 
 ## 頁面 102/111 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年2月6日第二次直播 20180206_2再次呼吁战友们提供有关韦石、西诺、陈闯创、胡平利用办理假政庇骗钱的证据！一个把老婆放在大街上让人“乱干”的人不可能为大家“干出”民主自由！](/content/transcript/2018/02/20180206-1094471.md)
+
+[郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明](/content/transcript/2018/02/20180206-1094476.md)
+
 [郭文贵2018年2月6日第三次直播 20180206_3向大家报告关于今天2月6日取消与陈军先生见面的过程！](/content/transcript/2018/02/20180206-1094562.md)
 
 [郭文贵2018年2月5日第一次直播 20180205_1假民运分子利用真正英雄的死亡，和他们付出生命的代价，发财的时代必须结束！我们必须要让这些无人性的伪类们付出代价，一切都是刚刚开始！](/content/transcript/2018/02/20180205-1094470.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富](/content/transcript/2018/01/20180115-1094475.md)
 
 [郭文贵2018年1月13日 20180113加拿大挺郭后援会2018年首次挺郭聚会（2）](/content/transcript/2018/01/20180113-1094711.md)
-
-[郭文贵2018年1月11日直播 20180111_1](/content/transcript/2018/01/20180111-1093335.md)
-
-[郭文贵2018年1月11日直播 20180111_2](/content/transcript/2018/01/20180111-1093337.md)
 
 
 ## 頁面 102/111 [**<**](/content/transcript/README-101.md) [1](/content/transcript/README.md) ... [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) **102** [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-103.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 52/111 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年6月24日视频 20200624_1文贵与战友们分享今天媳妇做的大锅菜](/content/transcript/2020/06/20200624-1089886.md)
+
 [郭文贵2020年6月21日视频 20200621_1祝天下所有的父亲父亲节快乐文贵在父亲节与战友分享为所有的身边的工作人员和家人蒸玉米面馒头和山东大卷子和花卷素菜包子的时刻](/content/transcript/2020/06/20200621-1089878.md)
 
 [郭文贵2020年6月21日视频 20200621_2文贵在父亲节做第二道菜小鸡炖蘑菇蘑菇积极响应地摊经济第1段](/content/transcript/2020/06/20200621-1089881.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/content/transcript/2020/06/20200610-1092566.md)
 
 [郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录](/content/transcript/2020/06/20200609-1089033.md)
-
-[郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？](/content/transcript/2020/06/20200609-1092363.md)
 
 
 ## 頁面 52/111 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)

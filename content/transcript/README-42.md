@@ -3,6 +3,10 @@
 
 ## 頁面 42/111 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月12日盖特 20201212_1文贵喝咖啡喝醉了……乱聊，并回答很多朋友在昨天直播后的一些有关沼泽地里的关切！](/content/transcript/2020/12/20201212-1090067.md)
+
+[郭文贵2020年12月11日直播 20201211_1文贵直播谈真实的川普总统；正义的力量超乎我们的想象！](/content/transcript/2020/12/20201211-1090042.md)
+
 [郭文贵2020年12月11日盖特 20201211_2有時間的話今晚直播 沒時間的話 我想明天早上來個大聊亂聊直播(90%概率)](/content/transcript/2020/12/20201211-1090062.md)
 
 [郭文贵2020年12月11日盖特 20201211_3收到了很多战友的有关一旦灭共战争发生……战友们应该做什么……？这样的问题，我在这里简单地回答！](/content/transcript/2020/12/20201211-1090065.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年11月30日直播 20201130_1新中国联邦人一定要团结有集体观念，我们靠情报和实力唤醒世界](/content/transcript/2020/11/20201130-1093366.md)
 
 [郭文贵2020年11月30日盖特 20201130_2尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201130-1093372.md)
-
-[郭文贵2020年11月29日盖特 20201129_1尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201129-1093160.md)
-
-[郭文贵2020年11月28日直播 20201128_1习下定决心攻打台湾，香港经济正处在最后崩盘的挣扎中，美国大选越滑稽我们越有机会！](/content/transcript/2020/11/20201128-1093331.md)
 
 
 ## 頁面 42/111 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)

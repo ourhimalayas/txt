@@ -3,6 +3,8 @@
 
 ## 頁面 55/111 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..](/content/transcript/2020/05/20200503-1089003.md)
+
 [郭文贵2020年5月3日视频 20200503_2GTV简短录播 2 ：”好事太多，答应战友的雪茄，以后别忘了问我要。”](/content/transcript/2020/05/20200503-1089005.md)
 
 [郭文贵2020年5月2日 20200502爆料香港P3实验室和国际共产联盟](/content/transcript/2020/05/20200502-1091995.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年4月15日视频 20200415](/content/transcript/2020/04/20200415-1091897.md)
 
 [郭文贵2020年4月14日视频 20200414_2过去的24小时华盛顿、欧洲、日本、俄罗斯全面开始了依法灭共、全球自动灭共的新的时代](/content/transcript/2020/04/20200414-1089815.md)
-
-[郭文贵2020年4月14日视频 20200414爆料革命拯救的同胞和战友们留言，彻底感动了文贵](/content/transcript/2020/04/20200414-1091882.md)
 
 
 ## 頁面 55/111 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)

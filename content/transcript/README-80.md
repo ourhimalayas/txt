@@ -3,6 +3,10 @@
 
 ## 頁面 80/111 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月1日视频 20190601_2两狗相遇勇者胜，snow与笨笨的抢食之战，输赢不在大小](/content/transcript/2019/06/20190601-1089190.md)
+
+[郭文贵2019年6月1日视频 20190601文贵报平安直播！无论任何方式的任何人的＂偷＂都是错的．都应感到可耻……我们今天的爆料革命！就是为了我们中国儿童！有一个美好的健康的国家和未来](/content/transcript/2019/06/20190601-1093008.md)
+
 [郭文贵2019年5月31日视频 20190531 林郑月娥触动中共最敏感神经 Carrie Lam put CCP on alert! 10000s banned on Twitter! Save all proofs of the ban!](/content/transcript/2019/05/20190531-1093000.md)
 
 [郭文贵2019年5月30日视频 20190530_1林郑月娥亲自撰写，并要求中共中央在香港实施《遣返万能法》](/content/transcript/2019/05/20190530-1089183.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年5月12日视频 20190512母亲才是我们的国．父母才是我们的家！我们的家！愿中国所有的母亲，不要把自己的儿女送给共产党这个非法组织！任何一个加入共产党的家庭都有可能将受到全世界的制裁，未来无法到世界各](/content/transcript/2019/05/20190512-1093089.md)
 
 [郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow](/content/transcript/2019/05/20190511-1089218.md)
-
-[郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来](/content/transcript/2019/05/20190511-1093080.md)
-
-[郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people](/content/transcript/2019/05/20190510-1093052.md)
 
 
 ## 頁面 80/111 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

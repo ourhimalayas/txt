@@ -3,6 +3,10 @@
 
 ## 頁面 98/111 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/transcript/2018/04/20180421-1092872.md)
+
+[郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！](/content/transcript/2018/04/20180420-1092860.md)
+
 [郭文贵2018年4月19日第三次直播 20180419_3VOG断播一周年回顾之——路德提问](/content/transcript/2018/04/20180419-1088143.md)
 
 [郭文贵2018年4月19日第四次直播 20180419_4-419VOA断播门一周年回顾 網友提問 & 評何頻的為人](/content/transcript/2018/04/20180419-1088189.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180402-1094195.md)
 
 [郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）](/content/transcript/2018/03/20180331-1092596.md)
-
-[郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子](/content/transcript/2018/03/20180330-1092528.md)
-
-[郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体](/content/transcript/2018/03/20180329-1087673.md)
 
 
 ## 頁面 98/111 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)

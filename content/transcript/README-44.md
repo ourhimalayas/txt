@@ -3,6 +3,8 @@
 
 ## 頁面 44/111 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年11月15日直播 20201115_4连线唐平，威廉王](/content/transcript/2020/11/20201115-1093212.md)
+
 [郭文贵2020年11月14日直播 20201114_1](/content/transcript/2020/11/20201114-1093157.md)
 
 [郭文贵2020年11月14日连线香草山 20201114_2纽约香草山农场DC挺川大游行](/content/transcript/2020/11/20201114-1093166.md)
@@ -50,8 +52,6 @@
 [郭文贵2020年10月13日直播 20201013文贵关于Gclub和GFashion上线前有关问题的声明直播](/content/transcript/2020/10/20201013-1093154.md)
 
 [郭文贵2020年10月12日盖特 20201012_1爆料革命这碗洒……????????????敬天．敬地．敬战友！](/content/transcript/2020/10/20201012-1093124.md)
-
-[郭文贵2020年10月12日盖特 20201012_2尊敬的战友们好，全球自发的惩贼．要真相．维护华人形象的现象．已经得到了很多正义的有识之士！和法律人士！的绝对的支持……我们](/content/transcript/2020/10/20201012-1093129.md)
 
 
 ## 頁面 44/111 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)

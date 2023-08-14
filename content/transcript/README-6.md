@@ -3,6 +3,10 @@
 
 ## 頁面 6/111 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来](/content/transcript/2022/04/20220429-1091452.md)
+
+[郭文贵2022年4月29日盖特 20220429_2尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！](/content/transcript/2022/04/20220429-1091719.md)
+
 [郭文贵2022年4月28日直播 20220428_1七哥乱聊直播](/content/transcript/2022/04/20220428-1091391.md)
 
 [郭文贵2022年4月27日盖特 20220427_1尊敬的战友们好．七哥在开庭的路上．和战友们聊聊，我们将揭开深藏在美国的、中国共产党间谍们……在美国违法犯罪的金融政治渗透的集团。卸下P A X的邪恶的假面具！让西方的国家法律系统重](/content/transcript/2022/04/20220427-1091711.md)
@@ -48,10 +52,6 @@
 [郭文贵2022年4月13日盖特 20220413_2尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉????????????????????????????????????????明天上午我会抽时间直播半小时左右，一切都已经开始！](/content/transcript/2022/04/20220413-1091683.md)
 
 [郭文贵2022年4月12日盖特 20220412_1尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！](/content/transcript/2022/04/20220412-1091678.md)
-
-[郭文贵2022年4月11日直播 20220411_1试试直播](/content/transcript/2022/04/20220411-1090879.md)
-
-[郭文贵2022年4月11日盖特 20220411_2尊敬的战友们好……中国已经进入人道大灾难的时刻……](/content/transcript/2022/04/20220411-1091675.md)
 
 
 ## 頁面 6/111 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)

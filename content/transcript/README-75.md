@@ -3,6 +3,10 @@
 
 ## 頁面 75/111 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098140.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098141.md)
+
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098142.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098143.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年7月22日视频 20190722_2戰友之間要不忘記 不放棄 不拋棄 不互相攻擊](/content/transcript/2019/07/20190722-1089353.md)
 
 [郭文贵2019年7月22日视频 20190722聊聊．钥匙吴．和．Walle  French．造谣：欺骗的伎俩](/content/transcript/2019/07/20190722-1093361.md)
-
-[2019年7月22日 直播全文字版](/content/transcript/2019/07/20190722-1098117.md)
-
-[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版](/content/transcript/2019/07/20190721-1089349.md)
 
 
 ## 頁面 75/111 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
