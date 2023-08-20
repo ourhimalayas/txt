@@ -3,6 +3,14 @@
 
 ## 頁面 47/112 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年9月13日直播 20200913_2文贵唱播：以歌灭共；明天有大事；路德，闫博士都是灭共者；下周会有让中共意想不到的开战](/content/transcript/2020/09/20200913-1092821.md)
+
+[郭文贵2020年9月12日做客战斗室 20200912郭文贵专场 中文摘要 EP383&384](/content/transcript/2020/09/20200912-1092994.md)
+
+[郭文贵2020年9月11日盖特 20200911尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？衷心的感谢感激战友们对以歌灭共的支持！我们还要继续持之](/content/transcript/2020/09/20200911-1092796.md)
+
+[郭文贵2020年9月10日盖特 20200910_1文贵将开创一个中老年人的生活方式，这是足球先生．郝海东老弟．羽毛球冠军．叶钊颖妹妹．虐待……郭文贵的证据](/content/transcript/2020/09/20200910-1092782.md)
+
 [郭文贵2020年9月10日盖特 20200910_2兄弟姐妹们．别人老想用钱砸咱．咋办呢？咋办呢？咋办昵？](/content/transcript/2020/09/20200910-1092786.md)
 
 [郭文贵2020年9月10日盖特 20200910_3感谢战友们的全球合力的顶．灭共之歌…干掉共产党，我们要创造更伟大的奇迹……](/content/transcript/2020/09/20200910-1092788.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年8月29日连线慕尼黑 20200829_3新中国联邦欧洲战友829慕尼黑游行抗议下午场](/content/transcript/2020/08/20200829-1092649.md)
 
 [郭文贵2020年8月29日连线温哥华 20200829_48月29日温哥华游行 - 连线文贵先生](/content/transcript/2020/08/20200829-1092661.md)
-
-[郭文贵2020年8月29日连线旧金山 20200829_5](/content/transcript/2020/08/20200829-1092675.md)
-
-[郭文贵2020年8月29日连线台湾 20200829_6sara和郭先生与台湾连线](/content/transcript/2020/08/20200829-1092689.md)
-
-[郭文贵2020年8月28日直播 20200828_2连线澳洲喜馬拉雅農場](/content/transcript/2020/08/20200828-1092628.md)
-
-[郭文贵2020年8月28日直播 20200828_1连线澳洲喜馬拉雅農場](/content/transcript/2020/08/20200828-1092843.md)
 
 
 ## 頁面 47/112 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)

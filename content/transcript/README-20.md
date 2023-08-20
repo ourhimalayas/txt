@@ -3,6 +3,14 @@
 
 ## 頁面 20/112 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年9月13日盖特 20210913_2尊敬的战友们好，你们健身了吗？传播C C P病毒．和疫苗灾难的真相了吗？传播解决共产党病毒和疫苗的解药救命信息了吗？](/content/transcript/2021/09/20210913-1093184.md)
+
+[郭文贵2021年9月13日盖特 20210913_3中国人在近代史上得到解放了一个里程碑的日子，也是中国人走向耻辱的日子，从潘石屹两口子的离不开表演的这种行为！和他一直充当白手套…傲慢无知，愚蠢的行为，看中国的企业家……其实](/content/transcript/2021/09/20210913-1093188.md)
+
+[郭文贵2021年9月13日盖特 20210913_4给小郑州兄弟雪茄盒好像不过瘾！不到位，决定再送几个好雪茄给他！幸福就到位！高兴就要达到愉悦的境界，双休就必须也有五次以上的高潮，????????????这是我们所追求的极致的满满的人生形式](/content/transcript/2021/09/20210913-1093193.md)
+
+[郭文贵2021年9月12日直播 20210912_1今年年底将爆发疫苗政治的大危机，文贵再开赌局：辉瑞一定会破产，会受到国际制裁；人类最大的单笔回扣是1200亿美元，由白手套张宏伟和国开行陈元拿走，其中200亿给了江志城；扩大前海经济](/content/transcript/2021/09/20210912-1093051.md)
+
 [郭文贵2021年9月12日盖特 20210912_2一年前直播中答应送给小郑州兄弟的雪茄空盒子的事情，今天终于尘埃落定．很多老雪茄盒子都被管家给扔了！到处找才找到这几个难得的具有雪茄奇迹般的历史的记忆的盒子，大家能看得懂吗？](/content/transcript/2021/09/20210912-1093182.md)
 
 [郭文贵2021年9月11日盖特 20210911_1尊敬的战友们好．每时每刻．我们爆料革命．新中国联邦都在拯救很多无辜的生命……和影响这个世界走向阳光！我们是这个世界上最伟大的正义的力量．共产党你完蛋了。](/content/transcript/2021/09/20210911-1092996.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年9月1日盖特 20210901_3加拿大的反疫苗运动．非常的重要，这将帮助我们更快的更多的拯救世界上被疫苗伤害的人！](/content/transcript/2021/09/20210901-1092819.md)
 
 [郭文贵2021年9月1日直播 20210901_1大卫兄弟以命试毒，奇迹生还，验证爆料革命的情报和实力，七哥与战友之间爱的力量；中共的文化运动的本质，是颠覆政权的需要；中共没有房地产，只有房产，是最大的政治旁氏骗局；房产是](/content/transcript/2021/09/20210901-1092833.md)
-
-[郭文贵2021年9月1日直播 20210901_2大卫兄弟以命试毒，奇迹生还，验证爆料革命的情报和实力，七哥与战友之间爱的力量；中共的文化运动的本质，是颠覆政权的需要；中共没有房地产，只有房产，是最大的政治旁氏骗局；房产是](/content/transcript/2021/09/20210901-1092871.md)
-
-[郭文贵2021年8月31日盖特 20210831_1大直播公布了共产党的病毒解药后，引起了巨大的反响。新中国联邦一定会拯救全人类，消灭共产党，感谢所有的GTV老椅子的战友们……这种伟大的与战友们，视战友为亲兄弟姐妹们，这种伟大的](/content/transcript/2021/08/20210831-1092812.md)
-
-[郭文贵2021年8月31日盖特 20210831_2衷心地感谢给我发信息要捐喜币的所有战友们！现在已经不需要了，但这个捐币的币的热潮行动的背后．更加证明了新中国联邦人的团结和伟大．更加证明了正道主义的未来无限美好……万分的感](/content/transcript/2021/08/20210831-1092816.md)
-
-[郭文贵2021年8月30日直播 20210830_1中共已经有解药：D-NAB；东奥会中国队员已经用青蒿素防病毒，屠呦呦的药都有效；从美军，郑州，香港看中共的解药；疫苗界的大咖很快会出来爆料；体制内将大换岗，特别是公检法](/content/transcript/2021/08/20210830-1092798.md)
 
 
 ## 頁面 20/112 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)

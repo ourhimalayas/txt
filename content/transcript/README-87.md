@@ -3,6 +3,14 @@
 
 ## 頁面 87/112 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年1月1日视频 20190101_2以法灭共开始倒计时](/content/transcript/2019/01/20190101-1088981.md)
+
+[郭文贵2019年1月1日视频 20190101接受木兰访谈的卡丽熙，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么。](/content/transcript/2019/01/20190101-1092074.md)
+
+[郭文贵2018年12月31日视频 20181231_1明天2019年1月1日纽约时间上午10点整，北京时间晚上11点整，卡丽熙將采访郭文贵](/content/transcript/2018/12/20181231-1088979.md)
+
+[郭文贵2018年12月30日视频 20181230_1川普总统将向CCP要求中国人必须有宗教的自由．信仰的自由！](/content/transcript/2018/12/20181230-1088977.md)
+
 [郭文贵2018年12月29日谈马建案 20181229接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/transcript/2018/12/20181229-1092019.md)
 
 [郭文贵2018年12月28日视频 20181228_1昨天晚上两位老领导打电话给我让我当俊杰说我身边有千军万马在等命令随时灭我我好怕怕哦](/content/transcript/2018/12/20181228-1088973.md)
@@ -44,14 +52,6 @@
 [郭文贵2018年12月10日视频 20181210纠正一下昨天直播时的几个口误！刘乐国因为掌握令计划案北大李友案太多案情](/content/transcript/2018/12/20181210-1091730.md)
 
 [郭文贵2018年12月9日视频 20181209量震床上功夫和G20中美峰會的真相，孟晚舟女士在加拿大被抓與華為公司的背后真相，張首晟先生是自殺還是被殺。](/content/transcript/2018/12/20181209-1089956.md)
-
-[郭文贵2018年12月08日视频 20181208船上跟大家聊聊天,.张首晟绝不会自杀!](/content/transcript/2018/12/20181208-1088983.md)
-
-[郭文贵2018年12月7日视频 20181207_1文贵现在会捞鱼了](/content/transcript/2018/12/20181207-1089068.md)
-
-[郭文贵2018年12月4日视频 20181204_1正在研究設計的郭戰友領帶是如何的特別](/content/transcript/2018/12/20181204-1089066.md)
-
-[郭文贵2018年12月2日视频 20181202杨澜找钥匙和G20会议的背后真相，开棺验王健的尸，谈谈王岐山，孟建柱，吴征。](/content/transcript/2018/12/20181202-1087653.md)
 
 
 ## 頁面 87/112 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)

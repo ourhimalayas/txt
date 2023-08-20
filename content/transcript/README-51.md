@@ -3,6 +3,14 @@
 
 ## 頁面 51/112 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年7月14日视频 20200714_3美国和欧洲国家正在制定详细的行动计划，在西方世界清除欺民贼](/content/transcript/2020/07/20200714-1089949.md)
+
+[郭文贵2020年7月14日视频 20200714_4川普总统将在白宫的玫瑰园讲话……关于香港．与中共……C C P 又赢了吗？](/content/transcript/2020/07/20200714-1089951.md)
+
+[郭文贵2020年7月14日视频 20200714_5这个关于香港的 CCP喃们白害怕 都是口炮怕啥站好挺直好好被收拾吧哇哈哈](/content/transcript/2020/07/20200714-1089955.md)
+
+[郭文贵2020年7月14日盖特 20200714_1文贵对中国女性的坚强和伟大有了更新的认识，对中国男人的懦弱和自私有了更深度的理解，北约组织与我们一起在南海搞强拆．和接下来与美国和欧洲共同灭共的同时．将深度的合作．清除中共](/content/transcript/2020/07/20200714-1092396.md)
+
 [郭文贵2020年7月14日盖特 20200714_2美国和欧洲国家正在制定详细的行动计划，在西方世界清除欺民贼及过去几年．与共产党沟连打击爆料革命的所有人……都将受到严惩！西方国家．对共产党病毒的认识和即将带来的威胁，正在有](/content/transcript/2020/07/20200714-1092407.md)
 
 [郭文贵2020年7月12日视频 20200712_2馬上直播](/content/transcript/2020/07/20200712-1089944.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年7月8日直播 20200708共产党又在美国的华尔街日报造谣文贵和班农先生！意图转移国内的重大问题打击，新中国联邦在美国和西方灭共的的大好形式](/content/transcript/2020/07/20200708-1092318.md)
 
 [郭文贵2020年7月7日盖特视频 20200707战友们情人节快乐！GTV是一个传奇同时也是共产党的恐惧](/content/transcript/2020/07/20200707-1092322.md)
-
-[郭文贵2020年7月5日视频 20200705_3 Ladymay2號](/content/transcript/2020/07/20200705-1089903.md)
-
-[郭文贵2020年7月5日直播 20200705_1为什么我们中国的同胞们不愿相信．真和善，却易信假和恶！](/content/transcript/2020/07/20200705-1092306.md)
-
-[郭文贵2020年7月5日直播 20200705_2从这个星期一开始，美国将会有什么样的重锤的具体队C P的惩罚和制裁，一切都已经开始！](/content/transcript/2020/07/20200705-1092323.md)
-
-[郭文贵2020年7月4日直播 20200704新中国联邦被西方政府认可吗？以及GTV投资．美国队中共有史以来最严厉的制裁意味着什么？爆料革命的下一步计划和行动](/content/transcript/2020/07/20200704-1092200.md)
 
 
 ## 頁面 51/112 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 108/112 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月21日视频 20170821盗国贼害怕了，用假女助理推特、假音频攻击文贵。’’今后10天不爆料，估计是在等国内的回应，否则孟建柱政法系就是下一波被爆料的对象](/content/transcript/2017/08/20170821-1094811.md)
+
+[郭文贵2017年8月20日直播 20170820_1推特四段小视频合集](/content/transcript/2017/08/20170820-1093286.md)
+
+[郭文贵2017年8月19日视频 20170819健身报平安小视频：既兴奋又难过。大战在即！和平革命！](/content/transcript/2017/08/20170819-1094296.md)
+
+[郭文贵2017年8月18日明镜专访第五期 20170818](/content/transcript/2017/08/20170818-1094633.md)
+
 [郭文贵2017年8月17日视频 20170817 香港女合伙人被孟建柱下令绑架回深圳．昨晚上自杀未遂而送医！盗国贼们，8.18见！](/content/transcript/2017/08/20170817-1094300.md)
 
 [郭文贵2017年8月16日视频 20170816北戴河会议发生了一个重要事件，盗国贼极力掩盖。](/content/transcript/2017/08/20170816-1094010.md)
@@ -44,14 +52,6 @@
 [郭文贵2017年8月2日第一次直播 20170802_1试试网络：拜托推友别给我发黄色视频．下一集的爆料的大概的预报！(1)](/content/transcript/2017/08/20170802-1094682.md)
 
 [郭文贵2017年8月1日视频 20170801露点报平安,海上钓鱼,请君入瓮,后发制人](/content/transcript/2017/08/20170801-1094032.md)
-
-[郭文贵2017年7月27日 20170727王岐山的真姚庆到底怕什么](/content/transcript/2017/07/20170727-1094331.md)
-
-[郭文贵2017年7月26日 20170726贯君的6000亿原来去了这里！刘呈杰他爹原来是他！](/content/transcript/2017/07/20170726-1094320.md)
-
-[郭文贵2017年7月25日 20170725王岐山、贯君的6000亿海航股权去哪了？](/content/transcript/2017/07/20170725-1094304.md)
-
-[郭文贵2017年7月24日第三次直播 20170724_3](/content/transcript/2017/07/20170724-1093281.md)
 
 
 ## 頁面 108/112 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

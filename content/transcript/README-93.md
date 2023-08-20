@@ -3,6 +3,14 @@
 
 ## 頁面 93/112 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月12日第一次直播 20180912_1战友之声聊天室曝光 调查王健的一个团队被盗国贼50万美金买走所有资料；爆料和姬胜德认识过程；文贵先生早年的经历；90年代赖昌星一天赚2个亿人民币；再次承诺2亿美金成立老兵基金！](/content/transcript/2018/09/20180912-1093097.md)
+
+[郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-1088733.md)
+
+[郭文贵2018年9月11日视频 20180911_3願美國不會再有911](/content/transcript/2018/09/20180911-1088737.md)
+
+[郭文贵2018年9月11日视频 20180911文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-1093079.md)
+
 [郭文贵2018年9月10日视频 20180910_4船上视频：刚刚从海浪中归来的感受](/content/transcript/2018/09/20180910-1087776.md)
 
 [郭文贵2018年9月10日直播 20180910_3文贵在雨中建议所有的战友们观看"斯大林之死"这部电影](/content/transcript/2018/09/20180910-1088727.md)
@@ -44,14 +52,6 @@
 [郭文贵2018年8月27日直播 20180827_1](/content/transcript/2018/08/20180827-1088693.md)
 
 [郭文贵2018年8月27日直播 20180827_2](/content/transcript/2018/08/20180827-1088694.md)
-
-[郭文贵2018年8月26日视频 20180826应战友们的要求发一个Snow现在的生活视频](/content/transcript/2018/08/20180826-1087773.md)
-
-[郭文贵2018年8月24日视频 20180824澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/content/transcript/2018/08/20180824-1093028.md)
-
-[郭文贵2018年8月23日视频 20180823在船上谈王建](/content/transcript/2018/08/20180823-1093024.md)
-
-[郭文贵2018年8月20日视频 20180820_2Snow小视频](/content/transcript/2018/08/20180820-1088672.md)
 
 
 ## 頁面 93/112 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

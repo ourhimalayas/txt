@@ -3,6 +3,14 @@
 
 ## 頁面 55/112 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年5月14日视频 20200514_2视频恢复 ： 绝不能让任何国家利用共产党犯罪来抢着中国人的财富．Gfashion将成为战友们走向世界的综合舞台！](/content/transcript/2020/05/20200514-1092157.md)
+
+[郭文贵2020年5月13日视频 20200513GTV录播：下午7：30，是谁把银行买垮了，阴阳乾坤，隔空取钱。](/content/transcript/2020/05/20200513-1089007.md)
+
+[郭文贵2020年5月11日GTV连线长岛伟哥 20200511](/content/transcript/2020/05/20200511-1092113.md)
+
+[郭文贵2020年5月10日GTV连线文欣 20200510](/content/transcript/2020/05/20200510-1092132.md)
+
 [郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统](/content/transcript/2020/05/20200510-1092423.md)
 
 [郭文贵2020年5月9日连线草根小哥 20200509_2](/content/transcript/2020/05/20200509-1092070.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年4月25日视频 20200425_2GTV 作战工作室, 还有snow 哈哈](/content/transcript/2020/04/20200425-1089840.md)
 
 [郭文贵2020年4月25日视频 20200425_3](/content/transcript/2020/04/20200425-1089844.md)
-
-[郭文贵2020年4月25日视频 20200425_4](/content/transcript/2020/04/20200425-1089847.md)
-
-[郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国](/content/transcript/2020/04/20200425-1089851.md)
-
-[郭文贵2020年4月23日吴征靠女人上位 20200423有史以来最严重的一次被黑客袭击的．直播。建立了没有共产党的新中国！应该马上做什么？文贵强烈推荐](/content/transcript/2020/04/20200423-1091942.md)
-
-[郭文贵2020年4月22日视频 20200422](/content/transcript/2020/04/20200422-1091930.md)
 
 
 ## 頁面 55/112 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 22/112 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年8月20日盖特 20210820_3尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机CCp病毒真相了吗？任何情况下都不能给自己借口偷懒，停止锻炼，这是新中国联邦人的必备基础](/content/transcript/2021/08/20210820-1092630.md)
+
+[郭文贵2021年8月19日直播 20210819_1从华融，双汇万隆父子事件看中共经济的崩溃和中共的内斗；中共军方对付台湾第一批攻击将是无人机，镭射式武器；文贵准备用10-100亿开赌局，赌台湾是否发生战争，请有资源的战友与农场联盟](/content/transcript/2021/08/20210819-1092474.md)
+
+[郭文贵2021年8月19日盖特 20210819_2吃饭饭喽……](/content/transcript/2021/08/20210819-1092621.md)
+
+[郭文贵2021年8月19日盖特 20210819_3尊敬的战友们好：吃烧鸡鸡楼……2号最辣的辣椒喽……](/content/transcript/2021/08/20210819-1092622.md)
+
 [郭文贵2021年8月18日直播 20210818_1从文化大革命，知识青年山上下乡看中国人今天的信仰；从过去文贵谈台海危机，看今天的台湾局势；中共国现状比阿富汗的今天糟千万倍，进入文革2.0；全球打榜的奇迹体现了爆料革命的实力，](/content/transcript/2021/08/20210818-1092358.md)
 
 [郭文贵2021年8月17日直播 20210817_1为染病毒的战友及家人祈福！爆料革命，新中国联邦的战友们要真心爱家人，真心的爱战友；各农场是海外华人互帮互助的平台](/content/transcript/2021/08/20210817-1092244.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年8月9日直播 20210809_1为染病毒的战友和家人祈福；联盟农场第一首要任务备药防毒；文贵给世界的警告再次被验证；中共的邪恶计划，杀富，用疫苗杀死老年人和有缺陷的人; 新中国联邦人拯救世界](/content/transcript/2021/08/20210809-1092050.md)
 
 [郭文贵2021年8月9日盖特 20210809_2尊敬的战友们好·你们健身了吗？传播C C P病毒！郑州人祸·香港危机真相了吗？一切都已经开始！](/content/transcript/2021/08/20210809-1092069.md)
-
-[郭文贵2021年8月8日盖特 20210808_1尊敬的战友们好……你们健身了吗？传播C C P病毒．郑州人祸．香港危机真相了吗？  1968年的8月8号：是中国共产党正式发动文化大革命的日子，我们永远要记住每一年的今天．8月8日](/content/transcript/2021/08/20210808-1092062.md)
-
-[郭文贵2021年8月8日盖特 20210808_2尊敬的战友们好．共产党在全世界发动的又一次．一个又一个的．大革命，都是摧毁人类的文明．和二战后世界．共同创造的经济．和和平的军事合作体系，人类正面对巨大的安全和生存的挑战。](/content/transcript/2021/08/20210808-1092067.md)
-
-[郭文贵2021年8月7日直播 20210807_1新中国联邦与黑水公司将联合打造海外华人防护力量；永远不能忘记了爆料革命的真，蛇妖闫亡腚缸的假，共产党做的恶，追求自由是我们的根本；今年北戴河会议，中共两派在政治、经济、政法](/content/transcript/2021/08/20210807-1092014.md)
-
-[郭文贵2021年8月7日盖特 20210807_2我才知道．路大脑骗．蛇妖闫．又一重磅发表．郝海东兄弟．叶钊颖妹妹现在海南不在西班牙了](/content/transcript/2021/08/20210807-1092061.md)
 
 
 ## 頁面 22/112 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)

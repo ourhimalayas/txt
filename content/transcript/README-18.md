@@ -3,6 +3,14 @@
 
 ## 頁面 18/112 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年10月12日盖特 20211012_3尊敬的战友们好．世界政治经济面临的巨大挑战给新中国联邦带来了前所未有的机会，我们要冷静，客观全面进行揭发．帮助世界拆除共产党在全世界埋下的各种定时炸弹……](/content/transcript/2021/10/20211012-1093619.md)
+
+[郭文贵2021年10月11日盖特 20211011_1刚才的视频大家的反应有卡顿，我再重发一次。](/content/transcript/2021/10/20211011-1093476.md)
+
+[郭文贵2021年10月11日盖特直播 20211011_2](/content/transcript/2021/10/20211011-1093478.md)
+
+[郭文贵2021年10月10日直播 20211010_1文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美](/content/transcript/2021/10/20211010-1093468.md)
+
 [郭文贵2021年10月10日盖特 20211010_2尊敬的战友们好，我们都应该拥有这样美好的现代的文明的生活，????????????????????你们说对不对啊？](/content/transcript/2021/10/20211010-1093471.md)
 
 [郭文贵2021年10月8日盖特 20211008_1尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世](/content/transcript/2021/10/20211008-1093374.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年9月27日盖特 20210927_1尊敬的战友们好……七哥建议所有的战友们要认真思考，未来一两年的生活和生存的方式，严肃认真的对待社会结构及政治各方面改变带来的冲击，特别是要对疫苗灾难的脑梗，心梗等各种不可预](/content/transcript/2021/09/20210927-1093360.md)
 
 [郭文贵2021年9月26日直播 20210926_1孟晚舟回国会生不如死，她是习派拿钱的密码，内部斗争的结果，华为的灾难在她回去那天刚刚开始，但对爆料革命是最大的礼物；华为的5G加芯片技术对西方的威胁巨大，新一代的芯片的较量是生](/content/transcript/2021/09/20210926-1093351.md)
-
-[郭文贵2021年9月25日盖特 20210925_1尊敬的战友们好，在这里简单地回答一下，很多战友发给我，关于孟晩回囯的看法……还有国内粮食危机的一些问题，一切都已经开始。](/content/transcript/2021/09/20210925-1093355.md)
-
-[郭文贵2021年9月24日直播 20210924_1中共昨天对台演习大涨中共气势，第一次挂核弹以立体全实战模式对台湾实战演习；陈峰被抓的下场七哥第一天爆料海航就已经注定，陈峰早已被监控2年，配合专案组处理海外资产，七哥将帮助找](/content/transcript/2021/09/20210924-1093283.md)
-
-[郭文贵2021年9月23日直播 20210923_1疫苗，病毒灾难远远还没开始；恒大事件被掩盖的房地产的资金池子，影子银行，保险会爆雷，一旦爆雷国际金融货币市场将崩塌；中共准备放更多病毒以镇压抗议游行，新病毒是热毒；许家印一](/content/transcript/2021/09/20210923-1093260.md)
-
-[郭文贵2021年9月21日直播 20210921_12021中秋特别节目：月亮托起我们的心愿](/content/transcript/2021/09/20210921-1093257.md)
 
 
 ## 頁面 18/112 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

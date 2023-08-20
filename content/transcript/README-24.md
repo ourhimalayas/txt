@@ -3,6 +3,14 @@
 
 ## 頁面 24/112 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年7月30日盖特 20210730_3尊敬的战友们好！你们健身了吗？传播郑州人祸．CCP病毒真相了吗？一切都已经开始！](/content/transcript/2021/07/20210730-1091854.md)
+
+[郭文贵2021年7月30日盖特 20210730_4我三天没锻炼，随便吃东西，肚子大了两个号呀????????????????太可怕了，我今天要做300个](/content/transcript/2021/07/20210730-1091856.md)
+
+[郭文贵2021年7月30日盖特 20210730_5越说越开心，这肚子大了太丑了](/content/transcript/2021/07/20210730-1091859.md)
+
+[郭文贵2021年7月30日盖特 20210730_6真心觉得自己真的很棒！](/content/transcript/2021/07/20210730-1091861.md)
+
 [郭文贵2021年7月30日盖特 20210730_7尊敬的战友们好：为什么这几天从东京到南京．从北京到华盛顿．从欧洲到非洲．CCP病毒突然猛增，这与这些天发生的一个个的所谓的平爆策反 路大脑骗．蛇妖闫……有什么关系。](/content/transcript/2021/07/20210730-1091862.md)
 
 [郭文贵2021年7月29日盖特 20210729_2尊敬的战友们好，你们健身了吗，传播CCP病毒香港危机郑州水灾真相了吗！爆料革命由路大脑袋和蛇妖闫事件，新中国联邦迎来了新的春天。。](/content/transcript/2021/07/20210729-1091852.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年7月21日盖特 20210721_2尊敬的战友们好！郑州所谓的千年不遇的天灾人祸……正在发生巨大的人道灾难，都是因为一党独裁共产党假黑骗统治的结果！只有消灭共产党，我们的子孙和我们每个中国人才会安全……才会有](/content/transcript/2021/07/20210721-1091767.md)
 
 [郭文贵2021年7月20日盖特 20210720_2尊敬的战友好．共产党策划的．以路大骗子．蛇妖闫．失败者塞林．找爹博．癌症丽．德意志之鹰为首的．最大的灭爆行动已经宣告彻底失败，这次战斗更加巩固了新中国联邦爆料革命以毒灭共的](/content/transcript/2021/07/20210720-1091764.md)
-
-[郭文贵2021年7月20日直播 20210720_1河南政府腐败，工程腐败，这次的灾难是必然，不是天灾而是人祸；传播洪水真相，死亡人数一定从万起步；世界经济会出大事](/content/transcript/2021/07/20210720-1091846.md)
-
-[郭文贵2021年7月19日盖特 20210719_1尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？灭共已经到了最关键的时刻，我们全球的战友们．越是在这个时候越要擦亮眼睛．辩善恶是非．一切都已经开始！](/content/transcript/2021/07/20210719-1091825.md)
-
-[郭文贵2021年7月18日直播 20210718_1爆料革命是最早在2019年6月警告中共生化武器的；共产党在做垂死挣扎，全球灭共已无人可挡！](/content/transcript/2021/07/20210718-1091803.md)
-
-[郭文贵2021年7月18日直播 20210718_2](/content/transcript/2021/07/20210718-1091815.md)
 
 
 ## 頁面 24/112 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)

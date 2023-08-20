@@ -3,6 +3,14 @@
 
 ## 頁面 77/112 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始](/content/transcript/2019/07/20190716-1089320.md)
+
+[郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件](/content/transcript/2019/07/20190715-1089317.md)
+
+[郭文贵2019年7月15日视频 20190715盘古大观在7月14号被北京高院公告……将以实际价格的10％被拍卖……实际的背后的黑手就是江泽民．和江志成．孟建柱和孙力军……王岐山！这就是过去两周他们要栽赃文贵](/content/transcript/2019/07/20190715-1093329.md)
+
+[2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······](/content/transcript/2019/07/20190715-1098113.md)
+
 [郭文贵2019年7月14日 20190714班农与文贵直播: 共产党为什么可以强奸美国70年？](/content/transcript/2019/07/20190714-1093421.md)
 
 [2019年7月14日直播全文字版: 班农与文贵：共产党为什么可以强奸美国70年？](/content/transcript/2019/07/20190714-1098114.md)
@@ -44,14 +52,6 @@
 [2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集](/content/transcript/2019/07/20190707-1098102.md)
 
 [郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...](/content/transcript/2019/07/20190706-1093356.md)
-
-[2019年7月6日直播全文字版：与彭文正先生连线——灭共保台](/content/transcript/2019/07/20190706-1098104.md)
-
-[郭文贵2019年7月5日视频 20190705美国最高层“中国人站起来反抗，美国人一定跟上”](/content/transcript/2019/07/20190705-1093334.md)
-
-[2019年7月5日文贵船上直播全文字版：从美国国庆日看中共的假丑黑恶](/content/transcript/2019/07/20190705-1098098.md)
-
-[郭文贵2019年7月3日视频 20190703_2伪民运为什么敢在法院侮辱威胁文贵 高清部分内容](/content/transcript/2019/07/20190703-1088593.md)
 
 
 ## 頁面 77/112 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

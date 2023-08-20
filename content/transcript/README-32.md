@@ -3,6 +3,14 @@
 
 ## 頁面 32/112 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年4月18日直播 20210418_1美国克里访华要谈的几件事；中共和沙特闹拜的原因；从比特币，火币看对投资的理解；忠诚于事，诚实待人](/content/transcript/2021/04/20210418-1091156.md)
+
+[郭文贵2021年4月17日盖特 20210417_1尊敬的战友们好！收到了你们很多很多人发来的信息．在等待直播……文贵今天不直播．给今天上午10点的真人真事．今天访问路德的节目让路，明天4月18号上午9:30文贵直播乱聊，今天稍后我会发](/content/transcript/2021/04/20210417-1091139.md)
+
+[郭文贵2021年4月17日盖特 20210417_2尊敬的戰友們好！全世界正在迎來一個惡性通貨膨脹．經濟危機．金融災難的前夜！我們應該如何看待這個世界．前所未有的這個滅共的機會！而讓自己不要成為那個被洗劫財富的人！一切都已經](/content/transcript/2021/04/20210417-1091144.md)
+
+[郭文贵2021年4月16日盖特 20210416_1尊敬的战友们好……共产党在灭亡前夜……正在创造最大的经济泡沫，美国华尔街正在能制造一个世界经济的陷阱，我们如何把握住自己．踩着历史的节奏而不掉入陷阱，不被泡沫化．还要抓住的](/content/transcript/2021/04/20210416-1091128.md)
+
 [郭文贵2021年4月16日盖特 20210416_2根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！](/content/transcript/2021/04/20210416-1091132.md)
 
 [郭文贵2021年4月16日盖特 20210416_3根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！(第二段)另一](/content/transcript/2021/04/20210416-1091137.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年4月5日直播 20210405_1共产党的清明经济，清明政治，清明关系，挣死人钱，回老家搞关系，升官发财； 共产党实施的以钱灭美计划，美元经济崩溃，黄金一定大涨](/content/transcript/2021/04/20210405-1091115.md)
 
 [郭文贵2021年4月4日盖特 20210404_1尊敬的战友们好，全世界人民的安全．经济，政治，勇气和正义就像当年的泰坦尼克号一样，不可逆转的 撞上共产党的这个流氓的冰山，我们必须做好一切准备．将这场人类的大灾难．变成新中国](/content/transcript/2021/04/20210404-1091097.md)
-
-[郭文贵2021年4月4日盖特 20210404_2美国投资GTV兄弟姐妹们……给我发了很多信息和问题！关于一些不正确的信息！我在这里澄清一下！清明节这个鬼四月是共同沉思人生．当下．社会的最好的时机，只要解脱了生死的恐惧！人生再](/content/transcript/2021/04/20210404-1091104.md)
-
-[郭文贵2021年4月4日盖特 20210404_3尊敬的战友们好，明天上午9:30文贵乱聊直播！谈谈共产党的以钱灭美的计划．和共产党为什么提倡过清明节？共产党病毒在武汉．中国．世界．到底杀了多少人？](/content/transcript/2021/04/20210404-1091106.md)
-
-[郭文贵2021年4月3日直播 20210403_1投资要把握时机，时间，实务；要具有常识，基本的辨别能力，逻辑关系；共产党是最大的流氓黑帮；以毒灭共到了关键时刻；全球联合歼灭共](/content/transcript/2021/04/20210403-1091093.md)
-
-[郭文贵2021年4月2日盖特 20210402_1投资GTV……投资的是未来！不是现在！这是个基本的常识，这也是CTV价值的所在。凤凰卫视的事件是一个最好的参考案例。 为什么中共严管下的外币大量的转向了加拿大，还有其他国家，这是正确](/content/transcript/2021/04/20210402-1091078.md)
 
 
 ## 頁面 32/112 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

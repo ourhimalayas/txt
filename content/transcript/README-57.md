@@ -3,6 +3,14 @@
 
 ## 頁面 57/112 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年4月7日视频 20200407_2就4月7号上午的直播中一些关键的信息的严肃纠正](/content/transcript/2020/04/20200407-1089802.md)
+
+[郭文贵2020年4月7日视频 20200407_3与战友分享农场的美景……你对自然多爱护．大自然就会让你体验到．更多倍的……多么不可思议的美丽的风景](/content/transcript/2020/04/20200407-1089804.md)
+
+[郭文贵2020年4月7日视频 20200407我们已经处在世界第三次战争中！](/content/transcript/2020/04/20200407-1092106.md)
+
+[郭文贵2020年4月6日视频 20200406_1](/content/transcript/2020/04/20200406-1089796.md)
+
 [郭文贵2020年4月6日视频 20200406_2](/content/transcript/2020/04/20200406-1089799.md)
 
 [郭文贵2020年4月5日GTV视频 20200405_4与木兰 路德 sara直播](/content/transcript/2020/04/20200405-1088967.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年3月31日gtv 20200331_2乱聊直播](/content/transcript/2020/03/20200331-1088915.md)
 
 [郭文贵2020年3月31日 20200331直播谈亚洲耶路撒冷香港，喜马拉雅大使馆农场，GTV GNews GFasion，不接受染病的人](/content/transcript/2020/03/20200331-1091946.md)
-
-[郭文贵2020年3月30日视频 20200330_1郭文貴先生直播做饭吃饭 不爆料](/content/transcript/2020/03/20200330-1089780.md)
-
-[郭文贵2020年3月28日GTV 20200328_2live video GTV正式的直播．呼吁全球华人踊跃地向住地国捐赠物资](/content/transcript/2020/03/20200328-1088913.md)
-
-[郭文贵2020年3月28日 20200328谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，疫情中成功！](/content/transcript/2020/03/20200328-1091920.md)
-
-[郭文贵2020年3月27日视频 20200327_6CCP病毒肆虐，曼哈顿大街上空无一人，法治基金工作人员依然在给战友寄送口罩物资！](/content/transcript/2020/03/20200327-1089012.md)
 
 
 ## 頁面 57/112 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 42/112 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月21日盖特 20201221_1尊敬的战友们好……文贵又做梦了……](/content/transcript/2020/12/20201221-1090109.md)
+
+[郭文贵2020年12月21日盖特 20201221_2过冬至吃饺子喽……](/content/transcript/2020/12/20201221-1090120.md)
+
+[郭文贵2020年12月20日盖特 20201220_1尊敬的战友们好！所有的战友们要知道．只有家和人和你才能平安，健康……中共的经济在崩塌……自己更要珍惜．与家人和周围同事．朋友的关系，这会让你更安全，更健康和躲过战争……饥荒](/content/transcript/2020/12/20201220-1090107.md)
+
+[郭文贵2020年12月20日直播 20201220_2在线回答原凤凰农场和VOG战友的问题](/content/transcript/2020/12/20201220-1090119.md)
+
 [郭文贵2020年12月20日音频聊天 20201220_3喜马拉雅大使馆Discord与战友聊天音频](/content/transcript/2020/12/20201220-1090134.md)
 
 [郭文贵2020年12月19日盖特 20201219_1尊敬的战友们好……中共的经济完全处于崩溃状态，事实证明爆料革命救命，保财，保未来！事实．时间．是最好的验证的工具！](/content/transcript/2020/12/20201219-1090106.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年12月10日盖特 20201210_5所有的战友们都要全力以赴去支持。在苹果商店在过去几年支持，我们爆料革命．坚持美国法律原则的这位姓范的朋友。](/content/transcript/2020/12/20201210-1090061.md)
 
 [郭文贵2020年12月9日盖特 20201209_1蓋特：睡不著覺啦...胡說八道亂聊一下，翟東升所說的左欺右騙虾話，中國共產黨以假治國以黑治國以騙治國...狂妄自大...一個典型的代表人物...有時間的時候，能在這個星期六好好聊聊](/content/transcript/2020/12/20201209-1090049.md)
-
-[郭文贵2020年12月9日盖特 20201209_2文貴衷心的感謝全球的懲賊滅共行動中......辛苦的戰友們......](/content/transcript/2020/12/20201209-1090051.md)
-
-[郭文贵2020年12月8日盖特 20201208_3心地感谢日本富士会的007及所有的战友们的认真……和辛苦……制作的新中国联邦的旗帜和徽章的系列](/content/transcript/2020/12/20201208-1090089.md)
-
-[郭文贵2020年12月8日直播 20201208_1文贵直播做羊肉丸子和蒸大馒头 第一部分](/content/transcript/2020/12/20201208-1093258.md)
-
-[郭文贵2020年12月8日直播 20201208_2文贵直播做羊肉丸子和蒸大馒头 第二部分 （约翰叔叔向战友谢罪篇，感谢上天造和秘密翻译组）](/content/transcript/2020/12/20201208-1093271.md)
 
 
 ## 頁面 42/112 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)

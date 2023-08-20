@@ -3,6 +3,14 @@
 
 ## 頁面 43/112 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月9日盖特 20201209_2文貴衷心的感謝全球的懲賊滅共行動中......辛苦的戰友們......](/content/transcript/2020/12/20201209-1090051.md)
+
+[郭文贵2020年12月8日盖特 20201208_3心地感谢日本富士会的007及所有的战友们的认真……和辛苦……制作的新中国联邦的旗帜和徽章的系列](/content/transcript/2020/12/20201208-1090089.md)
+
+[郭文贵2020年12月8日直播 20201208_1文贵直播做羊肉丸子和蒸大馒头 第一部分](/content/transcript/2020/12/20201208-1093258.md)
+
+[郭文贵2020年12月8日直播 20201208_2文贵直播做羊肉丸子和蒸大馒头 第二部分 （约翰叔叔向战友谢罪篇，感谢上天造和秘密翻译组）](/content/transcript/2020/12/20201208-1093271.md)
+
 [郭文贵2020年12月7日盖特 20201207_1尊敬的戰友們好，明天1 2月8號上午9 ：0 0至1 0 ：0 0間文貴直播做羊肉丸子，蒸大饅頭，一切都已經開始！](/content/transcript/2020/12/20201207-1093249.md)
 
 [郭文贵2020年12月7日盖特 20201207_2尊敬的戰友們好。再次的感謝所有的戰友。為朱利安尼先生的祈禱，他現在恢复非常好。文貴在此表達衷心的感謝，一切都已經開始！](/content/transcript/2020/12/20201207-1093252.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年11月22日盖特 20201122_2尊敬的战友们好，你们健身了吗？你们传统播C C B病毒——香港危机真相了吗？一切都已经开始！](/content/transcript/2020/11/20201122-1093206.md)
 
 [郭文贵2020年11月22日直播 20201122_3夜晚部分](/content/transcript/2020/11/20201122-1093219.md)
-
-[郭文贵2020年11月21日盖特 20201121_1文贵与战友们一起吃新鲜出炉的面包](/content/transcript/2020/11/20201121-1093158.md)
-
-[郭文贵2020年11月21日直播 20201121_2](/content/transcript/2020/11/20201121-1093196.md)
-
-[郭文贵2020年11月20日盖特 20201120_11120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，王建的被杀害的事情远远没有结束](/content/transcript/2020/11/20201120-1093241.md)
-
-[郭文贵2020年11月20日盖特 20201120_2尊敬的战友们好．几天来，我一直都在思考……这个难以忘记重大的爆料革命的历史的日子里……1120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，](/content/transcript/2020/11/20201120-1093242.md)
 
 
 ## 頁面 43/112 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)

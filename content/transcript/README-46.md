@@ -3,6 +3,14 @@
 
 ## 頁面 46/112 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年10月1日连线香草山 20201001美东香草山农场终共十一游行，在十八楼下连线七哥](/content/transcript/2020/10/20201001-1093053.md)
+
+[郭文贵2020年9月28日盖特 20200928文贵去大教堂．为新中国联邦为爆料革命战友祈福](/content/transcript/2020/09/20200928-1092900.md)
+
+[郭文贵2020年9月27日直播 20200927_1新中国联邦受到了世界多国的欢迎和认可，这是战友们共同团结和奉献的结果。](/content/transcript/2020/09/20200927-1092895.md)
+
+[郭文贵2020年9月26日连线我是音雄 20200926_2《我是音雄》第一期复赛七哥空降现场，并发布震撼消息！](/content/transcript/2020/09/20200926-1092888.md)
+
 [郭文贵2020年9月26日直播 20200926_1感谢在前线依法灭贼的战友们；依法灭贼的重大意义，是对战友勇气与智慧的考验](/content/transcript/2020/09/20200926-1092983.md)
 
 [郭文贵2020年9月25日盖特 20200925尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？文贵聊聊．为什么要在全球依法灭贼！看过变态的性爱视频了](/content/transcript/2020/09/20200925-1092969.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年9月14日盖特 20200914尊敬的战友们好……我们的英雄科学家的有关．中共开发的生化武器冠状病毒的．真相的报告，将重为拯救世界唯一的雅典娜希望！今天刚](/content/transcript/2020/09/20200914-1092754.md)
 
 [郭文贵2020年9月13日盖特 20200913_1尊敬的战友们好。你们健身了吗？你们传播C C病毒香港危机真相了吗？共产党正在走向死亡的边缘，文贵正在全力以赴的帮助，共产党加](/content/transcript/2020/09/20200913-1092801.md)
-
-[郭文贵2020年9月13日直播 20200913_2文贵唱播：以歌灭共；明天有大事；路德，闫博士都是灭共者；下周会有让中共意想不到的开战](/content/transcript/2020/09/20200913-1092821.md)
-
-[郭文贵2020年9月12日做客战斗室 20200912郭文贵专场 中文摘要 EP383&384](/content/transcript/2020/09/20200912-1092994.md)
-
-[郭文贵2020年9月11日盖特 20200911尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？衷心的感谢感激战友们对以歌灭共的支持！我们还要继续持之](/content/transcript/2020/09/20200911-1092796.md)
-
-[郭文贵2020年9月10日盖特 20200910_1文贵将开创一个中老年人的生活方式，这是足球先生．郝海东老弟．羽毛球冠军．叶钊颖妹妹．虐待……郭文贵的证据](/content/transcript/2020/09/20200910-1092782.md)
 
 
 ## 頁面 46/112 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)

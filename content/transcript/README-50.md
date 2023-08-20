@@ -3,6 +3,14 @@
 
 ## 頁面 50/112 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年7月30日视频 20200730_2](/content/transcript/2020/07/20200730-1090004.md)
+
+[郭文贵2020年7月30日连线韩国农场 20200730](/content/transcript/2020/07/20200730-1092458.md)
+
+[郭文贵2020年7月29日盖特 20200729早上5:27．尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？文贵向大家报告几个好消息……黄故事……一切都已经开始！](/content/transcript/2020/07/20200729-1092419.md)
+
+[郭文贵2020年7月28日直播 20200728习江曾栗．大战开始．曾维．戴永革等南普陀会议，相关家族一批人员将被抓捕……](/content/transcript/2020/07/20200728-1092413.md)
+
 [郭文贵2020年7月27日直播 20200727伟大战友全球灭共大游行．华盛顿自由论坛．新中囯联邦在华盛顿首次亮相．官员．议员集体灭共的意义！](/content/transcript/2020/07/20200727-1092390.md)
 
 [郭文贵2020年7月26日视频 20200726_1衷心的感谢正在进行的全球抗议行动……的新中国联邦的所有的战友．兄弟姐妹们](/content/transcript/2020/07/20200726-1090001.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年7月15日视频 20200715_2川普总统的头发．从过去的金发为什么一夜变成了灰白发呢？](/content/transcript/2020/07/20200715-1089958.md)
 
 [郭文贵2020年7月15日直播 20200715为什么卡尔巴斯．离开GTV董事会？接下来的新中国联邦将与各国合作有重大的行动](/content/transcript/2020/07/20200715-1092379.md)
-
-[郭文贵2020年7月14日视频 20200714_3美国和欧洲国家正在制定详细的行动计划，在西方世界清除欺民贼](/content/transcript/2020/07/20200714-1089949.md)
-
-[郭文贵2020年7月14日视频 20200714_4川普总统将在白宫的玫瑰园讲话……关于香港．与中共……C C P 又赢了吗？](/content/transcript/2020/07/20200714-1089951.md)
-
-[郭文贵2020年7月14日视频 20200714_5这个关于香港的 CCP喃们白害怕 都是口炮怕啥站好挺直好好被收拾吧哇哈哈](/content/transcript/2020/07/20200714-1089955.md)
-
-[郭文贵2020年7月14日盖特 20200714_1文贵对中国女性的坚强和伟大有了更新的认识，对中国男人的懦弱和自私有了更深度的理解，北约组织与我们一起在南海搞强拆．和接下来与美国和欧洲共同灭共的同时．将深度的合作．清除中共](/content/transcript/2020/07/20200714-1092396.md)
 
 
 ## 頁面 50/112 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)

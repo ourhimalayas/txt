@@ -3,6 +3,14 @@
 
 ## 頁面 95/112 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台](/content/transcript/2018/08/20180808-1088626.md)
+
+[郭文贵2018年8月8日直播 20180808_4盗国贼为了掩盖杀王建的罪恶接下来将有以下的行动](/content/transcript/2018/08/20180808-1088630.md)
+
+[郭文贵2018年8月8日直播 20180808_5起诉欺民贼以爆料文贵上帝的名义诈骗的郭宝胜只是刚刚开始](/content/transcript/2018/08/20180808-1088640.md)
+
+[郭文贵2018年8月8日直播 20180808_6下一周是给盗国贼反击的时间文贵要准备发布会和刑事案件具体落实一切都是刚刚开始](/content/transcript/2018/08/20180808-1088643.md)
+
 [郭文贵2018年8月8日直播 20180808_7我将拉黑任何一个挑战喜马拉雅打击盗国贼的推号开足马力全力以赴投入全部精力物力推进爆料革命](/content/transcript/2018/08/20180808-1088648.md)
 
 [郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！](/content/transcript/2018/08/20180807-1087742.md)
@@ -44,14 +52,6 @@
 [郭文贵2018年7月17日路德访谈（二）20180717_2郭文贵先生全球直播（第二部分）](/content/transcript/2018/07/20180717-1092947.md)
 
 [郭文贵2018年7月17日路德访谈（三）20180717_3郭文贵先生全球直播（第三部分）](/content/transcript/2018/07/20180717-1092957.md)
-
-[郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/transcript/2018/07/20180710-1092917.md)
-
-[郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/transcript/2018/07/20180709-1092902.md)
-
-[郭文贵2018年7月8日视频 20180708在船上报平安](/content/transcript/2018/07/20180708-1087726.md)
-
-[郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！](/content/transcript/2018/07/20180706-1092892.md)
 
 
 ## 頁面 95/112 [**<**](/content/transcript/README-94.md) [1](/content/transcript/README.md) ... [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) **95** [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-96.md) [查看全部](/content/transcript/README-all.md)

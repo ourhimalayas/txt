@@ -3,6 +3,14 @@
 
 ## 頁面 15/112 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年11月21日盖特 20211121_2时间真是个好东西，能让一切真假和善恶得出最真实的结果！](/content/transcript/2021/11/20211121-1093652.md)
+
+[郭文贵2021年11月20日直播 20211120_1“11·20”发布会及法治基金、法治社会成立三周年纪念日大直播](/content/transcript/2021/11/20211120-1094009.md)
+
+[郭文贵2021年11月19日直播 20211119_1国际市场资金短缺；数字货币、法币及经济膨胀所带来的危害；疫苗灾难最新数据及病毒解药的进展](/content/transcript/2021/11/20211119-1093861.md)
+
+[郭文贵2021年11月19日直播 20211119_2试镜头](/content/transcript/2021/11/20211119-1093873.md)
+
 [郭文贵2021年11月18日盖特 20211118_1尊敬的战友们好，……你们健身了吗？传播C C P病毒……疫苗解药的真相了吗？新中国联邦正以．前所未有的速度．和巨大的力量，在推动停止人类正在面对的疫苗灾难！](/content/transcript/2021/11/20211118-1093635.md)
 
 [郭文贵2021年11月18日盖特 20211118_2可爱的笨笨和Snow嬉闹的日常生活](/content/transcript/2021/11/20211118-1093640.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年11月10日盖特 20211110_2尊敬的战友们好……你们健身了吗？战友们有钱了是不是就不应该健身了呢？](/content/transcript/2021/11/20211110-1093584.md)
 
 [郭文贵2021年11月9日盖特 20211109_1尊敬的战友们好，你们健身了吗？你们在北京的六中全会发现什么了吗？你们传播C C P的病毒和疫苗的解药的真相了吗？一切都已经开始！](/content/transcript/2021/11/20211109-1093582.md)
-
-[郭文贵2021年11月8日直播 20211108_1文贵先生挑选GFASHION新品](/content/transcript/2021/11/20211108-1093481.md)
-
-[郭文贵2021年11月8日盖特 20211108_2尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/11/20211108-1093574.md)
-
-[郭文贵2021年11月8日盖特 20211108_3七哥扎真真了……](/content/transcript/2021/11/20211108-1093580.md)
-
-[郭文贵2021年11月7日直播 20211107_1爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；](/content/transcript/2021/11/20211107-1093849.md)
 
 
 ## 頁面 15/112 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

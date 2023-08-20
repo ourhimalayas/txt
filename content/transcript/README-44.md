@@ -3,6 +3,14 @@
 
 ## 頁面 44/112 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年11月21日盖特 20201121_1文贵与战友们一起吃新鲜出炉的面包](/content/transcript/2020/11/20201121-1093158.md)
+
+[郭文贵2020年11月21日直播 20201121_2](/content/transcript/2020/11/20201121-1093196.md)
+
+[郭文贵2020年11月20日盖特 20201120_11120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，王建的被杀害的事情远远没有结束](/content/transcript/2020/11/20201120-1093241.md)
+
+[郭文贵2020年11月20日盖特 20201120_2尊敬的战友们好．几天来，我一直都在思考……这个难以忘记重大的爆料革命的历史的日子里……1120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，](/content/transcript/2020/11/20201120-1093242.md)
+
 [郭文贵2020年11月20日盖特 20201120_3亲爱的战友…收到啦，收到啦。](/content/transcript/2020/11/20201120-1093243.md)
 
 [郭文贵2020年11月20日直播 20201120_4王建之死 两周年](/content/transcript/2020/11/20201120-1093255.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年11月10日视频 20201110_4以後加入農場的條件會越來越苛](/content/transcript/2020/11/20201110-1090024.md)
 
 [郭文贵2020年11月10日视频 20201110_5有人過段時間要在這做個節目 現在先佈置佈置](/content/transcript/2020/11/20201110-1090025.md)
-
-[郭文贵2020年11月10日盖特 20201110_1尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机真相了，一切都已经开始！](/content/transcript/2020/11/20201110-1093139.md)
-
-[郭文贵2020年11月10日盖特 20201110_2很多战友发信息……问文贵，现在辉瑞公司药的防冠疫苗，是不是可靠？可信？可用？文贵在这里给大家一个回复！](/content/transcript/2020/11/20201110-1093151.md)
-
-[郭文贵2020年11月9日视频 20201109_2川普總統百分之百贏 誰能決定川普總統贏? 新中國聯邦 信不信?](/content/transcript/2020/11/20201109-1090027.md)
-
-[郭文贵2020年11月9日直播 20201109](/content/transcript/2020/11/20201109-1093131.md)
 
 
 ## 頁面 44/112 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)

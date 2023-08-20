@@ -3,6 +3,14 @@
 
 ## 頁面 90/112 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月23日视频 20181023_2昨晚澳門的一個朋友突然出現在我家 嚇死我了](/content/transcript/2018/10/20181023-1088842.md)
+
+[郭文贵2018年10月23日视频 20181023_3給大家講一個猥瑣的驢子夏的笑話](/content/transcript/2018/10/20181023-1088845.md)
+
+[郭文贵2018年10月23日视频 20181023_4這幾天阿裡巴巴及騰訊的股票 港幣人民幣匯率 期指的變化怎麼回事](/content/transcript/2018/10/20181023-1088847.md)
+
+[郭文贵2018年10月22日视频 20181022_1加林槍射擊CCP](/content/transcript/2018/10/20181022-1088836.md)
+
 [郭文贵2018年10月22日视频 20181022_2打中CCP鏢靶兩次 贏得第一](/content/transcript/2018/10/20181022-1088837.md)
 
 [郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2](/content/transcript/2018/10/20181021-1087981.md)
@@ -44,14 +52,6 @@
 [郭文贵2018年10月10日视频 20181010_2这个来自黎巴嫩的马黑地是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫AMAC，CEO Muhiddin案！](/content/transcript/2018/10/20181010-1087965.md)
 
 [郭文贵2018年10月10日视频 20181010江．朱．王．等盗国贼们．正在疯狂的向海外洗钱！党内对国有化私人企业！产生巨大分歧！都在等上面出大事儿！](/content/transcript/2018/10/20181010-1093194.md)
-
-[郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！](/content/transcript/2018/10/20181009-1087954.md)
-
-[郭文贵2018年10月9日instagram直播 20181009CCP如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！](/content/transcript/2018/10/20181009-1093349.md)
-
-[郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击](/content/transcript/2018/10/20181008-1088633.md)
-
-[郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击](/content/transcript/2018/10/20181008-1088634.md)
 
 
 ## 頁面 90/112 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

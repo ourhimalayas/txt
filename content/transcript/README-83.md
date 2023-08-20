@@ -3,6 +3,14 @@
 
 ## 頁面 83/112 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)](/content/transcript/2019/04/20190417-1089130.md)
+
+[郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)](/content/transcript/2019/04/20190417-1089142.md)
+
+[郭文贵2019年4月16日视频 20190416_220分钟左右文贵将在郭媒体直播报平安！不爆料就是谈谈，昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息](/content/transcript/2019/04/20190416-1089106.md)
+
+[郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展](/content/transcript/2019/04/20190416-1092824.md)
+
 [郭文贵2019年4月15日第二次直播 20190415_2接下来的爆料有些会是让人无法接受的……人性丑恶行为！＂世上有些人的恶已经超过魔鬼????＂与共产党一起的任何人任何事情都比妖怪还要让人憎恶……](/content/transcript/2019/04/20190415-1092809.md)
 
 [郭文贵2019年4月15日第一次直播 20190415_1下午三点！显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！一切都是刚刚开始！](/content/transcript/2019/04/20190415-1092813.md)
@@ -44,14 +52,6 @@
 [郭文贵2019年3月29日浴火重生 20190329超人归来](/content/transcript/2019/03/20190329-1092708.md)
 
 [郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。](/content/transcript/2019/03/20190307-1089163.md)
-
-[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？](/content/transcript/2019/03/20190305-1092684.md)
-
-[郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……](/content/transcript/2019/03/20190304-1092673.md)
-
-[郭文贵2019年3月3日视频 20190303金正恩为什么直接回朝鲜为什么要枪毙．偷拍金正恩视频的中国人吗？](/content/transcript/2019/03/20190303-1092667.md)
-
-[郭文贵2019年3月2日视频 20190302_2尊敬的战友们好！纽约今天下了大雪！非常的漂亮浪漫极了！我正在准备两个小时以后的直播！一切都是刚刚开始！](/content/transcript/2019/03/20190302-1089156.md)
 
 
 ## 頁面 83/112 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

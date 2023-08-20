@@ -3,6 +3,14 @@
 
 ## 頁面 17/112 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年10月26日直播 20211026_1七哥健身直播沒時間的千萬別來](/content/transcript/2021/10/20211026-1093499.md)
+
+[郭文贵2021年10月26日直播 20211026_22021年11月1号11:01分格林威治时间将发生什么？七哥告诉你他英文名字的来历](/content/transcript/2021/10/20211026-1093504.md)
+
+[郭文贵2021年10月26日盖特 20211026_3尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？](/content/transcript/2021/10/20211026-1093611.md)
+
+[郭文贵2021年10月26日盖特 20211026_4椒麻鸡来啦……](/content/transcript/2021/10/20211026-1093616.md)
+
 [郭文贵2021年10月26日盖特 20211026_5太好吃了????](/content/transcript/2021/10/20211026-1093621.md)
 
 [郭文贵2021年10月24日直播 20211024_1与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远](/content/transcript/2021/10/20211024-1093490.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年10月12日盖特 20211012_1尊敬的战友们好……共产党的经济超限战……正危害全球的所有的金融市场和国家的经济安全！](/content/transcript/2021/10/20211012-1093609.md)
 
 [郭文贵2021年10月12日盖特 20211012_2吃饭饭喽……](/content/transcript/2021/10/20211012-1093614.md)
-
-[郭文贵2021年10月12日盖特 20211012_3尊敬的战友们好．世界政治经济面临的巨大挑战给新中国联邦带来了前所未有的机会，我们要冷静，客观全面进行揭发．帮助世界拆除共产党在全世界埋下的各种定时炸弹……](/content/transcript/2021/10/20211012-1093619.md)
-
-[郭文贵2021年10月11日盖特 20211011_1刚才的视频大家的反应有卡顿，我再重发一次。](/content/transcript/2021/10/20211011-1093476.md)
-
-[郭文贵2021年10月11日盖特直播 20211011_2](/content/transcript/2021/10/20211011-1093478.md)
-
-[郭文贵2021年10月10日直播 20211010_1文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美](/content/transcript/2021/10/20211010-1093468.md)
 
 
 ## 頁面 17/112 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)

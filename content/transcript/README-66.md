@@ -3,6 +3,14 @@
 
 ## 頁面 66/112 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年11月7日 20191107中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资](/content/transcript/2019/11/20191107-1093921.md)
+
+[2019年11月6日文贵大直播全文字版：第二次直播 共产党创造了几个荒唐政治事件](/content/transcript/2019/11/20191106-1086575.md)
+
+[郭文贵2019年11月6日第二次直播 20191106_2共产党创造了几个荒唐政治事件(1)](/content/transcript/2019/11/20191106-1093858.md)
+
+[郭文贵2019年11月6日第三次直播 20191106_3“文贵和路德在喜马拉雅大使馆直播”上部 共产党创造了几个荒唐政治事件(2)](/content/transcript/2019/11/20191106-1093877.md)
+
 [郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部](/content/transcript/2019/11/20191106-1093896.md)
 
 [郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦](/content/transcript/2019/11/20191105-1089638.md)
@@ -44,14 +52,6 @@
 [2019年10月28日文贵大直播全文字版：紧急直播](/content/transcript/2019/10/20191028-1087432.md)
 
 [郭文贵2019年10月28日视频 20191028_2战友们，北京的戏已经开始上演了，会要开始了，会发生什么呢](/content/transcript/2019/10/20191028-1089607.md)
-
-[郭文贵2019年10月28日视频 20191028_3Snow](/content/transcript/2019/10/20191028-1089610.md)
-
-[郭文贵2019年10月28日视频 20191028_4【Joe庄随手拍】郭文贵先生说至今没人谈到“区块链”的关键性](/content/transcript/2019/10/20191028-1089612.md)
-
-[郭文贵2019年10月28日视频 20191028紧急直播](/content/transcript/2019/10/20191028-1093790.md)
-
-[2019年10月27日文贵大直播全文字版：与战友闲聊](/content/transcript/2019/10/20191027-1087430.md)
 
 
 ## 頁面 66/112 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)

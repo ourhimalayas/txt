@@ -3,6 +3,14 @@
 
 ## 頁面 6/112 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年5月13日盖特 20220513_3尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一](/content/transcript/2022/05/20220513-1091746.md)
+
+[郭文贵2022年5月12日盖特 20220512_1尊敬的战友们好……共产党的经济和世界的股票市场即将崩溃，大家切勿因小失大．因投机而失去一切、务必小心！](/content/transcript/2022/05/20220512-1091743.md)
+
+[郭文贵2022年5月11日直播 20220511_1普京红场阅兵匆忙中断；香港金融市场今非昔比；变化中的国内金融政策；灭共事业进入新的阶段](/content/transcript/2022/05/20220511-1091537.md)
+
+[郭文贵2022年5月11日直播 20220511_2七哥与战友们连线直播](/content/transcript/2022/05/20220511-1091586.md)
+
 [郭文贵2022年5月10日盖特 20220510_2](/content/transcript/2022/05/20220510-1091740.md)
 
 [郭文贵2022年5月10日直播 20220510_1七哥生日与战友们在线聊天](/content/transcript/2022/05/20220510-1091863.md)
@@ -44,14 +52,6 @@
 [郭文贵2022年4月23日直播 20220423_1七哥乱聊](/content/transcript/2022/04/20220423-1091294.md)
 
 [郭文贵2022年4月22日盖特 20220422_1尊敬的战友们好．对中国共产党的经济和金融市场，包括香港．有任何幻想的人．那绝对是噩梦，你将失去一切！醒来吧，被欺骗了百年的同胞们！](/content/transcript/2022/04/20220422-1091700.md)
-
-[郭文贵2022年4月21日直播 20220421_1七哥乱聊直播](/content/transcript/2022/04/20220421-1091279.md)
-
-[郭文贵2022年4月20日直播 20220420_1](/content/transcript/2022/04/20220420-1090976.md)
-
-[郭文贵2022年4月20日盖特 20220420_2尊敬的战友们好……衷心地感谢国内所有战友昨天一整天的陪伴．观看直播……和给我发的信息，我不能一一回复．万分的抱歉，一切都已经开始！](/content/transcript/2022/04/20220420-1091696.md)
-
-[郭文贵2022年4月19日直播 20220419_1419五周年专场,霹雳一声断播门,文贵爆料惊鬼神,五载星火燎原势,喜马拉雅再昆仑](/content/transcript/2022/04/20220419-1091232.md)
 
 
 ## 頁面 6/112 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)

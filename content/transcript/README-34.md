@@ -3,6 +3,14 @@
 
 ## 頁面 34/112 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年3月22日盖特 20210322_2很多战友都发信息问．文贵阻止了一场什么样的战争……我现在就严肃地给大家解开这个谜题！共产党的战狼外交政策，将使我们的同胞们一起走向地狱……一个十几亿人的国家被几个流氓无知的](/content/transcript/2021/03/20210322-1091000.md)
+
+[郭文贵2021年3月21日盖特 20210321_1尊敬的战友们好．近日全球萌芽的仇恨亚裔人的事件频发，更加证明了新中国联邦的爆料革命……给中国人和亚洲人带来了巨大的贡献。阿拉斯加政治演戏！一句有关共产党病毒的事都不谈．美国](/content/transcript/2021/03/20210321-1090991.md)
+
+[郭文贵2021年3月21日盖特 20210321_2GTV……Gnews……G club．Gfasion将有一系列的……每周每月每季．每年的……按照工作和不同的结果……和节目的质量，长久的打赏和抽奖方式！这是让我们新中国联邦的人所有的战友！每一天，每年](/content/transcript/2021/03/20210321-1090992.md)
+
+[郭文贵2021年3月21日盖特 20210321_3刚刚发出的盖特以后……很多战友给我发了信息．没办法一一回复，我只能在这里简单地．回应一下了……一切都已经开始！](/content/transcript/2021/03/20210321-1090994.md)
+
 [郭文贵2021年3月20日盖特 20210320_1昨天阿拉斯加的最大的政治骗局．又骗谁，又骗什么？和昨天拜登总统空军一号的三摔．摔出了什么？摔倒了谁？后果有多严重？](/content/transcript/2021/03/20210320-1090969.md)
 
 [郭文贵2021年3月19日盖特 20210319_1文贵再谈为什么？阿拉斯加的会谈！引起了美国和西方的高度关注！如何看待共产党玩弄种族矛盾……以及回应很多国内战友关于文贵．二月二直播后！一些家庭问题引起的各种讨论！](/content/transcript/2021/03/20210319-1090966.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年3月15日盖特 20210315_5新加坡已经是共产党的目标，永远逃脱不了被共产化的命运，只有共产党被消灭以后新家成了保持现在的繁荣和独立……潘石屹继被多次双规后，哭爹叫娘求饶．现在面临着家破人亡的境界，害郭](/content/transcript/2021/03/20210315-1090924.md)
 
 [郭文贵2021年3月14日直播 20210314_1回忆慈母；谈新中国联邦人如何重建家庭文化；如何孝敬老人](/content/transcript/2021/03/20210314-1090901.md)
-
-[郭文贵2021年3月14日盖特 20210314_2衷心地感谢。尊敬的战友们](/content/transcript/2021/03/20210314-1090910.md)
-
-[郭文贵2021年3月13日盖特 20210313_1尊敬的在俄好．文贵在这里向大家报平安了文贵再谈谈两个白皮书的意义。第一部分！](/content/transcript/2021/03/20210313-1090903.md)
-
-[郭文贵2021年3月13日盖特 20210313_2今天的盖特的第二部分．谈谈，战友借款项目与农场分成的一些看法！](/content/transcript/2021/03/20210313-1090906.md)
-
-[郭文贵2021年3月13日盖特 20210313_3尊敬的战友们好，明天3月14号．农历二月初二．文贵母亲两周年，祭日……文贵要沐浴更衣．与战友们严肃地聊聊，未来新中国联邦人如何重建家庭文化！和如何建立利用科技和法律孝敬老人！我](/content/transcript/2021/03/20210313-1090908.md)
 
 
 ## 頁面 34/112 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 54/112 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年6月4日新中国联邦成立 20200604_1郭先生宣布新中国联邦正式成立，郝海东先生班农先生宣读新中国联邦宣言](/content/transcript/2020/06/20200604-1094215.md)
+
+[郭文贵2020年6月4日参访众战友 20200604_2新中国联邦宣言仪式后参访众战友](/content/transcript/2020/06/20200604-1094228.md)
+
+[郭文贵2020年6月2日 20200602正式宣布GTV完成私募](/content/transcript/2020/06/20200602-1093033.md)
+
+[郭文贵2020年5月30日第一次直播 20200530_1](/content/transcript/2020/05/20200530-1092571.md)
+
 [郭文贵2020年5月30日第二次直播 20200530_2请所有的战友高度关注6月2号中午和6月3号晚上和6月4号上午．三次重大直播，请准备好美食美酒！](/content/transcript/2020/05/20200530-1093019.md)
 
 [郭文贵2020年5月29日视频 20200529留美的学生和华人同胞们请务必看今天文贵的视频](/content/transcript/2020/05/20200529-1092537.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年5月16日视频 20200516疯狂的共产党很有可能对台湾香港下毒手](/content/transcript/2020/05/20200516-1092178.md)
 
 [郭文贵2020年5月14日视频 20200514](/content/transcript/2020/05/20200514-1092081.md)
-
-[郭文贵2020年5月14日视频 20200514_2视频恢复 ： 绝不能让任何国家利用共产党犯罪来抢着中国人的财富．Gfashion将成为战友们走向世界的综合舞台！](/content/transcript/2020/05/20200514-1092157.md)
-
-[郭文贵2020年5月13日视频 20200513GTV录播：下午7：30，是谁把银行买垮了，阴阳乾坤，隔空取钱。](/content/transcript/2020/05/20200513-1089007.md)
-
-[郭文贵2020年5月11日GTV连线长岛伟哥 20200511](/content/transcript/2020/05/20200511-1092113.md)
-
-[郭文贵2020年5月10日GTV连线文欣 20200510](/content/transcript/2020/05/20200510-1092132.md)
 
 
 ## 頁面 54/112 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)

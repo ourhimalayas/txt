@@ -3,6 +3,14 @@
 
 ## 頁面 41/112 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月30日音频聊天 20201230_2郭先生喜马拉雅大使馆discord群答疑录音](/content/transcript/2020/12/20201230-1090179.md)
+
+[郭文贵2020年12月30日视频 20201230_3郭先生为“G Forever我是音雄全球跨年晚会”录制视频第二弹](/content/transcript/2020/12/20201230-1090259.md)
+
+[郭文贵2020年12月29日盖特 20201229_1文贵刚开完会向大家报平安，一切都已经开始](/content/transcript/2020/12/20201229-1090163.md)
+
+[郭文贵2020年12月29日视频 20201229_2郭文贵先生给《我是音雄》的祝贺和期许（一）](/content/transcript/2020/12/20201229-1090167.md)
+
 [郭文贵2020年12月28日盖特 20201228_1尊敬的战友们好．文贵想和战友们聊聊……参与爆料革命的风险系数和我们现在遇到的问题后的……的应该如何面对和解决的办法，一切都已经开始！](/content/transcript/2020/12/20201228-1090160.md)
 
 [郭文贵2020年12月28日盖特 20201228_2感谢战友们的关心……回答在国内疫情灾区的战友们……相互支持，相互帮助，及我们所能提供的帮助，一切都已经开始！](/content/transcript/2020/12/20201228-1090162.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年12月22日盖特 20201222_1尊敬的战友们好．灭共……新中国联邦，维护中国人的尊严．和安全利益，这几条原则……必须要清楚和绝对的坚持与否……决定了我们每个人的未来！](/content/transcript/2020/12/20201222-1090123.md)
 
 [郭文贵2020年12月22日盖特 20201222_2尊敬的战友们，????????????文贵在这里回答很多战友……在过去几个小时．发信息咨询文贵一些问题……一切都已经开始！](/content/transcript/2020/12/20201222-1090127.md)
-
-[郭文贵2020年12月21日盖特 20201221_1尊敬的战友们好……文贵又做梦了……](/content/transcript/2020/12/20201221-1090109.md)
-
-[郭文贵2020年12月21日盖特 20201221_2过冬至吃饺子喽……](/content/transcript/2020/12/20201221-1090120.md)
-
-[郭文贵2020年12月20日盖特 20201220_1尊敬的战友们好！所有的战友们要知道．只有家和人和你才能平安，健康……中共的经济在崩塌……自己更要珍惜．与家人和周围同事．朋友的关系，这会让你更安全，更健康和躲过战争……饥荒](/content/transcript/2020/12/20201220-1090107.md)
-
-[郭文贵2020年12月20日直播 20201220_2在线回答原凤凰农场和VOG战友的问题](/content/transcript/2020/12/20201220-1090119.md)
 
 
 ## 頁面 41/112 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 75/112 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着](/content/transcript/2019/07/20190731-1089381.md)
+
+[郭文贵2019年7月31日第二次直播 20190731_3上海西郊宾馆开启共产党死亡第二战场](/content/transcript/2019/07/20190731-1093427.md)
+
+[郭文贵2019年7月31日第一次直播 20190731_1爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-1093432.md)
+
+[2019年7月31日文贵大直播全文字版：爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-1098126.md)
+
 [2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场](/content/transcript/2019/07/20190731-1098163.md)
 
 [郭文贵2019年7月30日视频 20190730_1(精華自26分04秒起至35分27秒)习近平上位、必灭薄熙来、贾庆林出场、李源潮书生、南普陀计划](/content/transcript/2019/07/20190730-1089379.md)
@@ -44,14 +52,6 @@
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098148.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098149.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098150.md)
-
-[郭文贵2019年7月26日视频 20190726_2再谈台江志成和孙力军合作．抢夺盘古大观龙头……感谢法院的战友告诉我．他们的抢劫计划……一切都是刚刚开始！](/content/transcript/2019/07/20190726-1089357.md)
-
-[郭文贵2019年7月26日视频 20190726和战友分享船上时光](/content/transcript/2019/07/20190726-1093406.md)
-
-[2019年7月26日文贵大直播全文字版： 江志成这个小鳖孙 和孙力军最近在干啥](/content/transcript/2019/07/20190726-1098128.md)
 
 
 ## 頁面 75/112 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)

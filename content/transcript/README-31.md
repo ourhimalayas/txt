@@ -3,6 +3,14 @@
 
 ## 頁面 31/112 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年5月1日盖特 20210501_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？中共的经济到了什么样的灾难的时刻，共产党要打赢冠状病毒这一仗的意义是什么？手段是什么？](/content/transcript/2021/05/20210501-1091209.md)
+
+[郭文贵2021年5月1日盖特 20210501_2关于义工．漏报喜币配额的战友们的一些问题的回复！](/content/transcript/2021/05/20210501-1091213.md)
+
+[郭文贵2021年5月1日盖特 20210501_3尊敬的战友们好，明天5月2号．星期天上午9:30文贵开始乱聊直播！](/content/transcript/2021/05/20210501-1091214.md)
+
+[郭文贵2021年4月30日盖特 20210430_1尊敬的战友們好．你們健身了嗎？你們傳播CC P病毒．香港危機真相了嗎？七哥這幾天為什麼快忙瘋了？](/content/transcript/2021/04/20210430-1091197.md)
+
 [郭文贵2021年4月30日盖特 20210430_2文贵呼吁全球的农场的兄弟姐妹们，一定不能漏下，任何一个做出特殊贡献的义工．和对爆料革命的特殊贡献的战友们．必须让他们得到喜币！](/content/transcript/2021/04/20210430-1091198.md)
 
 [郭文贵2021年4月30日盖特 20210430_3在此呼吁全球农场认真的服务我们的战友！将我们的农场推向一个新的高度．准备好灭共关键决战到来前的一切准备！](/content/transcript/2021/04/20210430-1091203.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年4月19日直播 20210419_1美国媒体从自由灯塔，堕落到今天的黑暗灯塔，由五大家族控制；媒体的力量，拥有定义权，定价权；社交媒体是第一武器；中共用武器新闻企图控制世界；GTV的价值在稀缺性，是情报交易平台](/content/transcript/2021/04/20210419-1091172.md)
 
 [郭文贵2021年4月19日盖特 20210419_2灭共的行动，新的战场即将开始！这是由完全由战友们主导控制的新的战斗灭共新方式！新领域！](/content/transcript/2021/04/20210419-1091181.md)
-
-[郭文贵2021年4月18日直播 20210418_1美国克里访华要谈的几件事；中共和沙特闹拜的原因；从比特币，火币看对投资的理解；忠诚于事，诚实待人](/content/transcript/2021/04/20210418-1091156.md)
-
-[郭文贵2021年4月17日盖特 20210417_1尊敬的战友们好！收到了你们很多很多人发来的信息．在等待直播……文贵今天不直播．给今天上午10点的真人真事．今天访问路德的节目让路，明天4月18号上午9:30文贵直播乱聊，今天稍后我会发](/content/transcript/2021/04/20210417-1091139.md)
-
-[郭文贵2021年4月17日盖特 20210417_2尊敬的戰友們好！全世界正在迎來一個惡性通貨膨脹．經濟危機．金融災難的前夜！我們應該如何看待這個世界．前所未有的這個滅共的機會！而讓自己不要成為那個被洗劫財富的人！一切都已經](/content/transcript/2021/04/20210417-1091144.md)
-
-[郭文贵2021年4月16日盖特 20210416_1尊敬的战友们好……共产党在灭亡前夜……正在创造最大的经济泡沫，美国华尔街正在能制造一个世界经济的陷阱，我们如何把握住自己．踩着历史的节奏而不掉入陷阱，不被泡沫化．还要抓住的](/content/transcript/2021/04/20210416-1091128.md)
 
 
 ## 頁面 31/112 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)

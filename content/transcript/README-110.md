@@ -3,6 +3,14 @@
 
 ## 頁面 110/112 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年6月22日视频 20170622推特报平安视频……一切都是刚刚开始！✊️✊️✊️✊️](/content/transcript/2017/06/20170622-1094039.md)
+
+[郭文贵2017年6月19日视频 20170619再让子弹飞一会儿！](/content/transcript/2017/06/20170619-1094298.md)
+
+[郭文贵2017年6月16日明镜专访第三期 20170616](/content/transcript/2017/06/20170616-1094805.md)
+
+[郭文贵2017年6月13日 20170613关于章立凡与胡平先生在VoA节目中对文贵的诬陷](/content/transcript/2017/06/20170613-1094288.md)
+
 [郭文贵2017年6月11日视频 20170611](/content/transcript/2017/06/20170611-1094383.md)
 
 [郭文贵2017年6月10日第二次直播 20170610_2](/content/transcript/2017/06/20170610-1094373.md)
@@ -44,14 +52,6 @@
 [郭文贵2017年5月20日第一次直播 20170520在香港是否存在执法黑屋](/content/transcript/2017/05/20170520-1094273.md)
 
 [郭文贵2017年5月19日 20170519感恩推友关心 呼吁推友冷静](/content/transcript/2017/05/20170519-1094271.md)
-
-[郭文贵2017年5月18日第一次直播 20170518_1郭文贵的紧急联络人](/content/transcript/2017/05/20170518-1094256.md)
-
-[郭文贵2017年5月18日第二次直播 20170518_2意外状况下的沟通方式](/content/transcript/2017/05/20170518-1094437.md)
-
-[郭文贵2017年5月17日视频 20170517家庭国家和社会的关系](/content/transcript/2017/05/20170517-1094425.md)
-
-[郭文贵2017年5月16日视频 20170516](/content/transcript/2017/05/20170516-1094403.md)
 
 
 ## 頁面 110/112 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)

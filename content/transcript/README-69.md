@@ -3,6 +3,14 @@
 
 ## 頁面 69/112 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁 全文字版](/content/transcript/2019/10/20191009-1087416.md)
+
+[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁  全文字版](/content/transcript/2019/10/20191009-1087420.md)
+
+[郭文贵2019年10月9日视频 20191009_2文贵与战友分享与可爱的Snow和纯种松狮笨笨．在家一起渡过欢乐的时光！](/content/transcript/2019/10/20191009-1089557.md)
+
+[郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/transcript/2019/10/20191009-1093814.md)
+
 [2019年10月8日郭文贵先生班农先生直播对谈新疆与香港人权法案，及最新反共局势包括贸易谈判和NBA等方面，制裁中共才刚刚开始全文字版](/content/transcript/2019/10/20191008-1087421.md)
 
 [郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了](/content/transcript/2019/10/20191008-1089554.md)
@@ -44,14 +52,6 @@
 [2019年10月1日郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！（上）全文字版](/content/transcript/2019/10/20191001-1098246.md)
 
 [郭文贵2019年9月30日视频 20190930_3大阅兵直播](/content/transcript/2019/09/20190930-1088563.md)
-
-[郭文贵2019年9月30日视频 20190930_4大阅兵直播](/content/transcript/2019/09/20190930-1088565.md)
-
-[郭文贵2019年9月30日视频 20190930_1北京阅兵 郭媒体进入战备状态 天安門廣場的國慶晚宴音樂晚會將有事發生](/content/transcript/2019/09/20190930-1089530.md)
-
-[郭文贵2019年9月30日视频 20190930_2直播测试](/content/transcript/2019/09/20190930-1089539.md)
-
-[郭文贵2019年9月29日 20190929_2连线北京姑娘聊天室](/content/transcript/2019/09/20190929-1088573.md)
 
 
 ## 頁面 69/112 [**<**](/content/transcript/README-68.md) [1](/content/transcript/README.md) ... [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) **69** [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-70.md) [查看全部](/content/transcript/README-all.md)

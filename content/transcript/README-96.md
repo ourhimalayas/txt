@@ -3,6 +3,14 @@
 
 ## 頁面 96/112 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/transcript/2018/07/20180710-1092917.md)
+
+[郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/transcript/2018/07/20180709-1092902.md)
+
+[郭文贵2018年7月8日视频 20180708在船上报平安](/content/transcript/2018/07/20180708-1087726.md)
+
+[郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！](/content/transcript/2018/07/20180706-1092892.md)
+
 [郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价](/content/transcript/2018/07/20180704-1088543.md)
 
 [郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話](/content/transcript/2018/07/20180702-1088538.md)
@@ -44,14 +52,6 @@
 [郭文贵2018年6月10日 20180610玉岐山孟建柱命不久了！马航真相一定会公布！(一)](/content/transcript/2018/06/20180610-1094313.md)
 
 [郭文贵2018年6月5日直播 20180605_1拉斯维加斯的会议出钱者．A级通缉犯成水炎的过去与现在！](/content/transcript/2018/06/20180605-1088350.md)
-
-[郭文贵2018年6月5日直播 20180605_2 看了万润南先生的视频后的感想！](/content/transcript/2018/06/20180605-1088359.md)
-
-[郭文贵2018年6月4日直播 20180604_1红冰与习近平拍女人屁股．砖拍李克强全是吹象乂……！](/content/transcript/2018/06/20180604-1088341.md)
-
-[郭文贵2018年6月3日直播 20180603_1文贵先生来到聊天室(51:53起)和网友共同热议六四！文贵先生爆料范冰冰已经到了洛杉矶，上面领导打招呼尽快离开。](/content/transcript/2018/06/20180603-1088335.md)
-
-[郭文贵2018年6月2日 20180602接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术！](/content/transcript/2018/06/20180602-1094299.md)
 
 
 ## 頁面 96/112 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)

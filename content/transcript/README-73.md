@@ -3,6 +3,14 @@
 
 ## 頁面 73/112 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月27日 20190827这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/transcript/2019/08/20190827-1094194.md)
+
+[2019年8月27日文贵大直播全文字版：紧急，这些招数的出台．才是共产党要拿下香港的真实目的！](/content/transcript/2019/08/20190827-1098183.md)
+
+[郭文贵2019年8月26日视频 20190826尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？非常的抱歉，前几天一直在＂床＂见人开会……没有及时向大家报平安视频！一切都是刚刚开始](/content/transcript/2019/08/20190826-1093484.md)
+
+[2019年8月26日文贵大直播全文字版：报平安](/content/transcript/2019/08/20190826-1098184.md)
+
 [郭文贵2019年8月24日视频 20190824_1报平安，好消息不断](/content/transcript/2019/08/20190824-1089431.md)
 
 [郭文贵2019年8月24日视频 20190824_2文贵怀孕了](/content/transcript/2019/08/20190824-1089437.md)
@@ -44,14 +52,6 @@
 [郭文贵2019年8月12日第二次直播 20190812_2 Mr. Miles Kwok live stream: letting everyone know that he is safe. What Hong Kongers...](/content/transcript/2019/08/20190812-1093513.md)
 
 [郭文贵2019年8月12日第一次直播 20190812_1在车上Miles Kwok live streaming from car: the CCP showed its true colors during its crackdown..](/content/transcript/2019/08/20190812-1093519.md)
-
-[2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压](/content/transcript/2019/08/20190812-1098190.md)
-
-[郭文贵2019年8月11日视频 20190811Mr. Miles Kwok live stream: please focus your attention on Hong Kong, in order to stop...](/content/transcript/2019/08/20190811-1093509.md)
-
-[2019年8月11日《文贵大直播》全文字版：船上直播高度关注香港](/content/transcript/2019/08/20190811-1098171.md)
-
-[郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...](/content/transcript/2019/08/20190810-1093494.md)
 
 
 ## 頁面 73/112 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

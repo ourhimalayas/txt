@@ -3,6 +3,14 @@
 
 ## 頁面 12/112 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年1月15日盖特 20220115_2尊敬的战友们好文贵在这里????????????????????????????????????????衷心地，祈求所有的战友们????????????????????????????????????认真的严肃的防止被感染病毒，做好一切灾难到来的物资的储备，一切都已经开始！](/content/transcript/2022/01/20220115-1089705.md)
+
+[郭文贵2022年1月14日直播 20220114_1为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](/content/transcript/2022/01/20220114-1089261.md)
+
+[郭文贵2022年1月14日盖特 20220114_2尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2022/01/20220114-1089696.md)
+
+[郭文贵2022年1月12日直播 20220112_1伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况](/content/transcript/2022/01/20220112-1089137.md)
+
 [郭文贵2022年1月11日盖特直播 20220111_1](/content/transcript/2022/01/20220111-1089692.md)
 
 [郭文贵2022年1月10日盖特 20220110_1尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的](/content/transcript/2022/01/20220110-1088539.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年12月28日盖特 20211228_3吃饭饭喽……荷叶蒸老鸡](/content/transcript/2021/12/20211228-1093911.md)
 
 [郭文贵2021年12月28日视频 20211228_1彻底揭露HBO Vice险恶的攻击——HBO Vice 采访郭文贵先生全过程无剪辑录像](/content/transcript/2021/12/20211228-1094710.md)
-
-[郭文贵2021年12月27日盖特 20211227_1尊敬的战友们好！共产党内部的政治斗争和经济的即将崩溃，已经成了美国和欧洲利用的工具． 他们越来越相信消灭共产党的最好方式……正在发生中，没有人能改变共产党正在加速走向灭亡……](/content/transcript/2021/12/20211227-1093899.md)
-
-[郭文贵2021年12月27日盖特 20211227_2吃馍馍喽…](/content/transcript/2021/12/20211227-1093901.md)
-
-[郭文贵2021年12月26日直播 20211226_1](/content/transcript/2021/12/20211226-1094630.md)
-
-[郭文贵2021年12月25日盖特 20211225_3文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯????](/content/transcript/2021/12/20211225-1093889.md)
 
 
 ## 頁面 12/112 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)

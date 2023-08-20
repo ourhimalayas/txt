@@ -3,6 +3,14 @@
 
 ## 頁面 28/112 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年6月4日直播 20210604_1新中国联邦一周年庆典](/content/transcript/2021/06/20210604-1091490.md)
+
+[郭文贵2021年6月4日直播 20210604_2文贵谈新中国联邦周年庆观后感，及国内的反响；三个重镑人物，军事大佬弗林将军，经济沼泽地摩根家族，政治新星枕头哥；更多新中国联邦的新人，有才能的战友将涌现出来](/content/transcript/2021/06/20210604-1091504.md)
+
+[郭文贵2021年6月4日盖特 20210604_3尊敬的战友们好！新的一天已经开始……世界政治，经济，军事的全面处在动荡的和战争的边缘。我们务必要强大我们自己！抓住这个历史关键的时刻……实现我们以钱灭共．以毒灭共.以共灭共．](/content/transcript/2021/06/20210604-1091506.md)
+
+[郭文贵2021年6月3日盖特 20210603_1尊敬的战友们好，我们一起来向万佛万神祈福，我们新中国联邦一周年……在自由之塔的庆祝活动圆满成功，也祈求万佛万神．从今天起唤醒这个贪婪被共产主义蒙蔽了的黑暗的世界！从今天起让](/content/transcript/2021/06/20210603-1091424.md)
+
 [郭文贵2021年6月2日盖特 20210602_1尊敬的战友们好，为了报复新中国联邦一周年……老杂毛们制定了九项反击政策。美国所谓的主流媒体黑谣我们．和在中共国拍卖方式抢夺方正证券股票！以及尝试对我们放毒攻击我们的科学家和](/content/transcript/2021/06/20210602-1091494.md)
 
 [郭文贵2021年6月1日盖特 20210601_1看着战友来到曼哈顿相聚！七哥冰火两重天的感受！英雄在共产党以一国之力要阻止上线！他们能成功吗？我们新中国联邦人要建设的新中国的标准是什么？](/content/transcript/2021/06/20210601-1091483.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年5月25日盖特 20210525_2尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！](/content/transcript/2021/05/20210525-1091405.md)
 
 [郭文贵2021年5月25日盖特 20210525_3尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！](/content/transcript/2021/05/20210525-1091406.md)
-
-[郭文贵2021年5月24日盖特 20210524_1尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！](/content/transcript/2021/05/20210524-1091394.md)
-
-[郭文贵2021年5月24日盖特 20210524_2尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！(接](/content/transcript/2021/05/20210524-1091396.md)
-
-[郭文贵2021年5月23日直播 20210523_1中共的楼震，桥震，币震，粮震，随时脆断；Gnews，GTV，盖特，国际影响力巨大；九指妖故意毁坏财物暴露了，她是一个嫉妒心理变态，早已经背叛了爆料革命的叛徒](/content/transcript/2021/05/20210523-1091390.md)
-
-[郭文贵2021年5月22日盖特 20210522_1尊敬的战友的好！共产党的流氓统治极权！正在被全世界正义的力量围缫中！每天每时每刻都在加速共产党这个流氓体制．政权的灭亡！我们的爆料革命和新中国联邦！应该做更多的实际行动，唤](/content/transcript/2021/05/20210522-1091368.md)
 
 
 ## 頁面 28/112 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 27/112 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年6月18日盖特 20210618_1以黄灭共开始，杨澜黑森林后，还有宋祖英，汤灿。。中共国在崩塌前会有大量高官叛逃！](/content/transcript/2021/06/20210618-1091589.md)
+
+[郭文贵2021年6月17日直播 20210617_1以黄灭共正式开始；爆料三品兰，李萍，李薇，汤灿，爆肛芳等与中南坑老杂毛的故事；各农场怎样做好直播节目](/content/transcript/2021/06/20210617-1091560.md)
+
+[郭文贵2021年6月17日盖特 20210617_2](/content/transcript/2021/06/20210617-1091565.md)
+
+[郭文贵2021年6月16日盖特 20210616_2](/content/transcript/2021/06/20210616-1089819.md)
+
 [郭文贵2021年6月16日盖特 20210616_1香港运动两周年之际，文贵感触很多……为什么最近我要再报杨澜．吴征黑森林的故事呢？](/content/transcript/2021/06/20210616-1091563.md)
 
 [郭文贵2021年6月15日直播 20210615_1三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？](/content/transcript/2021/06/20210615-1091541.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年6月5日直播 20210605_1 感恩自由女神！天佑新中国联邦！](/content/transcript/2021/06/20210605-1091496.md)
 
 [郭文贵2021年6月5日盖特 20210605_2与SNOW 玩对食！](/content/transcript/2021/06/20210605-1091507.md)
-
-[郭文贵2021年6月4日直播 20210604_1新中国联邦一周年庆典](/content/transcript/2021/06/20210604-1091490.md)
-
-[郭文贵2021年6月4日直播 20210604_2文贵谈新中国联邦周年庆观后感，及国内的反响；三个重镑人物，军事大佬弗林将军，经济沼泽地摩根家族，政治新星枕头哥；更多新中国联邦的新人，有才能的战友将涌现出来](/content/transcript/2021/06/20210604-1091504.md)
-
-[郭文贵2021年6月4日盖特 20210604_3尊敬的战友们好！新的一天已经开始……世界政治，经济，军事的全面处在动荡的和战争的边缘。我们务必要强大我们自己！抓住这个历史关键的时刻……实现我们以钱灭共．以毒灭共.以共灭共．](/content/transcript/2021/06/20210604-1091506.md)
-
-[郭文贵2021年6月3日盖特 20210603_1尊敬的战友们好，我们一起来向万佛万神祈福，我们新中国联邦一周年……在自由之塔的庆祝活动圆满成功，也祈求万佛万神．从今天起唤醒这个贪婪被共产主义蒙蔽了的黑暗的世界！从今天起让](/content/transcript/2021/06/20210603-1091424.md)
 
 
 ## 頁面 27/112 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 98/112 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年5月1日直播 20180501_2 聊聊外国人眼中的国人,真正的投资和股票](/content/transcript/2018/05/20180501-1088282.md)
+
+[郭文贵2018年5月1日直播 20180501_3郭文贵先生突然进入聊天室，回答网友问答，谈北京盘古双龙戏珠的龙脉设计的内幕](/content/transcript/2018/05/20180501-1088298.md)
+
+[郭文贵2018年4月29日直播 20180429_1谈谈对于爆料协调中心的态度，和最近发生的一些事情。](/content/transcript/2018/04/20180429-1088224.md)
+
+[郭文贵2018年4月29日直播 20180429_2文贵与战友聊天！](/content/transcript/2018/04/20180429-1088254.md)
+
 [郭文贵2018年4月28日视频 20180428金正恩是我们学习的坏榜样](/content/transcript/2018/04/20180428-1092846.md)
 
 [郭文贵2018年4月26日直播 20180426_2](/content/transcript/2018/04/20180426-1088198.md)
@@ -44,14 +52,6 @@
 [郭文贵2018年4月14日视频 20180414谈美国及盟国导弹袭击叙利亚是中国的第二次战略机会还是盗国贼盗国的最大机会](/content/transcript/2018/04/20180414-1092792.md)
 
 [郭文贵2018年4月13日直播 20180413_2跟战友分享下美景，不聊贸易战，南海军演，王岐山访美和杨洁篪](/content/transcript/2018/04/20180413-1088038.md)
-
-[郭文贵2018年4月13日视频 20180413_1谈为什么要爆杨洁篪的料](/content/transcript/2018/04/20180413-1092787.md)
-
-[郭文贵2018年4月12日直播 20180412_1在华盛顿的两天行程，夏夜良会不会在自己的家庭旅馆里按摄像头！](/content/transcript/2018/04/20180412-1087951.md)
-
-[郭文贵2018年4月12日直播 20180412_2内涵段子是中国民主法治自由的新纪元！](/content/transcript/2018/04/20180412-1087978.md)
-
-[郭文贵2018年4月10日视频 20180410文贵谈见宝胜．与到底该不该反习！](/content/transcript/2018/04/20180410-1092780.md)
 
 
 ## 頁面 98/112 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)

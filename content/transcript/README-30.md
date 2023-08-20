@@ -3,6 +3,14 @@
 
 ## 頁面 30/112 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年5月13日盖特 20210513_5挡不住的诱惑！](/content/transcript/2021/05/20210513-1091312.md)
+
+[郭文贵2021年5月13日盖特 20210513_1尊敬的战友们好，7哥将在半小时左右．开始乱聊直播！](/content/transcript/2021/05/20210513-1091329.md)
+
+[郭文贵2021年5月13日盖特 20210513_2啥好事儿．也不能让我们有任何借口不锻炼，不健身！](/content/transcript/2021/05/20210513-1091331.md)
+
+[郭文贵2021年5月13日直播 20210513_3文贵直播：以毒灭共，喜币打疼了中共，中共对文贵开始新一轮打压；秦刚女婿大使来美的首要任务；虚拟币在美国合法化的重大意义；我们已经有了喜银行](/content/transcript/2021/05/20210513-1091338.md)
+
 [郭文贵2021年5月13日盖特 20210513_4第13to完成！](/content/transcript/2021/05/20210513-1091340.md)
 
 [郭文贵2021年5月12日盖特 20210512_1尊敬的战友们好．美国在印度．马六甲．霍尔木兹海峡．等地区将派重兵意味着什么？美国商业科技领域从中共和香港全面撤出，以及在亚洲的商业贸易，金融的布局．是在做灭共后的一切准备。](/content/transcript/2021/05/20210512-1091324.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年5月2日直播 20210502_1国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](/content/transcript/2021/05/20210502-1091238.md)
 
 [郭文贵2021年5月2日盖特 20210502_2吃大花卷喽……](/content/transcript/2021/05/20210502-1091242.md)
-
-[郭文贵2021年5月1日盖特 20210501_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？中共的经济到了什么样的灾难的时刻，共产党要打赢冠状病毒这一仗的意义是什么？手段是什么？](/content/transcript/2021/05/20210501-1091209.md)
-
-[郭文贵2021年5月1日盖特 20210501_2关于义工．漏报喜币配额的战友们的一些问题的回复！](/content/transcript/2021/05/20210501-1091213.md)
-
-[郭文贵2021年5月1日盖特 20210501_3尊敬的战友们好，明天5月2号．星期天上午9:30文贵开始乱聊直播！](/content/transcript/2021/05/20210501-1091214.md)
-
-[郭文贵2021年4月30日盖特 20210430_1尊敬的战友們好．你們健身了嗎？你們傳播CC P病毒．香港危機真相了嗎？七哥這幾天為什麼快忙瘋了？](/content/transcript/2021/04/20210430-1091197.md)
 
 
 ## 頁面 30/112 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

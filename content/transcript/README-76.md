@@ -3,6 +3,14 @@
 
 ## 頁面 76/112 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098150.md)
+
+[郭文贵2019年7月26日视频 20190726_2再谈台江志成和孙力军合作．抢夺盘古大观龙头……感谢法院的战友告诉我．他们的抢劫计划……一切都是刚刚开始！](/content/transcript/2019/07/20190726-1089357.md)
+
+[郭文贵2019年7月26日视频 20190726和战友分享船上时光](/content/transcript/2019/07/20190726-1093406.md)
+
+[2019年7月26日文贵大直播全文字版： 江志成这个小鳖孙 和孙力军最近在干啥](/content/transcript/2019/07/20190726-1098128.md)
+
 [郭文贵2019年7月25日视频 20190725live stream: Miles letting everyone know he is safe. Please friends, remember..](/content/transcript/2019/07/20190725-1093397.md)
 
 [2019年7月25日《文贵大直播》全文字版：请战友们记住7月21号7月23号.......](/content/transcript/2019/07/20190725-1098121.md)
@@ -44,14 +52,6 @@
 [郭文贵2019年7月17日视频 20190717_2两架超级飞机和我们的SNOW一起起飞……文贵又进山啦……这几天我会很少上网](/content/transcript/2019/07/20190717-1089327.md)
 
 [郭文贵2019年7月17日视频 20190717_3有战友们说有一个白色的狗在此就好啦……】这里的大自然太棒了](/content/transcript/2019/07/20190717-1089329.md)
-
-[郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始](/content/transcript/2019/07/20190716-1089320.md)
-
-[郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件](/content/transcript/2019/07/20190715-1089317.md)
-
-[郭文贵2019年7月15日视频 20190715盘古大观在7月14号被北京高院公告……将以实际价格的10％被拍卖……实际的背后的黑手就是江泽民．和江志成．孟建柱和孙力军……王岐山！这就是过去两周他们要栽赃文贵](/content/transcript/2019/07/20190715-1093329.md)
-
-[2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······](/content/transcript/2019/07/20190715-1098113.md)
 
 
 ## 頁面 76/112 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)

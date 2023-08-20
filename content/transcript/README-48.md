@@ -3,6 +3,14 @@
 
 ## 頁面 48/112 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年8月29日连线旧金山 20200829_5](/content/transcript/2020/08/20200829-1092675.md)
+
+[郭文贵2020年8月29日连线台湾 20200829_6sara和郭先生与台湾连线](/content/transcript/2020/08/20200829-1092689.md)
+
+[郭文贵2020年8月28日直播 20200828_2连线澳洲喜馬拉雅農場](/content/transcript/2020/08/20200828-1092628.md)
+
+[郭文贵2020年8月28日直播 20200828_1连线澳洲喜馬拉雅農場](/content/transcript/2020/08/20200828-1092843.md)
+
 [郭文贵2020年8月25日盖特 20200825_28月25号 尊敬的战友们好．请大家的焦点定在中共在美国实施的法律超限战。……，的事情，请大家关注华尔街日报，以及美国司法部，披露的中共在](/content/transcript/2020/08/20200825-1092690.md)
 
 [郭文贵2020年8月25日直播 20200825加拿大农场的战略性胜利堪比中途岛战役；司法部文件开启以法灭共；美国民主党不承认“一中”](/content/transcript/2020/08/20200825-1092829.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年8月15日盖特 20200815_215日：文贵莲花刀法．与班农先生分吃，我太太在我家菜园里种的哈密瓜！](/content/transcript/2020/08/20200815-1092718.md)
 
 [郭文贵2020年8月14日盖特 202008148月14号刚刚的直播．被黑断播了…文贵几个小时内．不再继续直播，今天GTV升级后再回复直播，大概在今天下午的时间吧…衷心的感谢日本战友](/content/transcript/2020/08/20200814-1092614.md)
-
-[郭文贵2020年8月13日盖特 202008138月13号尊敬的战友们好，你们健身了吗？你们传播C C P病毒…香港危机真相了吗？文贵在这里向战友报告正在进行时…发生几个事情](/content/transcript/2020/08/20200813-1092611.md)
-
-[郭文贵2020年8月12日直播 20200812_3中共香港抓捕黎智英惹众怒，港人的团结击破中共白色恐怖！](/content/transcript/2020/08/20200812-1088904.md)
-
-[郭文贵2020年8月12日盖特 202008128月12号尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？文贵在半夜向战友们问好](/content/transcript/2020/08/20200812-1092599.md)
-
-[郭文贵2020年8月12日直播 20200812_2美灭共大锤如期一一砸下；下一制裁目标阿里巴巴，百度；文贵与战友们与中共展开智慧游击战](/content/transcript/2020/08/20200812-1092607.md)
 
 
 ## 頁面 48/112 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)

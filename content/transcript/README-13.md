@@ -3,6 +3,14 @@
 
 ## 頁面 13/112 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年12月27日盖特 20211227_1尊敬的战友们好！共产党内部的政治斗争和经济的即将崩溃，已经成了美国和欧洲利用的工具． 他们越来越相信消灭共产党的最好方式……正在发生中，没有人能改变共产党正在加速走向灭亡……](/content/transcript/2021/12/20211227-1093899.md)
+
+[郭文贵2021年12月27日盖特 20211227_2吃馍馍喽…](/content/transcript/2021/12/20211227-1093901.md)
+
+[郭文贵2021年12月26日直播 20211226_1](/content/transcript/2021/12/20211226-1094630.md)
+
+[郭文贵2021年12月25日盖特 20211225_3文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯????](/content/transcript/2021/12/20211225-1093889.md)
+
 [郭文贵2021年12月25日盖特 20211225_4尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211225-1093890.md)
 
 [郭文贵2021年12月25日盖特直播 20211225_5蒸馍馍](/content/transcript/2021/12/20211225-1093892.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年12月16日盖特 20211216_1非常非常的抱歉，亲爱的战友们……刚才视频没有发出去，我再发一遍！](/content/transcript/2021/12/20211216-1093859.md)
 
 [郭文贵2021年12月15日直播 20211215_1Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](/content/transcript/2021/12/20211215-1093817.md)
-
-[郭文贵2021年12月14日盖特 20211214_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211214-1093854.md)
-
-[郭文贵2021年12月13日盖特 20211213_1尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗解药的真相了吗？一切都已经开始了！](/content/transcript/2021/12/20211213-1093851.md)
-
-[郭文贵2021年12月12日直播 20211212_1疫苗 冬奥会 数字货币； 除夕 大游行 回答问题；Billboard和iTunes全球打榜记录- Hcoin To The Moon；1936年西安事变及中国历史上双十一、双十二的意义；过去24小时内在中国大陆到底发生了什么事情](/content/transcript/2021/12/20211212-1094008.md)
-
-[郭文贵2021年12月11日盖特 20211211_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211211-1094727.md)
 
 
 ## 頁面 13/112 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)

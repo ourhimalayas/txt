@@ -3,6 +3,14 @@
 
 ## 頁面 68/112 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月20日视频 20191020_1大家分享纽约雨天船上时光](/content/transcript/2019/10/20191020-1089587.md)
+
+[2019年10月18日文贵大直播全文字版：郭先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-1087423.md)
+
+[郭文贵2019年10月18日视频 20191018_2一個半小时后，纽约时间18号上午9點半到10點之间．文贵将在郭媒体．开始今天的直播！不爆料，就是与战友们聊天](/content/transcript/2019/10/20191018-1089585.md)
+
+[郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-1093703.md)
+
 [郭文贵2019年10月17日视频 20191017_1岑子杰被害背後的真相已逐漸浮出水面 我們一定要追究 我今天整天參加秘密聽證會 不能直播](/content/transcript/2019/10/20191017-1089583.md)
 
 [2019年10月16日、17日郭文贵先生直播视频 共产党利用黑社会杀手手段 残害香港议员岑子杰先生以及被害真相浮出水面（合集）全文字版](/content/transcript/2019/10/20191016-1087415.md)
@@ -44,14 +52,6 @@
 [郭文贵2019年10月10日视频 20191010台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/transcript/2019/10/20191010-1093820.md)
 
 [2019年10月10日文贵大直播全文字版：报平安直播，台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/transcript/2019/10/20191010-1098249.md)
-
-[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁 全文字版](/content/transcript/2019/10/20191009-1087416.md)
-
-[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁  全文字版](/content/transcript/2019/10/20191009-1087420.md)
-
-[郭文贵2019年10月9日视频 20191009_2文贵与战友分享与可爱的Snow和纯种松狮笨笨．在家一起渡过欢乐的时光！](/content/transcript/2019/10/20191009-1089557.md)
-
-[郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/transcript/2019/10/20191009-1093814.md)
 
 
 ## 頁面 68/112 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)

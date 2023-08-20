@@ -3,6 +3,14 @@
 
 ## 頁面 58/112 [**<**](/content/transcript/README-57.md) [1](/content/transcript/README.md) ... [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) **58** [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-59.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年3月30日视频 20200330_1郭文貴先生直播做饭吃饭 不爆料](/content/transcript/2020/03/20200330-1089780.md)
+
+[郭文贵2020年3月28日GTV 20200328_2live video GTV正式的直播．呼吁全球华人踊跃地向住地国捐赠物资](/content/transcript/2020/03/20200328-1088913.md)
+
+[郭文贵2020年3月28日 20200328谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，疫情中成功！](/content/transcript/2020/03/20200328-1091920.md)
+
+[郭文贵2020年3月27日视频 20200327_6CCP病毒肆虐，曼哈顿大街上空无一人，法治基金工作人员依然在给战友寄送口罩物资！](/content/transcript/2020/03/20200327-1089012.md)
+
 [郭文贵2020年3月27日视频 20200327_2](/content/transcript/2020/03/20200327-1089814.md)
 
 [郭文贵2020年3月27日视频 20200327_3七哥與Snow試鏡](/content/transcript/2020/03/20200327-1089816.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年3月19日视频 20200319_1](/content/transcript/2020/03/20200319-1089790.md)
 
 [郭文贵2020年3月18日 20200318在纽约上州直播呼吁同胞不要被CCP的大外宣蒙骗，美国很快有大行动！](/content/transcript/2020/03/20200318-1091999.md)
-
-[郭文贵2020年3月16日 20200316_2在GTV与战友试试直播](/content/transcript/2020/03/20200316-1088906.md)
-
-[郭文贵2020年3月16日 20200316谈参与爆料革命的战友们将来是世界上 最受尊敬的人](/content/transcript/2020/03/20200316-1092275.md)
-
-[郭文贵2020年3月14日视频 20200314船上直播谈爆料革命面临着重要的选择，第三次世界大战？中美大战？九千万党员何去何从？郭七条一定会改，最坏的时刻从4月份开始](/content/transcript/2020/03/20200314-1091978.md)
-
-[郭文贵2020年3月13日 20200313船上直播分享美食谈正在发生的世界经济危机](/content/transcript/2020/03/20200313-1091959.md)
 
 
 ## 頁面 58/112 [**<**](/content/transcript/README-57.md) [1](/content/transcript/README.md) ... [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) **58** [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-59.md) [查看全部](/content/transcript/README-all.md)

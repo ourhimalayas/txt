@@ -3,6 +3,14 @@
 
 ## 頁面 72/112 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年9月6日视频 20190906_1中共在香港对全世界发起了金融核战争……这意味着什么？全球联合集体灭共！全民灭共！一切都是刚刚开始](/content/transcript/2019/09/20190906-1089508.md)
+
+[郭文贵2019年9月5日视频 20190905_1全球从自动灭共到联合灭共](/content/transcript/2019/09/20190905-1089506.md)
+
+[2019年9月5日文贵大直播全文字版：回顾自林郑月娥置顶遣返法案，郭先生直播预警，香港69开始游行抗议，CCP派匪警镇压，中国外交部的谎言，美国方面的反应](/content/transcript/2019/09/20190905-1098205.md)
+
+[2019年9月5日文贵大直播全文字版：报平安 全球从自动灭共到联合灭共的时代](/content/transcript/2019/09/20190905-1098206.md)
+
 [郭文贵2019年9月4日直播 20190904“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/transcript/2019/09/20190904-1093532.md)
 
 [2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/transcript/2019/09/20190904-1098214.md)
@@ -44,14 +52,6 @@
 [2019年08月28日文贵大直播全文字版：解放军军车 装甲车已经开进香港香港已经进入紧急状态](/content/transcript/2019/08/20190828-1098194.md)
 
 [郭文贵2019年8月27日视频 20190827_2香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产](/content/transcript/2019/08/20190827-1089443.md)
-
-[郭文贵2019年8月27日 20190827这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/transcript/2019/08/20190827-1094194.md)
-
-[2019年8月27日文贵大直播全文字版：紧急，这些招数的出台．才是共产党要拿下香港的真实目的！](/content/transcript/2019/08/20190827-1098183.md)
-
-[郭文贵2019年8月26日视频 20190826尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？非常的抱歉，前几天一直在＂床＂见人开会……没有及时向大家报平安视频！一切都是刚刚开始](/content/transcript/2019/08/20190826-1093484.md)
-
-[2019年8月26日文贵大直播全文字版：报平安](/content/transcript/2019/08/20190826-1098184.md)
 
 
 ## 頁面 72/112 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

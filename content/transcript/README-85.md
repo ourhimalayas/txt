@@ -3,6 +3,14 @@
 
 ## 頁面 85/112 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播](/content/transcript/2019/02/20190205-1089104.md)
+
+[郭文贵2019年2月4日视频 20190204_3赶饺子????皮！感恩美国感恩战友！感恩上天！](/content/transcript/2019/02/20190204-1089086.md)
+
+[郭文贵2019年2月4日中文 20190204_2除夕去共赢正道爆料春晚](/content/transcript/2019/02/20190204-1092641.md)
+
+[郭文贵2019年2月4日英文 20190204_1除夕爆料春晚 达赖喇嘛尊者](/content/transcript/2019/02/20190204-1092670.md)
+
 [郭文贵2019年2月3日视频 20190203_1除夕前一天报平安](/content/transcript/2019/02/20190203-1089083.md)
 
 [郭文贵2019年2月2日视频 20190202_1委内瑞拉的局势变化正是未來中國變局最好的樣板！和3月20号习近平先生的访问梵蒂冈！川金会川习会！](/content/transcript/2019/02/20190202-1089084.md)
@@ -44,14 +52,6 @@
 [郭文贵2019年1月18日第二次直播 20190118_2关于政事小哥！因为受共产党对家人的迫害威胁，不得不离开过爆料革命！这更加坚定了摧毁流氓CCp的决心！以实际行动为战友报仇！一切都是刚刚开始](/content/transcript/2019/01/20190118-1092248.md)
 
 [郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀](/content/transcript/2019/01/20190118-1092260.md)
-
-[郭文贵2019年1月17日第二次直播 20190117_2尊敬的战友们好，你们健身了吗！文贵向你们报告出席华盛顿一系列的活动和几个重大的采访](/content/transcript/2019/01/20190117-1092239.md)
-
-[郭文贵2019年1月17日第一次直播 20190117_1中美贸易谈判崩裂意味着什么????文贵在这里向你们报告一下！一切都是刚刚开始！](/content/transcript/2019/01/20190117-1094201.md)
-
-[郭文贵2019年1月16日视频第一部分 20190116_1报平安直播，因春晚收到了国内盗国贼各方的威胁，以及接下来将对盗国贼子女海外资产的一系列行动，慈善基金可能将成为第一个有回报的慈善基金](/content/transcript/2019/01/20190116-1092227.md)
-
-[郭文贵2019年1月16日视频第二部分 20190116_2王健被谋杀之密有了重大进展。吴征还有博讯, 马蕊强奸案有了重大的实质性的证据证明吴征被CCP控制](/content/transcript/2019/01/20190116-1092234.md)
 
 
 ## 頁面 85/112 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

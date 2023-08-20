@@ -3,6 +3,14 @@
 
 ## 頁面 21/112 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年9月1日直播 20210901_2大卫兄弟以命试毒，奇迹生还，验证爆料革命的情报和实力，七哥与战友之间爱的力量；中共的文化运动的本质，是颠覆政权的需要；中共没有房地产，只有房产，是最大的政治旁氏骗局；房产是](/content/transcript/2021/09/20210901-1092871.md)
+
+[郭文贵2021年8月31日盖特 20210831_1大直播公布了共产党的病毒解药后，引起了巨大的反响。新中国联邦一定会拯救全人类，消灭共产党，感谢所有的GTV老椅子的战友们……这种伟大的与战友们，视战友为亲兄弟姐妹们，这种伟大的](/content/transcript/2021/08/20210831-1092812.md)
+
+[郭文贵2021年8月31日盖特 20210831_2衷心地感谢给我发信息要捐喜币的所有战友们！现在已经不需要了，但这个捐币的币的热潮行动的背后．更加证明了新中国联邦人的团结和伟大．更加证明了正道主义的未来无限美好……万分的感](/content/transcript/2021/08/20210831-1092816.md)
+
+[郭文贵2021年8月30日直播 20210830_1中共已经有解药：D-NAB；东奥会中国队员已经用青蒿素防病毒，屠呦呦的药都有效；从美军，郑州，香港看中共的解药；疫苗界的大咖很快会出来爆料；体制内将大换岗，特别是公检法](/content/transcript/2021/08/20210830-1092798.md)
+
 [郭文贵2021年8月29日直播 20210829_1七哥给部级战友饮食的三条建议；墙内病毒疫苗什么时候大爆发；七哥给“我是英雄”第一名亲自设计G翻身衣服；江家的金人庆自焚前见了3人，经常被杨澜找钥匙](/content/transcript/2021/08/20210829-1092733.md)
 
 [郭文贵2021年8月29日盖特 20210829_3几次大直播．我们拯救了无数个生命．巨大的影响正在改变疫苗大屠杀的壮况……所有的战友们和我的朋友们都在思考，我们的人生和我们所生存的意义：和自己的信仰和宗教的理解！认知！爆料](/content/transcript/2021/08/20210829-1092802.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年8月20日直播 20210820_1文贵歌曲上榜世界最权威音乐排行榜Billboard 公告牌的重大意义；中共国即将面临的粮食危机和爆料革命精神上的富有及财富的成功来看中国人的未来](/content/transcript/2021/08/20210820-1092605.md)
 
 [郭文贵2021年8月20日盖特 20210820_2几十年来第一次去摘瓜……吃着自己摘的瓜．为战友们表现表现，我的连环刀法．莲花刀法！](/content/transcript/2021/08/20210820-1092625.md)
-
-[郭文贵2021年8月20日盖特 20210820_3尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机CCp病毒真相了吗？任何情况下都不能给自己借口偷懒，停止锻炼，这是新中国联邦人的必备基础](/content/transcript/2021/08/20210820-1092630.md)
-
-[郭文贵2021年8月19日直播 20210819_1从华融，双汇万隆父子事件看中共经济的崩溃和中共的内斗；中共军方对付台湾第一批攻击将是无人机，镭射式武器；文贵准备用10-100亿开赌局，赌台湾是否发生战争，请有资源的战友与农场联盟](/content/transcript/2021/08/20210819-1092474.md)
-
-[郭文贵2021年8月19日盖特 20210819_2吃饭饭喽……](/content/transcript/2021/08/20210819-1092621.md)
-
-[郭文贵2021年8月19日盖特 20210819_3尊敬的战友们好：吃烧鸡鸡楼……2号最辣的辣椒喽……](/content/transcript/2021/08/20210819-1092622.md)
 
 
 ## 頁面 21/112 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)

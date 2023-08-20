@@ -3,6 +3,14 @@
 
 ## 頁面 35/112 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年3月14日盖特 20210314_2衷心地感谢。尊敬的战友们](/content/transcript/2021/03/20210314-1090910.md)
+
+[郭文贵2021年3月13日盖特 20210313_1尊敬的在俄好．文贵在这里向大家报平安了文贵再谈谈两个白皮书的意义。第一部分！](/content/transcript/2021/03/20210313-1090903.md)
+
+[郭文贵2021年3月13日盖特 20210313_2今天的盖特的第二部分．谈谈，战友借款项目与农场分成的一些看法！](/content/transcript/2021/03/20210313-1090906.md)
+
+[郭文贵2021年3月13日盖特 20210313_3尊敬的战友们好，明天3月14号．农历二月初二．文贵母亲两周年，祭日……文贵要沐浴更衣．与战友们严肃地聊聊，未来新中国联邦人如何重建家庭文化！和如何建立利用科技和法律孝敬老人！我](/content/transcript/2021/03/20210313-1090908.md)
+
 [郭文贵2021年3月12日盖特 20210312_1尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第一部分！](/content/transcript/2021/03/20210312-1090881.md)
 
 [郭文贵2021年3月12日盖特 20210312_2尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第二部分！](/content/transcript/2021/03/20210312-1090885.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年3月3日直播 20210303_1中共与拜登政府给中兴的“回头汤”，中美沼泽地从中得利；Ｇ系列再次遇难成祥，让战友们真正成为江山的主人，最大的受益者，这就是爆料革命](/content/transcript/2021/03/20210303-1090821.md)
 
 [郭文贵2021年3月3日盖特 20210303_2开会期间摘下口罩乱聊发视频……￼以毒灭共……以钱灭共，真是上天赐给我们的最伟大的机会和法宝……共产党，你完了](/content/transcript/2021/03/20210303-1090822.md)
-
-[郭文贵2021年3月2日直播 20210302_1以毒灭共，势不可挡；GTV椅子战友请与各农场联系，新的GTV将更好的发挥灭共平台的作用；文贵为战友们而战！](/content/transcript/2021/03/20210302-1090809.md)
-
-[郭文贵2021年3月2日盖特 20210302_2尊敬的战友们好，你们感受到以毒灭共．以钱灭共的巨大的力量了￼吗？你们感受到过去的24小时这个世界联合灭共的力量开始集结了吗？一切都已经开始！](/content/transcript/2021/03/20210302-1090814.md)
-
-[郭文贵2021年3月2日盖特 20210302_3很多兄弟姐妹战友……发的信息不能一一而回……我一直在会议中，稍后大约在今天晚上……的6:30和7:30之间，我可能直播乱聊](/content/transcript/2021/03/20210302-1090815.md)
-
-[郭文贵2021年3月1日盖特 20210301_1尊敬的战友得好！稍后在今天稍晚的时间，我将有一个重要的公告，关于GTV将退还所有的13OO投资者椅的公告……我们不会妥协，也不会被任何机构玩弄……我们爆料革命的平台，只能．越来越强越](/content/transcript/2021/03/20210301-1090811.md)
 
 
 ## 頁面 35/112 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)

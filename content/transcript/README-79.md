@@ -3,6 +3,14 @@
 
 ## 頁面 79/112 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年6月23日视频 20190623聊聊细丝小哥和庄列宏先生这＂两只黑手＂路德先生直播中发生的紧急事件。念从心起 力量无比 念念不忘 必有回响](/content/transcript/2019/06/20190623-1093216.md)
+
+[2019年6月23日郭文贵先生直播全文字版：念从心起，力量无比；念念不忘，必有回响](/content/transcript/2019/06/20190623-1098087.md)
+
+[郭文贵2019年6月22日 20190622中共如何和塔利班共同反恐](/content/transcript/2019/06/20190622-1093315.md)
+
+[2019年6月22日文贵直播全文字版：中共如何和塔利班共同反恐](/content/transcript/2019/06/20190622-1098083.md)
+
 [郭文贵2019年6月20日视频 20190620王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-1093305.md)
 
 [2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-1098085.md)
@@ -44,14 +52,6 @@
 [郭文贵2019年6月12日视频 20190612_3文贵先生直播：最终结果立法推迟3時36分](/content/transcript/2019/06/20190612-1089602.md)
 
 [郭文贵2019年6月12日视频 20190612_4喜马拉雅连线香港前线战友！5時58分](/content/transcript/2019/06/20190612-1089754.md)
-
-[郭文贵2019年6月12日视频 20190612_5衷心的为香港的所有同胞祈愿 香港的事情还要有一定的时间发展 所有的在香港现场的同胞们朋友们战友们务必注意安全不要低估了C C P的恶魔的凶残本性](/content/transcript/2019/06/20190612-1089756.md)
-
-[郭文贵2019年6月12日与细思直播 20190612如何布局最后部分谈8964监狱风](/content/transcript/2019/06/20190612-1093136.md)
-
-[郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港](/content/transcript/2019/06/20190611-1089548.md)
-
-[郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”](/content/transcript/2019/06/20190610-1089216.md)
 
 
 ## 頁面 79/112 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 19/112 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年9月25日盖特 20210925_1尊敬的战友们好，在这里简单地回答一下，很多战友发给我，关于孟晩回囯的看法……还有国内粮食危机的一些问题，一切都已经开始。](/content/transcript/2021/09/20210925-1093355.md)
+
+[郭文贵2021年9月24日直播 20210924_1中共昨天对台演习大涨中共气势，第一次挂核弹以立体全实战模式对台湾实战演习；陈峰被抓的下场七哥第一天爆料海航就已经注定，陈峰早已被监控2年，配合专案组处理海外资产，七哥将帮助找](/content/transcript/2021/09/20210924-1093283.md)
+
+[郭文贵2021年9月23日直播 20210923_1疫苗，病毒灾难远远还没开始；恒大事件被掩盖的房地产的资金池子，影子银行，保险会爆雷，一旦爆雷国际金融货币市场将崩塌；中共准备放更多病毒以镇压抗议游行，新病毒是热毒；许家印一](/content/transcript/2021/09/20210923-1093260.md)
+
+[郭文贵2021年9月21日直播 20210921_12021中秋特别节目：月亮托起我们的心愿](/content/transcript/2021/09/20210921-1093257.md)
+
 [郭文贵2021年9月20日直播 20210920_1会议休息时间到山上转一转](/content/transcript/2021/09/20210920-1093190.md)
 
 [郭文贵2021年9月20日盖特 20210920_2尊敬的战友们好……七哥在这里向所有的全球的兄弟姐妹们请安了。你们觉得未来的新中国联邦的农场总部，这样的山脉和环境怎么样？](/content/transcript/2021/09/20210920-1093195.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年9月13日直播 20210913_1连线小斯基，谈GTV被罚5亿，上世界新闻头条的感受](/content/transcript/2021/09/20210913-1093055.md)
 
 [郭文贵2021年9月13日盖特 20210913_5今天的华尔街报道是一个夸大的虚假的不诚实的报导，我们与SEC的和解的罚款，应该总共是3千5百万美元，还包含了九只要5百万美元！所以从这些虚伪的夸张的报道当中，更应让我们看到西方所谓](/content/transcript/2021/09/20210913-1093058.md)
-
-[郭文贵2021年9月13日盖特 20210913_2尊敬的战友们好，你们健身了吗？传播C C P病毒．和疫苗灾难的真相了吗？传播解决共产党病毒和疫苗的解药救命信息了吗？](/content/transcript/2021/09/20210913-1093184.md)
-
-[郭文贵2021年9月13日盖特 20210913_3中国人在近代史上得到解放了一个里程碑的日子，也是中国人走向耻辱的日子，从潘石屹两口子的离不开表演的这种行为！和他一直充当白手套…傲慢无知，愚蠢的行为，看中国的企业家……其实](/content/transcript/2021/09/20210913-1093188.md)
-
-[郭文贵2021年9月13日盖特 20210913_4给小郑州兄弟雪茄盒好像不过瘾！不到位，决定再送几个好雪茄给他！幸福就到位！高兴就要达到愉悦的境界，双休就必须也有五次以上的高潮，????????????这是我们所追求的极致的满满的人生形式](/content/transcript/2021/09/20210913-1093193.md)
-
-[郭文贵2021年9月12日直播 20210912_1今年年底将爆发疫苗政治的大危机，文贵再开赌局：辉瑞一定会破产，会受到国际制裁；人类最大的单笔回扣是1200亿美元，由白手套张宏伟和国开行陈元拿走，其中200亿给了江志城；扩大前海经济](/content/transcript/2021/09/20210912-1093051.md)
 
 
 ## 頁面 19/112 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

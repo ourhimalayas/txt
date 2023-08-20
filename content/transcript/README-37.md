@@ -3,6 +3,14 @@
 
 ## 頁面 37/112 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年2月18日直播 20210218_1南普陀计划得到验证，江习大战进入最后时刻， 江扶植韩正当傀儡接班人；川普是我们永远的朋友；九指妖集团造郝海东假音频](/content/transcript/2021/02/20210218-1090718.md)
+
+[郭文贵2021年2月17日直播 20210217_1马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角](/content/transcript/2021/02/20210217-1090715.md)
+
+[郭文贵2021年2月16日直播 20210216_1文贵讲的关于电影《白虎》和“灭白计划”，反响强烈；欧洲，日本即将对中共会有大动作；战友们一定赶快找九指妖要钱](/content/transcript/2021/02/20210216-1090714.md)
+
+[郭文贵2021年2月15日盖特 20210215_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？文贵今天晚上6:40乱聊电影直播……](/content/transcript/2021/02/20210215-1090695.md)
+
 [郭文贵2021年2月15日盖特 20210215_2文贵与友们赏雪……](/content/transcript/2021/02/20210215-1090701.md)
 
 [郭文贵2021年2月15日直播 20210215_3谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟货币的好消息](/content/transcript/2021/02/20210215-1090710.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年2月5日盖特 20210205_4九指妖和龟头痒，出卖爆料革命和战友……造成的损失和伤害正在逐步显现，爆料革命和新中国联邦的成长必须面对和这样的挑战和背叛，这会让我们更加的强大……更加的健康的发展，非常抱歉](/content/transcript/2021/02/20210205-1090587.md)
 
 [郭文贵2021年2月4日盖特 20210204_3穿高跟鞋](/content/transcript/2021/02/20210204-1089838.md)
-
-[郭文贵2021年2月4日直播 20210204_113579．是共产党统治世界，在全世界实行的商鞅政策统治全球的计划！](/content/transcript/2021/02/20210204-1090574.md)
-
-[郭文贵2021年2月4日盖特 20210204_2吃完饺子锻炼后的文贵……给台湾的战友们瞎聊几句，希望台湾的战友们做好最坏的时刻到来的准备……共匪要疯狂了，可能对台湾要采取行动……](/content/transcript/2021/02/20210204-1090577.md)
-
-[郭文贵2021年2月3日盖特 20210203_1共产党在缅甸的操纵的军事政变……和在亚洲正在执行的一系列的13579计划．彻底控制亚洲！实现2025之前全面拿下亚洲．进军欧洲和美洲，的大中共计划！在内部的经济即将崩盘．和C C P病毒．肆虐](/content/transcript/2021/02/20210203-1090554.md)
-
-[郭文贵2021年2月3日盖特 20210203_2共产党独裁统治下的以黑治国以假治国的中共经济！到底出现了什么情况？这几天来大量的香港优质上市股票，以30%的价格抵押贴现！和国内大量的黄金50%的价格抵押贷款，四个自信强大的中共政](/content/transcript/2021/02/20210203-1090556.md)
 
 
 ## 頁面 37/112 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

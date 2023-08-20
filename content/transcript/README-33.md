@@ -3,6 +3,14 @@
 
 ## 頁面 33/112 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年4月4日盖特 20210404_2美国投资GTV兄弟姐妹们……给我发了很多信息和问题！关于一些不正确的信息！我在这里澄清一下！清明节这个鬼四月是共同沉思人生．当下．社会的最好的时机，只要解脱了生死的恐惧！人生再](/content/transcript/2021/04/20210404-1091104.md)
+
+[郭文贵2021年4月4日盖特 20210404_3尊敬的战友们好，明天上午9:30文贵乱聊直播！谈谈共产党的以钱灭美的计划．和共产党为什么提倡过清明节？共产党病毒在武汉．中国．世界．到底杀了多少人？](/content/transcript/2021/04/20210404-1091106.md)
+
+[郭文贵2021年4月3日直播 20210403_1投资要把握时机，时间，实务；要具有常识，基本的辨别能力，逻辑关系；共产党是最大的流氓黑帮；以毒灭共到了关键时刻；全球联合歼灭共](/content/transcript/2021/04/20210403-1091093.md)
+
+[郭文贵2021年4月2日盖特 20210402_1投资GTV……投资的是未来！不是现在！这是个基本的常识，这也是CTV价值的所在。凤凰卫视的事件是一个最好的参考案例。 为什么中共严管下的外币大量的转向了加拿大，还有其他国家，这是正确](/content/transcript/2021/04/20210402-1091078.md)
+
 [郭文贵2021年4月1日盖特 20210401_1尊敬的战友们好…… G币……系列的投资……是我们战友独特．可拥有的资源，不能有任何沾亲带故的人加入。这是我的原则。科学家闫博士的第三次关于CCp病毒报告．再次震撼了世界，但是．我们](/content/transcript/2021/04/20210401-1091077.md)
 
 [郭文贵2021年3月31日盖特 20210331_1尊敬的战友们好！今天科学家．闫博士的第三个报告出来了????????????????????????????????????是个大日子！以毒灭共．全球联合灭共．以钱灭共…只有强大富有????(智慧)????的战友，才能达到我们最终目的](/content/transcript/2021/03/20210331-1091074.md)
@@ -44,14 +52,6 @@
 [郭文贵2021年3月23日盖特 20210323_3在国内被喝荼．甚至受到伤害……或者被威胁的战友们的未来的补偿，以及对过去义工的时长的确定????和认证．的所有的最终决定权．在喜马拉雅联盟委员会，而且我本人会一个一个地确定．任何](/content/transcript/2021/03/20210323-1091011.md)
 
 [郭文贵2021年3月22日盖特 20210322_1尊敬的战友们好……我被传染上精神障碍病了……](/content/transcript/2021/03/20210322-1090997.md)
-
-[郭文贵2021年3月22日盖特 20210322_2很多战友都发信息问．文贵阻止了一场什么样的战争……我现在就严肃地给大家解开这个谜题！共产党的战狼外交政策，将使我们的同胞们一起走向地狱……一个十几亿人的国家被几个流氓无知的](/content/transcript/2021/03/20210322-1091000.md)
-
-[郭文贵2021年3月21日盖特 20210321_1尊敬的战友们好．近日全球萌芽的仇恨亚裔人的事件频发，更加证明了新中国联邦的爆料革命……给中国人和亚洲人带来了巨大的贡献。阿拉斯加政治演戏！一句有关共产党病毒的事都不谈．美国](/content/transcript/2021/03/20210321-1090991.md)
-
-[郭文贵2021年3月21日盖特 20210321_2GTV……Gnews……G club．Gfasion将有一系列的……每周每月每季．每年的……按照工作和不同的结果……和节目的质量，长久的打赏和抽奖方式！这是让我们新中国联邦的人所有的战友！每一天，每年](/content/transcript/2021/03/20210321-1090992.md)
-
-[郭文贵2021年3月21日盖特 20210321_3刚刚发出的盖特以后……很多战友给我发了信息．没办法一一回复，我只能在这里简单地．回应一下了……一切都已经开始！](/content/transcript/2021/03/20210321-1090994.md)
 
 
 ## 頁面 33/112 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)

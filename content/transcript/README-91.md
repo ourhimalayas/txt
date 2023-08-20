@@ -3,6 +3,14 @@
 
 ## 頁面 91/112 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！](/content/transcript/2018/10/20181009-1087954.md)
+
+[郭文贵2018年10月9日instagram直播 20181009CCP如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！](/content/transcript/2018/10/20181009-1093349.md)
+
+[郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击](/content/transcript/2018/10/20181008-1088633.md)
+
+[郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击](/content/transcript/2018/10/20181008-1088634.md)
+
 [郭文贵2018年10月6日视频 20181006_2](/content/transcript/2018/10/20181006-1088838.md)
 
 [郭文贵2018年10月6日视频 20181006_3](/content/transcript/2018/10/20181006-1088839.md)
@@ -44,14 +52,6 @@
 [郭文贵2018年9月27日视频 20180927_1](/content/transcript/2018/09/20180927-1088820.md)
 
 [郭文贵2018年9月26日视频 20180926_1Snow: 搞幾個娘兒們算啥腐敗啊](/content/transcript/2018/09/20180926-1088816.md)
-
-[郭文贵2018年9月24日视频 20180924_1](/content/transcript/2018/09/20180924-1088813.md)
-
-[郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓](/content/transcript/2018/09/20180923-1088809.md)
-
-[郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議](/content/transcript/2018/09/20180923-1088810.md)
-
-[郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯](/content/transcript/2018/09/20180922-1088799.md)
 
 
 ## 頁面 91/112 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

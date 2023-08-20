@@ -3,6 +3,14 @@
 
 ## 頁面 92/112 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月24日视频 20180924_1](/content/transcript/2018/09/20180924-1088813.md)
+
+[郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓](/content/transcript/2018/09/20180923-1088809.md)
+
+[郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議](/content/transcript/2018/09/20180923-1088810.md)
+
+[郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯](/content/transcript/2018/09/20180922-1088799.md)
+
 [郭文贵2018年9月22日视频 20180922_3文貴周末為家人做魚肉丸](/content/transcript/2018/09/20180922-1088802.md)
 
 [郭文贵2018年9月22日视频 20180922_4文貴周末為家人做魚肉丸 用趕麵杖趕魚肉](/content/transcript/2018/09/20180922-1088807.md)
@@ -44,14 +52,6 @@
 [郭文贵2018年9月12日第二次直播 20180912_2文贵先生進Sara Discord聊天室前](/content/transcript/2018/09/20180912-1088763.md)
 
 [郭文贵2018年9月12日第三次直播 20180912_3某军委委员家一面墙的翡翠就价值3个亿美金；首次酒后爆文贵先生80年代－90年代起家经历；爆释永信的私生子；戒忍和尚写一个对联受8万元钱故事！](/content/transcript/2018/09/20180912-1093083.md)
-
-[郭文贵2018年9月12日第一次直播 20180912_1战友之声聊天室曝光 调查王健的一个团队被盗国贼50万美金买走所有资料；爆料和姬胜德认识过程；文贵先生早年的经历；90年代赖昌星一天赚2个亿人民币；再次承诺2亿美金成立老兵基金！](/content/transcript/2018/09/20180912-1093097.md)
-
-[郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-1088733.md)
-
-[郭文贵2018年9月11日视频 20180911_3願美國不會再有911](/content/transcript/2018/09/20180911-1088737.md)
-
-[郭文贵2018年9月11日视频 20180911文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-1093079.md)
 
 
 ## 頁面 92/112 [**<**](/content/transcript/README-91.md) [1](/content/transcript/README.md) ... [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) **92** [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-93.md) [查看全部](/content/transcript/README-all.md)

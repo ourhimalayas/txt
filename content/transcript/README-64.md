@@ -3,6 +3,14 @@
 
 ## 頁面 64/112 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年12月2日视频 20191202路江谈老少必看；习近平令被撤回原因有二：一是习危也；二是令是实施香港紧急戒严法](/content/transcript/2019/12/20191202-1094139.md)
+
+[郭文贵2019年12月1日视频 20191201梁振英站台的海南恒大超级医院；龚火鸡欺骗VOA并做各种假材料；香港人权法案打响了全世界灭共的第一枪](/content/transcript/2019/12/20191201-1094129.md)
+
+[郭文贵2019年11月30日 20191130曾宏和赵岩是如何为小夏争风吃醋的！乱聊再乱聊，一切都是刚刚开始！](/content/transcript/2019/11/20191130-1094105.md)
+
+[郭文贵2019年11月29日 20191129龚小夏过往点滴,龚你啥时候看过帐？](/content/transcript/2019/11/20191129-1094098.md)
+
 [郭文贵2019年11月28日视频 20191128_1欺民賊又在撒謊 美國又不行了 到處是要飯的 這幫騙子](/content/transcript/2019/11/20191128-1089683.md)
 
 [郭文贵2019年11月28日视频 20191128_2文贵嗑瓜子等大事发生](/content/transcript/2019/11/20191128-1089684.md)
@@ -44,14 +52,6 @@
 [2019年11月20日文贵大直播全文字版：王建之死 两周年（上）](/content/transcript/2019/11/20191120-1243310.md)
 
 [郭文贵2019年11月19日第二次直播 20191119_2一整天直播的大概安排和香港理工大的背后故事。](/content/transcript/2019/11/20191119-1093981.md)
-
-[郭文贵2019年11月19日第一次直播 20191119_1香港人权和民主法案参议院通过 连线班农先生庆祝香港人权和民主法案全票通过！](/content/transcript/2019/11/20191119-1093989.md)
-
-[郭文贵2019年11月18日视频 20191118_220191118之2 文贵又开始浪啦浪花钱啦…](/content/transcript/2019/11/20191118-1089655.md)
-
-[郭文贵2019年11月18日视频 20191118_3新的劳斯莱斯库里内 另外一台是深藍色 這一台是淺咖啡色](/content/transcript/2019/11/20191118-1089656.md)
-
-[郭文贵2019年11月18日视频 20191118_4香港的人权法案可能今天要通过了 你能擋得住嗎共產黨](/content/transcript/2019/11/20191118-1089657.md)
 
 
 ## 頁面 64/112 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,14 @@
 
 ## 頁面 60/112 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年2月21日第二次直播 20200221_2北京人民医院感染众多！疫情大爆发还没真正开始](/content/transcript/2020/02/20200221-1091826.md)
+
+[郭文贵2020年2月21日第一次直播 20200221_1参加班农战斗室访谈](/content/transcript/2020/02/20200221-1091858.md)
+
+[郭文贵2020年2月20日第二次直播 20200220_2再次提醒战友们同胞们2月29日是巨大的分水岭，呆家里莫上班](/content/transcript/2020/02/20200220-1091804.md)
+
+[郭文贵2020年2月20日第一次直播 20200220_1参加班农战斗室第21期 谈武汉](/content/transcript/2020/02/20200220-1091819.md)
+
 [郭文贵2020年2月19日直播 20200219_2郭文贵先生加入班农先生战斗室谈武汉疫情 高清版](/content/transcript/2020/02/20200219-1088898.md)
 
 [郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播](/content/transcript/2020/02/20200219-1091799.md)
@@ -44,14 +52,6 @@
 [郭文贵2020年1月30日视频 20200130_2文貴在教堂為中國人祈福](/content/transcript/2020/01/20200130-1089759.md)
 
 [郭文贵2020年1月30日视频 20200130_3沿着三年前习川会的小路走一走！【有1000个理由要搞好中美关系没有一个理由给搞坏中美关系。】](/content/transcript/2020/01/20200130-1089762.md)
-
-[郭文贵2020年1月30日 20200130谈中南坑政治局常委有人会死](/content/transcript/2020/01/20200130-1091760.md)
-
-[郭文贵2020年1月29日 20200129谈CCP统治下的孤国孤市孤镇孤](/content/transcript/2020/01/20200129-1091747.md)
-
-[郭文贵2020年1月28日谈WHO已经认错 20200128CCP对疫情必须承担责任](/content/transcript/2020/01/20200128-1091727.md)
-
-[郭文贵2020年1月27日谈科比意外死亡 20200127并呼吁中共在灾难面前以人命](/content/transcript/2020/01/20200127-1091716.md)
 
 
 ## 頁面 60/112 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
