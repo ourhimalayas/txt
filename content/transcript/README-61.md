@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 61/111 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 61/112 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年1月26日 20200126大年初二谈为什么共产党要控制世界卫生组织．国际刑警组织．国际人权组织．中共为什么拒绝世界卫生组织给武汉疫区医生护士的防护设备和设施。2020年1月26日爆料革命三周年文贵致谢所有的战](/content/transcript/2020/01/20200126-1092308.md)
+
+[郭文贵2020年1月25日 20200125大年初一文贵严肃负责任向战友及疫区同胞报告：……武汉疫情绝对是人为不是天灾！](/content/transcript/2020/01/20200125-1091698.md)
+
+[郭文贵2020年1月24日视频 20200124_2吃完年夜飯 抽根朋友送的雪茄PARTAGAS](/content/transcript/2020/01/20200124-1089758.md)
+
+[郭文贵2020年1月24日文贵看春晚 20200124](/content/transcript/2020/01/20200124-1091671.md)
+
+[郭文贵2020年1月23日第二次直播 20200123_2向大家汇报今天的法治基金的会议花絮．24号文贵看春晚的节目的一些安排](/content/transcript/2020/01/20200123-1092137.md)
+
+[郭文贵2020年1月23日第一次直播 20200123_1法治社会法制基金第一次董事会后．全员直播．史蒂夫班农先生和卡尔巴斯．比尔盖茨先生．郭文贵先生，路德先生Sara一起直播。](/content/transcript/2020/01/20200123-1092209.md)
+
+[郭文贵2020年1月22日第二次直播 20200122_2谈武汉疫情紧急事](/content/transcript/2020/01/20200122-1091635.md)
+
+[郭文贵2020年1月22日第一次直播 20200122_1中共新4000隐士](/content/transcript/2020/01/20200122-1092219.md)
+
+[郭文贵2020年1月20日谈非典真相 20200120西方人如何看待勤劳的中国人](/content/transcript/2020/01/20200120-1091624.md)
+
+[郭文贵2020年1月19日 20200119惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！](/content/transcript/2020/01/20200119-1092312.md)
+
+[郭文贵2020年1月18日 20200118刘鹤招待会取消预示着什么](/content/transcript/2020/01/20200118-1092293.md)
 
 [郭文贵2020年1月17日谈中美贸易战内幕 20200117贸易协议为何一定是滑稽的结](/content/transcript/2020/01/20200117-1091616.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2020年1月5日视频 20200105_3文贵在这里又要浪一浪了，应战友们的要求，将今天穿的衣服录一段视频发出来，一切都是刚刚开始。](/content/transcript/2020/01/20200105-1089023.md)
 
-[郭文贵2020年1月5日视频 20200105_2郭文貴在喜馬拉雅大使館採訪班農 談美國擊斃伊朗二號人物蘇拉曼尼](/content/transcript/2020/01/20200105-1089752.md)
 
-[郭文贵2020年1月5日 20200105傅希秋是挂牌特务艾未未等欺民贼将被扫入历史的垃圾桶](/content/transcript/2020/01/20200105-1091725.md)
-
-[郭文贵2020年1月4日 20200104共产党不管你咋折腾，你完蛋了](/content/transcript/2020/01/20200104-1091701.md)
-
-[郭文贵2020年1月3日中俄伊军演 20200103苏曼尼的被炸死是我们爆料革命展示实力走向](/content/transcript/2020/01/20200103-1092232.md)
-
-[郭文贵2020年1月2日 20200102聊自己的人生和武汉的非典 为战友终生戒吃牛肉！](/content/transcript/2020/01/20200102-1091687.md)
-
-[郭文贵2020年1月1日 20200101畅谈2020 盘古开天霹雳年！灭共](/content/transcript/2020/01/20200101-1091644.md)
-
-[郭文贵2019年12月31日视频 20191231_1 郭文貴call in 曾宏節目](/content/transcript/2019/12/20191231-1089748.md)
-
-[郭文贵2019年12月30日第一次直播 20191230_1谈2020霹雳年 私自募捐就是一帮](/content/transcript/2019/12/20191230-1094144.md)
-
-[郭文贵2019年12月30日第二次直播 20191230_2第二次直播向战友询问1/22和春节晚会的举办形式，有惊人王健死亡照片出示](/content/transcript/2019/12/20191230-1094155.md)
-
-[郭文贵2019年12月29日连线钢铁侠 20191229聊中国的教育和如何面对的性](/content/transcript/2019/12/20191229-1094163.md)
-
-[郭文贵2019年12月28日谈细丝的行为 20191228又一个郭宝胜欺诈的案例](/content/transcript/2019/12/20191228-1094145.md)
-
-
-## 頁面 61/111 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 61/112 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)

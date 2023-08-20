@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 74/111 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 74/112 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
+
+[2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场](/content/transcript/2019/08/20190810-1098158.md)
+
+[郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事](/content/transcript/2019/08/20190809-1089408.md)
+
+[郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe](/content/transcript/2019/08/20190809-1093489.md)
+
+[2019年8月9日《郭文贵大直播》全文字版：船上报平安直播](/content/transcript/2019/08/20190809-1098166.md)
+
+[郭文贵2019年8月8日视频 201908088th Aug Mr. Guo's broadcast: CCP's sophisticated plan to take over the world will...](/content/transcript/2019/08/20190808-1093465.md)
+
+[2019年8月8日《文贵大直播》全文字版： 中共对世界布下的天罗地网，并不能阻止中共灭亡的步伐](/content/transcript/2019/08/20190808-1098167.md)
+
+[郭文贵2019年8月7日视频 20190807王岐山和德国前副总理 菲利浦什么关系 PAG太盟投资与海航王岐山什么关系 为什么太盟投资和林郑月娥 菲利浦 陈峰 王岐山走在一起](/content/transcript/2019/08/20190807-1093435.md)
+
+[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系](/content/transcript/2019/08/20190807-1098161.md)
+
+[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系](/content/transcript/2019/08/20190807-1098162.md)
+
+[郭文贵2019年8月6日 20190806美国将中共定位汇率操纵国的](/content/transcript/2019/08/20190806-1093483.md)
+
+[2019年8月6日《文贵大直播》全文字版： 谈美国将中共定位汇率操纵国的意义](/content/transcript/2019/08/20190806-1098169.md)
 
 [郭文贵2019年8月5日视频 20190805香港大劫在即……希望香港的四个不要脸群体．能站在正义的一边帮助上街的孩子们。](/content/transcript/2019/08/20190805-1093464.md)
 
@@ -31,27 +53,5 @@
 
 [2019年7月31日文贵大直播全文字版：爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-1098126.md)
 
-[2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场](/content/transcript/2019/07/20190731-1098163.md)
 
-[郭文贵2019年7月30日视频 20190730_1(精華自26分04秒起至35分27秒)习近平上位、必灭薄熙来、贾庆林出场、李源潮书生、南普陀计划](/content/transcript/2019/07/20190730-1089379.md)
-
-[郭文贵2019年7月29日第二次直播 20190729_2香港发生了什么情况 中共在以日计的步伐奔向灭亡](/content/transcript/2019/07/20190729-1093416.md)
-
-[郭文贵2019年7月29日第一次直播 20190729_1尊敬的战友们好你们健身了吗？你们往身上泼水了吗？为什么在曼哈顿举行的国际经济会议改变了议程？一切都是刚刚开始！](/content/transcript/2019/07/20190729-1093417.md)
-
-[2019年7月29日文贵大直播全文字版：共产党已经进入倒计时](/content/transcript/2019/07/20190729-1098202.md)
-
-[2019年7月29日文贵大直播全文字版：共产党已经进入倒计时](/content/transcript/2019/07/20190729-1098203.md)
-
-[郭文贵2019年7月28日视频 20190728_1双面间谍．文贵，在＂床＂上报平安！](/content/transcript/2019/07/20190728-1089360.md)
-
-[2019年7月28号文贵报平安全文字版](/content/transcript/2019/07/20190728-1098168.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098137.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098138.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098139.md)
-
-
-## 頁面 74/111 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 74/112 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)

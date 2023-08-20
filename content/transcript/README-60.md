@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 60/111 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 60/112 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年2月19日直播 20200219_2郭文贵先生加入班农先生战斗室谈武汉疫情 高清版](/content/transcript/2020/02/20200219-1088898.md)
+
+[郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播](/content/transcript/2020/02/20200219-1091799.md)
+
+[郭文贵2020年2月18日 20200218警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山](/content/transcript/2020/02/20200218-1091794.md)
+
+[郭文贵2020年2月15日 20200215 告诉战友们一定要耐心在家健身健心会有解药的！CCP灭了车贷房贷](/content/transcript/2020/02/20200215-1091774.md)
+
+[郭文贵2020年2月14日谈武汉疫情 20200214战友不树敌只为灭共](/content/transcript/2020/02/20200214-1091761.md)
+
+[郭文贵2020年2月12日 20200212一切都听党的走向火葬场](/content/transcript/2020/02/20200212-1091751.md)
+
+[郭文贵2020年2月10日 20200210请战友们保存让你上班的证据](/content/transcript/2020/02/20200210-1091742.md)
+
+[郭文贵2020年2月8日第一次直播 20200208_1回答武汉疫情为何是中国共产党制造并释放出来的](/content/transcript/2020/02/20200208-1091728.md)
+
+[郭文贵2020年2月8日第二次直播 20200208_2由美国专家确定病毒非蝙蝠传播，而是来自武汉实验室人工制毒](/content/transcript/2020/02/20200208-1091732.md)
+
+[郭文贵2020年2月6日视频 20200206_2文贵接受班农先生War Room 访问](/content/transcript/2020/02/20200206-1088896.md)
+
+[郭文贵2020年2月6日视频 20200206接受班农先生战斗室访谈 谈武](/content/transcript/2020/02/20200206-1091713.md)
 
 [郭文贵2020年2月5日视频 20200205_1我们法治基金已经准备好了一亿个口罩！请问中共我们该如何送到我们血缘的同胞手里？寄诸囗罩．善至血缘！](/content/transcript/2020/02/20200205-1089764.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2020年1月27日谈科比意外死亡 20200127并呼吁中共在灾难面前以人命](/content/transcript/2020/01/20200127-1091716.md)
 
-[郭文贵2020年1月26日 20200126大年初二谈为什么共产党要控制世界卫生组织．国际刑警组织．国际人权组织．中共为什么拒绝世界卫生组织给武汉疫区医生护士的防护设备和设施。2020年1月26日爆料革命三周年文贵致谢所有的战](/content/transcript/2020/01/20200126-1092308.md)
 
-[郭文贵2020年1月25日 20200125大年初一文贵严肃负责任向战友及疫区同胞报告：……武汉疫情绝对是人为不是天灾！](/content/transcript/2020/01/20200125-1091698.md)
-
-[郭文贵2020年1月24日视频 20200124_2吃完年夜飯 抽根朋友送的雪茄PARTAGAS](/content/transcript/2020/01/20200124-1089758.md)
-
-[郭文贵2020年1月24日文贵看春晚 20200124](/content/transcript/2020/01/20200124-1091671.md)
-
-[郭文贵2020年1月23日第二次直播 20200123_2向大家汇报今天的法治基金的会议花絮．24号文贵看春晚的节目的一些安排](/content/transcript/2020/01/20200123-1092137.md)
-
-[郭文贵2020年1月23日第一次直播 20200123_1法治社会法制基金第一次董事会后．全员直播．史蒂夫班农先生和卡尔巴斯．比尔盖茨先生．郭文贵先生，路德先生Sara一起直播。](/content/transcript/2020/01/20200123-1092209.md)
-
-[郭文贵2020年1月22日第二次直播 20200122_2谈武汉疫情紧急事](/content/transcript/2020/01/20200122-1091635.md)
-
-[郭文贵2020年1月22日第一次直播 20200122_1中共新4000隐士](/content/transcript/2020/01/20200122-1092219.md)
-
-[郭文贵2020年1月20日谈非典真相 20200120西方人如何看待勤劳的中国人](/content/transcript/2020/01/20200120-1091624.md)
-
-[郭文贵2020年1月19日 20200119惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！](/content/transcript/2020/01/20200119-1092312.md)
-
-[郭文贵2020年1月18日 20200118刘鹤招待会取消预示着什么](/content/transcript/2020/01/20200118-1092293.md)
-
-
-## 頁面 60/111 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 60/112 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)

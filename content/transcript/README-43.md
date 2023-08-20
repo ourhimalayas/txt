@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 43/111 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 43/112 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年12月7日盖特 20201207_1尊敬的戰友們好，明天1 2月8號上午9 ：0 0至1 0 ：0 0間文貴直播做羊肉丸子，蒸大饅頭，一切都已經開始！](/content/transcript/2020/12/20201207-1093249.md)
+
+[郭文贵2020年12月7日盖特 20201207_2尊敬的戰友們好。再次的感謝所有的戰友。為朱利安尼先生的祈禱，他現在恢复非常好。文貴在此表達衷心的感謝，一切都已經開始！](/content/transcript/2020/12/20201207-1093252.md)
+
+[郭文贵2020年12月6日直播 20201206_1为圣人之子-朱利安尼先生祈祷????????他一定平安归来，继续灭共！](/content/transcript/2020/12/20201206-1093231.md)
+
+[郭文贵2020年12月6日盖特 20201206_2尊敬的戰友們好。文貴要做給針線活給戰友門看看...來迎接我們的中國人的苦日子到來...準備，躲避柯林斯能發生的戰爭...最好的最有價值的準確的信息...量力而行。](/content/transcript/2020/12/20201206-1093240.md)
+
+[郭文贵2020年12月5日盖特 20201205_1尊敬的戰友們好，請所有的戰友們...務必要高度重視防範ÇÇP病毒...千萬不要再有任何僥幸心理，在未來的一定時間內各種災難將一個一個的到來，我們務必參照團結謹慎，](/content/transcript/2020/12/20201205-1093217.md)
+
+[郭文贵2020年12月4日直播 20201204_1沉重直播后回答战友们的一些问题。](/content/transcript/2020/12/20201204-1093214.md)
+
+[郭文贵2020年12月3日直播 20201203_1中国人的灾难真正的开始了](/content/transcript/2020/12/20201203-1093205.md)
+
+[郭文贵2020年12月2日直播 20201202_1共产党对美国选举的操控和蓝金黄终极之战，将是上天给爆料革命、新中国联邦人最大的机会！](/content/transcript/2020/12/20201202-1093181.md)
+
+[郭文贵2020年12月1日盖特 20201201_1尊敬的戰友們好 文貴在此緊急呼籲國內外的戰友，兄弟姐妹們，務必小心病毒的再次兇猛襲來，保重自己家人](/content/transcript/2020/12/20201201-1093186.md)
+
+[郭文贵2020年11月30日直播 20201130_1新中国联邦人一定要团结有集体观念，我们靠情报和实力唤醒世界](/content/transcript/2020/11/20201130-1093366.md)
+
+[郭文贵2020年11月30日盖特 20201130_2尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201130-1093372.md)
 
 [郭文贵2020年11月29日盖特 20201129_1尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201129-1093160.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2020年11月20日盖特 20201120_2尊敬的战友们好．几天来，我一直都在思考……这个难以忘记重大的爆料革命的历史的日子里……1120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，](/content/transcript/2020/11/20201120-1093242.md)
 
-[郭文贵2020年11月20日盖特 20201120_3亲爱的战友…收到啦，收到啦。](/content/transcript/2020/11/20201120-1093243.md)
 
-[郭文贵2020年11月20日直播 20201120_4王建之死 两周年](/content/transcript/2020/11/20201120-1093255.md)
-
-[郭文贵2020年11月19日直播 20201119_1](/content/transcript/2020/11/20201119-1093232.md)
-
-[郭文贵2020年11月18日盖特 20201118尊敬的戰友，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201118-1093215.md)
-
-[郭文贵2020年11月17日盖特 2020111772小時會不會发生啊？](/content/transcript/2020/11/20201117-1093220.md)
-
-[郭文贵2020年11月15日视频 20201115_6直播连线唐平，威廉王](/content/transcript/2020/11/20201115-1089043.md)
-
-[郭文贵2020年11月15日视频 20201115_7文贵直播连线唐平和威廉王 第二部分](/content/transcript/2020/11/20201115-1089047.md)
-
-[郭文贵2020年11月15日视频 20201115_5 來自白宮表示：昨天的遊行，深深影響美國人對新中國聯邦的看法](/content/transcript/2020/11/20201115-1090033.md)
-
-[郭文贵2020年11月15日盖特 20201115_1衷心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！](/content/transcript/2020/11/20201115-1093169.md)
-
-[郭文贵2020年11月15日盖特 20201115_2衷心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！](/content/transcript/2020/11/20201115-1093183.md)
-
-[郭文贵2020年11月15日盖特 20201115_32心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！](/content/transcript/2020/11/20201115-1093185.md)
-
-
-## 頁面 43/111 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 43/112 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 37/111 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 37/112 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年2月15日盖特 20210215_2文贵与友们赏雪……](/content/transcript/2021/02/20210215-1090701.md)
+
+[郭文贵2021年2月15日直播 20210215_3谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟货币的好消息](/content/transcript/2021/02/20210215-1090710.md)
+
+[郭文贵2021年2月13日视频雅典娜 20210213_2雅典娜&秘翻组 2021春节联合直播：庆祝新年，未来展望。郭先生亲临给战友们抽奖！](/content/transcript/2021/02/20210213-1090637.md)
+
+[郭文贵2021年2月13日视频樱花团 20210213_1新春联欢，郭先生连线寄语](/content/transcript/2021/02/20210213-1090692.md)
+
+[郭文贵2021年2月12日盖特 20210212_12月12号向所有的战友们及同胞们拜年，文贵谈，习近平制造的习拜的双规电话．为什么样的中美关系的将巨变！这是给新中国联邦送来的大红包](/content/transcript/2021/02/20210212-1090627.md)
+
+[郭文贵2021年2月12日视频英喜 20210212_3文贵先生客串英喜春节大联欢](/content/transcript/2021/02/20210212-1090653.md)
+
+[郭文贵2021年2月12日视频波士顿 20210212_2喜马拉雅波士顿五月花农场新春联欢会](/content/transcript/2021/02/20210212-1090663.md)
+
+[郭文贵2021年2月12日视频香草山 20210212_4纽约香草山农场年会](/content/transcript/2021/02/20210212-1090673.md)
+
+[郭文贵2021年2月12日视频巴黎和澳喜 20210212_5悉尼澳喜和巴黎七星大年初一联合晚会](/content/transcript/2021/02/20210212-1090795.md)
+
+[郭文贵2021年2月11日直播 20210211_1辛丑年文贵看春晚](/content/transcript/2021/02/20210211-1090623.md)
+
+[郭文贵2021年2月9日盖特 20210209_12月9号尊敬的战友您好，上海的几个老杂毛为什么要说……庚政辛丑钱．民生不稳要出大麻烦……？](/content/transcript/2021/02/20210209-1090615.md)
 
 [郭文贵2021年2月8日盖特 20210208_1尊敬的战友们好，你们健身了吗？中共即将崩塌的经济和党员们对未来财富安全的恐惧，正在改变着世界的经济的格局……，美国总统拜登将与习近平新春通话……](/content/transcript/2021/02/20210208-1090611.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年2月3日盖特 20210203_2共产党独裁统治下的以黑治国以假治国的中共经济！到底出现了什么情况？这几天来大量的香港优质上市股票，以30%的价格抵押贴现！和国内大量的黄金50%的价格抵押贷款，四个自信强大的中共政](/content/transcript/2021/02/20210203-1090556.md)
 
-[郭文贵2021年2月2日直播 20210202_1](/content/transcript/2021/02/20210202-1090530.md)
 
-[郭文贵2021年2月2日直播 20210202_2回答战友们关于VOG退款事宜的疑问](/content/transcript/2021/02/20210202-1090551.md)
-
-[郭文贵2021年2月1日直播 20210201_1文贵在雪中和战友们聊聊天．谈谈，中国共产党是如何欺骗中国老百姓的……](/content/transcript/2021/02/20210201-1090507.md)
-
-[郭文贵2021年2月1日盖特 20210201_2尊敬的战友们好今天的纽约，封城和缅甸的政变和全球联合灭共所有的事情……有着什么样的内在的逻辑和关系！](/content/transcript/2021/02/20210201-1090509.md)
-
-[郭文贵2021年2月1日盖特 20210201_3在国内新的一轮所谓平爆运动的．关键时刻，我相信绝大多数的共产党．体制内的有良知的．有智慧的人．应该知道．如何面对我们爆料革命．和处理，我们被九指妖．等背叛者．提供给他们的有](/content/transcript/2021/02/20210201-1090515.md)
-
-[郭文贵2021年2月1日盖特 20210201_4共产党犯下的罪行……和在香港犯下的罪……和对全世界人民现在的威胁……正在凝聚全人类正义的力量，全球联合灭共正在进行时……](/content/transcript/2021/02/20210201-1090520.md)
-
-[郭文贵2021年1月31日直播 20210131_1赖小民被枪毙和海航破产重组再次证明中共盗国集团的黑暗本质！共产党变成掏肛党后已经走向疯狂！文贵一定会让所有伤害战友的人受到法律严惩！](/content/transcript/2021/01/20210131-1090504.md)
-
-[郭文贵2021年1月30日盖特 20210130_1尊敬的战友们好，整个共产党变成．掏肛党后．又向掏胃党迈进……已经走向疯狂．继续以贪反贪．抓政法委和纪委干部……对外以黑社会的手段威胁，各国的政府……答应中共武统台湾……一切](/content/transcript/2021/01/20210130-1090499.md)
-
-[郭文贵2021年1月29日盖特 20210129_1为人民服务的共产党．现在是为人民掏肛的共产党，????????????一个经济强大的共产党，却要将在人民的肛门中????掏出几万亿人民币，却让王岐山主席．控制的中国最大的私人企业．海南航空．破产](/content/transcript/2021/01/20210129-1090496.md)
-
-[郭文贵2021年1月29日盖特 20210129_2从昨天到今天火爆了的我们的爆料革命．和新中国联邦.和G系列．与这个疯狂的世界的疯狂几个事件的内在逻辑的重要性……](/content/transcript/2021/01/20210129-1090501.md)
-
-[郭文贵2021年1月28日直播 20210128_1受骗九指王的战友们要行动；美四大帮派都来找文贵合作，美，欧，日，俄将形成灭共联盟；Gclub年会预告](/content/transcript/2021/01/20210128-1090487.md)
-
-
-## 頁面 37/111 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 37/112 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 20/111 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 20/112 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年9月12日盖特 20210912_2一年前直播中答应送给小郑州兄弟的雪茄空盒子的事情，今天终于尘埃落定．很多老雪茄盒子都被管家给扔了！到处找才找到这几个难得的具有雪茄奇迹般的历史的记忆的盒子，大家能看得懂吗？](/content/transcript/2021/09/20210912-1093182.md)
+
+[郭文贵2021年9月11日盖特 20210911_1尊敬的战友们好．每时每刻．我们爆料革命．新中国联邦都在拯救很多无辜的生命……和影响这个世界走向阳光！我们是这个世界上最伟大的正义的力量．共产党你完蛋了。](/content/transcript/2021/09/20210911-1092996.md)
+
+[郭文贵2021年9月10日直播 20210910_1恒大与香港黑帮玩的假金融游戏，恒大就是中国的雷曼兄弟，七哥四年前就准确爆出今天恒大的结局；房地产商都有自己的评估机构，进行金融骗贷；习和拜登通电话说了什么；共产党就是中国的](/content/transcript/2021/09/20210910-1092987.md)
+
+[郭文贵2021年9月9日盖特 20210909_1尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，](/content/transcript/2021/09/20210909-1092990.md)
+
+[郭文贵2021年9月8日直播 20210908_1拍卖行业的鉴定，评估，律师一条龙造假；中共的信托艺术市场是骗托骗术市场，就是洗钱的工具；中国有团契会光明会和共济会，王岐山，张宏伟都是中国光明会会员；七哥的俱乐部都是全世界](/content/transcript/2021/09/20210908-1092926.md)
+
+[郭文贵2021年9月7日直播 20210907_1政治与艺术的关系：拍卖行背后都是军方的势力；所有的古董字画都是政治情报，都是洗钱和行贿；马明哲对台湾的渗透腐败都是核弹级的；最大的艺术品保险就是马明哲。解读黑天鹅事件，毛泽](/content/transcript/2021/09/20210907-1093057.md)
+
+[郭文贵2021年9月6日盖特 20210906_1尊敬的战友们好，你们传播CC P病毒疫苗的解药了吗？你们健身了吗？一切都已经开始！](/content/transcript/2021/09/20210906-1092937.md)
+
+[郭文贵2021年9月6日盖特 20210906_2尊敬的战友们好．黑天鹅事件，和延安的摇窖洞崩塌……断了共产党的根呀……因此同时发生的对台的战争方案临时的改变……这将意味着什么？天助台湾的呢……明天上午9:00继续和战友们一起大](/content/transcript/2021/09/20210906-1092939.md)
+
+[郭文贵2021年9月5日盖特 20210905_2吃饭饭啦……未来农场的必备菜！](/content/transcript/2021/09/20210905-1092933.md)
+
+[郭文贵2021年9月5日直播 20210905_1从苏联切尔诺贝利核事件看今天的中共；最纯最多的青蒿素在美国和加拿大；克里访华将要谈判的内容；陆金所是对西方的经济炸弹，经济病毒，每一股的变化背后都是蓝金黄；马明哲就是中国的](/content/transcript/2021/09/20210905-1092984.md)
+
+[郭文贵2021年9月4日盖特 20210904_1尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？](/content/transcript/2021/09/20210904-1092921.md)
 
 [郭文贵2021年9月4日盖特 20210904_2解药的事儿太大了..太大了..太大了..](/content/transcript/2021/09/20210904-1092925.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年8月30日直播 20210830_1中共已经有解药：D-NAB；东奥会中国队员已经用青蒿素防病毒，屠呦呦的药都有效；从美军，郑州，香港看中共的解药；疫苗界的大咖很快会出来爆料；体制内将大换岗，特别是公检法](/content/transcript/2021/08/20210830-1092798.md)
 
-[郭文贵2021年8月29日直播 20210829_1七哥给部级战友饮食的三条建议；墙内病毒疫苗什么时候大爆发；七哥给“我是英雄”第一名亲自设计G翻身衣服；江家的金人庆自焚前见了3人，经常被杨澜找钥匙](/content/transcript/2021/08/20210829-1092733.md)
 
-[郭文贵2021年8月29日盖特 20210829_3几次大直播．我们拯救了无数个生命．巨大的影响正在改变疫苗大屠杀的壮况……所有的战友们和我的朋友们都在思考，我们的人生和我们所生存的意义：和自己的信仰和宗教的理解！认知！爆料](/content/transcript/2021/08/20210829-1092802.md)
-
-[郭文贵2021年8月29日盖特 20210829_4第二段视频……谈谈最近国内的演艺界体育节．所发生一系列的事情．和共产党正在疯狂的准备打烂台湾……打残欧州．征服世界的一些疯狂的方案和计划????????????????????????胆小的不要看这个视频](/content/transcript/2021/08/20210829-1092810.md)
-
-[郭文贵2021年8月29日盖特 20210829_2尊敬的战友们好，你们健身了吗？传播C C P病毒……香港危机．郑州人祸的真相了吗？](/content/transcript/2021/08/20210829-1092873.md)
-
-[郭文贵2021年8月28日直播 20210828_1疫苗、病毒后，宗教会因此重新改写；家庭将经历有史以来的考验，家庭观念会被改变；人类对宗教，家庭的概念彻底解体；疫苗后，文化宗教会重生；地球之外的力量和新中国联邦会拯救人类；](/content/transcript/2021/08/20210828-1092706.md)
-
-[郭文贵2021年8月28日盖特 20210828_2尊敬的战友们好！你们健身了吗？传播C C P病毒．郑州人祸．香港危机真相了吗？](/content/transcript/2021/08/20210828-1092714.md)
-
-[郭文贵2021年8月27日盖特 20210827_1尊敬的战友们好，你们健身了吗？传播C C P病毒，香港危机，郑州，水灾．人祸真相了吗？](/content/transcript/2021/08/20210827-1092707.md)
-
-[郭文贵2021年8月27日盖特 20210827_2尊敬的战友们好，我们的连续的大直播！影响深远，拯救了．和警醒了很多很多有良知和有真正判断力的人，这个世界正在黑暗之中与魔鬼的较量的关键时刻，我们最重要的就是要．互相尊重．帮](/content/transcript/2021/08/20210827-1092711.md)
-
-[郭文贵2021年8月26日直播 20210826_1四个独裁邪恶国的核心部队都没有打疫苗；中共军事的优势：导弹，无人机，镭射加激光武器；中共用子母弹控制世界，子弹是病毒，母弹是疫苗; 疫苗后军事非常关键，但会促进世界找到解药，灭](/content/transcript/2021/08/20210826-1092533.md)
-
-[郭文贵2021年8月26日直播 20210826_2摇滚歌神文贵先生现场签名直播](/content/transcript/2021/08/20210826-1092650.md)
-
-[郭文贵2021年8月25日直播 20210825_1如果疫苗不被停止，世界从过去政治家利用疫苗将成为所有政治家的噩梦！](/content/transcript/2021/08/20210825-1092372.md)
-
-
-## 頁面 20/111 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 20/112 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)

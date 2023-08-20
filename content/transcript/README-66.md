@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 66/112 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部](/content/transcript/2019/11/20191106-1093896.md)
+
+[郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦](/content/transcript/2019/11/20191105-1089638.md)
+
+[2019年11月4日 郭文贵先生直播--四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位 全文字版](/content/transcript/2019/11/20191104-1072004.md)
+
+[郭文贵2019年11月4日视频 20191104_2没有给SNOW 吃酸奶，他就生气了????……他太现实了](/content/transcript/2019/11/20191104-1089637.md)
+
+[郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位](/content/transcript/2019/11/20191104-1093852.md)
+
+[2019年11月3日文贵大直播全文字版：第一次直播 和第二次直播：要进山给大佬讲CCP的区块链](/content/transcript/2019/11/20191103-1077257.md)
+
+[郭文贵2019年11月3日第一次直播 20191103_1在山上小憩时与战友们闲聊](/content/transcript/2019/11/20191103-1093845.md)
+
+[郭文贵2019年11月3日第二次直播 20191103_2文贵要进山给大佬讲CCP的区块链](/content/transcript/2019/11/20191103-1093930.md)
+
+[2019年11月2日文贵大直播全文字版：第一次直播：只有灭共才能让我们更加的安全和幸福，我们有共同的目标……我们有上天赋予的使命;第二次直播：谈共产党即将倒台的三大因素](/content/transcript/2019/11/20191102-1070162.md)
+
+[郭文贵2019年11月2日第二次直播 20191102_2文贵讲成功，胜利和信仰：中国现在像灭亡前的大清朝 谈共产党即将倒台的三大因素](/content/transcript/2019/11/20191102-1093913.md)
+
+[郭文贵2019年11月2日第一次直播 20191102_1在中央公园与战友分享美景](/content/transcript/2019/11/20191102-1093919.md)
 
 [2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版](/content/transcript/2019/10/20191030-1080376.md)
 
@@ -31,27 +53,5 @@
 
 [2019年10月27日文贵大直播全文字版：与战友闲聊](/content/transcript/2019/10/20191027-1087430.md)
 
-[郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极](/content/transcript/2019/10/20191027-1089606.md)
 
-[郭文贵2019年10月27日视频 20191027试直播与战友闲聊](/content/transcript/2019/10/20191027-1093787.md)
-
-[2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-1087429.md)
-
-[郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-1089605.md)
-
-[郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中](/content/transcript/2019/10/20191026-1093774.md)
-
-[2019年10月25日郭文贵先生第二次直播--谈中国同胞39名惨死偷渡英国途中，解读彭斯演讲，四中全会党内将人头滚滚 全文字版](/content/transcript/2019/10/20191025-1071962.md)
-
-[2019年10月25日文贵大直播全文字版：再谈直播彭斯副总统演讲的重大意义](/content/transcript/2019/10/20191025-1087428.md)
-
-[郭文贵2019年10月25日第二次直播 20191025_2直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/content/transcript/2019/10/20191025-1093761.md)
-
-[郭文贵2019年10月25日第一次直播 20191025_1跟路德再谈直播彭斯副总统演讲的重大意义](/content/transcript/2019/10/20191025-1093770.md)
-
-[2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲](/content/transcript/2019/10/20191024-1087427.md)
-
-[郭文贵2019年10月24日 20191024谈彭斯副总统演讲](/content/transcript/2019/10/20191024-1093743.md)
-
-
-## 頁面 66/111 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 66/112 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)

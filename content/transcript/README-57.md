@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 57/111 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 57/112 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年4月6日视频 20200406_2](/content/transcript/2020/04/20200406-1089799.md)
+
+[郭文贵2020年4月5日GTV视频 20200405_4与木兰 路德 sara直播](/content/transcript/2020/04/20200405-1088967.md)
+
+[郭文贵2020年4月5日GTV视频 20200405_5回来了回来了。亲爱的战友们好，我们今天是试试多方连线直播](/content/transcript/2020/04/20200405-1088986.md)
+
+[郭文贵2020年4月5日GTV炖羊肉 20200405_1郭先生直播做饭 炖羊肉【完整版】](/content/transcript/2020/04/20200405-1089793.md)
+
+[郭文贵2020年4月5日GTV视频 20200405_2和路德直播](/content/transcript/2020/04/20200405-1092077.md)
+
+[郭文贵2020年4月5日GTV视频 20200405_3与路德，橄榄枝在GTV](/content/transcript/2020/04/20200405-1092084.md)
+
+[郭文贵2020年4月4日GTV视频 20200404_3 如何看待不同层次战友对爆料革命不同的理解，以及共产党春风荡漾全世界的大外宣革命。](/content/transcript/2020/04/20200404-1088924.md)
+
+[郭文贵2020年4月4日GTV视频 20200404_4与sara连线第一次](/content/transcript/2020/04/20200404-1088937.md)
+
+[郭文贵2020年4月4日GTV视频 20200404_5与sara连线第二次](/content/transcript/2020/04/20200404-1088954.md)
+
+[郭文贵2020年4月4日视频 20200404_2文贵烦请战友们提供这些关乎香港命运的资料，美国决策层急需！](/content/transcript/2020/04/20200404-1089781.md)
+
+[郭文贵2020年4月4日 20200404谈CCP病毒让人类陷入巨大灾难，明年5月份前不可能解决，CCP必灭只是时间问题！](/content/transcript/2020/04/20200404-1092042.md)
 
 [郭文贵2020年4月3日GTV视频 20200403_4](/content/transcript/2020/04/20200403-1088921.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2020年3月27日视频 20200327_6CCP病毒肆虐，曼哈顿大街上空无一人，法治基金工作人员依然在给战友寄送口罩物资！](/content/transcript/2020/03/20200327-1089012.md)
 
-[郭文贵2020年3月27日视频 20200327_2](/content/transcript/2020/03/20200327-1089814.md)
 
-[郭文贵2020年3月27日视频 20200327_3七哥與Snow試鏡](/content/transcript/2020/03/20200327-1089816.md)
-
-[郭文贵2020年3月27日视频 20200327_4](/content/transcript/2020/03/20200327-1089820.md)
-
-[郭文贵2020年3月27日视频 20200327_5笨笨从来没犯过错，就是跑得慢。](/content/transcript/2020/03/20200327-1089821.md)
-
-[郭文贵2020年3月27日 20200327_1关于庄列宏，辱骂战友和天津大姐，辱骂小皮匠文贵的看法 一切美好再也回不到今天了](/content/transcript/2020/03/20200327-1091905.md)
-
-[郭文贵2020年3月26日视频 20200326_1](/content/transcript/2020/03/20200326-1089809.md)
-
-[郭文贵2020年3月26日视频 20200326_2](/content/transcript/2020/03/20200326-1089812.md)
-
-[郭文贵2020年3月25日 20200325警示9千万党员不要成为皇帝死前的陪葬，不要成为CCP灭亡前的第一个牺牲品！CCP会把中国的经济带回1989年以前！此时的世界面对的只有生和死！](/content/transcript/2020/03/20200325-1091899.md)
-
-[郭文贵2020年3月23日警示好好活着 20200323好好活着，一年后再想着上班赚钱](/content/transcript/2020/03/20200323-1091875.md)
-
-[郭文贵2020年3月22日视频 20200322_1關於舉報Inty](/content/transcript/2020/03/20200322-1089792.md)
-
-[郭文贵2020年3月22日视频 20200322_2關於舉報Inty](/content/transcript/2020/03/20200322-1089794.md)
-
-
-## 頁面 57/111 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 57/112 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)

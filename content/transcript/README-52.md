@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 52/111 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 52/112 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年7月3日视频 20200703_1海航王健被殺害2周年](/content/transcript/2020/07/20200703-1089897.md)
+
+[郭文贵2020年7月3日视频 20200703_2听听美国政府官员这一系列制裁和我们战友们在华盛顿抗议的一些观点以及背后的故事](/content/transcript/2020/07/20200703-1089901.md)
+
+[郭文贵2020年7月2日直播 20200702华盛顿的历史性的美东战友们的抗议，以及接下来对中共惩罚的大锤如何落下！](/content/transcript/2020/07/20200702-1092177.md)
+
+[郭文贵2020年6月30日视频 20200630_1](/content/transcript/2020/06/20200630-1089891.md)
+
+[郭文贵2020年6月30日视频 20200630_2](/content/transcript/2020/06/20200630-1089893.md)
+
+[郭文贵2020年6月28日视频 20200628_2](/content/transcript/2020/06/20200628-1089887.md)
+
+[郭文贵2020年6月28日视频 20200628_3](/content/transcript/2020/06/20200628-1089888.md)
+
+[郭文贵2020年6月28日视频 20200628_4](/content/transcript/2020/06/20200628-1089890.md)
+
+[郭文贵2020年6月28日直播 20200628香港问责法案最后一分钟被大打折扣；成功营救郝海东之子：GTV投资进展；中共对付新中国联邦的烂招](/content/transcript/2020/06/20200628-1092167.md)
+
+[郭文贵2020年6月25日直播 20200625_1杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/transcript/2020/06/20200625-1092129.md)
+
+[郭文贵2020年6月25日直播 20200625_2夏威夷会面杨洁篪再次的威胁，美国和将华人都列为犯罪分子的背后故事](/content/transcript/2020/06/20200625-1092221.md)
 
 [郭文贵2020年6月24日视频 20200624_1文贵与战友们分享今天媳妇做的大锅菜](/content/transcript/2020/06/20200624-1089886.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2020年6月17日直播 20200617GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/content/transcript/2020/06/20200617-1094203.md)
 
-[郭文贵2020年6月16日直播 20200616回答战友们关于G币，GTV投资诉讼的问题；请大家注意挑拨离间的CCP特务；夏威夷将是中共的噩梦](/content/transcript/2020/06/20200616-1094197.md)
 
-[郭文贵2020年6月15日视频 20200615_6七哥耍球棒](/content/transcript/2020/06/20200615-1089836.md)
-
-[郭文贵2020年6月15日视频 20200615_7今天不直播](/content/transcript/2020/06/20200615-1089839.md)
-
-[郭文贵2020年6月15日视频 20200615_3请应聘新中国联邦职务的战友们务必详细的提供你的个人信息和个人需求](/content/transcript/2020/06/20200615-1089875.md)
-
-[郭文贵2020年6月15日视频 20200615_4文贵衷心地向战友们就昨天错误的发出新中国联邦部长及副总理招聘广告衷心地向你们道歉️文贵将在视频中骑狗惩罚自己](/content/transcript/2020/06/20200615-1089898.md)
-
-[郭文贵2020年6月15日视频 20200615_5很多人打电话问我关于VOA炒掉VOACEO阿曼达和很多人要采访我对此事的看法我没有兴趣接受任何人的采访我只在这里谈谈我个人的粗浅的看法](/content/transcript/2020/06/20200615-1089900.md)
-
-[郭文贵2020年6月15日第一次直播 20200615_1關於戰友們投資GTV被非法退款、非法被剝奪投資利益、这将是一场法律行动的维权](/content/transcript/2020/06/20200615-1094168.md)
-
-[郭文贵2020年6月15日第二次直播 20200615_2文贵跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝](/content/transcript/2020/06/20200615-1094190.md)
-
-[郭文贵2020年6月13日连线江财神 20200613畅谈喜马拉雅农场和新中国联邦未来](/content/transcript/2020/06/20200613-1094251.md)
-
-[郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/content/transcript/2020/06/20200610-1092566.md)
-
-[郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录](/content/transcript/2020/06/20200609-1089033.md)
-
-
-## 頁面 52/111 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 52/112 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)

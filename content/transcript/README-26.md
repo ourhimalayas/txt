@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 26/111 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 26/112 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年6月30日直播 20210630_1共产党的百年冥诞．将彻底的扭转中国人的命运……和明天7月1号我们的一整天的直播．全世界的被共产主义杀害的人们正在紧紧地联合起来．将选择最快的方式消灭中国共产党！](/content/transcript/2021/06/20210630-1091651.md)
+
+[郭文贵2021年6月29日直播 20210629_1共产党你完了百年冥诞的恐惧即将崩溃的经济．和世界对共产党的病毒追责．你共产党还会有明天吗？](/content/transcript/2021/06/20210629-1091639.md)
+
+[郭文贵2021年6月28日直播 20210628_1森林深处．与英俊漂亮的战友们连线试试直播……](/content/transcript/2021/06/20210628-1091628.md)
+
+[郭文贵2021年6月28日盖特 20210628_2尊敬的战友们好，在香港和北京发生的大爆炸，死了很多人，为什么共产党要掩盖这些真相呢？](/content/transcript/2021/06/20210628-1091637.md)
+
+[郭文贵2021年6月28日盖特 20210628_3七哥和約翰哥哥討論蓋特功能改善](/content/transcript/2021/06/20210628-1091708.md)
+
+[郭文贵2021年6月27日直播 20210627_1文贵对国内战友的经济警告：国内金融机构即将崩塌，战友们要做好准备，但不要屯粮！共产党所谓的“百年大庆”，是百年作恶，百年屈辱，共产党彻底完了！](/content/transcript/2021/06/20210627-1091611.md)
+
+[郭文贵2021年6月27日盖特 20210627_2鸳鸯饼鸳鸯饼来喽……](/content/transcript/2021/06/20210627-1091634.md)
+
+[郭文贵2021年6月26日盖特 20210626_1大连和香港所谓被侦破的……破坏共匪百年冥寿……案件是怎么一回事？](/content/transcript/2021/06/20210626-1091630.md)
+
+[郭文贵2021年6月26日盖特 20210626_2尊敬的兄弟姐妹们好，我常用的那个手机号又被黑了，请战友们互相通告，尽快加上我的新的联系方式！](/content/transcript/2021/06/20210626-1091633.md)
+
+[郭文贵2021年6月25日直播 20210625_1国际形势已发生重大变化；西方对华人看法的改变；西方在南海有统一行动；一旦病毒来源确定，将对中南坑直接斩首！](/content/transcript/2021/06/20210625-1091580.md)
+
+[郭文贵2021年6月24日盖特 20210624_1尊敬的战友们好……共产党的内部斗争，加速了侵略台湾的可能！新中国联邦……绝对不能成为自私投机贪婪人的发财平台！](/content/transcript/2021/06/20210624-1091592.md)
 
 [郭文贵2021年6月24日盖特 20210624_2第二段：关于很多想加入GTV工作的战友们的一些问题的回复！](/content/transcript/2021/06/20210624-1091596.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年6月16日盖特 20210616_2](/content/transcript/2021/06/20210616-1089819.md)
 
-[郭文贵2021年6月16日盖特 20210616_1香港运动两周年之际，文贵感触很多……为什么最近我要再报杨澜．吴征黑森林的故事呢？](/content/transcript/2021/06/20210616-1091563.md)
 
-[郭文贵2021年6月15日直播 20210615_1三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？](/content/transcript/2021/06/20210615-1091541.md)
-
-[郭文贵2021年6月14日直播 20210614_1马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招](/content/transcript/2021/06/20210614-1091516.md)
-
-[郭文贵2021年6月14日直播 20210614_2多方连线直播测试](/content/transcript/2021/06/20210614-1091534.md)
-
-[郭文贵2021年6月14日盖特 20210614_3](/content/transcript/2021/06/20210614-1091543.md)
-
-[郭文贵2021年6月13日直播 20210613_1董宏受专案组虐待，交代了王岐山，吴征，孙力军，孟建柱对文贵专案组的任务，花费上亿美元；只有爆料革命每天都在改变着中南坑；明年影响人类命运的4个选举，3大的政治变化；战友们一定要](/content/transcript/2021/06/20210613-1091567.md)
-
-[郭文贵2021年6月12日盖特 20210612_2尊敬的战友们好．美国司法部全面介入调查，2020年美国总统大选！和美国司法部公诉孟建柱的私生子刘特左．将对在美国潜伏的特务网．吴争……韦石……等．开始全面司法机调查．中南坑老杂毛](/content/transcript/2021/06/20210612-1091498.md)
-
-[郭文贵2021年6月12日直播 20210612_1新盖特，盖特Pay将是全球的领导者；爆料革命不要急功近利，任何时候都要无我；爆料革命，新中国联邦，法治基金，将永远在我们的生命之上，成为我们的信仰！](/content/transcript/2021/06/20210612-1091549.md)
-
-[郭文贵2021年6月11日盖特 20210611_1尊敬的战友们好！回应战友们！这几天给我发的信息．有关路德访谈和科学家访谈！当中的一系列的不好的感觉！我们一定要记住，唯真不破．知恩感恩的．爆料革命团结是一切根本性的原则！只](/content/transcript/2021/06/20210611-1091536.md)
-
-[郭文贵2021年6月10日盖特 20210610_1今天上午10:30在国会山询问关于闫博士来美国，以及他给美国政府的报告的有关事情！说明了什么？新中国联邦和爆料革命走到今天实在实在太不容易，无数个背后的伟大的．有巨大成功的影响力的](/content/transcript/2021/06/20210610-1091530.md)
-
-[郭文贵2021年6月9日盖特 20210609_1尊敬的战友们好！复旦．南京等地区爆发的一系列的抗议事件．和在中共国的国内发生一系列的残暴杀人……都是共产党奴隶抢夺和非法统治中国人民必然发生的一个轮回的结果，欧中协议失败和](/content/transcript/2021/06/20210609-1091526.md)
-
-
-## 頁面 26/111 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 26/112 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 79/111 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 79/112 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年6月20日视频 20190620王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-1093305.md)
+
+[2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-1098085.md)
+
+[郭文贵2019年6月18日视频 20190618关于6月21日的再次示威行动](/content/transcript/2019/06/20190618-1093300.md)
+
+[2019年6月18日文贵纽约时间晚上8点直播全文字版：关于香港21日再次上街](/content/transcript/2019/06/20190618-1098084.md)
+
+[郭文贵2019年6月17日视频 20190617支持香港反送中抗议](/content/transcript/2019/06/20190617-1093290.md)
+
+[香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》](/content/transcript/2019/06/20190617-1098092.md)
+
+[郭文贵2019年6月16日视频 20190616_1在深圳珠海，香港中资大楼里的解放军埋伏．并没有撒啊，共产党正在何机破坏……制造社会动乱，栽赃香港人](/content/transcript/2019/06/20190616-1089263.md)
+
+[2019年6月16日直播全文字版：文贵如何看共产党在香港耍诈、使狠](/content/transcript/2019/06/20190616-1098091.md)
+
+[郭文贵2019年6月15日视频 20190615郭先生緊急喊話香港616必須上街](/content/transcript/2019/06/20190615-1093270.md)
+
+[郭文贵2019年6月14日 20190614林郑月娥提出辞职，取消”逃犯条例”；叶刘淑仪提出硬挺通过”逃犯条例”](/content/transcript/2019/06/20190614-1093261.md)
+
+[2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”](/content/transcript/2019/06/20190614-1098081.md)
 
 [郭文贵2019年6月13日视频 20190613_5测试细丝和庄烈宏](/content/transcript/2019/06/20190613-1088596.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”](/content/transcript/2019/06/20190610-1089216.md)
 
-[郭文贵2019年6月10日视频 20190610_3细思小哥在喜马拉雅大使馆与小庄、文贵和班农直播](/content/transcript/2019/06/20190610-1089242.md)
 
-[郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？](/content/transcript/2019/06/20190610-1093045.md)
-
-[郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！](/content/transcript/2019/06/20190609-1092646.md)
-
-[郭文贵2019年6月9日直播 20190609_2班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播中部分！](/content/transcript/2019/06/20190609-1092693.md)
-
-[郭文贵2019年6月9日直播 20190609_3班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播](/content/transcript/2019/06/20190609-1092822.md)
-
-[郭文贵2019年6月8日视频 20190608_2大家看看這些設備都不如路德先生的一個手指頭 中國人的智慧太沒問題了](/content/transcript/2019/06/20190608-1089199.md)
-
-[郭文贵2019年6月8日视频 20190608香港6.9上街若能持续几天彻底改变香港](/content/transcript/2019/06/20190608-1093041.md)
-
-[郭文贵2019年6月7日视频 20190607香港的事真搞大了](/content/transcript/2019/06/20190607-1093037.md)
-
-[郭文贵2019年6月5日视频 20190605庞皮奥的讲话与香港6.9日大游行……](/content/transcript/2019/06/20190605-1093029.md)
-
-[郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街](/content/transcript/2019/06/20190603-1089197.md)
-
-[郭文贵2019年6月2日谈林郑卖港 20190602班农与郭文贵谈林郑卖港、6月4日新中国建国日、欧洲反共革命](/content/transcript/2019/06/20190602-1093021.md)
-
-
-## 頁面 79/111 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 79/112 [**<**](/content/transcript/README-78.md) [1](/content/transcript/README.md) ... [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) **79** [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-80.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 28/111 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 28/112 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年6月2日盖特 20210602_1尊敬的战友们好，为了报复新中国联邦一周年……老杂毛们制定了九项反击政策。美国所谓的主流媒体黑谣我们．和在中共国拍卖方式抢夺方正证券股票！以及尝试对我们放毒攻击我们的科学家和](/content/transcript/2021/06/20210602-1091494.md)
+
+[郭文贵2021年6月1日盖特 20210601_1看着战友来到曼哈顿相聚！七哥冰火两重天的感受！英雄在共产党以一国之力要阻止上线！他们能成功吗？我们新中国联邦人要建设的新中国的标准是什么？](/content/transcript/2021/06/20210601-1091483.md)
+
+[郭文贵2021年6月1日盖特 20210601_2七哥不能和战友见面，后果很严重，决定干点坏事儿．报复一下厨房！](/content/transcript/2021/06/20210601-1091484.md)
+
+[郭文贵2021年6月1日盖特 20210601_3不能和战友们相见……憋得难受，遛SNOW 玩玩儿……](/content/transcript/2021/06/20210601-1091488.md)
+
+[郭文贵2021年6月1日盖特 20210601_4为新中国联盟一周年．庆祝的郭氏烧鸡准备好啦……](/content/transcript/2021/06/20210601-1091489.md)
+
+[郭文贵2021年5月31日盖特 20210531_1尊敬的战友们好！以毒灭共已和共产党的垂死挣扎……会形成非常有趣的国际政治现象。世界经济的好坏．决定了共产党灭亡的速度……新中国联邦一周年的重大意义，就是让所有的中国人来共同](/content/transcript/2021/05/20210531-1091481.md)
+
+[郭文贵2021年5月30日直播 20210530_1欧中协议被冻结的重大意义；中共将被WTO，世界银行，IMF踢出；法国情报局曝出孟宏伟被消失的真相；欧美通过香港P3实验室向中共提供资金；中共将彻底灭亡于2024，2025](/content/transcript/2021/05/20210530-1091477.md)
+
+[郭文贵2021年5月29日盖特 20210529_1尊敬的战友们好，我们一定要认真严肃．看清楚，我们人生当中所面临的共产党灭亡前．一切一切的必将发生了灾难。我们每个人都应该让自己的家人．和朋友．躲过这些灾难．帮助那些困顿之中](/content/transcript/2021/05/20210529-1091449.md)
+
+[郭文贵2021年5月29日盖特 20210529_2尊敬的战友们好！全人类都面临着．共产党倒闭……引起的世界的政治动荡，战争带来的不可确定性的毁灭和伤害，美国及世界经济的灾难．必将到来．所造成的不可估量的影响，以及人类货币．](/content/transcript/2021/05/20210529-1091453.md)
+
+[郭文贵2021年5月29日盖特 20210529_3尊敬的菜弄好应很多专业的要求发一个Snow 的视频！](/content/transcript/2021/05/20210529-1091454.md)
+
+[郭文贵2021年5月29日盖特 20210529_47哥边开会边做着我们山东莘县的古城郭氏烧鸡．这是我小时候最想吃的最爱吃的，我老家古城的郭氏烧鸡！我会将共产党如同楚，这个机一样，慢慢地将它们煮熟煮透……而且要程序化的耐心的将](/content/transcript/2021/05/20210529-1091456.md)
 
 [郭文贵2021年5月28日盖特 20210528_1尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！](/content/transcript/2021/05/20210528-1091447.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年5月22日盖特 20210522_1尊敬的战友的好！共产党的流氓统治极权！正在被全世界正义的力量围缫中！每天每时每刻都在加速共产党这个流氓体制．政权的灭亡！我们的爆料革命和新中国联邦！应该做更多的实际行动，唤](/content/transcript/2021/05/20210522-1091368.md)
 
-[郭文贵2021年5月22日盖特 20210522_2今天的真人真事节目．代表了新中国联邦的现在……新中国联邦的未来……的两个不同年龄代别的具体的一个缩影。新中国联邦人每一步的成功．都是背后，无数个无名的战友的奉献．今天的成功](/content/transcript/2021/05/20210522-1091370.md)
 
-[郭文贵2021年5月21日盖特 20210521_1尊敬的战友们好，为什么在这短短的一两周内世界经济，政治，军事科学．教育各个领域．都突然的统一迅速的。在转向灭共．反共呢？为什么那么多世界上曾经否定我们的科学家的报告的人，现](/content/transcript/2021/05/20210521-1091354.md)
-
-[郭文贵2021年5月21日直播 20210521_2为新中国联邦一周年平安顺利进行．到纽约自由女神祈福](/content/transcript/2021/05/20210521-1091363.md)
-
-[郭文贵2021年5月20日盖特 20210520_2尊敬的战友们好！共产党刚刚制定了新一波．有杨娘娘．王公公．主持的攻击，新中国联邦．爆料革命的计划．文贵在这里向大家分享！](/content/transcript/2021/05/20210520-1091342.md)
-
-[郭文贵2021年5月20日盖特 20210520_3没有什么七哥一年前敢保证欧中贸易协议一定会被干掉？为什么美国突然有这么多投资，中共的大佬们迅速在中共撤回和撤资？为什么共匪敢公开反犹太民族？](/content/transcript/2021/05/20210520-1091346.md)
-
-[郭文贵2021年5月20日盖特 20210520_4感谢很多战友．对文贵昨天．试吃拉肚子的关心．和很多战友对虚拟货币．发生的这些灾难性事件·文贵的一些看法！](/content/transcript/2021/05/20210520-1091350.md)
-
-[郭文贵2021年5月20日直播 20210520_1世贸中心试吃新中国联邦一周年的食物](/content/transcript/2021/05/20210520-1091421.md)
-
-[郭文贵2021年5月19日直播 20210519_1谈西方媒体的傲慢，贪婪，暴力，绑架法律；远离中共操纵的“比震“；文贵发起“躺平”币计划](/content/transcript/2021/05/20210519-1091397.md)
-
-[郭文贵2021年5月18日盖特 20210518_1尊敬的战友们好．今天的盖特提前来了啊……](/content/transcript/2021/05/20210518-1091375.md)
-
-[郭文贵2021年5月18日盖特 20210518_2从早晨6:00到现在，基本上没有吃任何东西．开了一整天的会和采访，但是还是要锻炼．不要给自己任何理由放弃自己的目标……和背叛自己的承诺！](/content/transcript/2021/05/20210518-1091377.md)
-
-[郭文贵2021年5月18日盖特 20210518_3第三次兄弟姐妹们，这个看上去容易的锻炼模式……非常非常的艰难，非常非常的危险．千万千万不要模仿．务必注意自己的身体安全第一！科学锻炼．才能达到，我们健身强心的目的！](/content/transcript/2021/05/20210518-1091381.md)
-
-
-## 頁面 28/111 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 28/112 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

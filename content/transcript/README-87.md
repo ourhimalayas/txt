@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 87/111 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 87/112 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年12月29日谈马建案 20181229接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/transcript/2018/12/20181229-1092019.md)
+
+[郭文贵2018年12月28日视频 20181228_1昨天晚上两位老领导打电话给我让我当俊杰说我身边有千军万马在等命令随时灭我我好怕怕哦](/content/transcript/2018/12/20181228-1088973.md)
+
+[郭文贵2018年12月27日视频 20181227 原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！](/content/transcript/2018/12/20181227-1091983.md)
+
+[郭文贵2018年12月26日视频 20181226_1辽宁沈阳对罚款600亿人民币维持原判．限期30天内交罚款！文贵的三个压力二个高兴！](/content/transcript/2018/12/20181226-1088972.md)
+
+[郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐](/content/transcript/2018/12/20181224-1088969.md)
+
+[郭文贵2018年12月23日视频 20181223_1我们这两天加班，完成了对Sam Nunberg 和吴征的重新起诉，索赔，这是个大事！媒体高度关注！](/content/transcript/2018/12/20181223-1088965.md)
+
+[郭文贵2018年12月22日视频 20181222_2我與Snow和大家聊聊天](/content/transcript/2018/12/20181222-1088962.md)
+
+[郭文贵2018年12月22日直播 20181222谈中美两国夫妻关系及刘特佐是否会被孟建柱做掉 共产党在香港所谓的商政双轨制的控制手段](/content/transcript/2018/12/20181222-1091968.md)
+
+[郭文贵2018年12月21日视频 20181221_1昨天美國司法部的行動還不是特別大的事 大事還沒開始呢 明年三月才開始 那時候可就不是亂扔刀叉這個級別的了](/content/transcript/2018/12/20181221-1088961.md)
+
+[郭文贵2018年12月20日视频 20181220要對你的嫂子好 對你的弟妹好 你的運氣才會好](/content/transcript/2018/12/20181220-1094208.md)
+
+[郭文贵2018年12月19日视频 20181219改革開放40年大會確定要往回走 大家準備吃草吧](/content/transcript/2018/12/20181219-1094206.md)
 
 [郭文贵2018年12月18日视频 20181218_1某部門已開始對過去在網路上造我的謠的人那個那個那個](/content/transcript/2018/12/20181218-1088936.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2018年12月2日视频 20181202杨澜找钥匙和G20会议的背后真相，开棺验王健的尸，谈谈王岐山，孟建柱，吴征。](/content/transcript/2018/12/20181202-1087653.md)
 
-[郭文贵2018年11月29日视频 20181129郭戰裝到了](/content/transcript/2018/11/20181129-1094422.md)
 
-[郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了](/content/transcript/2018/11/20181128-1089063.md)
-
-[郭文贵2018年11月27日视频 20181127_2](/content/transcript/2018/11/20181127-1089060.md)
-
-[郭文贵2018年11月27日视频 20181127华盛顿报平安直播](/content/transcript/2018/11/20181127-1093479.md)
-
-[郭文贵2018年11月26日视频 20181126_1马上就要起飞????去几个智库去演讲！会后再向战友们汇报！一切都是刚刚开始](/content/transcript/2018/11/20181126-1089059.md)
-
-[郭文贵2018年11月25日视频 20181125_1](/content/transcript/2018/11/20181125-1089053.md)
-
-[郭文贵2018年11月25日视频 20181125_2](/content/transcript/2018/11/20181125-1089055.md)
-
-[郭文贵2018年11月25日视频 20181125_3](/content/transcript/2018/11/20181125-1089057.md)
-
-[郭文贵2018年11月24日视频 20181124_1](/content/transcript/2018/11/20181124-1089050.md)
-
-[郭文贵2018年11月22日视频 20181122_1应很多战友的要求．录一个SNOW小视频！祝大家感恩节快乐！](/content/transcript/2018/11/20181122-1089048.md)
-
-[郭文贵2018年11月21日视频 20181121丢掉放弃幻想，只要共产党存在一天我们就没有安全之日... 亲人员工们忘掉过去的文贵吧，现在的文贵，是承负着上天的使命和十四亿人民对我的寄托，我不能只为你们活着](/content/transcript/2018/11/20181121-1092849.md)
-
-
-## 頁面 87/111 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 87/112 [**<**](/content/transcript/README-86.md) [1](/content/transcript/README.md) ... [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) **87** [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-88.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 7/111 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 7/112 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2022年4月18日盖特 20220418_1尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！](/content/transcript/2022/04/20220418-1091692.md)
+
+[郭文贵2022年4月17日直播 20220417_1七哥来啦](/content/transcript/2022/04/20220417-1090964.md)
+
+[郭文贵2022年4月17日盖特 20220417_2尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！](/content/transcript/2022/04/20220417-1091688.md)
+
+[郭文贵2022年4月16日直播 20220416_17哥乱聊直播](/content/transcript/2022/04/20220416-1090941.md)
+
+[郭文贵2022年4月15日直播 20220415_1文贵乱聊直播](/content/transcript/2022/04/20220415-1090928.md)
+
+[郭文贵2022年4月14日直播 20220414_1七哥乱聊直播第一段](/content/transcript/2022/04/20220414-1090887.md)
+
+[郭文贵2022年4月14日直播 20220414_2七哥乱聊直播第二段](/content/transcript/2022/04/20220414-1090896.md)
+
+[郭文贵2022年4月14日直播 20220414_3七哥乱聊直播第三段](/content/transcript/2022/04/20220414-1090914.md)
+
+[郭文贵2022年4月13日盖特 20220413_1尊敬的战友们好，俄乌战争……给中国人民……和世界人民．带来了千载难逢的机会，消灭马克思主义……彻底的消灭社会主义的伟大机会！](/content/transcript/2022/04/20220413-1091680.md)
+
+[郭文贵2022年4月13日盖特 20220413_2尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉????????????????????????????????????????明天上午我会抽时间直播半小时左右，一切都已经开始！](/content/transcript/2022/04/20220413-1091683.md)
+
+[郭文贵2022年4月12日盖特 20220412_1尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！](/content/transcript/2022/04/20220412-1091678.md)
 
 [郭文贵2022年4月11日直播 20220411_1试试直播](/content/transcript/2022/04/20220411-1090879.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2022年3月27日直播 20220327_1世界政治地域文化经济彻底改变；美国点明俄国非西方敌人普京是；从普京必须离开看习近平的命运；GClubs年会显天意人心遥相呼应](/content/transcript/2022/03/20220327-1091315.md)
 
-[郭文贵2022年3月26日直播 20220326_1G CLUB2022年年会](/content/transcript/2022/03/20220326-1091221.md)
 
-[郭文贵2022年3月25日直播 20220325_1从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易](/content/transcript/2022/03/20220325-1091067.md)
-
-[郭文贵2022年3月24日盖特 20220324_1尊敬的战友们好……共产党就面临着全球经济脱钩．次级经济制裁……官员资产被查封的灾难时刻到来！共产党你玩啦！](/content/transcript/2022/03/20220324-1090688.md)
-
-[郭文贵2022年3月23日直播 20220323_1俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难](/content/transcript/2022/03/20220323-1090983.md)
-
-[郭文贵2022年3月22日盖特 20220322_1尊敬的战友们好．世界经济大战……粮食大战……已经前面开始！](/content/transcript/2022/03/20220322-1090687.md)
-
-[郭文贵2022年3月21日盖特 20220321_1尊敬的战友们好．俄乌战争的救援……每时每刻．都为中国人在海外的安全奇形象增光添彩！共产党的经济和国际关系！即将崩塌。新中国联邦人一定要抓住这个机会，建立一个新的世界上的正面](/content/transcript/2022/03/20220321-1090684.md)
-
-[郭文贵2022年3月20日直播 20220320_1俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势](/content/transcript/2022/03/20220320-1090900.md)
-
-[郭文贵2022年3月19日盖特 20220319_1尊敬的战友们好中共内战．外战的大戏即将开始！](/content/transcript/2022/03/20220319-1090678.md)
-
-[郭文贵2022年3月18日盖特 20220318_2尊敬的战友们好……共产党和俄罗斯的生死相依的关系什么时候完球蛋！世界的经济危机什么时候是最坏的时候？香港病毒的感染率，和死亡率．成了世界之谜！](/content/transcript/2022/03/20220318-1090670.md)
-
-[郭文贵2022年3月18日盖特 20220318_3尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！](/content/transcript/2022/03/20220318-1090675.md)
-
-[郭文贵2022年3月18日直播 20220318_1](/content/transcript/2022/03/20220318-1090829.md)
-
-
-## 頁面 7/111 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 7/112 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)

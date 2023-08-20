@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 2/111 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-3.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 2/112 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-3.md) [查看全部](/content/transcript/README-all.md)
 
 [2023年1月27日郭先生盖特精粹](/content/transcript/2023/01/20230127-1098179.md)
 
@@ -54,4 +54,4 @@
 [2022年12月6日 文贵先生父亲离世公告视频《全文字版》](/content/transcript/2022/12/20221206-1098112.md)
 
 
-## 頁面 2/111 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-3.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 2/112 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-3.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 25/111 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 25/112 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年7月17日盖特 20210717_1尊敬的战友们好．新中国联邦灭共后．未来最大的挑战之一……就是让中国人有基本的辨别善恶的能力。 共产党的内部的政治斗争……已经到了最后的阶段……准备好中南城的老杂毛们……随时给](/content/transcript/2021/07/20210717-1091821.md)
+
+[郭文贵2021年7月16日直播 20210716_1从近几天发生的一系列事件来看．我们爆料革命升级的一个契机](/content/transcript/2021/07/20210716-1091769.md)
+
+[郭文贵2021年7月16日盖特 20210716_2尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？](/content/transcript/2021/07/20210716-1091818.md)
+
+[郭文贵2021年7月15日直播 20210715_1人民币国际化是中共的金融陷阱，货币炸弹；人民币一毛不值，换成外汇才是自己的钱；亡腚缸，蛇妖闫重新回到流浪狗](/content/transcript/2021/07/20210715-1091748.md)
+
+[郭文贵2021年7月14日直播 20210714_1蛇妖闫，骗子王腚肛自爆，这是上天的安排；已经对他们采取法律行动，全面追责反击；新中国联邦在7月4号后已发生质的改变，接下来的90天将有灭共的重大事件发生](/content/transcript/2021/07/20210714-1091733.md)
+
+[郭文贵2021年7月14日盖特 20210714_2尊敬的战友们好，你们健身了吗？传播CCP病毒．香港危机真相了吗？一切都已经开始！](/content/transcript/2021/07/20210714-1091754.md)
+
+[郭文贵2021年7月13日盖特 20210713_1七哥感觉不孬……战友们想不想明天上午看七哥直播呢](/content/transcript/2021/07/20210713-1091753.md)
+
+[郭文贵2021年7月10日盖特 20210710_1文贵向兄弟姐妹们报平安，明天没办法直播，给所有的兄弟姐妹们战友们抱歉！不能直播太痛苦了……](/content/transcript/2021/07/20210710-1091750.md)
+
+[郭文贵2021年7月9日盖特 20210709_1尊敬的战友好，你们健身了吗？你们传播学C CP病毒香港危机的真相了吗？感谢战友们对七哥身体的关心！](/content/transcript/2021/07/20210709-1091668.md)
+
+[郭文贵2021年7月9日盖特 20210709_2感拜自由女神．新中国联邦的自由女神](/content/transcript/2021/07/20210709-1091697.md)
+
+[郭文贵2021年7月8日直播 20210708_1在新办公室迎接Q妹，正义小Sara等战友](/content/transcript/2021/07/20210708-1091665.md)
 
 [郭文贵2021年7月7日盖特 20210707_1尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？国内的金融．上市．银行．企业．国际大玩家纷纷倒闭……接下来将发生什么样的事情呢？](/content/transcript/2021/07/20210707-1091669.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年7月1日直播 20210701_1终结中国百年杀戮](/content/transcript/2021/07/20210701-1091722.md)
 
-[郭文贵2021年6月30日直播 20210630_1共产党的百年冥诞．将彻底的扭转中国人的命运……和明天7月1号我们的一整天的直播．全世界的被共产主义杀害的人们正在紧紧地联合起来．将选择最快的方式消灭中国共产党！](/content/transcript/2021/06/20210630-1091651.md)
 
-[郭文贵2021年6月29日直播 20210629_1共产党你完了百年冥诞的恐惧即将崩溃的经济．和世界对共产党的病毒追责．你共产党还会有明天吗？](/content/transcript/2021/06/20210629-1091639.md)
-
-[郭文贵2021年6月28日直播 20210628_1森林深处．与英俊漂亮的战友们连线试试直播……](/content/transcript/2021/06/20210628-1091628.md)
-
-[郭文贵2021年6月28日盖特 20210628_2尊敬的战友们好，在香港和北京发生的大爆炸，死了很多人，为什么共产党要掩盖这些真相呢？](/content/transcript/2021/06/20210628-1091637.md)
-
-[郭文贵2021年6月28日盖特 20210628_3七哥和約翰哥哥討論蓋特功能改善](/content/transcript/2021/06/20210628-1091708.md)
-
-[郭文贵2021年6月27日直播 20210627_1文贵对国内战友的经济警告：国内金融机构即将崩塌，战友们要做好准备，但不要屯粮！共产党所谓的“百年大庆”，是百年作恶，百年屈辱，共产党彻底完了！](/content/transcript/2021/06/20210627-1091611.md)
-
-[郭文贵2021年6月27日盖特 20210627_2鸳鸯饼鸳鸯饼来喽……](/content/transcript/2021/06/20210627-1091634.md)
-
-[郭文贵2021年6月26日盖特 20210626_1大连和香港所谓被侦破的……破坏共匪百年冥寿……案件是怎么一回事？](/content/transcript/2021/06/20210626-1091630.md)
-
-[郭文贵2021年6月26日盖特 20210626_2尊敬的兄弟姐妹们好，我常用的那个手机号又被黑了，请战友们互相通告，尽快加上我的新的联系方式！](/content/transcript/2021/06/20210626-1091633.md)
-
-[郭文贵2021年6月25日直播 20210625_1国际形势已发生重大变化；西方对华人看法的改变；西方在南海有统一行动；一旦病毒来源确定，将对中南坑直接斩首！](/content/transcript/2021/06/20210625-1091580.md)
-
-[郭文贵2021年6月24日盖特 20210624_1尊敬的战友们好……共产党的内部斗争，加速了侵略台湾的可能！新中国联邦……绝对不能成为自私投机贪婪人的发财平台！](/content/transcript/2021/06/20210624-1091592.md)
-
-
-## 頁面 25/111 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 25/112 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

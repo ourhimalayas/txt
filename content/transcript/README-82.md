@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 82/111 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 82/112 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年5月2日视频 20190502霍尔木兹海峡决定灭共是否成功 毛泽东，邓小平，妈祖．给我托梦了．人民大会堂委内瑞拉，台湾香港要出大事儿．郭台铭的梦是假的，哈哈哈哈，一切都是刚刚开始。](/content/transcript/2019/05/20190502-1092978.md)
+
+[郭文贵2019年5月1日委内瑞拉革命 20190501从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/content/transcript/2019/05/20190501-1092973.md)
+
+[郭文贵2019年4月30日视频 20190430Miles reporting safety, ROL Foundation’s iphone incident](/content/transcript/2019/04/20190430-1092964.md)
+
+[郭文贵2019年4月29日 20190429_2（2）台湾．香港．将是灭共的重要之地](/content/transcript/2019/04/20190429-1088623.md)
+
+[郭文贵2019年4月29日 20190429台湾．香港．将是灭共的重要之地……谷畜生侮骂一亿河南同胞必须受惩罚！](/content/transcript/2019/04/20190429-1092960.md)
+
+[郭文贵2019年4月28日视频 20190428_1我家就是全世界最敏感的地方](/content/transcript/2019/04/20190428-1089195.md)
+
+[郭文贵2019年4月27日视频 20190427_2-(文貴完整版) 文贵、班农、路德直播：班农先生谈关于当前委的众多问题? 文貴談当前委在美国有什么重要影响力？揭露一带一路的本质](/content/transcript/2019/04/20190427-1089168.md)
+
+[郭文贵2019年4月27日视频 20190427_3在喜马拉雅大使馆和文贵先生直播，信息量大！千万不要错过！](/content/transcript/2019/04/20190427-1089192.md)
+
+[郭文贵2019年4月27日路德和班农访谈 20190427livstream 实时转播](/content/transcript/2019/04/20190427-1092948.md)
+
+[郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊](/content/transcript/2019/04/20190426-1089160.md)
+
+[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）](/content/transcript/2019/04/20190425-1089155.md)
 
 [郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！](/content/transcript/2019/04/20190424-1092894.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展](/content/transcript/2019/04/20190416-1092824.md)
 
-[郭文贵2019年4月15日第二次直播 20190415_2接下来的爆料有些会是让人无法接受的……人性丑恶行为！＂世上有些人的恶已经超过魔鬼????＂与共产党一起的任何人任何事情都比妖怪还要让人憎恶……](/content/transcript/2019/04/20190415-1092809.md)
 
-[郭文贵2019年4月15日第一次直播 20190415_1下午三点！显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！一切都是刚刚开始！](/content/transcript/2019/04/20190415-1092813.md)
-
-[郭文贵2019年4月13日第三次直播 20190413_3给战友们的四条建议！紧急通知，战友必看！](/content/transcript/2019/04/20190413-1092773.md)
-
-[郭文贵2019年4月13日第二次直播 20190413_2郭文贵直播谈盗国贼的财富以及这周发生的大事！ 江家集团在中国的实际实力和未来的下场！](/content/transcript/2019/04/20190413-1092781.md)
-
-[郭文贵2019年4月13日第一次直播 20190413_1什么叫蓝通？为什么刘鹤将遣返爆料战友等21人作为中美贸易交易的条件！](/content/transcript/2019/04/20190413-1092800.md)
-
-[郭文贵2019年4月11日视频 20190411_1谈谈美国和欧洲接下来的联合行动！再谈谈在伦敦被抓朴的阿桑奇和当前危机委员会！](/content/transcript/2019/04/20190411-1089103.md)
-
-[郭文贵2019年4月10日视频 20190410_1 很多战友发给我说Larry King还有俄罗斯美女Dolgva Anastasia又开始找我们事了……造我们谣了，还有很多基金打电话取消跟我的合作！](/content/transcript/2019/04/20190410-1089095.md)
-
-[郭文贵2019年4月10日视频 20190410_2所谓的美国名主持Larry King与俄罗斯美女Dolgva Anastasia造谣文贵的事情．还在进一步的确定详细的信息中，律师建议咱不能就有关问题直播](/content/transcript/2019/04/20190410-1089097.md)
-
-[郭文贵2019年4月9日视频 20190409_2现在向战友们分享喜马拉雅大使馆内部的法制基金的办公室的一小部分．战友餐厅．以及法制基金的办公区](/content/transcript/2019/04/20190409-1089091.md)
-
-[郭文贵2019年4月9日视频 20190409谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事！](/content/transcript/2019/04/20190409-1092767.md)
-
-[郭文贵2019年4月7日视频 20190407美．欧．日．等将对中资国营．香港自贸协定．中共及香港官员的一系列的立法制栽．或调查．或列入黑名单．行动．将是中共灭亡的第一步！](/content/transcript/2019/04/20190407-1092765.md)
-
-
-## 頁面 82/111 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 82/112 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

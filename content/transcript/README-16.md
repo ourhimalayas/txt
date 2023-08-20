@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 16/111 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 16/112 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年11月7日盖特 20211107_2尊敬的战友们好……工作了一整天，吃了好几顿饭非常的兴奋，一切都已经开始！](/content/transcript/2021/11/20211107-1094499.md)
+
+[郭文贵2021年11月6日盖特 20211106_1尊敬的战友们好．你们健身了吗？传播．C C P病毒．香港危机．疫苗解药的真相了吗？七哥今天一天都和DC来的朋友开会，就没有时间录长视频了……明天的大直播间！](/content/transcript/2021/11/20211106-1093748.md)
+
+[郭文贵2021年11月6日盖特 20211106_2尊敬的战友们好！正在努力加入喜联储开喜美元帐号，准备买喜币的战友们……一定准确快速正确的聪明的准备好KYC的有关材料，这是关键的关键！](/content/transcript/2021/11/20211106-1093751.md)
+
+[郭文贵2021年11月5日直播 20211105_1危机中的财富与财富中的危机；投资，投机，投票权的关系；喜币价格涨的真实性，公平性，对比香港恒生指数的虚假；无知无善，一定要付出法律的代价](/content/transcript/2021/11/20211105-1093492.md)
+
+[郭文贵2021年11月5日盖特 20211105_2尊敬的战友们好，今天星期五的大直播前．提前锻炼，因为今天没有时间锻炼了……任何情况下都不要给自己的承诺．和目标．找任何借口放弃！一切都已经开始！](/content/transcript/2021/11/20211105-1093550.md)
+
+[郭文贵2021年11月5日盖特直播 20211105_3浪漫不需要安排，真诚恒久远。](/content/transcript/2021/11/20211105-1093617.md)
+
+[郭文贵2021年11月5日盖特直播 20211105_4再续直播](/content/transcript/2021/11/20211105-1093745.md)
+
+[郭文贵2021年11月4日盖特 20211104_1尊敬的战友们好！你们健身了吗？传播CCP病毒，香港灾难和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/11/20211104-1093549.md)
+
+[郭文贵2021年11月3日直播 20211103_1彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选](/content/transcript/2021/11/20211103-1094164.md)
+
+[郭文贵2021年11月2日盖特 20211102_1尊敬的战友们好！永远不要忘了灭共是我们的最终使命！建立一个让中国有独立的法治……信仰的自由．民主的社会的新中国联邦共和国，是我们的信仰，和必须实现的目标，一切都已经开始！](/content/transcript/2021/11/20211102-1093543.md)
+
+[郭文贵2021年11月2日盖特直播 20211102_2](/content/transcript/2021/11/20211102-1093546.md)
 
 [郭文贵2021年11月1日直播 20211101_1“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](/content/transcript/2021/11/20211101-1093905.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年10月26日盖特 20211026_4椒麻鸡来啦……](/content/transcript/2021/10/20211026-1093616.md)
 
-[郭文贵2021年10月26日盖特 20211026_5太好吃了????](/content/transcript/2021/10/20211026-1093621.md)
 
-[郭文贵2021年10月24日直播 20211024_1与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远](/content/transcript/2021/10/20211024-1093490.md)
-
-[郭文贵2021年10月24日盖特 20211024_2绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？](/content/transcript/2021/10/20211024-1093608.md)
-
-[郭文贵2021年10月23日盖特 20211023_1尊敬的战友们好．太多战友发来各种信息，文贵确实无法一一回复，有些问题等明天24号上午9:00的与战友们的大直播中，回答亲爱的兄弟姐妹们……一切都已经开始！](/content/transcript/2021/10/20211023-1093603.md)
-
-[郭文贵2021年10月22日直播 20211022_1马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的](/content/transcript/2021/10/20211022-1093414.md)
-
-[郭文贵2021年10月21日盖特 20211021_1尊敬的战友们好……虚拟货币时代的到来……和世界经济的危机……将诞生新的金融体系和金融帝国。共产党的内部的斗争腥风血雨，随时出大事儿。](/content/transcript/2021/10/20211021-1093596.md)
-
-[郭文贵2021年10月20日直播 20211020_2真人真事 采访 郭先生](/content/transcript/2021/10/20211020-1090189.md)
-
-[郭文贵2021年10月20日直播 20211020_1喜币是最真实干净的革命性货币，喜支付的商业历史性意义；马云在被进行刑事调查时没有及时如实公告，马云在西班牙操纵股价，蔡中信的房子是马云的，他洗掉了马云75%的钱；江志城的投资都](/content/transcript/2021/10/20211020-1093606.md)
-
-[郭文贵2021年10月19日盖特 20211019_1尊敬的战友们好……杰克．马．去西班牙意味着什么？](/content/transcript/2021/10/20211019-1093698.md)
-
-[郭文贵2021年10月18日盖特 20211018_1神秘的世界不．神秘的人类，神秘的宇宙，有着无穷无尽的我们未知的力量，这事预义太大了????](/content/transcript/2021/10/20211018-1093647.md)
-
-[郭文贵2021年10月18日盖特直播 20211018_2直播测试](/content/transcript/2021/10/20211018-1093696.md)
-
-
-## 頁面 16/111 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 16/112 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)

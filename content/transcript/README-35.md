@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 35/111 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 35/112 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年3月12日盖特 20210312_1尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第一部分！](/content/transcript/2021/03/20210312-1090881.md)
+
+[郭文贵2021年3月12日盖特 20210312_2尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第二部分！](/content/transcript/2021/03/20210312-1090885.md)
+
+[郭文贵2021年3月12日盖特 20210312_3从四美女在GTV直播……看我们GTV的未来](/content/transcript/2021/03/20210312-1090889.md)
+
+[郭文贵2021年3月12日盖特 20210312_4在外面开会回来．文贵看到共产党病毒在西方世界……给中国人带来的负面影响，感到非常的恐惧和害怕，我们都要珍惜由爆料革命新中国联邦！为中国人在国际上打下这片天空！将共产党与共产](/content/transcript/2021/03/20210312-1090891.md)
+
+[郭文贵2021年3月11日盖特 20210311_1尊敬的战友们好！GTV可能被骇客的紧急通知！](/content/transcript/2021/03/20210311-1090862.md)
+
+[郭文贵2021年3月11日直播 20210311_2加拿大恢复正式农场；关于GTV投资者的解决方案；全球各农场要承担好服务战友的责任](/content/transcript/2021/03/20210311-1090874.md)
+
+[郭文贵2021年3月10日直播 20210310_1共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](/content/transcript/2021/03/20210310-1090858.md)
+
+[郭文贵2021年3月9日盖特 20210309_1尊敬的战友．同胞．无数个相信，共产党的人．自己的钱走进了共产党的金融火葬场……这是悲剧也是喜剧，这是贪婪与无知结合起来的必然的结果，一切都已经开始！](/content/transcript/2021/03/20210309-1090860.md)
+
+[郭文贵2021年3月8日直播 20210308_1文贵将在农历2月初二，即3月14号直播怀念母亲；各农场和联盟不要忘记灭共的使命；战友们要学会感恩；Gnews，GTV正飞速发展壮大，感谢义工的付出，希望更多战友加入](/content/transcript/2021/03/20210308-1090851.md)
+
+[郭文贵2021年3月7日盖特 20210307_1国际巨头 (鳄鱼????￼)投资基金．在对大陆的金融市场价值．风险全面调查后．决定将投入大陆的资金撤出，可能部分????????????投入到我们G系列！一切都已经开始！](/content/transcript/2021/03/20210307-1090848.md)
+
+[郭文贵2021年3月6日盖特 20210306_1尊敬的战友们好！文贵和大家聊聊。西方媒体的堕落的真正的本质……和对我们所有每个人的危害是什么？香港的董栽倒？和当年的邓痰￼倒．撒切尔夫人之间有什么样的关系？意味着什么？](/content/transcript/2021/03/20210306-1090846.md)
 
 [郭文贵2021年3月5日盖特 20210305_5尊敬的战友们好，我们会马上直播！](/content/transcript/2021/03/20210305-1089834.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年3月1日盖特 20210301_1尊敬的战友得好！稍后在今天稍晚的时间，我将有一个重要的公告，关于GTV将退还所有的13OO投资者椅的公告……我们不会妥协，也不会被任何机构玩弄……我们爆料革命的平台，只能．越来越强越](/content/transcript/2021/03/20210301-1090811.md)
 
-[郭文贵2021年2月28日盖特 20210228_1尊敬的战友们好！文贵正在尝试，让自己获得不高兴的心情，然后今天晚上在直播！文贵谈谈共产党的流氓文化……和把我们14亿中国人民不当猪狗的流氓逻辑](/content/transcript/2021/02/20210228-1090782.md)
 
-[郭文贵2021年2月28日直播 20210228_2为了确保战友的利益，文贵做出的最终决定，确保Ｇ系列控制权一定都在战友手中](/content/transcript/2021/02/20210228-1090801.md)
-
-[郭文贵2021年2月27日盖特 20210227_1即将崩溃的共产党的经济！和全世界联合以毒灭共的大时代的开启！最大的受益者，是新中国联邦和新中国联邦的中国人民](/content/transcript/2021/02/20210227-1090772.md)
-
-[郭文贵2021年2月27日盖特 20210227_2尊敬的战友们好！七哥边工作边在G-TV看大家的直播，战友们在G-TV上直播的质量大大提高。这就是新中国联邦人的素质和能力的体现GTV Genes 一定会成为灭共的利器……社交媒体的奇迹！](/content/transcript/2021/02/20210227-1090776.md)
-
-[郭文贵2021年2月26日直播 20210226_1新中国联邦的战友们元宵节最快乐！金灿荣的讲话印证了中共的灭白计划，武统台湾计划；北京两会背后，习王江的斗争](/content/transcript/2021/02/20210226-1090765.md)
-
-[郭文贵2021年2月26日盖特 20210226_2尊敬的兄弟姐妹好，元宵节快乐，这是七嫂子的，元宵节壮肾汤！鲅鱼饺子！视频版！](/content/transcript/2021/02/20210226-1090766.md)
-
-[郭文贵2021年2月26日盖特 20210226_32月26日，全球的灭共力量正在凝聚！在一起，以毒灭共．以钱灭共的大时代全面开启！](/content/transcript/2021/02/20210226-1090769.md)
-
-[郭文贵2021年2月25日盖特 20210225_1尊敬的战友们好……共产党马上快玩球蛋了……七哥也老了……](/content/transcript/2021/02/20210225-1090757.md)
-
-[郭文贵2021年2月25日盖特 20210225_2今天七哥和战友开玩笑撒娇说．七哥变老的视频，发出后，收到了无数战友对七哥哥……的健康的关心的信息.…文贵万分的感谢，只要真心灭共．就不会衰老，这是最好的长生不老的妙方](/content/transcript/2021/02/20210225-1090760.md)
-
-[郭文贵2021年2月24日直播 20210224_1美国沼泽地只能与新中国联邦合作；中共20大保江山，指定习的接班人；虚拟货币获得美国支付牌照的重大意义](/content/transcript/2021/02/20210224-1090751.md)
-
-[郭文贵2021年2月24日盖特 20210224_2国内的很多战友发的信息不能一一回信息——请大家原谅、以毒灭共．以钱灭共！正在全世界全面火热????开始……无人可以阻挡新中国联邦拯救中国人和世界人民的胜利✌️✌️✌️✌️✌️……](/content/transcript/2021/02/20210224-1090753.md)
-
-
-## 頁面 35/111 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 35/112 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 13/111 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 13/112 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年12月25日盖特 20211225_4尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211225-1093890.md)
+
+[郭文贵2021年12月25日盖特直播 20211225_5蒸馍馍](/content/transcript/2021/12/20211225-1093892.md)
+
+[郭文贵2021年12月25日盖特 20211225_6在今天这个特别的日子里． 当年的齐澳塞斯库就是在12月25号被枪毙的！原来共产主义的苏联也是在12月25号解体的……这是一个伟大的日子。七哥的厨艺大显身手……馍馍蒸熟啦……](/content/transcript/2021/12/20211225-1093895.md)
+
+[郭文贵2021年12月25日视频 20211225_1谁是郭文贵第一集;The story about the Terminator of CCP ;中国共产党终结者的故事](/content/transcript/2021/12/20211225-1094426.md)
+
+[郭文贵2021年12月25日直播 20211225_2????圣诞特别节目???? “爆二代”— 希望与力量](/content/transcript/2021/12/20211225-1094624.md)
+
+[郭文贵2021年12月24日视频 20211224_4Who is Miles Guo Episode 1 谁是郭文贵第一集;The story about the Terminator of CCP ;中国共产党终结者的故事](/content/transcript/2021/12/20211224-1089052.md)
+
+[郭文贵2021年12月24日盖特 20211224_2尊敬的战友们好！衷心地祝战友们及家人们平安夜开心快乐！永远永远的平安……但是是什么能让我们不平安呢？这是我们每个人在此时此刻，全世界人都不平安．都不健康的平安夜．必须要思考](/content/transcript/2021/12/20211224-1093884.md)
+
+[郭文贵2021年12月24日盖特 20211224_3衷心地祝愿全天下的所有的人……兄弟姐妹们．和家人们．圣诞节快乐????应很多很多战友要求．明天中午12:00到下午5:00或10点……7哥和25岁以下的爆二代战友们直播．庆祝圣诞????](/content/transcript/2021/12/20211224-1093886.md)
+
+[郭文贵2021年12月24日直播 20211224_1iTunes全球打榜记录- Hcoin To The Moon；HBO Vice记者采访背后的真相；疫苗灾难和新变种病毒Omicron的最新数据；最近几天香港股市、大陆股市、美国股市、全球经济有什么大的变化；最近两天冬奥会方面](/content/transcript/2021/12/20211224-1094414.md)
+
+[郭文贵2021年12月23日盖特 20211223_1尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视](/content/transcript/2021/12/20211223-1093881.md)
+
+[郭文贵2021年12月22日直播 20211222_1iTunes全球打榜记录- Hcoin To The Moon；中美之间会取消关税，Vice的报导在冬奥会之前帮助中共做的一场政治宣传，中国老百姓将付出巨大代价；莘县古城鸳鸯饼和河南胡辣汤；疫苗灾难的最新数据；彭](/content/transcript/2021/12/20211222-1094211.md)
 
 [郭文贵2021年12月22日视频 20211222_2关于郭文贵先生接受HBO Vice采访的背后真相](/content/transcript/2021/12/20211222-1094294.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年12月11日盖特 20211211_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211211-1094727.md)
 
-[郭文贵2021年12月10日直播 20211210_1全球各国抵制冬奥会；数字货币市场未来变化趋势；郭先生新歌Billboard数字歌曲销售排行榜一名；Hcoin To The Moon iTunes打榜记录；对准中共高层海外春节大行动](/content/transcript/2021/12/20211210-1093945.md)
 
-[郭文贵2021年12月8日直播 20211208_1拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；新中国联邦未来1-3年对准中共高层海外大行动](/content/transcript/2021/12/20211208-1093805.md)
-
-[郭文贵2021年12月7日盖特 20211207_1尊敬的战友们好，感谢全球亿万战友的关心，文贵的亲爹已经安顿下来啦……盘古的员工已经开始维权了……并很多人的救助……请大家放心！日久见人心，战友的牵挂和担心……和对我家人和我](/content/transcript/2021/12/20211207-1094719.md)
-
-[郭文贵2021年12月7日盖特 20211207_2尊敬的战友们好……全球的新中国联邦人……要准备好，在所有的国家了解共产党官员的在海外各国的资产，财产，亲人朋友的详细的资料，和当地的各国的政府合作，把这些王八蛋的爹和娘和他](/content/transcript/2021/12/20211207-1094724.md)
-
-[郭文贵2021年12月6日直播 20211206_1继文贵北京盘古家人再次被抄家后的直播](/content/transcript/2021/12/20211206-1093740.md)
-
-[郭文贵2021年12月5日直播 20211205_1全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](/content/transcript/2021/12/20211205-1093729.md)
-
-[郭文贵2021年12月4日盖特 20211204_1尊敬的战友们好，你们健身吗？传播C C P病毒疫苗解药的真相了吗？](/content/transcript/2021/12/20211204-1094717.md)
-
-[郭文贵2021年12月3日直播 20211203_1各国疫苗政策近况；国内疫苗政治，疫苗经济及疫苗灾难的最新消息；Omicron变异病毒在亚洲地区的进展；iTunes打榜记录- Hcoin To The Moon；美国世界经济变化；喜数字银行牌照及赌场牌照的意义](/content/transcript/2021/12/20211203-1094496.md)
-
-[郭文贵2021年12月1日直播 20211201_1Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](/content/transcript/2021/12/20211201-1094346.md)
-
-[郭文贵2021年11月30日直播 20211130_1健身直播](/content/transcript/2021/11/20211130-1094257.md)
-
-[郭文贵2021年11月29日盖特 20211129_1全世界的经济即将崩溃之时，随之而来的是社会动乱……政治危机，以及局域战争的开始……新中国联邦人要团结在一起，共同渡过这个人类的世纪大灾难！](/content/transcript/2021/11/20211129-1093668.md)
-
-
-## 頁面 13/111 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 13/112 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)

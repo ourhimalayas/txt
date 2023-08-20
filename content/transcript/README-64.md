@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 64/111 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 64/112 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年11月28日视频 20191128_1欺民賊又在撒謊 美國又不行了 到處是要飯的 這幫騙子](/content/transcript/2019/11/20191128-1089683.md)
+
+[郭文贵2019年11月28日视频 20191128_2文贵嗑瓜子等大事发生](/content/transcript/2019/11/20191128-1089684.md)
+
+[郭文贵2019年11月28日视频 20191128_3看看文贵在吃啥呢？咋子过感恩节里！与战友们分享感恩节的美食！](/content/transcript/2019/11/20191128-1089686.md)
+
+[郭文贵2019年11月27日视频 20191127_2香港有大陆法，信天主教和讲英文是高于台湾的原因](/content/transcript/2019/11/20191127-1089681.md)
+
+[郭文贵2019年11月27日 20191127再谈《香港人权与民主法案》,川普签署法案的前一分钟，中共仍在勾兑；CCP在疆狂杀滥捕甚于魔鬼](/content/transcript/2019/11/20191127-1094080.md)
+
+[郭文贵2019年11月26日 20191126文贵与比尔.戈兹喜马拉雅大使馆直播并谈新书](/content/transcript/2019/11/20191126-1094062.md)
+
+[郭文贵2019年11月25日视频 20191125_1出庭作證](/content/transcript/2019/11/20191125-1089678.md)
+
+[郭文贵2019年11月24日视频 20191124_2今天這個日子太重要了 大家都看到了 共產黨買票行賄控制威脅 甚麼手段都來](/content/transcript/2019/11/20191124-1089671.md)
+
+[郭文贵2019年11月24日视频 20191124_3为了庆祝香港区议会选举的伟大胜利，今天我们要做了家常菜来庆祝庆祝，一切都是刚刚开始](/content/transcript/2019/11/20191124-1089673.md)
+
+[郭文贵2019年11月24日视频 20191124_4 燉魚頭慶賀香港區議員選舉大贏](/content/transcript/2019/11/20191124-1089675.md)
+
+[郭文贵2019年11月24日 20191124马装助威香港公投选举议员](/content/transcript/2019/11/20191124-1093943.md)
 
 [郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界](/content/transcript/2019/11/20191123-1094161.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2019年11月18日视频 20191118_4香港的人权法案可能今天要通过了 你能擋得住嗎共產黨](/content/transcript/2019/11/20191118-1089657.md)
 
-[郭文贵2019年11月18日 20191118香港理工大事件的背后故事和王建到底是怎么死的！ part1 2](/content/transcript/2019/11/20191118-1093975.md)
 
-[2019年11月17日文贵大直播全文字版：对香港理工大学即将发生的人道危机提出的个人看法](/content/transcript/2019/11/20191117-1086589.md)
-
-[郭文贵2019年11月17日视频 20191117_2香港又有行动啦！香港的教堂要注意了，对教堂有行动，宗教设施，那几个教堂，我就不多说了啊](/content/transcript/2019/11/20191117-1089651.md)
-
-[郭文贵2019年11月17日 20191117对香港理工大学即将发生的人道危机提出的个人看法。](/content/transcript/2019/11/20191117-1094165.md)
-
-[2019年11月16日文贵大直播全文字版：报平安直播](/content/transcript/2019/11/20191116-1086585.md)
-
-[郭文贵2019年11月16日 20191116习近平讲话对香港有本质影响；建议香港的孩子们撤离](/content/transcript/2019/11/20191116-1093971.md)
-
-[2019年11月15日郭文贵直播建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 全文字版\n](/content/transcript/2019/11/20191115-1085770.md)
-
-[郭文贵2019年11月15日视频 20191115建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 文贵去华盛顿办大事；香港法案一定会过](/content/transcript/2019/11/20191115-1093968.md)
-
-[郭文贵2019年11月14日视频 20191114_3在勞斯萊斯上直播 戰友們關心香港的心情我能理解](/content/transcript/2019/11/20191114-1089649.md)
-
-[郭文贵2019年11月14日第二次直播 20191114_2香港一定赢！三分钟香港抗议实况](/content/transcript/2019/11/20191114-1093952.md)
-
-[郭文贵2019年11月14日第一次直播 20191114_1](/content/transcript/2019/11/20191114-1093958.md)
-
-
-## 頁面 64/111 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 64/112 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)

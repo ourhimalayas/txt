@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 84/111 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 84/112 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年3月2日视频 20190302_3与战友们分享媳妇刚刚组装的乐高越野赛车！](/content/transcript/2019/03/20190302-1089158.md)
+
+[郭文贵2019年3月2日 20190302和Sara,安红,路德,邱先生谈话](/content/transcript/2019/03/20190302-1092663.md)
+
+[郭文贵2019年2月28日视频 20190228_2应战友的要求做一组 俯卧撑视频！文贵这都是硬撑着装出来的！ 如果大家觉得还行啊，择机再做三组给大家．再撑三下，把郭3秒变成郭三组！](/content/transcript/2019/02/20190228-1089150.md)
+
+[郭文贵2019年2月28日视频 20190228_3政事这小哥你在哪？如果你把豆豆还给我们！我就送你一个乐高遥控车可以吗？请回复！请回复](/content/transcript/2019/02/20190228-1089153.md)
+
+[郭文贵2019年2月28日视频 20190228文贵报平安谈金正恩谈判的破裂和蓝标公司在美国犯罪的各种信息。](/content/transcript/2019/02/20190228-1092606.md)
+
+[郭文贵2019年2月27日视频 20190227一切都是天注定吗？习亡（于）岐山．民心向郭……这是十八大前的天命铁算！一切尽在佛意中！这是我们爆料革命的使命！](/content/transcript/2019/02/20190227-1092580.md)
+
+[郭文贵2019年2月26日视频 20190226谈谈法治基金和金正恩与川普团队的不同，一切都是刚刚开始！](/content/transcript/2019/02/20190226-1092564.md)
+
+[郭文贵2019年2月24日视频 20190224文贵谈，法治基金建立的真正目的。](/content/transcript/2019/02/20190224-1092543.md)
+
+[郭文贵2019年2月23日视频 20190223郭文贵和班农谈宗教革命：爆梵蒂冈与中共的交易](/content/transcript/2019/02/20190223-1092500.md)
+
+[郭文贵2019年2月22日直播 20190222_2连接调试](/content/transcript/2019/02/20190222-1088624.md)
+
+[郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情](/content/transcript/2019/02/20190222-1092426.md)
 
 [郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！](/content/transcript/2019/02/20190221-1092858.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2019年2月4日英文 20190204_1除夕爆料春晚 达赖喇嘛尊者](/content/transcript/2019/02/20190204-1092670.md)
 
-[郭文贵2019年2月3日视频 20190203_1除夕前一天报平安](/content/transcript/2019/02/20190203-1089083.md)
 
-[郭文贵2019年2月2日视频 20190202_1委内瑞拉的局势变化正是未來中國變局最好的樣板！和3月20号习近平先生的访问梵蒂冈！川金会川习会！](/content/transcript/2019/02/20190202-1089084.md)
-
-[郭文贵2019年2月1日视频 20190201_1昨天刘鹤跟川普团队谈判后的自己的感受！ 王健被自己的生殖器戳死](/content/transcript/2019/02/20190201-1089079.md)
-
-[郭文贵2019年1月31日视频 20190131_1昨天的中美貿易談判一定會宣布有了最好的結果 但實際上是最壞的結果 收到北韓來的許多信息](/content/transcript/2019/01/20190131-1089074.md)
-
-[郭文贵2019年1月30日视频 20190130_1谈谈为什么说，金正日应该直接打电话给川普总统。還了家鄉一位老板二十多塊錢](/content/transcript/2019/01/20190130-1089064.md)
-
-[郭文贵2019年1月30日视频 20190130_2文贵先生测试秘密工具直播](/content/transcript/2019/01/20190130-1089070.md)
-
-[郭文贵2019年1月29日视频 20190129_3文贵看春晚特别定制的八套西装，11件衬衣，今天已经全部到了，这是劳．瑞奇特别为我们定做的！](/content/transcript/2019/01/20190129-1089056.md)
-
-[郭文贵2019年1月29日第二次直播 20190129_2郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料](/content/transcript/2019/01/20190129-1092371.md)
-
-[郭文贵2019年1月29日第一次直播 20190129_1下一个打击目标，将是阿里巴巴！和腾讯！一切都是刚刚开始！](/content/transcript/2019/01/20190129-1092414.md)
-
-[郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。](/content/transcript/2019/01/20190128-1089049.md)
-
-[郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！](/content/transcript/2019/01/20190127-1092365.md)
-
-
-## 頁面 84/111 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 84/112 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

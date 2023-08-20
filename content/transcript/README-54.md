@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 54/111 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 54/112 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年5月30日第二次直播 20200530_2请所有的战友高度关注6月2号中午和6月3号晚上和6月4号上午．三次重大直播，请准备好美食美酒！](/content/transcript/2020/05/20200530-1093019.md)
+
+[郭文贵2020年5月29日视频 20200529留美的学生和华人同胞们请务必看今天文贵的视频](/content/transcript/2020/05/20200529-1092537.md)
+
+[郭文贵2020年5月27日视频 20200527_3所有被指定为个地区国家与战友们的联系负责人都不允许收集和查看任何战友的私人信息和投资相关的任何资料](/content/transcript/2020/05/20200527-1089862.md)
+
+[郭文贵2020年5月27日视频 20200527_4文贵拜请所有有良知的华人同胞们，香港同胞们．去到美国国务卿彭佩奥先生推特下面．发信息．留言．对他表示感谢！我们要坚持密集的……全24小时不停止的对他表示感激！他是我们的英雄！](/content/transcript/2020/05/20200527-1089864.md)
+
+[郭文贵2020年5月27日视频 20200527_5文贵又在海上耍浪了](/content/transcript/2020/05/20200527-1089868.md)
+
+[郭文贵2020年5月27日视频 20200527_1呼吁所有购买G币的和投资．受到任何银行威胁和取消交易的战友们联合起来，诉讼相关银行和stripe支付平台](/content/transcript/2020/05/20200527-1092048.md)
+
+[郭文贵2020年5月27日视频 20200527_2文贵看到很多传播美国取消香港自贸区地位的社交信息，但是却没有人提的爆料革命，这对爆料革命的战友都是不公平的](/content/transcript/2020/05/20200527-1092368.md)
+
+[郭文贵2020年5月25日视频 20200525_1同一天的第一次直播.。如何面对共产党将以一国之力要破坏我们的六四建国宣言！](/content/transcript/2020/05/20200525-1089000.md)
+
+[郭文贵2020年5月25日视频 20200525_2共产党对战友们涌跃的投资的恐惧????用威胁其他国银行不配合投资付款！](/content/transcript/2020/05/20200525-1092059.md)
+
+[郭文贵2020年5月25日视频 20200525_3如何解决共产党对我们投资的封杀．请战友们准备好六四宣言，讲遇到的挑战和挫折。](/content/transcript/2020/05/20200525-1092378.md)
+
+[郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊](/content/transcript/2020/05/20200523-1089009.md)
 
 [郭文贵2020年5月23日第一次GTV直播 20200523_1从中国的五四民主运动和北京天安门的六四事件与美国的七四建国日．来看今天人类的大灾难……](/content/transcript/2020/05/20200523-1092041.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2020年5月10日GTV连线文欣 20200510](/content/transcript/2020/05/20200510-1092132.md)
 
-[郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统](/content/transcript/2020/05/20200510-1092423.md)
 
-[郭文贵2020年5月9日连线草根小哥 20200509_2](/content/transcript/2020/05/20200509-1092070.md)
-
-[郭文贵2020年5月9日连线魔女Peace 20200509_1](/content/transcript/2020/05/20200509-1092098.md)
-
-[郭文贵2020年5月8日连线战友文信 20200508_2](/content/transcript/2020/05/20200508-1092054.md)
-
-[郭文贵2020年5月8日连线挺郭小妹 20200508_1](/content/transcript/2020/05/20200508-1092089.md)
-
-[郭文贵2020年5月7日gtv视频 20200507_2GTV简短录播：下午9:21分，刚刚结束的重要会议，将是一个关键的一天，关键的灭共的一天...](/content/transcript/2020/05/20200507-1089006.md)
-
-[郭文贵2020年5月7日连线面具先生 20200507爆料“郭七条”还没改“不反习”的原因，因为中南坑做出让步..](/content/transcript/2020/05/20200507-1092045.md)
-
-[郭文贵2020年5月6日gtv视频 20200506_2GTV直播：Trump总统今天对CCP病毒的看法和定义，这是我所希望看到的，我相信这是来自爆料革命！](/content/transcript/2020/05/20200506-1088997.md)
-
-[郭文贵2020年5月6日连线Twins 20200506](/content/transcript/2020/05/20200506-1092031.md)
-
-[郭文贵2020年5月5日视频 20200505](/content/transcript/2020/05/20200505-1092015.md)
-
-[郭文贵2020年5月4日视频 20200504共产党完蛋前的疯狂……及爆料革命必须扮演的角色……让中国人财富和子孙安全的雅典娜计划](/content/transcript/2020/05/20200504-1092007.md)
-
-
-## 頁面 54/111 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 54/112 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)

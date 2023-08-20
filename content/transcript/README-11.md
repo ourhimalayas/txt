@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 11/111 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 11/112 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2022年1月26日盖特 20220126_3第二次发Gettr、对上个视频的补充](/content/transcript/2022/01/20220126-1089798.md)
+
+[郭文贵2022年1月25日盖特 20220125_2尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？甜蜜蜜 你笑得甜蜜蜜 好像花儿开在春风里 开在春风里 在哪里](/content/transcript/2022/01/20220125-1089788.md)
+
+[郭文贵2022年1月25日盖特 20220125_3大功告成……馍馍出锅……](/content/transcript/2022/01/20220125-1089791.md)
+
+[郭文贵2022年1月25日直播 20220125_1紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](/content/transcript/2022/01/20220125-1089924.md)
+
+[郭文贵2022年1月24日盖特 20220124_2尊敬的战友们好……你们健身了吗？在今天大直播后，在整个中共国甜蜜蜜这首歌，已经完全找不到了，爆料革命和新中国联邦到底有多大的力量？从共产党将盘古龙头变成龟头……又将甜蜜蜜这](/content/transcript/2022/01/20220124-1089784.md)
+
+[郭文贵2022年1月24日直播 20220124_1最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](/content/transcript/2022/01/20220124-1089872.md)
+
+[郭文贵2022年1月23日盖特 20220123_1尊敬和战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2022/01/20220123-1089782.md)
+
+[郭文贵2022年1月22日直播 20220122_1文贵吃播：展示最新款GFashion时尚帽子](/content/transcript/2022/01/20220122-1089747.md)
+
+[郭文贵2022年1月22日盖特 20220122_2尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切已经开始【相关美股区块链概念股也纷纷走低。Coinbase ( COIN.O ) 一度跌 11.42%，Riot Blockchain ( RIOT.O ) 一度跌 8.4%，嘉楠科技](/content/transcript/2022/01/20220122-1089773.md)
+
+[郭文贵2022年1月22日盖特 20220122_3尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！](/content/transcript/2022/01/20220122-1089777.md)
+
+[郭文贵2022年1月21日直播 20220121_1全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](/content/transcript/2022/01/20220121-1089622.md)
 
 [郭文贵2022年1月21日直播 20220121_2喜马拉雅纽约磐石农场开幕典礼](/content/transcript/2022/01/20220121-1089689.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2022年1月12日直播 20220112_1伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况](/content/transcript/2022/01/20220112-1089137.md)
 
-[郭文贵2022年1月11日盖特直播 20220111_1](/content/transcript/2022/01/20220111-1089692.md)
 
-[郭文贵2022年1月10日盖特 20220110_1尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的](/content/transcript/2022/01/20220110-1088539.md)
-
-[郭文贵2022年1月9日直播 20220109_1哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王](/content/transcript/2022/01/20220109-1088522.md)
-
-[郭文贵2022年1月9日盖特 20220109_2喜马拉雅七座山峰就是我们的????????????Noah‘s Ark。    诺亚方舟！](/content/transcript/2022/01/20220109-1088533.md)
-
-[郭文贵2022年1月7日视频 20220107_1Who's Miles Guo Episode 2 Artemisinin and Ivermectin谁是郭文贵 2 青蒿素和伊维菌素](/content/transcript/2022/01/20220107-1088294.md)
-
-[郭文贵2022年1月7日直播 20220107_2疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产](/content/transcript/2022/01/20220107-1088402.md)
-
-[郭文贵2022年1月6日盖特 20220106_1尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2022/01/20220106-1088529.md)
-
-[郭文贵2022年1月5日直播 20220105_1最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](/content/transcript/2022/01/20220105-1088292.md)
-
-[郭文贵2022年1月4日盖特直播 20220104_1](/content/transcript/2022/01/20220104-1088542.md)
-
-[郭文贵2022年1月3日盖特直播 20220103_1健身乱聊吃过](/content/transcript/2022/01/20220103-1088546.md)
-
-[郭文贵2022年1月2日盖特 20220102_1尊敬的战友们好，万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息，有一些战友的问题无法一一回复，我在这里．一并回答，一切都已经开始！](/content/transcript/2022/01/20220102-1088526.md)
-
-
-## 頁面 11/111 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 11/112 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)

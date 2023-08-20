@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 70/111 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 70/112 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年9月29日 20190929郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/content/transcript/2019/09/20190929-1093809.md)
+
+[2019年9月29日 郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年 全文字版](/content/transcript/2019/09/20190929-1098248.md)
+
+[郭文贵2019年9月28日 20190928香港即将迎来关键一战，国庆就是CCP的末日，美将清算盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/transcript/2019/09/20190928-1093716.md)
+
+[2019年9月28郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临全文字版](/content/transcript/2019/09/20190928-1098233.md)
+
+[郭文贵2019年9月27日 20190927_2江泽民：中国要出事，你们都跑路吧](/content/transcript/2019/09/20190927-1088576.md)
+
+[郭文贵2019年9月27日 20190927文贵班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/transcript/2019/09/20190927-1093707.md)
+
+[2019年9月27日文贵大直播全文字版：文贵，班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/transcript/2019/09/20190927-1098236.md)
+
+[郭文贵2019年9月26日视频 20190926_1教大家怎麼吃金槍魚 這是我的午餐 大家知道我今天要幹嘛了吧](/content/transcript/2019/09/20190926-1089527.md)
+
+[郭文贵2019年9月25日视频 20190925_1請大家關注美國的雷霆行動](/content/transcript/2019/09/20190925-1089525.md)
+
+[郭文贵2019年9月24日视频 20190924_3直播吃红烧肉，阅兵后美女按需分配](/content/transcript/2019/09/20190924-1088578.md)
+
+[郭文贵2019年9月24日第二次直播 20190924_2红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.](/content/transcript/2019/09/20190924-1093675.md)
 
 [郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！](/content/transcript/2019/09/20190924-1093697.md)
 
@@ -31,27 +53,5 @@
 
 [2019年9月16日郭文贵先生直播全文字版](/content/transcript/2019/09/20190916-1098223.md)
 
-[郭文贵2019年9月15日 20190915王岐山乱港七策坐镇指挥黑警察施暴港人，香港已成为恐惧之港，全球正义力量迅速集结，现在已是黑白对决（美国的白对CCP的黑）！我们目前以传播香港危机真相为核心！中共被灭](/content/transcript/2019/09/20190915-1093632.md)
 
-[2019年9月15日 香港已成为恐惧之港全文字版](/content/transcript/2019/09/20190915-1098235.md)
-
-[郭文贵2019年9月14日 20190914尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！](/content/transcript/2019/09/20190914-1093607.md)
-
-[2019年9月14日文贵大直播全文字版：从共产党昨天在香港疯狂，说明了共产党是个彻彻底底的大流氓](/content/transcript/2019/09/20190914-1098224.md)
-
-[郭文贵2019年9月13日 20190913向战友们祝福中秋节快乐！与战友们分享第一个没有母亲的中秋节的感受！中秋团圆夜，灭共倒计时!](/content/transcript/2019/09/20190913-1093597.md)
-
-[2019年9月13日文贵大直播全文字版：与战友们分享第一个没有母亲的中秋节的感受](/content/transcript/2019/09/20190913-1098219.md)
-
-[郭文贵2019年9月12日视频 20190912_1过去两天的香港黑警行动的减少……将是香港重大危机爆发开始……请香港朋友们要了解共产党的＂涵养杀术＂务必小心！！！！！](/content/transcript/2019/09/20190912-1089514.md)
-
-[郭文贵2019年9月12日视频 20190912_2很多战友发私信希望我吃饭直播一下……非常抱歉……由于船上有其他人和马上有很多会要开……我只能录个短的视频](/content/transcript/2019/09/20190912-1089517.md)
-
-[2019年9月12号文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？过去两天的香港黑警行动的减少……将是香港重大危机爆发开始…](/content/transcript/2019/09/20190912-1098218.md)
-
-[郭文贵2019年9月11日视频 20190911_1(前段)博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-1089513.md)
-
-[郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-1093585.md)
-
-
-## 頁面 70/111 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 70/112 [**<**](/content/transcript/README-69.md) [1](/content/transcript/README.md) ... [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) **70** [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-71.md) [查看全部](/content/transcript/README-all.md)

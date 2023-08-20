@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 51/111 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 51/112 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年7月14日盖特 20200714_2美国和欧洲国家正在制定详细的行动计划，在西方世界清除欺民贼及过去几年．与共产党沟连打击爆料革命的所有人……都将受到严惩！西方国家．对共产党病毒的认识和即将带来的威胁，正在有](/content/transcript/2020/07/20200714-1092407.md)
+
+[郭文贵2020年7月12日视频 20200712_2馬上直播](/content/transcript/2020/07/20200712-1089944.md)
+
+[郭文贵2020年7月12日视频 20200712_3今天直播完以后，我继续健身，灭共的路上一定要强心健体永不放弃](/content/transcript/2020/07/20200712-1089947.md)
+
+[郭文贵2020年7月12日直播 20200712美国领导的灭共盟军将在欧洲，及北约以及亚洲和南海东海香港领域．经济．领导人制栽等．全面开始灭共！](/content/transcript/2020/07/20200712-1092359.md)
+
+[郭文贵2020年7月11日视频 20200711_1跟着郝海东先生和叶钊颖女士！学习健身1](/content/transcript/2020/07/20200711-1089926.md)
+
+[郭文贵2020年7月11日视频 20200711_2跟着郝海东先生和叶钊颖女士！学习健身2](/content/transcript/2020/07/20200711-1089928.md)
+
+[郭文贵2020年7月11日视频 20200711_3跟着郝海东先生和叶钊颖女士！学习健身3](/content/transcript/2020/07/20200711-1089931.md)
+
+[郭文贵2020年7月11日视频 20200711_4同声传译班农战斗室特别节目：郭文贵先生和4位爆料革命战友参加讨论香港国安法](/content/transcript/2020/07/20200711-1089939.md)
+
+[郭文贵2020年7月11日视频 20200711_5大日子大日子啊天大的日子啊兄弟姐妹们准备好酒吧](/content/transcript/2020/07/20200711-1089941.md)
+
+[郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦](/content/transcript/2020/07/20200711-1089943.md)
+
+[郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）](/content/transcript/2020/07/20200710-1089907.md)
 
 [郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）](/content/transcript/2020/07/20200710-1089909.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2020年7月4日直播 20200704新中国联邦被西方政府认可吗？以及GTV投资．美国队中共有史以来最严厉的制裁意味着什么？爆料革命的下一步计划和行动](/content/transcript/2020/07/20200704-1092200.md)
 
-[郭文贵2020年7月3日视频 20200703_1海航王健被殺害2周年](/content/transcript/2020/07/20200703-1089897.md)
 
-[郭文贵2020年7月3日视频 20200703_2听听美国政府官员这一系列制裁和我们战友们在华盛顿抗议的一些观点以及背后的故事](/content/transcript/2020/07/20200703-1089901.md)
-
-[郭文贵2020年7月2日直播 20200702华盛顿的历史性的美东战友们的抗议，以及接下来对中共惩罚的大锤如何落下！](/content/transcript/2020/07/20200702-1092177.md)
-
-[郭文贵2020年6月30日视频 20200630_1](/content/transcript/2020/06/20200630-1089891.md)
-
-[郭文贵2020年6月30日视频 20200630_2](/content/transcript/2020/06/20200630-1089893.md)
-
-[郭文贵2020年6月28日视频 20200628_2](/content/transcript/2020/06/20200628-1089887.md)
-
-[郭文贵2020年6月28日视频 20200628_3](/content/transcript/2020/06/20200628-1089888.md)
-
-[郭文贵2020年6月28日视频 20200628_4](/content/transcript/2020/06/20200628-1089890.md)
-
-[郭文贵2020年6月28日直播 20200628香港问责法案最后一分钟被大打折扣；成功营救郝海东之子：GTV投资进展；中共对付新中国联邦的烂招](/content/transcript/2020/06/20200628-1092167.md)
-
-[郭文贵2020年6月25日直播 20200625_1杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/transcript/2020/06/20200625-1092129.md)
-
-[郭文贵2020年6月25日直播 20200625_2夏威夷会面杨洁篪再次的威胁，美国和将华人都列为犯罪分子的背后故事](/content/transcript/2020/06/20200625-1092221.md)
-
-
-## 頁面 51/111 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 51/112 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)

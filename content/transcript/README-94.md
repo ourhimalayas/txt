@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 94/111 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 94/112 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年8月20日视频 20180820](/content/transcript/2018/08/20180820-1092991.md)
+
+[郭文贵2018年8月19日直播 20180819_1紧急会议前苍促视频报平安](/content/transcript/2018/08/20180819-1088690.md)
+
+[郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了](/content/transcript/2018/08/20180818-1087767.md)
+
+[郭文贵2018年8月18日直播 20180818_1文贵推特被封,请战友不要关闭推特 王健事件相关人员受到盗国贼威胁](/content/transcript/2018/08/20180818-1088686.md)
+
+[郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/transcript/2018/08/20180817-1094180.md)
+
+[郭文贵2018年8月16日第二次直播 20180816_2台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）](/content/transcript/2018/08/20180816-1092979.md)
+
+[郭文贵2018年8月16日第一次直播 20180816_1文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/content/transcript/2018/08/20180816-1092982.md)
+
+[郭文贵2018年8月16日第三次直播 20180816_3台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）](/content/transcript/2018/08/20180816-1093014.md)
+
+[郭文贵2018年8月15日视频 20180815_2做平板撑 坚持才能胜利！](/content/transcript/2018/08/20180815-1087763.md)
+
+[郭文贵2018年8月15日直播 20180815_1聊聊人民币汇率的问题,美中战略重新定义的内涵和大连政法委的恶行](/content/transcript/2018/08/20180815-1088676.md)
+
+[郭文贵2018年8月13日视频 20180813_3健身视频](/content/transcript/2018/08/20180813-1087758.md)
 
 [郭文贵2018年8月13日第二次直播 20180813_2西方国家正在形成正义联盟共同反击中共的纳谇主义扩张！](/content/transcript/2018/08/20180813-1092998.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2018年8月8日直播 20180808_6下一周是给盗国贼反击的时间文贵要准备发布会和刑事案件具体落实一切都是刚刚开始](/content/transcript/2018/08/20180808-1088643.md)
 
-[郭文贵2018年8月8日直播 20180808_7我将拉黑任何一个挑战喜马拉雅打击盗国贼的推号开足马力全力以赴投入全部精力物力推进爆料革命](/content/transcript/2018/08/20180808-1088648.md)
 
-[郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！](/content/transcript/2018/08/20180807-1087742.md)
-
-[郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒](/content/transcript/2018/08/20180807-1088616.md)
-
-[郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！](/content/transcript/2018/08/20180807-1092977.md)
-
-[郭文贵2018年8月6日直播 20180806_2晚餐朋友的家的入口都这么大！隔壁邻居却是一个中国某政治局委员情人的家！天理何在呀！](/content/transcript/2018/08/20180806-1088615.md)
-
-[郭文贵2018年8月6日视频 20180806文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！](/content/transcript/2018/08/20180806-1092962.md)
-
-[郭文贵2018年8月5日直播 20180805_2早上大爆料後去划船 划船回来了 试试直播聊聊天 再談王健之死](/content/transcript/2018/08/20180805-1088611.md)
-
-[郭文贵2018年8月5日视频 20180805王健被杀的过程和涉及的人](/content/transcript/2018/08/20180805-1092958.md)
-
-[郭文贵2018年8月4日视频 20180804出发去会晤一位刚与王岐山见过面的重要朋友，感叹水上美景](/content/transcript/2018/08/20180804-1087736.md)
-
-[郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家](/content/transcript/2018/07/20180730-1087731.md)
-
-[郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！](/content/transcript/2018/07/20180728-1088575.md)
-
-
-## 頁面 94/111 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 94/112 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)

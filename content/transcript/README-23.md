@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 23/111 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 23/112 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年8月6日盖特 20210806_1尊敬的战友们好，你们健身了吗？传播C C P病毒．郑州人祸．香港危机真相了吗？一切都已经开始。](/content/transcript/2021/08/20210806-1092053.md)
+
+[郭文贵2021年8月6日盖特 20210806_2尊敬的战友们好，全国水灾．人祸．病毒肆虐．经济接近崩溃，为什么中南坑的老杂毛？还是照样的群居北戴河呢，他们在干什么？他们想干什么？无产阶级的中国共产党，所享受的物质的生活，](/content/transcript/2021/08/20210806-1092058.md)
+
+[郭文贵2021年8月5日盖特 20210805_1尊敬的战友们好：你们健身了吗？传播CC P病毒．郑州人祸，香港危机真相了吗？一切都已经开始！](/content/transcript/2021/08/20210805-1092162.md)
+
+[郭文贵2021年8月5日盖特 20210805_2尊敬的战友们好，无论是共产党还是一帮且LOW 爆了个的低级骗子，我最恨的就是他们用最低级的谎言，玩弄我们爆料革命的战友，凡是这些打着爆料革命灭共的名义，玩弄我们战友感情的人，我们](/content/transcript/2021/08/20210805-1092168.md)
+
+[郭文贵2021年8月5日盖特 20210805_3尊敬的战友们好．很多人希望能得到七哥签署的，今天新中国联邦，第一次发出的官方文件，要求取消北京冬奥会的这个申请书！七哥只能满足一少部分的战友们要求，我会尽快的发给，分配给战](/content/transcript/2021/08/20210805-1092170.md)
+
+[郭文贵2021年8月5日盖特 20210805_4吃饭饭咯……南京咸水鸭！](/content/transcript/2021/08/20210805-1092174.md)
+
+[郭文贵2021年8月5日盖特 20210805_5今天是个好日子，抽根雪茄庆祝庆祝！](/content/transcript/2021/08/20210805-1092179.md)
+
+[郭文贵2021年8月4日直播 20210804_1文贵吃播闲聊](/content/transcript/2021/08/20210804-1091972.md)
+
+[郭文贵2021年8月3日直播 20210803_1法治基金法治社会的合法灭共功能；G系列的未来：GTV的经济价值在于其唯一性，拥有5%的盖特，和喜联储的原始股等；九指妖，蛇妖闫，亡腚缸的背叛检验了真战友，让我们更强大](/content/transcript/2021/08/20210803-1091966.md)
+
+[郭文贵2021年8月3日盖特 20210803_2尊敬的战友们好：你们健身了吗？](/content/transcript/2021/08/20210803-1092160.md)
+
+[郭文贵2021年8月2日盖特 20210802_1灭共灭贼容易·替SNOW理发难呢？](/content/transcript/2021/08/20210802-1092140.md)
 
 [郭文贵2021年8月2日盖特 20210802_2灭共灭贼容易·替SNOW理发难呢？但是爱．耐心．执着……能让狗比人还懂事．识大体！有些人真不如狗！](/content/transcript/2021/08/20210802-1092143.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年7月30日盖特 20210730_6真心觉得自己真的很棒！](/content/transcript/2021/07/20210730-1091861.md)
 
-[郭文贵2021年7月30日盖特 20210730_7尊敬的战友们好：为什么这几天从东京到南京．从北京到华盛顿．从欧洲到非洲．CCP病毒突然猛增，这与这些天发生的一个个的所谓的平爆策反 路大脑骗．蛇妖闫……有什么关系。](/content/transcript/2021/07/20210730-1091862.md)
 
-[郭文贵2021年7月29日盖特 20210729_2尊敬的战友们好，你们健身了吗，传播CCP病毒香港危机郑州水灾真相了吗！爆料革命由路大脑袋和蛇妖闫事件，新中国联邦迎来了新的春天。。](/content/transcript/2021/07/20210729-1091852.md)
-
-[郭文贵2021年7月29日直播 20210729_1文贵是第一个说中概股会崩溃的；世界的未来和希望就是虚拟币；灭共要有耐心，不能急功近利；灭爆小组行动将持续到9月20号，更多孙力军会被抓](/content/transcript/2021/07/20210729-1091928.md)
-
-[郭文贵2021年7月28日盖特 20210728_17月28号尊敬的战友们好，为什么撤掉昨天的直播视频，为什么国内一夜之间科技大佬市场损失几万亿，为什么西方世界正期待着来自中国的多种声音，共产党你完了。](/content/transcript/2021/07/20210728-1091838.md)
-
-[郭文贵2021年7月28日盖特 20210728_2收到了你们大量的各种信息．七哥刚刚结束作证．录个视频报平安！](/content/transcript/2021/07/20210728-1091840.md)
-
-[郭文贵2021年7月27日盖特 20210727_1我想战友们想的好辛苦呀……一日不见如隔三秋！](/content/transcript/2021/07/20210727-1091786.md)
-
-[郭文贵2021年7月27日盖特 20210727_2为战友们看一看最新款的湾流650ER飞机内部！太太想兄弟姐妹们：很快我们的战友们会有很多人买的起这样的超级喷气飞机的！咱们走着看！](/content/transcript/2021/07/20210727-1091789.md)
-
-[郭文贵2021年7月27日盖特 20210727_3我在等谁呢？我是为了谁？为了谁这样的工作呢？这在哪呢？](/content/transcript/2021/07/20210727-1091790.md)
-
-[郭文贵2021年7月27日盖特 20210727_4我要干什么呢？](/content/transcript/2021/07/20210727-1091792.md)
-
-[郭文贵2021年7月27日盖特 20210727_5仅有的几瓶LATACHE拉他喜2000特别版．特制路易十三……BEVERLY HLLN酒店…….梦想成真大厅！准备干嘛呀！](/content/transcript/2021/07/20210727-1091835.md)
-
-[郭文贵2021年7月25日盖特 20210725_1尊敬的战友们好，你们传播共产党的人道灾难的真相了吗？所有国内的同胞战友们回避．辛丑年最大的人灾和天祸的方式就是回到二三线的城市．远离城市中心．做好整个国家未来粮食短缺，药品](/content/transcript/2021/07/20210725-1091784.md)
-
-
-## 頁面 23/111 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 23/112 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)

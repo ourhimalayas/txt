@@ -1,7 +1,7 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 4/111 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 4/112 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
 
 [2022年10月14日 新中国联邦三剑客浪漫聚核晚餐 全文字版（下）](/content/transcript/2022/10/20221014-1098066.md)
 
@@ -54,4 +54,4 @@
 [郭文贵2022年9月15日盖特 20220915_2尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天](/content/transcript/2022/09/20220915-1092342.md)
 
 
-## 頁面 4/111 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 4/112 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)

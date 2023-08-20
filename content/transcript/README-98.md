@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 98/111 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 98/112 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年4月28日视频 20180428金正恩是我们学习的坏榜样](/content/transcript/2018/04/20180428-1092846.md)
+
+[郭文贵2018年4月26日直播 20180426_2](/content/transcript/2018/04/20180426-1088198.md)
+
+[郭文贵2018年4月26日视频 20180426在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/transcript/2018/04/20180426-1092842.md)
+
+[郭文贵2018年4月24日视频 20180424_2Guo Wengui's statement on the Persecution of Mr Zhiyu Chen and Zhiheng Chen by the Chin](/content/transcript/2018/04/20180424-1087914.md)
+
+[郭文贵2018年4月24日视频 20180424_3文汇怎么造的假文件呢？详情，请看现在的路徳专访！文贵己经提供了部分信息给路德先生了！一切都是刚刚开始！愚蠢的盗国贼．又给文贵送大礼了！](/content/transcript/2018/04/20180424-1087920.md)
+
+[郭文贵2018年4月24日视频 20180424_4我正在赛船呢](/content/transcript/2018/04/20180424-1087924.md)
+
+[郭文贵2018年4月24日视频 20180424在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！ 《战友同行》](/content/transcript/2018/04/20180424-1092830.md)
+
+[郭文贵2018年4月23日视频 20180423与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写](/content/transcript/2018/04/20180423-1092836.md)
+
+[郭文贵2018年4月22日视频2 20180422_3那一天的美东战友聚会多么的美好！](/content/transcript/2018/04/20180422-1087688.md)
+
+[郭文贵2018年4月22日视频2 20180422_2盗国贼新的一波行动](/content/transcript/2018/04/20180422-1088637.md)
+
+[郭文贵2018年4月22日视频1 20180422_1要射向明镜的10个问彈！](/content/transcript/2018/04/20180422-1092827.md)
 
 [郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/transcript/2018/04/20180421-1092872.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2018年4月10日视频 20180410文贵谈见宝胜．与到底该不该反习！](/content/transcript/2018/04/20180410-1092780.md)
 
-[郭文贵2018年4月9日视频 20180409尊敬的战友们好：文贵为什么在华盛顿！](/content/transcript/2018/04/20180409-1092756.md)
 
-[郭文贵2018年4月7日第一次直播 20180407_1谈吴小晖在华尔道夫酒店保险箱藏着什么以及与胡舒立和海航的逻辑关系](/content/transcript/2018/04/20180407-1092804.md)
-
-[郭文贵2018年4月7日第二次直播 20180407_2吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/transcript/2018/04/20180407-1094193.md)
-
-[郭文贵2018年4月6日视频 20180406谈王岐山抓吴小晖是打邓家威胁美国总统的一箭多雕之计](/content/transcript/2018/04/20180406-1092794.md)
-
-[郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁](/content/transcript/2018/04/20180405-1092744.md)
-
-[郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！](/content/transcript/2018/04/20180404-1092652.md)
-
-[郭文贵2018年4月3日第一次直播 20180403_1-在未来的几天我将向大家谈一下关于吴晓辉和向俊波以及他背后的真实故事他也是香港警察与盗国贼的谋害者之一他的黑幕会也让大家震惊万分](/content/transcript/2018/04/20180403-1092620.md)
-
-[郭文贵2018年4月3日第二次直播 20180403_2中国企业家都是盗国贼资本的代孕者！](/content/transcript/2018/04/20180403-1092826.md)
-
-[郭文贵2018年4月2日视频 20180402_2我将向大家谈一下关于吴小晖和项俊波以及他们背后的真实故事](/content/transcript/2018/04/20180402-1087678.md)
-
-[郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180402-1094195.md)
-
-[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）](/content/transcript/2018/03/20180331-1092596.md)
-
-
-## 頁面 98/111 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 98/112 [**<**](/content/transcript/README-97.md) [1](/content/transcript/README.md) ... [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) **98** [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-99.md) [查看全部](/content/transcript/README-all.md)

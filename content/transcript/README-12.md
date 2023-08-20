@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 12/111 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 12/112 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2022年1月11日盖特直播 20220111_1](/content/transcript/2022/01/20220111-1089692.md)
+
+[郭文贵2022年1月10日盖特 20220110_1尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的](/content/transcript/2022/01/20220110-1088539.md)
+
+[郭文贵2022年1月9日直播 20220109_1哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王](/content/transcript/2022/01/20220109-1088522.md)
+
+[郭文贵2022年1月9日盖特 20220109_2喜马拉雅七座山峰就是我们的????????????Noah‘s Ark。    诺亚方舟！](/content/transcript/2022/01/20220109-1088533.md)
+
+[郭文贵2022年1月7日视频 20220107_1Who's Miles Guo Episode 2 Artemisinin and Ivermectin谁是郭文贵 2 青蒿素和伊维菌素](/content/transcript/2022/01/20220107-1088294.md)
+
+[郭文贵2022年1月7日直播 20220107_2疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产](/content/transcript/2022/01/20220107-1088402.md)
+
+[郭文贵2022年1月6日盖特 20220106_1尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2022/01/20220106-1088529.md)
+
+[郭文贵2022年1月5日直播 20220105_1最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](/content/transcript/2022/01/20220105-1088292.md)
+
+[郭文贵2022年1月4日盖特直播 20220104_1](/content/transcript/2022/01/20220104-1088542.md)
+
+[郭文贵2022年1月3日盖特直播 20220103_1健身乱聊吃过](/content/transcript/2022/01/20220103-1088546.md)
+
+[郭文贵2022年1月2日盖特 20220102_1尊敬的战友们好，万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息，有一些战友的问题无法一一回复，我在这里．一并回答，一切都已经开始！](/content/transcript/2022/01/20220102-1088526.md)
 
 [郭文贵2022年1月1日直播 20220101_1文贵大直播 元旦特别节目 正道至善 除恶建邦](/content/transcript/2022/01/20220101-1094270.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年12月25日盖特 20211225_3文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯????](/content/transcript/2021/12/20211225-1093889.md)
 
-[郭文贵2021年12月25日盖特 20211225_4尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211225-1093890.md)
 
-[郭文贵2021年12月25日盖特直播 20211225_5蒸馍馍](/content/transcript/2021/12/20211225-1093892.md)
-
-[郭文贵2021年12月25日盖特 20211225_6在今天这个特别的日子里． 当年的齐澳塞斯库就是在12月25号被枪毙的！原来共产主义的苏联也是在12月25号解体的……这是一个伟大的日子。七哥的厨艺大显身手……馍馍蒸熟啦……](/content/transcript/2021/12/20211225-1093895.md)
-
-[郭文贵2021年12月25日视频 20211225_1谁是郭文贵第一集;The story about the Terminator of CCP ;中国共产党终结者的故事](/content/transcript/2021/12/20211225-1094426.md)
-
-[郭文贵2021年12月25日直播 20211225_2????圣诞特别节目???? “爆二代”— 希望与力量](/content/transcript/2021/12/20211225-1094624.md)
-
-[郭文贵2021年12月24日视频 20211224_4Who is Miles Guo Episode 1 谁是郭文贵第一集;The story about the Terminator of CCP ;中国共产党终结者的故事](/content/transcript/2021/12/20211224-1089052.md)
-
-[郭文贵2021年12月24日盖特 20211224_2尊敬的战友们好！衷心地祝战友们及家人们平安夜开心快乐！永远永远的平安……但是是什么能让我们不平安呢？这是我们每个人在此时此刻，全世界人都不平安．都不健康的平安夜．必须要思考](/content/transcript/2021/12/20211224-1093884.md)
-
-[郭文贵2021年12月24日盖特 20211224_3衷心地祝愿全天下的所有的人……兄弟姐妹们．和家人们．圣诞节快乐????应很多很多战友要求．明天中午12:00到下午5:00或10点……7哥和25岁以下的爆二代战友们直播．庆祝圣诞????](/content/transcript/2021/12/20211224-1093886.md)
-
-[郭文贵2021年12月24日直播 20211224_1iTunes全球打榜记录- Hcoin To The Moon；HBO Vice记者采访背后的真相；疫苗灾难和新变种病毒Omicron的最新数据；最近几天香港股市、大陆股市、美国股市、全球经济有什么大的变化；最近两天冬奥会方面](/content/transcript/2021/12/20211224-1094414.md)
-
-[郭文贵2021年12月23日盖特 20211223_1尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视](/content/transcript/2021/12/20211223-1093881.md)
-
-[郭文贵2021年12月22日直播 20211222_1iTunes全球打榜记录- Hcoin To The Moon；中美之间会取消关税，Vice的报导在冬奥会之前帮助中共做的一场政治宣传，中国老百姓将付出巨大代价；莘县古城鸳鸯饼和河南胡辣汤；疫苗灾难的最新数据；彭](/content/transcript/2021/12/20211222-1094211.md)
-
-
-## 頁面 12/111 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 12/112 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)

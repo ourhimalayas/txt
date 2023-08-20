@@ -1,7 +1,29 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 32/111 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 32/112 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年4月16日盖特 20210416_2根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！](/content/transcript/2021/04/20210416-1091132.md)
+
+[郭文贵2021年4月16日盖特 20210416_3根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！(第二段)另一](/content/transcript/2021/04/20210416-1091137.md)
+
+[郭文贵2021年4月15日直播 20210415_1以毒灭共正在全面进行；马云的进进出出；江家势力杨雄之死绝非正常；中共如同二战时的日本；七哥已经准备好方案，保证所有GTV美国投资人的核心利益](/content/transcript/2021/04/20210415-1091126.md)
+
+[郭文贵2021年4月14日盖特 20210414_1尊敬的战友们好……本来准备马上开始的直播，由于突发事件．有重要的灭共战略伙伴要开会，所以直播推迟到明天上午．9:30开始！非常非常的抱歉， 应很多战友的要求发一下的snow的视频！](/content/transcript/2021/04/20210414-1091109.md)
+
+[郭文贵2021年4月13日盖特 20210413_1尊敬的战友们好……昨天我推出健身的视频后．很多战友发信息说这个视频证明了郭3秒是事实上是郭三强……把我笑得简直是受不了了，有欺民贼说文贵只能是咬着牙做一次。????????????今天在录一](/content/transcript/2021/04/20210413-1091098.md)
+
+[郭文贵2021年4月13日盖特 20210413_2为什么美国和欧洲．每小时都有灭共的巨大的力量在凝聚和行动？我们战友们一定要客观冷静的看待G系列的投资！](/content/transcript/2021/04/20210413-1091101.md)
+
+[郭文贵2021年4月13日盖特 20210413_3新中国联邦人－爆料革命从2019年的十二月份到现在！一次次的拯救世界上有正义感．有智慧．有常识．的人们！同时也让这个世界上丑陋．贪生怕死．虚伪．假信仰．伪宗教．伪正义者．大白于天](/content/transcript/2021/04/20210413-1091107.md)
+
+[郭文贵2021年4月12日盖特 20210412_1尊敬的战友們好！為什麼全球熱點討論的都是滅共！派到中共國去的美國代表克里．將會与中共談什麼！大戰前的前夜都會具發生什麼？二戰前的基本經濟和軍事行動的背後故事．給予我們什麼樣](/content/transcript/2021/04/20210412-1091084.md)
+
+[郭文贵2021年4月12日盖特 20210412_2所有的戰友們我們都應該清楚的明白！一切都是為了滅掉共產黨！我們有些戰友需要清醒的認識到！一切的資源和一切的行為都應該以目標為核心！有些战友提出想到國外或到美國生活的事情！非](/content/transcript/2021/04/20210412-1091089.md)
+
+[郭文贵2021年4月12日盖特 20210412_3七哥分享鍛鍊身體的時刻！](/content/transcript/2021/04/20210412-1091094.md)
+
+[郭文贵2021年4月11日直播 20210411_1与战友们分享与美国知中派的秘密会议；王岐山现在怎么看文贵和新中国联邦；Ｇ系列是为人类终极之战的长远准备](/content/transcript/2021/04/20210411-1091196.md)
 
 [郭文贵2021年4月10日盖特 20210410_1尊敬的战友好????????????共产党的战狼外交．为什么迅速地变成了疯狗外交……人人喊打，美国将对台湾有一系列的行动，这是我们爆料革命在三年前就说过的．全球联合灭共是我们三年前在全球推](/content/transcript/2021/04/20210410-1091184.md)
 
@@ -31,27 +53,5 @@
 
 [郭文贵2021年4月2日盖特 20210402_1投资GTV……投资的是未来！不是现在！这是个基本的常识，这也是CTV价值的所在。凤凰卫视的事件是一个最好的参考案例。 为什么中共严管下的外币大量的转向了加拿大，还有其他国家，这是正确](/content/transcript/2021/04/20210402-1091078.md)
 
-[郭文贵2021年4月1日盖特 20210401_1尊敬的战友们好…… G币……系列的投资……是我们战友独特．可拥有的资源，不能有任何沾亲带故的人加入。这是我的原则。科学家闫博士的第三次关于CCp病毒报告．再次震撼了世界，但是．我们](/content/transcript/2021/04/20210401-1091077.md)
 
-[郭文贵2021年3月31日盖特 20210331_1尊敬的战友们好！今天科学家．闫博士的第三个报告出来了????????????????????????????????????是个大日子！以毒灭共．全球联合灭共．以钱灭共…只有强大富有????(智慧)????的战友，才能达到我们最终目的](/content/transcript/2021/03/20210331-1091074.md)
-
-[郭文贵2021年3月30日直播 20210330_2警告战友们投资不要上当受骗，代持代购一定要上报联盟](/content/transcript/2021/03/20210330-1089051.md)
-
-[郭文贵2021年3月30日直播 20210330_1GFashion的设计，材质都是唯一；警告投资Ｇ系列不要被骗，所有代持代购都必须上报联盟；好莱坞，华尔街大佬都将加入以毒灭共](/content/transcript/2021/03/20210330-1091070.md)
-
-[郭文贵2021年3月29日盖特 20210329_1世界的政治经济．在剧烈的震荡中．为什么全世界都在买虚拟货币？为什么全世界的人都对经济和政治和CCP病毒的真相．没有任何信息信心，这都是因为共产党这个魔鬼在作祟！这一切都是对新中](/content/transcript/2021/03/20210329-1091056.md)
-
-[郭文贵2021年3月29日盖特 20210329_2當年和我吵架．關於什麼是民主的人．在多年後今天和我聯繫．他真正的感受到了共產黨對中國人．和世界的威脅⋯⋯和對他家族的威脅⋯⋯山雨欲來風滿樓啊！](/content/transcript/2021/03/20210329-1091058.md)
-
-[郭文贵2021年3月29日盖特 20210329_3關於:Gcoion．GTV．配额和重建公司，股权分配．等可能会有改变．提前给大家吹吹风！希望所有的战友们．尽快的和农场核对所有的有关数据，尽快地将两个项目完成，我们正在和机构投资者和实际](/content/transcript/2021/03/20210329-1091062.md)
-
-[郭文贵2021年3月28日盖特 20210328_1文贵和战友聊聊．与中国共产党的老干部．老革命聊天的感受，共产党真是玩球蛋了……CCP下三滥的招，已被全世界所看透．引火自焚是共产党的唯一命运结局！](/content/transcript/2021/03/20210328-1091053.md)
-
-[郭文贵2021年3月27日直播 20210327_1文贵直播：国际金融市场的真相，即将爆发的金融危机如同2008年；不要投机者进入投资Ｇ系列；九指妖事件更让战友们有辨别是非，看清善恶的能力](/content/transcript/2021/03/20210327-1091048.md)
-
-[郭文贵2021年3月27日盖特 20210327_2想想儿时没有材火．没有粮食做饭吃的生活……和今天的世界相比，我们真是太幸福了，这是没有在西方世界生活过的人……无法懂得的……没有对比就没有真相……锅里煮着的大锅菜蒸的包子…](/content/transcript/2021/03/20210327-1091050.md)
-
-[郭文贵2021年3月26日盖特 20210326_1不美国的宪政危机．经济危机．必将导致美欧日的经济危机．和世界的经济危机。在美国的恶性膨胀，将彻底的改变美国的经济现状，中共的擀面杖的经济必将彻底崩塌。这是新中国联邦最大的机](/content/transcript/2021/03/20210326-1091040.md)
-
-
-## 頁面 32/111 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [111](/content/transcript/README-111.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 32/112 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
