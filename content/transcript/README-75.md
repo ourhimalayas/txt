@@ -3,6 +3,26 @@
 
 ## 頁面 75/112 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月5日视频 20190805香港大劫在即……希望香港的四个不要脸群体．能站在正义的一边帮助上街的孩子们。](/content/transcript/2019/08/20190805-1093464.md)
+
+[2019年8月5日文贵大直播全文字版：香港大劫在即······](/content/transcript/2019/08/20190805-1098157.md)
+
+[郭文贵2019年8月4日视频 20190804_1香港要出随时出大事！传统媒体界转向爆料革命？](/content/transcript/2019/08/20190804-1089406.md)
+
+[郭文贵2019年8月3日视频 20190803_2-當共產黨說不幹甚麼的時候 就是他想幹甚麼的時候](/content/transcript/2019/08/20190803-1089402.md)
+
+[郭文贵2019年8月3日视频 20190803关于起诉华尔街日报](/content/transcript/2019/08/20190803-1093455.md)
+
+[2019年8月3日文贵大直播全文字版：关注香港即将发生的大事](/content/transcript/2019/08/20190803-1098134.md)
+
+[郭文贵2019年8月2日视频 20190802_1](/content/transcript/2019/08/20190802-1089397.md)
+
+[郭文贵2019年8月1日视频 20190801_2中午1200将和几个香港命运有关的人开会……香港的命运现在处在关键的时刻……望我们所有的志在灭共的战友们．在自己安全．能力．能承受的情况下，全力以赴通过各种手段支持香港同胞们](/content/transcript/2019/08/20190801-1089385.md)
+
+[郭文贵2019年8月1日视频 20190801_3戒严令由戒严指挥部统一指挥](/content/transcript/2019/08/20190801-1089395.md)
+
+[郭文贵2019年8月1日视频 20190801共产党下达香港戒严令](/content/transcript/2019/08/20190801-1093433.md)
+
 [郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着](/content/transcript/2019/07/20190731-1089381.md)
 
 [郭文贵2019年7月31日第二次直播 20190731_3上海西郊宾馆开启共产党死亡第二战场](/content/transcript/2019/07/20190731-1093427.md)
@@ -32,26 +52,6 @@
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098138.md)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098139.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098140.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098141.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098142.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098143.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098144.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098145.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098146.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098147.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098148.md)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-1098149.md)
 
 
 ## 頁面 75/112 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)

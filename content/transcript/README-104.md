@@ -3,6 +3,26 @@
 
 ## 頁面 104/112 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年1月11日直播 20180111_1](/content/transcript/2018/01/20180111-1093335.md)
+
+[郭文贵2018年1月11日直播 20180111_2](/content/transcript/2018/01/20180111-1093337.md)
+
+[郭文贵2018年1月4日 20180104郭先生谈习近平李克强的女儿进北大背后的故事](/content/transcript/2018/01/20180104-1094490.md)
+
+[郭文贵2018年1月3日视频 20180103_2接受日本媒体采访说日语](/content/transcript/2018/01/20180103-1087472.md)
+
+[郭文贵2018年1月3日视频 20180103郭文贵先生遥㊗️澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅！](/content/transcript/2018/01/20180103-1094709.md)
+
+[郭文贵2017年12月30日直播 20171230_1](/content/transcript/2017/12/20171230-1093332.md)
+
+[郭文贵2017年12月25日直播 20171225_1我们拥有世界上最棒的战斗装及战斗工具](/content/transcript/2017/12/20171225-1093330.md)
+
+[郭文贵2017年12月23日 20171223关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/transcript/2017/12/20171223-1094479.md)
+
+[郭文贵2017年12月12日 20171212文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子](/content/transcript/2017/12/20171212-1094458.md)
+
+[郭文贵2017年12月9日 20171209纽约下大雪了！一切都是刚刚开始！](/content/transcript/2017/12/20171209-1094452.md)
+
 [郭文贵2017年12月8日视频 20171208一切都是刚刚开始](/content/transcript/2017/12/20171208-1094449.md)
 
 [郭文贵2017年12月5日 20171205尊敬的推友们你们健身了吗？](/content/transcript/2017/12/20171205-1094445.md)
@@ -32,26 +52,6 @@
 [郭文贵2017年11月15日视频 20171115_4HBO專訪 Exiled Chinese Billionaire Uses YouTube To Wage A War On Corruption HBO](/content/transcript/2017/11/20171115-1087906.md)
 
 [郭文贵2017年11月15日第二次直播 20171115_2文贵与网友分享迈 阿密的穷人区新发展出来的新的设计区，这 才是真正地产开发商该干的事！创造财富以 报社会！并该恶帮穷从善！](/content/transcript/2017/11/20171115-1094392.md)
-
-[郭文贵2017年11月15日第一次直播 20171115_1在Instagram直播痛斥唐柏桥](/content/transcript/2017/11/20171115-1094706.md)
-
-[郭文贵2017年11月13日直播 20171113_1](/content/transcript/2017/11/20171113-1093319.md)
-
-[郭文贵2017年11月12日第一次直播 20171112_1马阿拉哥庄园 与网友们聊聊天](/content/transcript/2017/11/20171112-1094390.md)
-
-[郭文贵2017年11月12日第二次直播 20171112_2马阿拉哥庄园 与网友们聊聊天](/content/transcript/2017/11/20171112-1094552.md)
-
-[郭文贵2017年11月10日 20171110酒后试试另一种方式的录播](/content/transcript/2017/11/20171110-1094547.md)
-
-[郭文贵2017年11月8日 20171108twitter再次被封7天后的报平安](/content/transcript/2017/11/20171108-1094545.md)
-
-[郭文贵2017年11月7日接受郭宝胜采访 20171107](/content/transcript/2017/11/20171107-1094704.md)
-
-[郭文贵2017年11月2日在Livestream试直播 20171102](/content/transcript/2017/11/20171102-1094691.md)
-
-[郭文贵2017年11月1日视频 20171101_2征服敌人最好的办法就是将自己的事情做好生活好](/content/transcript/2017/11/20171101-1087466.md)
-
-[郭文贵2017年11月1日 20171101“谁抓判文贵的家人？”什么时候报下两个常委的料！](/content/transcript/2017/11/20171101-1094540.md)
 
 
 ## 頁面 104/112 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)

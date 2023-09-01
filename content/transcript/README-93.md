@@ -3,6 +3,26 @@
 
 ## 頁面 93/112 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月17日视频 20180917_3今天是个好日子……本来过5不食的！现在吃点粗茶淡饭！喝点中年茅台！奖励自己一下……二十几个小时连续的工作！唯独美中不足缺战友！](/content/transcript/2018/09/20180917-1088777.md)
+
+[郭文贵2018年9月17日视频 20180917(全程無駭客干擾版)王健死亡事件真相有重大进展，法国司法部已经正式立案全面重新调查！](/content/transcript/2018/09/20180917-1093075.md)
+
+[郭文贵2018年9月16日视频 20180916_3](/content/transcript/2018/09/20180916-1088636.md)
+
+[郭文贵2018年9月16日视频第一部分 20180916_1我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/content/transcript/2018/09/20180916-1093115.md)
+
+[郭文贵2018年9月16日视频第二部分 20180916_2我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！](/content/transcript/2018/09/20180916-1093146.md)
+
+[郭文贵2018年9月15日直播 20180915_1](/content/transcript/2018/09/20180915-1088768.md)
+
+[郭文贵2018年9月13日直播 20180913_1](/content/transcript/2018/09/20180913-1088765.md)
+
+[郭文贵2018年9月12日第四次直播 20180912_4谈今天去川普家，川普的办公室和餐厅完全模仿白宫；川普的厨师居然从裕达国贸出来的；当年在中南海的时候，习近平还在门外瞎转悠；李友答应帮助胡舒立生个孩子](/content/transcript/2018/09/20180912-1088758.md)
+
+[郭文贵2018年9月12日第二次直播 20180912_2文贵先生進Sara Discord聊天室前](/content/transcript/2018/09/20180912-1088763.md)
+
+[郭文贵2018年9月12日第三次直播 20180912_3某军委委员家一面墙的翡翠就价值3个亿美金；首次酒后爆文贵先生80年代－90年代起家经历；爆释永信的私生子；戒忍和尚写一个对联受8万元钱故事！](/content/transcript/2018/09/20180912-1093083.md)
+
 [郭文贵2018年9月12日第一次直播 20180912_1战友之声聊天室曝光 调查王健的一个团队被盗国贼50万美金买走所有资料；爆料和姬胜德认识过程；文贵先生早年的经历；90年代赖昌星一天赚2个亿人民币；再次承诺2亿美金成立老兵基金！](/content/transcript/2018/09/20180912-1093097.md)
 
 [郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-1088733.md)
@@ -32,26 +52,6 @@
 [郭文贵2018年9月5日视频第二部分 20180905_2黄河边性无能造成严重后果。林肯中心被取消发布会 2](/content/transcript/2018/09/20180905-1093026.md)
 
 [郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】](/content/transcript/2018/09/20180905-1093135.md)
-
-[郭文贵2018年9月3日视频 20180903_2高清版 为了员工和家人，文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180903-1088670.md)
-
-[郭文贵2018年9月3日视频 20180903为了员工，家人文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180903-1093099.md)
-
-[郭文贵2018年9月2日视频 20180902文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/content/transcript/2018/09/20180902-1093078.md)
-
-[郭文贵2018年8月31日直播 20180831_1感谢昨天为盘古公寓和写字楼被非法拍卖而流泪担心我的战友们你们的爱惜担心文贵更加让我精进反盗为战友而战为正义而战一切都是刚刚开始](/content/transcript/2018/08/20180831-1088704.md)
-
-[郭文贵2018年8月30日直播 20180830_2](/content/transcript/2018/08/20180830-1088698.md)
-
-[郭文贵2018年8月30日直播 20180830_3](/content/transcript/2018/08/20180830-1088700.md)
-
-[郭文贵2018年8月30日视频 20180830关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！](/content/transcript/2018/08/20180830-1093063.md)
-
-[郭文贵2018年8月29日视频 20180829谈王健事件发布会的准备工作](/content/transcript/2018/08/20180829-1093046.md)
-
-[郭文贵2018年8月27日直播 20180827_1](/content/transcript/2018/08/20180827-1088693.md)
-
-[郭文贵2018年8月27日直播 20180827_2](/content/transcript/2018/08/20180827-1088694.md)
 
 
 ## 頁面 93/112 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

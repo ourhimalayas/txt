@@ -3,6 +3,26 @@
 
 ## 頁面 50/112 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年8月4日直播 20200804_5文贵与班农聊GTV和中共黑客](/content/transcript/2020/08/20200804-1092492.md)
+
+[郭文贵2020年8月4日直播 20200804_6香港黑警的所作所为永不可饶恕，但对99.9%的党员大赦，因为爆料革命的绝对中坚力量还是在中共和国内战友](/content/transcript/2020/08/20200804-1092498.md)
+
+[郭文贵2020年8月4日直播 20200804_7香港黑警的所作所为永不可饶恕，但对99.9%的党员大赦，因为爆料革命的绝对中坚力量还是在中共和国内战友](/content/transcript/2020/08/20200804-1092504.md)
+
+[郭文贵2020年8月3日视频 20200803_2文贵在这里感谢所有的战友们对文贵昨天的＂脱聊](/content/transcript/2020/08/20200803-1090011.md)
+
+[郭文贵2020年8月3日盖特 20200803衷心的感谢国内的所谓门〈金融突发事件处理小组〉对战友们的保护……一切都已经开始！](/content/transcript/2020/08/20200803-1092438.md)
+
+[郭文贵2020年8月2日直播 20200802展示G—fashion时装以及共产党对GTV和战友的攻击](/content/transcript/2020/08/20200802-1092505.md)
+
+[郭文贵2020年8月1日视频 20200801_2戰鬥室312期【中英字幕】病毒是中共制造的廉价“核武器”；只有中美脱钩才能阻止中共腐蚀全球；新中国联邦会给全世界健康的中国市场与和平的未来！ 1](/content/transcript/2020/08/20200801-1090010.md)
+
+[郭文贵2020年8月1日盖特 20200801尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？文贵在下面的视频中将回答很多战友的一些问题](/content/transcript/2020/08/20200801-1092489.md)
+
+[郭文贵2020年7月31日直播 20200731_2【中英字幕】文贵先生连线战斗室：美国只有放弃官僚和个人利益，通过证据找到真相，才能让美国更加安全！[Chinese-English subtitled] Mr. Miles Guo on War Room: Only if the US officials and individuals give up perso](/content/transcript/2020/07/20200731-1089035.md)
+
+[郭文贵2020年7月31日视频 20200731_1](/content/transcript/2020/07/20200731-1090005.md)
+
 [郭文贵2020年7月30日视频 20200730_2](/content/transcript/2020/07/20200730-1090004.md)
 
 [郭文贵2020年7月30日连线韩国农场 20200730](/content/transcript/2020/07/20200730-1092458.md)
@@ -32,26 +52,6 @@
 [郭文贵2020年7月20日视频 20200720_1大家想一想为什么郭先生和班农在船上待了这么久，就是为了做对中共的军事部署](/content/transcript/2020/07/20200720-1089981.md)
 
 [郭文贵2020年7月19日直播 20200719_1不要受“缺爹党”的影响；灭共和解决CCP病毒都到了关键时刻；大力传播今天福克斯采访班农的节目](/content/transcript/2020/07/20200719-1092484.md)
-
-[郭文贵2020年7月19日连线大卫上集 20200719_2](/content/transcript/2020/07/20200719-1092497.md)
-
-[郭文贵2020年7月19日连线大卫下集 20200719_3](/content/transcript/2020/07/20200719-1092513.md)
-
-[郭文贵2020年7月18日视频 20200718_1同声传译⎢班农战斗室特别节目⎢回击：美国的全球灭共行动 嘉宾郭文贵先生谈虚假经济，超限战，信息战，科技战，和国内洪灾](/content/transcript/2020/07/20200718-1089977.md)
-
-[郭文贵2020年7月17日视频 20200717_3将在半小时内开始乱聊直播](/content/transcript/2020/07/20200717-1089967.md)
-
-[郭文贵2020年7月17日盖特 20200717谈谈最近几天的灭共形势！在这个视频中，我又将时间搞错了，把17号说成16号](/content/transcript/2020/07/20200717-1092385.md)
-
-[郭文贵2020年7月17日直播 20200717_2关注司法部长巴尔演讲，依法灭共里程碑！必须特赦9千万党员！惩罚9千万党员是不公平的，不能祸连九族！](/content/transcript/2020/07/20200717-1092435.md)
-
-[郭文贵2020年7月16日视频 20200716_1请大家一定去看．司法部长．巴斯的发布会](/content/transcript/2020/07/20200716-1089962.md)
-
-[郭文贵2020年7月16日视频 20200716_2文贵收到了好多战友问询．如何帮助战友们在美国．脱共](/content/transcript/2020/07/20200716-1089964.md)
-
-[郭文贵2020年7月15日视频 20200715_2川普总统的头发．从过去的金发为什么一夜变成了灰白发呢？](/content/transcript/2020/07/20200715-1089958.md)
-
-[郭文贵2020年7月15日直播 20200715为什么卡尔巴斯．离开GTV董事会？接下来的新中国联邦将与各国合作有重大的行动](/content/transcript/2020/07/20200715-1092379.md)
 
 
 ## 頁面 50/112 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)

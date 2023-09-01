@@ -3,6 +3,26 @@
 
 ## 頁面 77/112 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年7月22日 直播全文字版](/content/transcript/2019/07/20190722-1098117.md)
+
+[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版](/content/transcript/2019/07/20190721-1089349.md)
+
+[郭文贵2019年7月21日视频 20190721爆料革命进入全球共同灭共的新时代 Miles live stream: the Exposé Revolution has entered a new age of eliminating the CCP...](/content/transcript/2019/07/20190721-1093343.md)
+
+[2019年7月21日直播全文字版：爆料革命进入全球灭共的新时代](/content/transcript/2019/07/20190721-1098115.md)
+
+[郭文贵2019年7月20日视频 20190720_1郭文贵先生准备出山 天助我们的爆料革命 一切都是刚刚开始](/content/transcript/2019/07/20190720-1089331.md)
+
+[郭文贵2019年7月20日视频 20190720_2大家猜猜我这是去哪啦？？？天助我们的大的爆料革命！一切都是刚刚开始](/content/transcript/2019/07/20190720-1089334.md)
+
+[郭文贵2019年7月20日视频 20190720_3SNOW……想回纽约了](/content/transcript/2019/07/20190720-1089336.md)
+
+[郭文贵2019年7月17日视频 20190717_1回答很多战友们关于郭战装的几个小问题](/content/transcript/2019/07/20190717-1089323.md)
+
+[郭文贵2019年7月17日视频 20190717_2两架超级飞机和我们的SNOW一起起飞……文贵又进山啦……这几天我会很少上网](/content/transcript/2019/07/20190717-1089327.md)
+
+[郭文贵2019年7月17日视频 20190717_3有战友们说有一个白色的狗在此就好啦……】这里的大自然太棒了](/content/transcript/2019/07/20190717-1089329.md)
+
 [郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始](/content/transcript/2019/07/20190716-1089320.md)
 
 [郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件](/content/transcript/2019/07/20190715-1089317.md)
@@ -32,26 +52,6 @@
 [2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-1098105.md)
 
 [郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始](/content/transcript/2019/07/20190708-1089300.md)
-
-[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着](/content/transcript/2019/07/20190708-1089302.md)
-
-[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天](/content/transcript/2019/07/20190708-1089307.md)
-
-[郭文贵2019年7月8日视频 20190708文贵是双面间谍？？](/content/transcript/2019/07/20190708-1093386.md)
-
-[2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集](/content/transcript/2019/07/20190708-1098106.md)
-
-[郭文贵2019年7月7日视频 20190707_3Snow1](/content/transcript/2019/07/20190707-1089291.md)
-
-[郭文贵2019年7月7日视频 20190707_4Snow2](/content/transcript/2019/07/20190707-1089293.md)
-
-[郭文贵2019年7月7日第二次直播 20190707_2王岐山又出手 王健“活该死”；及香港抗议将引发的CCP灭亡第一战的意义](/content/transcript/2019/07/20190707-1093369.md)
-
-[郭文贵2019年7月7日第一次直播 20190707_1爆料革命当中扮演的重要角色……并希望能给更多战友加入郭媒体……一切都是刚刚开始！](/content/transcript/2019/07/20190707-1093377.md)
-
-[2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集](/content/transcript/2019/07/20190707-1098102.md)
-
-[郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...](/content/transcript/2019/07/20190706-1093356.md)
 
 
 ## 頁面 77/112 [**<**](/content/transcript/README-76.md) [1](/content/transcript/README.md) ... [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) **77** [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-78.md) [查看全部](/content/transcript/README-all.md)

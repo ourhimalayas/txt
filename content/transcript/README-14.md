@@ -3,6 +3,26 @@
 
 ## 頁面 14/112 [**<**](/content/transcript/README-13.md) [1](/content/transcript/README.md) ... [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) **14** [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-15.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年12月22日视频 20211222_2关于郭文贵先生接受HBO Vice采访的背后真相](/content/transcript/2021/12/20211222-1094294.md)
+
+[郭文贵2021年12月20日盖特 20211220_1尊敬的战友们好，你们健身了吗？传播C C P的病毒和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211220-1093871.md)
+
+[郭文贵2021年12月20日盖特 20211220_2尊敬的战友们好．冬奥会的政治游戏唯一的受伤害的就10亿中国人民……所有的中国人将为这个完全没有任何价值的政治国际上的愚蠢的秀……付出几千亿美元的代价可悲，可怜．可恨至极……这是](/content/transcript/2021/12/20211220-1093878.md)
+
+[郭文贵2021年12月19日直播 20211219_1超发货币导致的通胀、通缩对世界经济与格局的影响；中共房地产持续暴雷破产；病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至](/content/transcript/2021/12/20211219-1093990.md)
+
+[郭文贵2021年12月19日直播 20211219_2超发货币导致的通胀、通缩对世界经济与格局的影响；中共房地产持续暴雷破产；病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至](/content/transcript/2021/12/20211219-1094073.md)
+
+[郭文贵2021年12月18日盖特 20211218_1尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211218-1093864.md)
+
+[郭文贵2021年12月18日盖特 20211218_2共产党的经济的全面的即将崩溃……和到处抢劫财富的导致的社会动乱……和大量的抓朴公检法．金融部门官员！现在又要求在半年内让中国的医院和医疗企业部门上交1．5万亿支持所谓的国家战略](/content/transcript/2021/12/20211218-1093867.md)
+
+[郭文贵2021年12月17日直播 20211217_1国内经济危机与冬奥会；方正证券接管郑州裕达；彭副主席上位意图何在；各数字货币下滑与喜币](/content/transcript/2021/12/20211217-1093933.md)
+
+[郭文贵2021年12月16日盖特 20211216_1非常非常的抱歉，亲爱的战友们……刚才视频没有发出去，我再发一遍！](/content/transcript/2021/12/20211216-1093859.md)
+
+[郭文贵2021年12月15日直播 20211215_1Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](/content/transcript/2021/12/20211215-1093817.md)
+
 [郭文贵2021年12月14日盖特 20211214_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211214-1093854.md)
 
 [郭文贵2021年12月13日盖特 20211213_1尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗解药的真相了吗？一切都已经开始了！](/content/transcript/2021/12/20211213-1093851.md)
@@ -32,26 +52,6 @@
 [郭文贵2021年11月30日直播 20211130_1健身直播](/content/transcript/2021/11/20211130-1094257.md)
 
 [郭文贵2021年11月29日盖特 20211129_1全世界的经济即将崩溃之时，随之而来的是社会动乱……政治危机，以及局域战争的开始……新中国联邦人要团结在一起，共同渡过这个人类的世纪大灾难！](/content/transcript/2021/11/20211129-1093668.md)
-
-[郭文贵2021年11月28日直播 20211128_1新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](/content/transcript/2021/11/20211128-1094249.md)
-
-[郭文贵2021年11月27日盖特 20211127_1尊敬的战友们好……你们建身了吗？你们传播CCP病毒和疫苗解药的真相了吗？一切都已经开始!](/content/transcript/2021/11/20211127-1093666.md)
-
-[郭文贵2021年11月26日盖特 20211126_2昨天发出这个视频没有声音，这是怎么回事呢？在发发试试……](/content/transcript/2021/11/20211126-1093663.md)
-
-[郭文贵2021年11月26日直播 20211126_1再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](/content/transcript/2021/11/20211126-1094198.md)
-
-[郭文贵2021年11月25日盖特 20211125_1尊敬的战友们好，你们健身了吗？这是我昨天健身的视频忘了发了!](/content/transcript/2021/11/20211125-1093655.md)
-
-[郭文贵2021年11月25日盖特 20211125_2祝愿感恩天下的所有人……和感恩所有的战友们和家人……感恩新中国联邦人……感恩节快乐](/content/transcript/2021/11/20211125-1093656.md)
-
-[郭文贵2021年11月25日盖特 20211125_3感恩节的快乐……](/content/transcript/2021/11/20211125-1093659.md)
-
-[郭文贵2021年11月24日直播 20211124_1北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](/content/transcript/2021/11/20211124-1094137.md)
-
-[郭文贵2021年11月23日直播 20211123_1文貴健身直播](/content/transcript/2021/11/20211123-1094014.md)
-
-[郭文贵2021年11月21日盖特 20211121_1吃饭饭啦……](/content/transcript/2021/11/20211121-1093651.md)
 
 
 ## 頁面 14/112 [**<**](/content/transcript/README-13.md) [1](/content/transcript/README.md) ... [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) **14** [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-15.md) [查看全部](/content/transcript/README-all.md)

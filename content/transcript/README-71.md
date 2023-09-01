@@ -3,6 +3,26 @@
 
 ## 頁面 71/112 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！](/content/transcript/2019/09/20190924-1093697.md)
+
+[2019年9月24日文贵大直播全文字版：红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.](/content/transcript/2019/09/20190924-1098239.md)
+
+[郭文贵2019年9月23日视频 20190923_1(無侵權版, 原版已被CCTV裡的雞舉報刪除)中共全面实施“驭民五术”，国庆军演民不聊生。应对中共“三大战役”，美国只会打口炮么？美国武力介入香港问题的可能性有多大？](/content/transcript/2019/09/20190923-1089523.md)
+
+[2019年9月23日 郭文贵先生与班农先生直播 全文字版 中共全面实施“驭民五术”，国庆军演民不聊生；应对中共“三大战役”，美国只会打口炮么？](/content/transcript/2019/09/20190923-1098234.md)
+
+[郭文贵2019年9月22日直播 20190922CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！](/content/transcript/2019/09/20190922-1093654.md)
+
+[2019年9月22日文贵大直播全文字版：CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！](/content/transcript/2019/09/20190922-1098232.md)
+
+[郭文贵2019年9月20日视频 20190920感谢战友们的担心，文贵为什么这两天没直播。香港最艰难时期是十月后，请香港战友加倍小心！](/content/transcript/2019/09/20190920-1093661.md)
+
+[2019年9月20日郭先生报平安感谢战友们的担心全文字版](/content/transcript/2019/09/20190920-1098225.md)
+
+[郭文贵2019年9月17日视频 20190917马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动](/content/transcript/2019/09/20190917-1093639.md)
+
+[2019年9月17日文贵报平安全文字版](/content/transcript/2019/09/20190917-1098227.md)
+
 [2019年9月17日郭文贵先生报平安全文字版](/content/transcript/2019/09/20190917-1098228.md)
 
 [《文贵大直播》全文听写组](/content/transcript/2019/09/20190916-1098220.md)
@@ -32,26 +52,6 @@
 [郭文贵2019年9月11日视频 20190911_1(前段)博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-1089513.md)
 
 [郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-1093585.md)
-
-[2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！](/content/transcript/2019/09/20190911-1098221.md)
-
-[郭文贵2019年9月10日视频 20190910_1文贵在凌晨6 00先向大家报平安了，昨天路德的晚餐, 加上他兒子弄壞船上的沙發, 至少毀了我十萬美元, TNND, 非叫路德賠不可](/content/transcript/2019/09/20190910-1089510.md)
-
-[郭文贵2019年9月9日第二次直播 20190909_2尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以没收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？](/content/transcript/2019/09/20190909-1093564.md)
-
-[郭文贵2019年9月9日第一次直播 20190909_1路德访谈文贵、班农先生：川普会什么时候决定脱钩？马云离开阿里以后的结局？美国到底是否值得中国人民依靠？](/content/transcript/2019/09/20190909-1093573.md)
-
-[2019年9月9日直播为什么香港的富豪被威胁他们隐藏海外资产共产党可以没收全文字版](/content/transcript/2019/09/20190909-1098210.md)
-
-[2019年9月9日 文贵、班农先生谈：川普会什么时候决定脱钩，马云离开阿里以后的结局和美国到底是否值得中国人民依靠全文字版](/content/transcript/2019/09/20190909-1098240.md)
-
-[郭文贵2019年9月8日 20190908美国国会山开山“灭共助港”，李小加港交所期货交易当机玩儿大了！中共如何用通货膨胀奴役中国人民！](/content/transcript/2019/09/20190908-1093559.md)
-
-[2019年9月8日 美国国会山开山灭共助港，李小加港交所期货交易内幕，中共如何用通货膨胀奴役中国人民全文字版](/content/transcript/2019/09/20190908-1098211.md)
-
-[郭文贵2019年9月7日视频 20190907关注香港被抓、被自杀的年轻人！北京下达死命令：不允许超过100人集会！美国将通过一系列法案支持香港人民！](/content/transcript/2019/09/20190907-1093541.md)
-
-[2019年9月7日郭先生直播，关注香港被抓 被杀的年轻人全文字版](/content/transcript/2019/09/20190907-1098215.md)
 
 
 ## 頁面 71/112 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)

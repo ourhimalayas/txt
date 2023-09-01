@@ -3,6 +3,26 @@
 
 ## 頁面 85/112 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！](/content/transcript/2019/02/20190221-1092858.md)
+
+[郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1](/content/transcript/2019/02/20190220-1089132.md)
+
+[郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2](/content/transcript/2019/02/20190220-1089145.md)
+
+[郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡](/content/transcript/2019/02/20190219-1092852.md)
+
+[郭文贵2019年2月17日 20190217文贵再谈法治基金的目的和中美之间即将发生的大事。](/content/transcript/2019/02/20190217-1092807.md)
+
+[郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读](/content/transcript/2019/02/20190216-1092778.md)
+
+[郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！](/content/transcript/2019/02/20190207-1089108.md)
+
+[郭文贵2019年2月7日视频 20190207_3Snow 在咬王妓山．孟建柱．孙力军的蛋蛋！](/content/transcript/2019/02/20190207-1089110.md)
+
+[郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190207-1092740.md)
+
+[郭文贵2019年2月6日 20190206文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190206-1092699.md)
+
 [郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播](/content/transcript/2019/02/20190205-1089104.md)
 
 [郭文贵2019年2月4日视频 20190204_3赶饺子????皮！感恩美国感恩战友！感恩上天！](/content/transcript/2019/02/20190204-1089086.md)
@@ -32,26 +52,6 @@
 [郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。](/content/transcript/2019/01/20190128-1089049.md)
 
 [郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！](/content/transcript/2019/01/20190127-1092365.md)
-
-[郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉](/content/transcript/2019/01/20190125-1092356.md)
-
-[郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大](/content/transcript/2019/01/20190124-1092339.md)
-
-[郭文贵2019年1月23日视频 20190123华盛顿上空弥漫这共同的目标：灭共](/content/transcript/2019/01/20190123-1092324.md)
-
-[郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始](/content/transcript/2019/01/20190122-1089046.md)
-
-[郭文贵2019年1月21日视频 20190121共产党号召学习王阳明的心学是对圣人的巨大侮辱](/content/transcript/2019/01/20190121-1092314.md)
-
-[郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友](/content/transcript/2019/01/20190120-1088628.md)
-
-[郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！](/content/transcript/2019/01/20190120-1092296.md)
-
-[郭文贵2019年1月19日视频 20190119文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件。](/content/transcript/2019/01/20190119-1092269.md)
-
-[郭文贵2019年1月18日第二次直播 20190118_2关于政事小哥！因为受共产党对家人的迫害威胁，不得不离开过爆料革命！这更加坚定了摧毁流氓CCp的决心！以实际行动为战友报仇！一切都是刚刚开始](/content/transcript/2019/01/20190118-1092248.md)
-
-[郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀](/content/transcript/2019/01/20190118-1092260.md)
 
 
 ## 頁面 85/112 [**<**](/content/transcript/README-84.md) [1](/content/transcript/README.md) ... [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) **85** [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-86.md) [查看全部](/content/transcript/README-all.md)

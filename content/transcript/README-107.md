@@ -3,6 +3,26 @@
 
 ## 頁面 107/112 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？](/content/transcript/2017/09/20170913-1094498.md)
+
+[郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当](/content/transcript/2017/09/20170912-1094087.md)
+
+[郭文贵2017年9月11日视频 20170911全力以赴准备19大我们的影子会议](/content/transcript/2017/09/20170911-1094086.md)
+
+[郭文贵2017年9月10日视频 20170910_2马云你还记得这个东西么?180次飞行记录，200万买的录像证明一切。](/content/transcript/2017/09/20170910-1087859.md)
+
+[郭文贵2017年9月10日视频 20170910江绵恒．王岐山．孟建柱．傅政华．孙力军．马云！及我与刘彦平先生的对话](/content/transcript/2017/09/20170910-1094497.md)
+
+[郭文贵2017年9月9日视频 20170909_2分享此时此刻 为今天的直播技术失误道歉](/content/transcript/2017/09/20170909-1094074.md)
+
+[郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！](/content/transcript/2017/09/20170909-1094076.md)
+
+[郭文贵2017年9月9日视频 20170909_4补偿今天直播技术的失败 分享游艇内部](/content/transcript/2017/09/20170909-1094079.md)
+
+[郭文贵2017年9月9日视频 20170909_5在船上](/content/transcript/2017/09/20170909-1094084.md)
+
+[郭文贵2017年9月9日 20170909说说姚依林与马云，孟建柱，孙立军](/content/transcript/2017/09/20170909-1094477.md)
+
 [郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！](/content/transcript/2017/09/20170907-1094473.md)
 
 [郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！](/content/transcript/2017/09/20170906-1094375.md)
@@ -32,26 +52,6 @@
 [郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午](/content/transcript/2017/08/20170828-1094061.md)
 
 [郭文贵2017年8月28日 20170828文贵到底是不是国安特务，文贵与王艳平到底有没有乱伦](/content/transcript/2017/08/20170828-1094436.md)
-
-[郭文贵2017年8月27日直播 20170827_1](/content/transcript/2017/08/20170827-1093298.md)
-
-[郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技](/content/transcript/2017/08/20170827-1094056.md)
-
-[郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实](/content/transcript/2017/08/20170827-1094059.md)
-
-[郭文贵2017年8月26日视频 20170826老兵通过新加坡发来视频 翻墙软件偷信息 美政府对海航的关注达到我们的目的](/content/transcript/2017/08/20170826-1094053.md)
-
-[郭文贵2017年8月25日视频 20170825_270天的特别之旅](/content/transcript/2017/08/20170825-1094052.md)
-
-[郭文贵2017年8月25日做客郭宝胜 20170825宗教与中国政治及社会关系](/content/transcript/2017/08/20170825-1094829.md)
-
-[郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦](/content/transcript/2017/08/20170824-1094435.md)
-
-[郭文贵2017年8月23日视频 20170823](/content/transcript/2017/08/20170823-1094040.md)
-
-[郭文贵2017年8月22日直播 20170822_2](/content/transcript/2017/08/20170822-1093288.md)
-
-[郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。](/content/transcript/2017/08/20170822-1094823.md)
 
 
 ## 頁面 107/112 [**<**](/content/transcript/README-106.md) [1](/content/transcript/README.md) ... [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) **107** [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-108.md) [查看全部](/content/transcript/README-all.md)

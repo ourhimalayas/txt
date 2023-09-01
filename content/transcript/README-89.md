@@ -3,6 +3,26 @@
 
 ## 頁面 89/112 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月20日视频 20181120_3(曾宏版)郭文贵2018年11月20日王健之死與海航背後真相信息发布会](/content/transcript/2018/11/20181120-1088918.md)
+
+[郭文贵2018年11月20日视频 20181120_4路德访谈班农、文贵先生：谈谈未来制裁中共王岐山盗国贼的一系列行为](/content/transcript/2018/11/20181120-1089039.md)
+
+[郭文贵2018年11月20日视频 20181120_5(官方版後段)郭文贵2018年11月20日信息发布会](/content/transcript/2018/11/20181120-1089045.md)
+
+[郭文贵2018年11月20日直播 20181120_1信息发布会（中英文版）Miles Guo Press Briefing on 11/20/2018 (English & Mandarin)](/content/transcript/2018/11/20181120-1091831.md)
+
+[郭文贵2018年11月20日第二次直播 20181120_2信息发布会 : Miles Guo Press Briefing on 11/20/2018](/content/transcript/2018/11/20181120-1094216.md)
+
+[郭文贵2018年11月19日视频 20181119_1王建之死发布会的前一天受到各方压力](/content/transcript/2018/11/20181119-1088930.md)
+
+[郭文贵2018年11月18日视频 20181118_1](/content/transcript/2018/11/20181118-1088919.md)
+
+[郭文贵2018年11月17日视频 2018111711月20号的新闻发布会进展报告，遇到了巨大的困难，但是一定会照常进行](/content/transcript/2018/11/20181117-1091446.md)
+
+[郭文贵2018年11月16日视频 20181116_1文贵在皮埃尔酒店现场采访演习搞笑版](/content/transcript/2018/11/20181116-1088912.md)
+
+[郭文贵2018年11月16日视频 20181116_2](/content/transcript/2018/11/20181116-1088914.md)
+
 [郭文贵2018年11月15日视频 20181115_2](/content/transcript/2018/11/20181115-1088907.md)
 
 [郭文贵2018年11月15日视频 20181115_3](/content/transcript/2018/11/20181115-1088909.md)
@@ -32,26 +52,6 @@
 [郭文贵2018年10月30日视频 20181030_1](/content/transcript/2018/10/20181030-1088893.md)
 
 [郭文贵2018年10月29日视频 20181029文貴應邀擔任全球反CCP聯盟獨立顧問](/content/transcript/2018/10/20181029-1090094.md)
-
-[郭文贵2018年10月28日视频 20181028_2 法國政府對王健之死案的判決](/content/transcript/2018/10/20181028-1088858.md)
-
-[郭文贵2018年10月28日视频 20181028欧洲对CCP的看法正在改变！](/content/transcript/2018/10/20181028-1089892.md)
-
-[郭文贵2018年10月27日视频 20181027_1基金经理Kyle Bass网站被共匪攻击；王健发布会场地被共匪骚扰（提出用N倍价钱来取消发布会）](/content/transcript/2018/10/20181027-1088856.md)
-
-[郭文贵2018年10月26日视频 20181026你们健身了吗！一切都是刚开始！谈港币和人⺠币 的汇率](/content/transcript/2018/10/20181026-1089601.md)
-
-[郭文贵2018年10月25日视频 20181025_2](/content/transcript/2018/10/20181025-1088854.md)
-
-[郭文贵2018年10月25日视频 20181025刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/content/transcript/2018/10/20181025-1089211.md)
-
-[郭文贵2018年10月24日视频 20181024_2太卡1](/content/transcript/2018/10/20181024-1088849.md)
-
-[郭文贵2018年10月24日视频 20181024_3](/content/transcript/2018/10/20181024-1088852.md)
-
-[郭文贵2018年10月24日视频 20181024王歧山与马云窜访忽悠以色列????????的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/content/transcript/2018/10/20181024-1088888.md)
-
-[郭文贵2018年10月23日视频 20181023_1Snow今天美容了 也做過了體檢 非常健康](/content/transcript/2018/10/20181023-1088840.md)
 
 
 ## 頁面 89/112 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,26 @@
 
 ## 頁面 78/112 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着](/content/transcript/2019/07/20190708-1089302.md)
+
+[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天](/content/transcript/2019/07/20190708-1089307.md)
+
+[郭文贵2019年7月8日视频 20190708文贵是双面间谍？？](/content/transcript/2019/07/20190708-1093386.md)
+
+[2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集](/content/transcript/2019/07/20190708-1098106.md)
+
+[郭文贵2019年7月7日视频 20190707_3Snow1](/content/transcript/2019/07/20190707-1089291.md)
+
+[郭文贵2019年7月7日视频 20190707_4Snow2](/content/transcript/2019/07/20190707-1089293.md)
+
+[郭文贵2019年7月7日第二次直播 20190707_2王岐山又出手 王健“活该死”；及香港抗议将引发的CCP灭亡第一战的意义](/content/transcript/2019/07/20190707-1093369.md)
+
+[郭文贵2019年7月7日第一次直播 20190707_1爆料革命当中扮演的重要角色……并希望能给更多战友加入郭媒体……一切都是刚刚开始！](/content/transcript/2019/07/20190707-1093377.md)
+
+[2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集](/content/transcript/2019/07/20190707-1098102.md)
+
+[郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...](/content/transcript/2019/07/20190706-1093356.md)
+
 [2019年7月6日直播全文字版：与彭文正先生连线——灭共保台](/content/transcript/2019/07/20190706-1098104.md)
 
 [郭文贵2019年7月5日视频 20190705美国最高层“中国人站起来反抗，美国人一定跟上”](/content/transcript/2019/07/20190705-1093334.md)
@@ -32,26 +52,6 @@
 [2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜](/content/transcript/2019/06/20190630-1098093.md)
 
 [郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-1089271.md)
-
-[郭文贵2019年6月30日与班农直播 20190630班农 文贵谈 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-1093282.md)
-
-[郭文贵2019年6月29日视频 20190629_1战友们的有关G20的失望情绪．就是我们反共的核心力量表现！也是检验谁是真反共的一个特别事件……一切都是刚刚开始！](/content/transcript/2019/06/20190629-1089269.md)
-
-[2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜](/content/transcript/2019/06/20190629-1098095.md)
-
-[郭文贵2019年6月28日视频 20190628_2尊敬的战友的好，你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始。](/content/transcript/2019/06/20190628-1089267.md)
-
-[郭文贵2019年6月28日视频 20190628G20](/content/transcript/2019/06/20190628-1093269.md)
-
-[郭文贵2019年6月27日视频 20190627_1尊敬的战友好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！](/content/transcript/2019/06/20190627-1089265.md)
-
-[](/content/transcript/2019/06/20190626-1098089.md)
-
-[郭文贵2019年6月26日视频 20190626谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/transcript/2019/06/20190626-1093245.md)
-
-[郭文贵2019年6月25日视频 20190625从香港的成功抗议行动！和近几天共产党的统一宣传口径！让我们看到了过去两年爆料革命所面临的挑战和！但是我们赢了过去的两年……以法灭共．以美灭共……郭七条．是我们最核心的战略！](/content/transcript/2019/06/20190625-1093226.md)
-
-[2019年6月25日郭文贵先生直播全文字版：从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/content/transcript/2019/06/20190625-1098086.md)
 
 
 ## 頁面 78/112 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

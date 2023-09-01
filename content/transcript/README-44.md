@@ -3,6 +3,26 @@
 
 ## 頁面 44/112 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年11月29日盖特 20201129_1尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201129-1093160.md)
+
+[郭文贵2020年11月28日直播 20201128_1习下定决心攻打台湾，香港经济正处在最后崩盘的挣扎中，美国大选越滑稽我们越有机会！](/content/transcript/2020/11/20201128-1093331.md)
+
+[郭文贵2020年11月27日直播 20201127_1大选从滑到稽，川普总统百分之一万当选，战友们要团结、要行动！](/content/transcript/2020/11/20201127-1093312.md)
+
+[郭文贵2020年11月27日盖特 20201127_22020年11月27號尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201127-1093316.md)
+
+[郭文贵2020年11月26日直播 20201126_1感恩节直播：我们应该怎样过感恩节？我们为什么是干灭中共的唯一力量？为什么说川普总统绝对会赢！认钱为爹的时代将一去不返！](/content/transcript/2020/11/20201126-1093310.md)
+
+[郭文贵2020年11月24日直播 20201124_1](/content/transcript/2020/11/20201124-1093296.md)
+
+[郭文贵2020年11月23日盖特 20201123_1剛剛睡了6個小時 既能吃也能睡](/content/transcript/2020/11/20201123-1093222.md)
+
+[郭文贵2020年11月22日直播 20201122_1](/content/transcript/2020/11/20201122-1093203.md)
+
+[郭文贵2020年11月22日盖特 20201122_2尊敬的战友们好，你们健身了吗？你们传统播C C B病毒——香港危机真相了吗？一切都已经开始！](/content/transcript/2020/11/20201122-1093206.md)
+
+[郭文贵2020年11月22日直播 20201122_3夜晚部分](/content/transcript/2020/11/20201122-1093219.md)
+
 [郭文贵2020年11月21日盖特 20201121_1文贵与战友们一起吃新鲜出炉的面包](/content/transcript/2020/11/20201121-1093158.md)
 
 [郭文贵2020年11月21日直播 20201121_2](/content/transcript/2020/11/20201121-1093196.md)
@@ -32,26 +52,6 @@
 [郭文贵2020年11月15日盖特 20201115_2衷心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！](/content/transcript/2020/11/20201115-1093183.md)
 
 [郭文贵2020年11月15日盖特 20201115_32心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！](/content/transcript/2020/11/20201115-1093185.md)
-
-[郭文贵2020年11月15日直播 20201115_4连线唐平，威廉王](/content/transcript/2020/11/20201115-1093212.md)
-
-[郭文贵2020年11月14日直播 20201114_1](/content/transcript/2020/11/20201114-1093157.md)
-
-[郭文贵2020年11月14日连线香草山 20201114_2纽约香草山农场DC挺川大游行](/content/transcript/2020/11/20201114-1093166.md)
-
-[郭文贵2020年11月13日视频 20201113_1美國經濟、歐洲經濟、亞洲經濟一定下滑](/content/transcript/2020/11/20201113-1090029.md)
-
-[郭文贵2020年11月11日直播 20201111_1](/content/transcript/2020/11/20201111-1093145.md)
-
-[郭文贵2020年11月11日直播 20201111_3网页版试直播 - 第二部分](/content/transcript/2020/11/20201111-1093148.md)
-
-[郭文贵2020年11月11日直播 20201111_2网页版试直播 - 第一部分](/content/transcript/2020/11/20201111-1093156.md)
-
-[郭文贵2020年11月10日视频 20201110_3剛剛有個牛人急著想見我 現在我們新中國聯邦說甚麼人家都信了](/content/transcript/2020/11/20201110-1090022.md)
-
-[郭文贵2020年11月10日视频 20201110_4以後加入農場的條件會越來越苛](/content/transcript/2020/11/20201110-1090024.md)
-
-[郭文贵2020年11月10日视频 20201110_5有人過段時間要在這做個節目 現在先佈置佈置](/content/transcript/2020/11/20201110-1090025.md)
 
 
 ## 頁面 44/112 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)

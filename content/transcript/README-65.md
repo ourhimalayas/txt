@@ -3,6 +3,26 @@
 
 ## 頁面 65/112 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界](/content/transcript/2019/11/20191123-1094161.md)
+
+[郭文贵2019年11月22日视频 20191122_1Snow 尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵今天上午没有直播，一切都是刚刚开始！](/content/transcript/2019/11/20191122-1089670.md)
+
+[郭文贵2019年11月21日视频 20191121_2 郭文貴來電 13604~21016妄议热线 328期 2019年11月21日 郭文贵爆料证实王健是被精心策划的谋杀，郭文贵来电，王健可能没死，墓里疑是日本人](/content/transcript/2019/11/20191121-1089668.md)
+
+[郭文贵2019年11月21日 20191121警告海外华人不要帮腔中共作恶 2）喊话王健妻儿，翻译周恬恬出面合作 3）暗示接下来要爆杨洁篪得大料](/content/transcript/2019/11/20191121-1093940.md)
+
+[郭文贵2019年11月20日 20191120_4“纪念1120新闻发布会一周：揭秘王健之死”上部](/content/transcript/2019/11/20191120-1088550.md)
+
+[郭文贵2019年11月20日视频 20191120_21120王健之死全球直播馬上開始](/content/transcript/2019/11/20191120-1089659.md)
+
+[郭文贵2019年11月20日视频 20191120_3即將開始的直播將是滅共歷史上的傳奇](/content/transcript/2019/11/20191120-1089662.md)
+
+[郭文贵2019年11月20日 20191120“纪念1120新闻发布会一周：揭秘王健之死”下部](/content/transcript/2019/11/20191120-1094024.md)
+
+[2019年11月20日文贵大直播全文字版：王建之死 两周年（上）](/content/transcript/2019/11/20191120-1243310.md)
+
+[郭文贵2019年11月19日第二次直播 20191119_2一整天直播的大概安排和香港理工大的背后故事。](/content/transcript/2019/11/20191119-1093981.md)
+
 [郭文贵2019年11月19日第一次直播 20191119_1香港人权和民主法案参议院通过 连线班农先生庆祝香港人权和民主法案全票通过！](/content/transcript/2019/11/20191119-1093989.md)
 
 [郭文贵2019年11月18日视频 20191118_220191118之2 文贵又开始浪啦浪花钱啦…](/content/transcript/2019/11/20191118-1089655.md)
@@ -32,26 +52,6 @@
 [郭文贵2019年11月14日第二次直播 20191114_2香港一定赢！三分钟香港抗议实况](/content/transcript/2019/11/20191114-1093952.md)
 
 [郭文贵2019年11月14日第一次直播 20191114_1](/content/transcript/2019/11/20191114-1093958.md)
-
-[2019年11月12日文贵大直播全文字版：关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1078972.md)
-
-[郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1093948.md)
-
-[2019年11月11日文贵大直播全文字版：文贵与班农先生紧急直播关于香港](/content/transcript/2019/11/20191111-1079328.md)
-
-[郭文贵2019年11月11日 20191111与班农先生紧急直播关于香港](/content/transcript/2019/11/20191111-1093942.md)
-
-[2019年11月10日文贵大直播全文字版：中共区块链就是私块链; 香港打的信息战也就是爆料革命的媒体战](/content/transcript/2019/11/20191110-1078959.md)
-
-[郭文贵2019年11月10日 20191110中共区块链就是私块链; 香港打的信息战也就是爆料革命的媒体战](/content/transcript/2019/11/20191110-1094174.md)
-
-[郭文贵2019年11月9日视频 20191109共产党早已掉入塔西佗陷阱；香港保护法案和人权一定会过！](/content/transcript/2019/11/20191109-1093903.md)
-
-[郭文贵2019年11月8日视频 20191108_1正在為香港人權與民主法案準備材料](/content/transcript/2019/11/20191108-1089641.md)
-
-[郭文贵2019年11月8日视频 20191108_2戰友們好啊今天是發生很多事情啊今天是個好日子啊一天沒發信息了但是太好了啊 好事 好事啊 哈哈哈 Ps搂住搂住](/content/transcript/2019/11/20191108-1089642.md)
-
-[2019年11月7日文贵大直播全文字版：中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资](/content/transcript/2019/11/20191107-1077178.md)
 
 
 ## 頁面 65/112 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)

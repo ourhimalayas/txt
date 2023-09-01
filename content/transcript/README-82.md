@@ -3,6 +3,26 @@
 
 ## 頁面 82/112 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来](/content/transcript/2019/05/20190511-1093080.md)
+
+[郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people](/content/transcript/2019/05/20190510-1093052.md)
+
+[郭文贵2019年5月9日 20190509中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/transcript/2019/05/20190509-1094196.md)
+
+[郭文贵2019年5月8日视频 20190508尊敬的战友们好，你们健身了吗？文贵聊聊．为什么中方要求美方不能公开中美的贸易协议内容！为什么文贵的梦语．郭九条．在国内引起了巨大的反响！一切都是刚刚开始！](/content/transcript/2019/05/20190508-1093044.md)
+
+[郭文贵2019年5月7日视频 20190507共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/content/transcript/2019/05/20190507-1093038.md)
+
+[郭文贵2019年5月6日视频 20190506_35.6聊股市](/content/transcript/2019/05/20190506-1088603.md)
+
+[郭文贵2019年5月6日视频 20190506_2文贵受到snow的严重骚扰……因为文贵马上要参加两个紧急的会议，暂时不能直播](/content/transcript/2019/05/20190506-1089213.md)
+
+[郭文贵2019年5月6日视频 20190506文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/transcript/2019/05/20190506-1093027.md)
+
+[郭文贵2019年5月5日与班农先生对谈 20190505文贵与班农先生就有关中美贸易协议停止！](/content/transcript/2019/05/20190505-1093017.md)
+
+[郭文贵2019年5月4日视频 20190504小夏与文贵谈四一九VOA断播背后的真相](/content/transcript/2019/05/20190504-1092997.md)
+
 [郭文贵2019年5月3日视频 20190503_2与战友分享日本拉面](/content/transcript/2019/05/20190503-1089196.md)
 
 [郭文贵2019年5月3日视频 20190503_3希望＂政经关不了＂永远都不被关！文贵将和你联系！与您连线直播！只要有利于台湾和台湾人民的事我都愿意干](/content/transcript/2019/05/20190503-1089200.md)
@@ -32,26 +52,6 @@
 [郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊](/content/transcript/2019/04/20190426-1089160.md)
 
 [郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）](/content/transcript/2019/04/20190425-1089155.md)
-
-[郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！](/content/transcript/2019/04/20190424-1092894.md)
-
-[郭文贵2019年4月23日视频 20190423_1親愛的戰友 今天有三撥牛人來紐約開會 耗子們也正向著鼠夾狂奔](/content/transcript/2019/04/20190423-1089151.md)
-
-[郭文贵2019年4月22日视频 20190422_2半小时后，纽约时间上午1000北京时间晚上1000．文贵直播报平安．谈谈对伊朗石油的制裁意味着什么？和盗国贼有什么关系](/content/transcript/2019/04/20190422-1089149.md)
-
-[郭文贵2019年4月22日 20190422伊朗的石油制栽意味着共产党推行独栽盗国制度．将受到法治．民主社会制度的全面反击！](/content/transcript/2019/04/20190422-1092886.md)
-
-[郭文贵2019年4月21日 20190421文贵为什么要揭穿．李嘉诚．马云．郭台铭．江志诚！](/content/transcript/2019/04/20190421-1092870.md)
-
-[郭文贵2019年4月20日视频 20190420班农先生与文贵谈郭台铭选台湾总统 : Steve Bannon and Miles Guo, a dialogue on Terry Gou’s presidential bid](/content/transcript/2019/04/20190420-1092861.md)
-
-[郭文贵2019年4月19日视频 20190419明早將與班農一起直播, 班農說的話文貴不負責, 因為他可能違反郭七條](/content/transcript/2019/04/20190419-1089147.md)
-
-[郭文贵2019年4月18日视频 20190418_2正在准备20号上午9点的直播！](/content/transcript/2019/04/20190418-1089144.md)
-
-[郭文贵2019年4月18日视频 20190418_1一个难忘的日子……2017年与VOA龚小夏女士．东方先生……在我家的釆访！断播二周年．文贵回顾这两年来爆料的一些人和事……一切都是刚刚开始](/content/transcript/2019/04/20190418-1092834.md)
-
-[郭文贵2019年4月17日视频 20190417_1在喜馬拉雅大使館試衛星WIFI](/content/transcript/2019/04/20190417-1089114.md)
 
 
 ## 頁面 82/112 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

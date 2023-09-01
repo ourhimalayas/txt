@@ -3,6 +3,26 @@
 
 ## 頁面 84/112 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年4月6日视频 20190406_2应战友们的要求．展示一下喜马拉雅大使馆直播间！这是战友们在美国纽约的家的的9分之一！](/content/transcript/2019/04/20190406-1089089.md)
+
+[郭文贵2019年4月6日视频 20190406班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/transcript/2019/04/20190406-1092746.md)
+
+[郭文贵2019年4月3日视频 20190403_1万分感谢科罗拉洲的战友们……你们的勇敢与智慧……让文贵感动至极……一切都要看结果！](/content/transcript/2019/04/20190403-1089174.md)
+
+[郭文贵2019年4月2日视频 20190402_2万分感谢潜伏的战友们的重大贡献](/content/transcript/2019/04/20190402-1089087.md)
+
+[郭文贵2019年4月2日视频 20190402尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵向战友们报告在加洲开会的感受．和睡在帐篷的原因与地点！一切都是刚刚开始！【挺郭小妹】](/content/transcript/2019/04/20190402-1092712.md)
+
+[郭文贵2019年4月1日视频 20190401_1郭文贵先生美国加州报平安：帐内论灭共，血誓定决心！](/content/transcript/2019/04/20190401-1089172.md)
+
+[郭文贵2019年3月31日视频 20190331_1尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵在加州圣巴巴拉向大家报平安！一切都是刚刚开始！](/content/transcript/2019/03/20190331-1089169.md)
+
+[郭文贵2019年3月30日视频 20190330_1文贵在加州向战友们报平安！有的事情爆得太早 把事情都毀了 而且毀得很嚴重](/content/transcript/2019/03/20190330-1089166.md)
+
+[郭文贵2019年3月29日浴火重生 20190329超人归来](/content/transcript/2019/03/20190329-1092708.md)
+
+[郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。](/content/transcript/2019/03/20190307-1089163.md)
+
 [郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？](/content/transcript/2019/03/20190305-1092684.md)
 
 [郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……](/content/transcript/2019/03/20190304-1092673.md)
@@ -32,26 +52,6 @@
 [郭文贵2019年2月22日直播 20190222_2连接调试](/content/transcript/2019/02/20190222-1088624.md)
 
 [郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情](/content/transcript/2019/02/20190222-1092426.md)
-
-[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！](/content/transcript/2019/02/20190221-1092858.md)
-
-[郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1](/content/transcript/2019/02/20190220-1089132.md)
-
-[郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2](/content/transcript/2019/02/20190220-1089145.md)
-
-[郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡](/content/transcript/2019/02/20190219-1092852.md)
-
-[郭文贵2019年2月17日 20190217文贵再谈法治基金的目的和中美之间即将发生的大事。](/content/transcript/2019/02/20190217-1092807.md)
-
-[郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读](/content/transcript/2019/02/20190216-1092778.md)
-
-[郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！](/content/transcript/2019/02/20190207-1089108.md)
-
-[郭文贵2019年2月7日视频 20190207_3Snow 在咬王妓山．孟建柱．孙力军的蛋蛋！](/content/transcript/2019/02/20190207-1089110.md)
-
-[郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190207-1092740.md)
-
-[郭文贵2019年2月6日 20190206文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/transcript/2019/02/20190206-1092699.md)
 
 
 ## 頁面 84/112 [**<**](/content/transcript/README-83.md) [1](/content/transcript/README.md) ... [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) **84** [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-85.md) [查看全部](/content/transcript/README-all.md)

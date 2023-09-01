@@ -3,6 +3,26 @@
 
 ## 頁面 30/112 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年5月17日盖特 20210517_1回答很多国内战友问七哥．是否应该投资刚刚复出的过去的中国亿万富豪们的项目！七哥如何看待，现在比特币和加密货币的混乱！](/content/transcript/2021/05/20210517-1091369.md)
+
+[郭文贵2021年5月17日盖特 20210517_2尊敬的战友们好，由于明天一整天的特别重要的事情的安排，上午没有时间发盖特，所以现在先发一个盖特！谈谈今天共产党操控的火鸡龚．????粑傅．在华盛顿邮报和所谓的一个．AI黑客网站。两](/content/transcript/2021/05/20210517-1091371.md)
+
+[郭文贵2021年5月16日直播 20210516_1为什么文贵反对西方国家对中共子女的签证限制；怎样理解文贵坚决灭共，对99%党员大赦，反共不反华](/content/transcript/2021/05/20210516-1091359.md)
+
+[郭文贵2021年5月16日盖特 20210516_2尊敬的战友们好！分享直播后的黄色故事的继续……大家知道康康，come come with me空空with me。是什么意思吗？](/content/transcript/2021/05/20210516-1091362.md)
+
+[郭文贵2021年5月16日盖特 20210516_3尊敬的家人们好，最近穿黄西装多了点儿讲成人的笑话多了点儿，可能有点儿时空，又给大家造成不便之处，多多包涵七哥想在这里和大家谈谈这方面的看法！](/content/transcript/2021/05/20210516-1091365.md)
+
+[郭文贵2021年5月15日盖特 20210515_1尊敬的战友们好，懂英文的请千万不要看这个七哥这个学英文的盖特．想学英文的一定前来观看啲！【Why should we take down the CCP? they committed genocide in Xinjiang Why should we take down the ccp? Ruined the Buddihst](/content/transcript/2021/05/20210515-1091322.md)
+
+[郭文贵2021年5月15日盖特 20210515_2尊敬的战友们好！数字加密货币就是人类进入 数字时代的真正的核心！美中在数字时代加密货币时代争夺的是什么？共产党在巴勒斯坦巴以冲突当中扮演什么角色？](/content/transcript/2021/05/20210515-1091328.md)
+
+[郭文贵2021年5月15日盖特 20210515_3衷心地希望台湾同胞．能团结一致，消灭共产党的这次的以毒攻台．以毒灭台的恶毒计划！](/content/transcript/2021/05/20210515-1091330.md)
+
+[郭文贵2021年5月15日盖特 20210515_4G翻身正在一场新的革命当中．即将给Gclub会员带来一些福利惊喜！](/content/transcript/2021/05/20210515-1091333.md)
+
+[郭文贵2021年5月14日盖特 20210514_1任何对无辜的体制内的孩子．被拒签而幸灾乐祸的人！都是不正确的，呼吁所有的买Gclub的战友以最快的时间．到你的农场对账，或给Gclub公司直接打电话．对帐领卡！不要让自己失去利益的机会！](/content/transcript/2021/05/20210514-1091318.md)
+
 [郭文贵2021年5月13日盖特 20210513_5挡不住的诱惑！](/content/transcript/2021/05/20210513-1091312.md)
 
 [郭文贵2021年5月13日盖特 20210513_1尊敬的战友们好，7哥将在半小时左右．开始乱聊直播！](/content/transcript/2021/05/20210513-1091329.md)
@@ -32,26 +52,6 @@
 [郭文贵2021年5月8日盖特 20210508_1七哥要给所有的战友们．每个人准备一个看不着摸不着，却每个人都想要的礼物……作为6月4号的，新中国联邦一周年礼物．大家猜猜是什么呢？](/content/transcript/2021/05/20210508-1091287.md)
 
 [郭文贵2021年5月7日盖特 20210507_1中国共产党这个流氓政府．为什么要在全国封杀购买比特币．和加密货币？只要共产党不让干的事儿，都是世界上最伟大的事儿，只要共产党让干的事儿．一定是世界上最坏的事！](/content/transcript/2021/05/20210507-1091276.md)
-
-[郭文贵2021年5月7日盖特 20210507_2应很多战友的要求．再录制第二段盖特．加密货币的最重要的价值是．无阻碍的全球即时流通．绝对的隐私和保密性．更重要的是零成本的点对点的绝对安全交易！还有很多很多与人类的尊严．民](/content/transcript/2021/05/20210507-1091278.md)
-
-[郭文贵2021年5月7日盖特 20210507_3加密货币，如果被枪顶着脑袋支付给非关的第三方意味着什么？共产党为什么大肆的宣传，不让买虚拟货币和加密货币！可自己去推广D C E P的中共加密货币呢？](/content/transcript/2021/05/20210507-1091281.md)
-
-[郭文贵2021年5月6日盖特 20210506_1流氓的中国共产党，真的是到了最后的疯狂的时刻，我们战友们该如何应对这共产党最后的疯狂呢？](/content/transcript/2021/05/20210506-1091307.md)
-
-[郭文贵2021年5月6日盖特 20210506_2第二次发盖特……](/content/transcript/2021/05/20210506-1091308.md)
-
-[郭文贵2021年5月5日直播 20210505_1](/content/transcript/2021/05/20210505-1091300.md)
-
-[郭文贵2021年5月4日盖特 20210504_1尊敬的战友们好……由于昨天一整夜的会议，我今天上午无法直播．在这里向大家表示衷心的道歉！](/content/transcript/2021/05/20210504-1091253.md)
-
-[郭文贵2021年5月4日盖特 20210504_2明天乱聊直播．文贵会有一半的时间，回答战友提出的问题。希望战友们直截了当问我．当下战友们最需要文贵回答的问题……](/content/transcript/2021/05/20210504-1091255.md)
-
-[郭文贵2021年5月3日盖特 20210503_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危急真相了吗，接下来的几周……全世界将在各领域．对共产党发起一次病毒真相．责任的大追讨！将是灭共的一个小风暴时刻！](/content/transcript/2021/05/20210503-1091247.md)
-
-[郭文贵2021年5月2日直播 20210502_1国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](/content/transcript/2021/05/20210502-1091238.md)
-
-[郭文贵2021年5月2日盖特 20210502_2吃大花卷喽……](/content/transcript/2021/05/20210502-1091242.md)
 
 
 ## 頁面 30/112 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

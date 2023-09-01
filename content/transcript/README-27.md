@@ -3,6 +3,26 @@
 
 ## 頁面 27/112 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年6月24日盖特 20210624_2第二段：关于很多想加入GTV工作的战友们的一些问题的回复！](/content/transcript/2021/06/20210624-1091596.md)
+
+[郭文贵2021年6月23日直播 20210623_1东利诉SV案历时三年，文贵从未放弃，这次胜诉的重大意义；共产党利用其控制的律师事务所进行司法超限战对美国的威胁；文贵给大家带来G系列新的希望与未来！](/content/transcript/2021/06/20210623-1091618.md)
+
+[郭文贵2021年6月22日盖特 20210622_1中共国的经济和金融系统正在用政治维稳的方式，阻止银行和房地产的崩盘！在新的世界各种威胁情况下，新中国联邦和爆料革命的所有的兄弟姐妹们．一定做好最严肃的准备，并同时要紧紧地团](/content/transcript/2021/06/20210622-1091583.md)
+
+[郭文贵2021年6月22日盖特 20210622_2](/content/transcript/2021/06/20210622-1091585.md)
+
+[郭文贵2021年6月22日盖特 20210622_3尊敬的战友们好：中共为什么对虚拟货币如此的恐惧，共产党内部掌握重要信息的高管外逃这将是中共的噩梦，病毒将再次的威胁整个世界，希望战友们能团结在起来共同面对](/content/transcript/2021/06/20210622-1091588.md)
+
+[郭文贵2021年6月20日直播 20210620_1文贵代表爆料革命，新中国联邦向西方世界再次发出警告，希望各西方政府高度重视，做好准备！吴征，三品澜的作案工具不简单！](/content/transcript/2021/06/20210620-1091582.md)
+
+[郭文贵2021年6月20日直播 20210620_2给Snow理发直播](/content/transcript/2021/06/20210620-1091587.md)
+
+[郭文贵2021年6月20日盖特 20210620_3来自大树林里的爆料！](/content/transcript/2021/06/20210620-1091602.md)
+
+[郭文贵2021年6月19日盖特 20210619_1](/content/transcript/2021/06/20210619-1091593.md)
+
+[郭文贵2021年6月19日盖特 20210619_2聊聊昨天接到了国内被以黄灭共吓破胆人的电话……！](/content/transcript/2021/06/20210619-1091600.md)
+
 [郭文贵2021年6月18日盖特 20210618_1以黄灭共开始，杨澜黑森林后，还有宋祖英，汤灿。。中共国在崩塌前会有大量高官叛逃！](/content/transcript/2021/06/20210618-1091589.md)
 
 [郭文贵2021年6月17日直播 20210617_1以黄灭共正式开始；爆料三品兰，李萍，李薇，汤灿，爆肛芳等与中南坑老杂毛的故事；各农场怎样做好直播节目](/content/transcript/2021/06/20210617-1091560.md)
@@ -32,26 +52,6 @@
 [郭文贵2021年6月10日盖特 20210610_1今天上午10:30在国会山询问关于闫博士来美国，以及他给美国政府的报告的有关事情！说明了什么？新中国联邦和爆料革命走到今天实在实在太不容易，无数个背后的伟大的．有巨大成功的影响力的](/content/transcript/2021/06/20210610-1091530.md)
 
 [郭文贵2021年6月9日盖特 20210609_1尊敬的战友们好！复旦．南京等地区爆发的一系列的抗议事件．和在中共国的国内发生一系列的残暴杀人……都是共产党奴隶抢夺和非法统治中国人民必然发生的一个轮回的结果，欧中协议失败和](/content/transcript/2021/06/20210609-1091526.md)
-
-[郭文贵2021年6月8日盖特 20210608_1尊敬的战友们好14亿同胞．和孩子们的绝望……中共经济的即将的崩溃……和社会治安的动乱……和美军即将长期派驻台湾……保护台湾……宣布台湾成为主权独立的国家……这些事件的发生这意味](/content/transcript/2021/06/20210608-1091524.md)
-
-[郭文贵2021年6月7日直播 20210607_164后大家需要抓紧完成的几件大事，与各农场联系；宣布联盟农场的变动，介绍铁血组新成员](/content/transcript/2021/06/20210607-1091520.md)
-
-[郭文贵2021年6月6日盖特 20210606_1尊敬的战友们好！新中国联邦的宣言．和爆料革命的．行动力．正在对冲掉共产党在中共的一切谎言．爆料革命将横扫中共在世界上任何一个角落的黑暗的力量！](/content/transcript/2021/06/20210606-1091509.md)
-
-[郭文贵2021年6月6日盖特 20210606_2尊敬的战友们好……吃鱼头喽……](/content/transcript/2021/06/20210606-1091511.md)
-
-[郭文贵2021年6月6日盖特 20210606_3尊敬的战友们……好在开会20分钟时间为SNOW 理理战发！](/content/transcript/2021/06/20210606-1091513.md)
-
-[郭文贵2021年6月5日盖特 20210605_3七哥代表14亿新中国联邦人感谢．愿拜自由女神！(一)](/content/transcript/2021/06/20210605-1089822.md)
-
-[郭文贵2021年6月5日盖特 20210605_4七哥代表14亿新中国联邦人感谢．愿拜自由女神！(二)](/content/transcript/2021/06/20210605-1089826.md)
-
-[郭文贵2021年6月5日盖特 20210605_5七哥代表14亿新中国联邦人感谢．愿拜自由女神！(三)](/content/transcript/2021/06/20210605-1089832.md)
-
-[郭文贵2021年6月5日直播 20210605_1 感恩自由女神！天佑新中国联邦！](/content/transcript/2021/06/20210605-1091496.md)
-
-[郭文贵2021年6月5日盖特 20210605_2与SNOW 玩对食！](/content/transcript/2021/06/20210605-1091507.md)
 
 
 ## 頁面 27/112 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
