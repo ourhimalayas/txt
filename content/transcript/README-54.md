@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 54/112 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 54/113 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年6月15日视频 20200615_3请应聘新中国联邦职务的战友们务必详细的提供你的个人信息和个人需求](/content/transcript/2020/06/20200615-1089875.md)
+
+[郭文贵2020年6月15日视频 20200615_4文贵衷心地向战友们就昨天错误的发出新中国联邦部长及副总理招聘广告衷心地向你们道歉️文贵将在视频中骑狗惩罚自己](/content/transcript/2020/06/20200615-1089898.md)
+
+[郭文贵2020年6月15日视频 20200615_5很多人打电话问我关于VOA炒掉VOACEO阿曼达和很多人要采访我对此事的看法我没有兴趣接受任何人的采访我只在这里谈谈我个人的粗浅的看法](/content/transcript/2020/06/20200615-1089900.md)
+
+[郭文贵2020年6月15日第一次直播 20200615_1關於戰友們投資GTV被非法退款、非法被剝奪投資利益、这将是一场法律行动的维权](/content/transcript/2020/06/20200615-1094168.md)
+
+[郭文贵2020年6月15日第二次直播 20200615_2文贵跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝](/content/transcript/2020/06/20200615-1094190.md)
+
+[郭文贵2020年6月13日连线江财神 20200613畅谈喜马拉雅农场和新中国联邦未来](/content/transcript/2020/06/20200613-1094251.md)
+
+[郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/content/transcript/2020/06/20200610-1092566.md)
+
+[郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录](/content/transcript/2020/06/20200609-1089033.md)
 
 [郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？](/content/transcript/2020/06/20200609-1092363.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2020年5月27日视频 20200527_3所有被指定为个地区国家与战友们的联系负责人都不允许收集和查看任何战友的私人信息和投资相关的任何资料](/content/transcript/2020/05/20200527-1089862.md)
 
-[郭文贵2020年5月27日视频 20200527_4文贵拜请所有有良知的华人同胞们，香港同胞们．去到美国国务卿彭佩奥先生推特下面．发信息．留言．对他表示感谢！我们要坚持密集的……全24小时不停止的对他表示感激！他是我们的英雄！](/content/transcript/2020/05/20200527-1089864.md)
 
-[郭文贵2020年5月27日视频 20200527_5文贵又在海上耍浪了](/content/transcript/2020/05/20200527-1089868.md)
-
-[郭文贵2020年5月27日视频 20200527_1呼吁所有购买G币的和投资．受到任何银行威胁和取消交易的战友们联合起来，诉讼相关银行和stripe支付平台](/content/transcript/2020/05/20200527-1092048.md)
-
-[郭文贵2020年5月27日视频 20200527_2文贵看到很多传播美国取消香港自贸区地位的社交信息，但是却没有人提的爆料革命，这对爆料革命的战友都是不公平的](/content/transcript/2020/05/20200527-1092368.md)
-
-[郭文贵2020年5月25日视频 20200525_1同一天的第一次直播.。如何面对共产党将以一国之力要破坏我们的六四建国宣言！](/content/transcript/2020/05/20200525-1089000.md)
-
-[郭文贵2020年5月25日视频 20200525_2共产党对战友们涌跃的投资的恐惧????用威胁其他国银行不配合投资付款！](/content/transcript/2020/05/20200525-1092059.md)
-
-[郭文贵2020年5月25日视频 20200525_3如何解决共产党对我们投资的封杀．请战友们准备好六四宣言，讲遇到的挑战和挫折。](/content/transcript/2020/05/20200525-1092378.md)
-
-[郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊](/content/transcript/2020/05/20200523-1089009.md)
-
-
-## 頁面 54/112 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 54/113 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)

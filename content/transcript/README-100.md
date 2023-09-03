@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 100/112 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 100/113 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年4月6日视频 20180406谈王岐山抓吴小晖是打邓家威胁美国总统的一箭多雕之计](/content/transcript/2018/04/20180406-1092794.md)
+
+[郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁](/content/transcript/2018/04/20180405-1092744.md)
+
+[郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！](/content/transcript/2018/04/20180404-1092652.md)
+
+[郭文贵2018年4月3日第一次直播 20180403_1-在未来的几天我将向大家谈一下关于吴晓辉和向俊波以及他背后的真实故事他也是香港警察与盗国贼的谋害者之一他的黑幕会也让大家震惊万分](/content/transcript/2018/04/20180403-1092620.md)
+
+[郭文贵2018年4月3日第二次直播 20180403_2中国企业家都是盗国贼资本的代孕者！](/content/transcript/2018/04/20180403-1092826.md)
+
+[郭文贵2018年4月2日视频 20180402_2我将向大家谈一下关于吴小晖和项俊波以及他们背后的真实故事](/content/transcript/2018/04/20180402-1087678.md)
+
+[郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180402-1094195.md)
+
+[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）](/content/transcript/2018/03/20180331-1092596.md)
 
 [郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子](/content/transcript/2018/03/20180330-1092528.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2018年3月17日视频 20180317谈王岐山当选副主席郭七条不变，喜马拉雅法治中国目标不变](/content/transcript/2018/03/20180317-1092463.md)
 
-[郭文贵2018年3月16日第二次直播 20180316_2推特拉黑了谁？如何用智慧铲灭盗国贼！](/content/transcript/2018/03/20180316-1094202.md)
 
-[郭文贵2018年3月16日第一次直播 20180316_1如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/content/transcript/2018/03/20180316-1094207.md)
-
-[郭文贵2018年3月15日视频 20180315_2竞然将不喜欢的房子自己给拆了……这样的真实意思表示方式我喜欢！这可能就是俗话说的．狗模人样吧！](/content/transcript/2018/03/20180315-1087874.md)
-
-[郭文贵2018年3月15日视频 20180315谈天真就是无知吗无私追求就是愚蠢吗以及陈军为什么害文贵](/content/transcript/2018/03/20180315-1092450.md)
-
-[郭文贵2018年3月14日视频 20180314_1再对五一共振新看法,坚决反对用援郭会名义参与](/content/transcript/2018/03/20180314-1092331.md)
-
-[郭文贵2018年3月14日视频第二部分 20180314_2谈明镜陈军和胡频事件以及将采取的有关行动和五一共振可能会造成的后果](/content/transcript/2018/03/20180314-1092416.md)
-
-[郭文贵2018年3月13日直播 20180313_1上天赐予的又一个巨大的礼物 —美国新国务卿！对盗国贼将是巨大打击](/content/transcript/2018/03/20180313-1087843.md)
-
-[郭文贵2018年3月13日直播 20180313_2陈军拥有多少明镜股份？身为民运大佬，又被边控，为什么他可以随时进出中国？](/content/transcript/2018/03/20180313-1087856.md)
-
-
-## 頁面 100/112 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 100/113 [**<**](/content/transcript/README-99.md) [1](/content/transcript/README.md) ... [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) **100** [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-101.md) [查看全部](/content/transcript/README-all.md)

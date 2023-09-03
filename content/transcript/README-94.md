@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 94/112 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 94/113 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年9月10日第二次直播 20180910_2马云辞职的真正的目的与动机漫天过海！](/content/transcript/2018/09/20180910-1093071.md)
+
+[郭文贵2018年9月9日直播 20180909_1](/content/transcript/2018/09/20180909-1088721.md)
+
+[郭文贵2018年9月8日直播 20180908_1文贵用行动．莲花西瓜刀法感谢杨建利．韩涟潮先生！伟大的亲爱的战友们！感恩伟大的美国！一切都是刚刚开始！](/content/transcript/2018/09/20180908-1088715.md)
+
+[郭文贵2018年9月8日直播 20180908_2](/content/transcript/2018/09/20180908-1088718.md)
+
+[郭文贵2018年9月7日视频 20180907文贵申请政庇一周年！与战友们分享香港司法的危害与黑暗的事实！](/content/transcript/2018/09/20180907-1093040.md)
+
+[郭文贵2018年9月6日直播 20180906_1](/content/transcript/2018/09/20180906-1088707.md)
+
+[郭文贵2018年9月5日视频第二部分 20180905_2黄河边性无能造成严重后果。林肯中心被取消发布会 2](/content/transcript/2018/09/20180905-1093026.md)
+
+[郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】](/content/transcript/2018/09/20180905-1093135.md)
 
 [郭文贵2018年9月3日视频 20180903_2高清版 为了员工和家人，文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180903-1088670.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了](/content/transcript/2018/08/20180818-1087767.md)
 
-[郭文贵2018年8月18日直播 20180818_1文贵推特被封,请战友不要关闭推特 王健事件相关人员受到盗国贼威胁](/content/transcript/2018/08/20180818-1088686.md)
 
-[郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/transcript/2018/08/20180817-1094180.md)
-
-[郭文贵2018年8月16日第二次直播 20180816_2台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）](/content/transcript/2018/08/20180816-1092979.md)
-
-[郭文贵2018年8月16日第一次直播 20180816_1文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/content/transcript/2018/08/20180816-1092982.md)
-
-[郭文贵2018年8月16日第三次直播 20180816_3台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）](/content/transcript/2018/08/20180816-1093014.md)
-
-[郭文贵2018年8月15日视频 20180815_2做平板撑 坚持才能胜利！](/content/transcript/2018/08/20180815-1087763.md)
-
-[郭文贵2018年8月15日直播 20180815_1聊聊人民币汇率的问题,美中战略重新定义的内涵和大连政法委的恶行](/content/transcript/2018/08/20180815-1088676.md)
-
-[郭文贵2018年8月13日视频 20180813_3健身视频](/content/transcript/2018/08/20180813-1087758.md)
-
-
-## 頁面 94/112 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 94/113 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)

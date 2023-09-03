@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 78/112 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 78/113 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
+
+[2019年7月12日直播全文字版：蔡英文访问纽约；香港接下来的行动；大阪G20的结果已经影响了美国内部的政治！](/content/transcript/2019/07/20190712-1098107.md)
+
+[郭文贵2019年7月11日视频 20190711_1本周星期六的直播．将改为本周星期天上午930！一切都是刚刚开始](/content/transcript/2019/07/20190711-1089310.md)
+
+[郭文贵2019年7月11日视频 20190711_2郭文贵先生首谈卡拉OK 爆料革命是过街老虎](/content/transcript/2019/07/20190711-1089314.md)
+
+[郭文贵2019年7月10日视频 20190710尊敬的战友们好．不要计较任何的名．利．不要评价香港的抗议运动的阶段性的得失……我们只有一个目标．灭共．其他都不重要，一切都是刚刚开始](/content/transcript/2019/07/20190710-1093407.md)
+
+[2019年7月10日直播全文字版：不要计较名利，不要评价香港的抗议运动的阶段性的得失，我们只有一个目标：灭共！](/content/transcript/2019/07/20190710-1098109.md)
+
+[郭文贵2019年7月9日视频 20190709香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-1093392.md)
+
+[2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-1098105.md)
+
+[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始](/content/transcript/2019/07/20190708-1089300.md)
 
 [郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着](/content/transcript/2019/07/20190708-1089302.md)
 
@@ -37,21 +53,5 @@
 
 [2019年7月3日文贵在华盛顿的车上直播全文字版](/content/transcript/2019/07/20190703-1098099.md)
 
-[郭文贵2019年7月2日视频 20190702_1据文贵了解和瞎蒙．G20会议．此次大版G20．是中美会议当中最紧张，最严肃．最奇怪．最没有确定性的．的双边会议！后面的故事．很多．该文贵开完庭后，详细向大家汇报，大利爆料革命…](/content/transcript/2019/07/20190702-1089278.md)
 
-[郭文贵2019年7月2日视频 20190702_2文贵与班农在白宫北侧．谈今天打赢夏畜生诽谤案的重要标志性意义……这是个改变美国法律历史的事件](/content/transcript/2019/07/20190702-1089283.md)
-
-[2019年7月2日直播全文字版：此次大阪G20是中美会议当中最紧张、最严肃、最奇怪、最没有确定性的的双边会议](/content/transcript/2019/07/20190702-1098100.md)
-
-[郭文贵2019年7月1日视频 20190701_2香港昨天的游行，更加证明了港人不是靠黑手推动追求正义，而是港人抗拒共产党的恶法、和追求法治、自由、民主的力量，而自发的运动](/content/transcript/2019/07/20190701-1089273.md)
-
-[郭文贵2019年7月1日视频 20190701谈七.一香港大游行 Miles Kwok DC Broadcast on 7.1 Hong Kong Protest](/content/transcript/2019/07/20190701-1093295.md)
-
-[2019年7月1日文贵在DC直播全文字版：讲香港七一大游行合集](/content/transcript/2019/07/20190701-1098096.md)
-
-[2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜](/content/transcript/2019/06/20190630-1098093.md)
-
-[郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜](/content/transcript/2019/06/20190630-1089271.md)
-
-
-## 頁面 78/112 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 78/113 [**<**](/content/transcript/README-77.md) [1](/content/transcript/README.md) ... [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) **78** [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-79.md) [查看全部](/content/transcript/README-all.md)

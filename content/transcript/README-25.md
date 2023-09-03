@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 25/112 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 25/113 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年7月28日盖特 20210728_17月28号尊敬的战友们好，为什么撤掉昨天的直播视频，为什么国内一夜之间科技大佬市场损失几万亿，为什么西方世界正期待着来自中国的多种声音，共产党你完了。](/content/transcript/2021/07/20210728-1091838.md)
+
+[郭文贵2021年7月28日盖特 20210728_2收到了你们大量的各种信息．七哥刚刚结束作证．录个视频报平安！](/content/transcript/2021/07/20210728-1091840.md)
+
+[郭文贵2021年7月27日盖特 20210727_1我想战友们想的好辛苦呀……一日不见如隔三秋！](/content/transcript/2021/07/20210727-1091786.md)
+
+[郭文贵2021年7月27日盖特 20210727_2为战友们看一看最新款的湾流650ER飞机内部！太太想兄弟姐妹们：很快我们的战友们会有很多人买的起这样的超级喷气飞机的！咱们走着看！](/content/transcript/2021/07/20210727-1091789.md)
+
+[郭文贵2021年7月27日盖特 20210727_3我在等谁呢？我是为了谁？为了谁这样的工作呢？这在哪呢？](/content/transcript/2021/07/20210727-1091790.md)
+
+[郭文贵2021年7月27日盖特 20210727_4我要干什么呢？](/content/transcript/2021/07/20210727-1091792.md)
+
+[郭文贵2021年7月27日盖特 20210727_5仅有的几瓶LATACHE拉他喜2000特别版．特制路易十三……BEVERLY HLLN酒店…….梦想成真大厅！准备干嘛呀！](/content/transcript/2021/07/20210727-1091835.md)
+
+[郭文贵2021年7月25日盖特 20210725_1尊敬的战友们好，你们传播共产党的人道灾难的真相了吗？所有国内的同胞战友们回避．辛丑年最大的人灾和天祸的方式就是回到二三线的城市．远离城市中心．做好整个国家未来粮食短缺，药品](/content/transcript/2021/07/20210725-1091784.md)
 
 [郭文贵2021年7月24日盖特 20210724_2这次在路大骗子和蛇妖闫的问题上站错立场的，爆料革命和新中国联邦不接受任何理由的道歉](/content/transcript/2021/07/20210724-1091773.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2021年7月16日盖特 20210716_2尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？](/content/transcript/2021/07/20210716-1091818.md)
 
-[郭文贵2021年7月15日直播 20210715_1人民币国际化是中共的金融陷阱，货币炸弹；人民币一毛不值，换成外汇才是自己的钱；亡腚缸，蛇妖闫重新回到流浪狗](/content/transcript/2021/07/20210715-1091748.md)
 
-[郭文贵2021年7月14日直播 20210714_1蛇妖闫，骗子王腚肛自爆，这是上天的安排；已经对他们采取法律行动，全面追责反击；新中国联邦在7月4号后已发生质的改变，接下来的90天将有灭共的重大事件发生](/content/transcript/2021/07/20210714-1091733.md)
-
-[郭文贵2021年7月14日盖特 20210714_2尊敬的战友们好，你们健身了吗？传播CCP病毒．香港危机真相了吗？一切都已经开始！](/content/transcript/2021/07/20210714-1091754.md)
-
-[郭文贵2021年7月13日盖特 20210713_1七哥感觉不孬……战友们想不想明天上午看七哥直播呢](/content/transcript/2021/07/20210713-1091753.md)
-
-[郭文贵2021年7月10日盖特 20210710_1文贵向兄弟姐妹们报平安，明天没办法直播，给所有的兄弟姐妹们战友们抱歉！不能直播太痛苦了……](/content/transcript/2021/07/20210710-1091750.md)
-
-[郭文贵2021年7月9日盖特 20210709_1尊敬的战友好，你们健身了吗？你们传播学C CP病毒香港危机的真相了吗？感谢战友们对七哥身体的关心！](/content/transcript/2021/07/20210709-1091668.md)
-
-[郭文贵2021年7月9日盖特 20210709_2感拜自由女神．新中国联邦的自由女神](/content/transcript/2021/07/20210709-1091697.md)
-
-[郭文贵2021年7月8日直播 20210708_1在新办公室迎接Q妹，正义小Sara等战友](/content/transcript/2021/07/20210708-1091665.md)
-
-
-## 頁面 25/112 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 25/113 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

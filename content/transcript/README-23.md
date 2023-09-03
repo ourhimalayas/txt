@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 23/112 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 23/113 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年8月16日直播 20210816_1美国在阿富汗失败而中共在阿富汗成功的原因；为什么说阿富汗政变是天助新中国联邦；解读俱乐部与G系列的意义；战友们如何正确理财；喜联储将是未来沼泽地的新一极力量](/content/transcript/2021/08/20210816-1092223.md)
+
+[郭文贵2021年8月15日盖特 20210815_1尊敬的战友们大家好．北戴河会议，有些什么样的决定？共产党的经济崩溃前……会有什么要疯狂的行动，中国的私人企业家的命运将走向何方？](/content/transcript/2021/08/20210815-1092612.md)
+
+[郭文贵2021年8月15日盖特 20210815_2尊敬的战友们好，你们健身了吗？传播郑州人祸……香港人道危机……C C P病毒真相了吗？](/content/transcript/2021/08/20210815-1092617.md)
+
+[郭文贵2021年8月14日盖特 20210814_2尊敬的战友们好．共产党刚刚召开了所谓应对紧急紧急形式的协调大会，无论从哪个方面共产党的政治，经济，外交，军事外汇都到了即将崩溃的时刻……](/content/transcript/2021/08/20210814-1092103.md)
+
+[郭文贵2021年8月14日直播 20210814_1《马背英雄 The Hero》下载已近千万次，全球都在以歌灭共；GClubs未来的巨大经济价值](/content/transcript/2021/08/20210814-1092127.md)
+
+[郭文贵2021年8月13日直播 20210813_1祝贺《马背英雄》在全球多国打榜第一，以歌灭共，再创奇迹；从文贵新歌打榜在全球排名的数据看全世界灭共形势，同时也验证爆料革命的真和战友的实力](/content/transcript/2021/08/20210813-1092102.md)
+
+[郭文贵2021年8月12日盖特 20210812_1尊敬的战友好！你们健身了吗？你传播C C P病毒，香港危机郑州人祸真相了吗？一切都已经开始！](/content/transcript/2021/08/20210812-1092091.md)
+
+[郭文贵2021年8月12日盖特 20210812_2尊敬的战友们好。我们新中国联邦所有的战友们……都应该认真的看一看，珍惜．我们的面临着什么样前所未有的国际形势．天助新中国联邦……](/content/transcript/2021/08/20210812-1092093.md)
 
 [郭文贵2021年8月12日盖特 20210812_3第二段盖特．我们新中国联邦的战友们永远要记住．维护不包括共产党中国的利益，中国人的安全和利益……是永远不可妥协的原则……永远是我们的核心中的核心。](/content/transcript/2021/08/20210812-1092096.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2021年8月5日盖特 20210805_1尊敬的战友们好：你们健身了吗？传播CC P病毒．郑州人祸，香港危机真相了吗？一切都已经开始！](/content/transcript/2021/08/20210805-1092162.md)
 
-[郭文贵2021年8月5日盖特 20210805_2尊敬的战友们好，无论是共产党还是一帮且LOW 爆了个的低级骗子，我最恨的就是他们用最低级的谎言，玩弄我们爆料革命的战友，凡是这些打着爆料革命灭共的名义，玩弄我们战友感情的人，我们](/content/transcript/2021/08/20210805-1092168.md)
 
-[郭文贵2021年8月5日盖特 20210805_3尊敬的战友们好．很多人希望能得到七哥签署的，今天新中国联邦，第一次发出的官方文件，要求取消北京冬奥会的这个申请书！七哥只能满足一少部分的战友们要求，我会尽快的发给，分配给战](/content/transcript/2021/08/20210805-1092170.md)
-
-[郭文贵2021年8月5日盖特 20210805_4吃饭饭咯……南京咸水鸭！](/content/transcript/2021/08/20210805-1092174.md)
-
-[郭文贵2021年8月5日盖特 20210805_5今天是个好日子，抽根雪茄庆祝庆祝！](/content/transcript/2021/08/20210805-1092179.md)
-
-[郭文贵2021年8月4日直播 20210804_1文贵吃播闲聊](/content/transcript/2021/08/20210804-1091972.md)
-
-[郭文贵2021年8月3日直播 20210803_1法治基金法治社会的合法灭共功能；G系列的未来：GTV的经济价值在于其唯一性，拥有5%的盖特，和喜联储的原始股等；九指妖，蛇妖闫，亡腚缸的背叛检验了真战友，让我们更强大](/content/transcript/2021/08/20210803-1091966.md)
-
-[郭文贵2021年8月3日盖特 20210803_2尊敬的战友们好：你们健身了吗？](/content/transcript/2021/08/20210803-1092160.md)
-
-[郭文贵2021年8月2日盖特 20210802_1灭共灭贼容易·替SNOW理发难呢？](/content/transcript/2021/08/20210802-1092140.md)
-
-
-## 頁面 23/112 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 23/113 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)

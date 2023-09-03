@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 50/112 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 50/113 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年8月8日直播 20200808与日本樱花团战友连线谈论忠诚的文化和日本爆料革命的重要性](/content/transcript/2020/08/20200808-1092593.md)
+
+[郭文贵2020年8月7日视频 20200807_2新中国联邦．与文贵和水台．联手打造的文贵水台牌胸罩款西装诞生](/content/transcript/2020/08/20200807-1090013.md)
+
+[郭文贵2020年8月7日直播 20200807美灭共大锤如期一一砸下；下一制裁目标阿里巴巴，百度；文贵和战友们对中共展开智慧游击战](/content/transcript/2020/08/20200807-1092552.md)
+
+[郭文贵2020年8月5日盖特 202008058月5号尊敬的战友们好……千万小心……袁共????等欺民贼一起……再次的配合中共搞大外宣……转移重要的共产党犯罪重点](/content/transcript/2020/08/20200805-1092517.md)
+
+[郭文贵2020年8月4日盖特 20200804_18月4号尊敬的战友们好，你们健身了吗？你们传播系C CP病毒……香港危机真相了吗？文贵分享偷吃面包的感觉……](/content/transcript/2020/08/20200804-1092442.md)
+
+[郭文贵2020年8月4日盖特 20200804_28月4号非常抱歉一些战友．有一些GTV股权，现在要部分转让有关这些要求信息没有及时回复……请战友们能够理解](/content/transcript/2020/08/20200804-1092447.md)
+
+[郭文贵2020年8月4日直播 20200804_3GTV的价值用金钱无法衡量，历史的机遇无法计算，这都是因为战友的信任和支持](/content/transcript/2020/08/20200804-1092464.md)
+
+[郭文贵2020年8月4日直播 20200804_4共产党的内斗将是一场人类前所未有的政治大劫难](/content/transcript/2020/08/20200804-1092485.md)
 
 [郭文贵2020年8月4日直播 20200804_5文贵与班农聊GTV和中共黑客](/content/transcript/2020/08/20200804-1092492.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2020年7月25日视频 20200725_2文贵又来欺民贼说的菜市场了！咋弄呢……又是没钱了……只能吃菜 了……](/content/transcript/2020/07/20200725-1089987.md)
 
-[郭文贵2020年7月25日视频 20200725_3【中英字幕版】7 月25日 班农战斗室特别节目：嘉宾郭文贵先生谈蓬佩奥演讲的重大意义，中共国洪灾真相，休斯敦战友们抗议游行 【Subtitiled】July 25, War Room Special: Guest speaker Mr Miles Guo will talk ab](/content/transcript/2020/07/20200725-1089999.md)
 
-[郭文贵2020年7月25日直播 20200725文贵如何理庞皮奥的演讲和对新中国联邦的重大意义，以及如何处理班农先生与新中国联邦和文贵的个人关系](/content/transcript/2020/07/20200725-1092360.md)
-
-[郭文贵2020年7月24日盖特 20200724文贵在这里简单地谈谈昨天国务卿的演讲](/content/transcript/2020/07/20200724-1092403.md)
-
-[郭文贵2020年7月23日视频 20200723在任何情况下，当你对你要实现的目标，有任何犹豫或者偷懒的时候……你就会失去你的成功](/content/transcript/2020/07/20200723-1089985.md)
-
-[郭文贵2020年7月22日视频 20200722_2旧金山ccp的领事馆又出事啦](/content/transcript/2020/07/20200722-1089984.md)
-
-[郭文贵2020年7月22日直播 20200722拜请所有的海外华人一定要团结一致，做好准备迎接全世界灭共对华人安全和生活的影响！](/content/transcript/2020/07/20200722-1092335.md)
-
-[郭文贵2020年7月20日视频 20200720_1大家想一想为什么郭先生和班农在船上待了这么久，就是为了做对中共的军事部署](/content/transcript/2020/07/20200720-1089981.md)
-
-[郭文贵2020年7月19日直播 20200719_1不要受“缺爹党”的影响；灭共和解决CCP病毒都到了关键时刻；大力传播今天福克斯采访班农的节目](/content/transcript/2020/07/20200719-1092484.md)
-
-
-## 頁面 50/112 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 50/113 [**<**](/content/transcript/README-49.md) [1](/content/transcript/README.md) ... [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) **50** [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-51.md) [查看全部](/content/transcript/README-all.md)

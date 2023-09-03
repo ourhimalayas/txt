@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 37/112 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 37/113 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年2月27日盖特 20210227_2尊敬的战友们好！七哥边工作边在G-TV看大家的直播，战友们在G-TV上直播的质量大大提高。这就是新中国联邦人的素质和能力的体现GTV Genes 一定会成为灭共的利器……社交媒体的奇迹！](/content/transcript/2021/02/20210227-1090776.md)
+
+[郭文贵2021年2月26日直播 20210226_1新中国联邦的战友们元宵节最快乐！金灿荣的讲话印证了中共的灭白计划，武统台湾计划；北京两会背后，习王江的斗争](/content/transcript/2021/02/20210226-1090765.md)
+
+[郭文贵2021年2月26日盖特 20210226_2尊敬的兄弟姐妹好，元宵节快乐，这是七嫂子的，元宵节壮肾汤！鲅鱼饺子！视频版！](/content/transcript/2021/02/20210226-1090766.md)
+
+[郭文贵2021年2月26日盖特 20210226_32月26日，全球的灭共力量正在凝聚！在一起，以毒灭共．以钱灭共的大时代全面开启！](/content/transcript/2021/02/20210226-1090769.md)
+
+[郭文贵2021年2月25日盖特 20210225_1尊敬的战友们好……共产党马上快玩球蛋了……七哥也老了……](/content/transcript/2021/02/20210225-1090757.md)
+
+[郭文贵2021年2月25日盖特 20210225_2今天七哥和战友开玩笑撒娇说．七哥变老的视频，发出后，收到了无数战友对七哥哥……的健康的关心的信息.…文贵万分的感谢，只要真心灭共．就不会衰老，这是最好的长生不老的妙方](/content/transcript/2021/02/20210225-1090760.md)
+
+[郭文贵2021年2月24日直播 20210224_1美国沼泽地只能与新中国联邦合作；中共20大保江山，指定习的接班人；虚拟货币获得美国支付牌照的重大意义](/content/transcript/2021/02/20210224-1090751.md)
+
+[郭文贵2021年2月24日盖特 20210224_2国内的很多战友发的信息不能一一回信息——请大家原谅、以毒灭共．以钱灭共！正在全世界全面火热????开始……无人可以阻挡新中国联邦拯救中国人和世界人民的胜利✌️✌️✌️✌️✌️……](/content/transcript/2021/02/20210224-1090753.md)
 
 [郭文贵2021年2月23日盖特 20210223_1回答很多战友．关于江泽民家族．大本营移居新加坡的真正的用心……和对爆料革命的影响…](/content/transcript/2021/02/20210223-1090745.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2021年2月13日视频雅典娜 20210213_2雅典娜&秘翻组 2021春节联合直播：庆祝新年，未来展望。郭先生亲临给战友们抽奖！](/content/transcript/2021/02/20210213-1090637.md)
 
-[郭文贵2021年2月13日视频樱花团 20210213_1新春联欢，郭先生连线寄语](/content/transcript/2021/02/20210213-1090692.md)
 
-[郭文贵2021年2月12日盖特 20210212_12月12号向所有的战友们及同胞们拜年，文贵谈，习近平制造的习拜的双规电话．为什么样的中美关系的将巨变！这是给新中国联邦送来的大红包](/content/transcript/2021/02/20210212-1090627.md)
-
-[郭文贵2021年2月12日视频英喜 20210212_3文贵先生客串英喜春节大联欢](/content/transcript/2021/02/20210212-1090653.md)
-
-[郭文贵2021年2月12日视频波士顿 20210212_2喜马拉雅波士顿五月花农场新春联欢会](/content/transcript/2021/02/20210212-1090663.md)
-
-[郭文贵2021年2月12日视频香草山 20210212_4纽约香草山农场年会](/content/transcript/2021/02/20210212-1090673.md)
-
-[郭文贵2021年2月12日视频巴黎和澳喜 20210212_5悉尼澳喜和巴黎七星大年初一联合晚会](/content/transcript/2021/02/20210212-1090795.md)
-
-[郭文贵2021年2月11日直播 20210211_1辛丑年文贵看春晚](/content/transcript/2021/02/20210211-1090623.md)
-
-[郭文贵2021年2月9日盖特 20210209_12月9号尊敬的战友您好，上海的几个老杂毛为什么要说……庚政辛丑钱．民生不稳要出大麻烦……？](/content/transcript/2021/02/20210209-1090615.md)
-
-
-## 頁面 37/112 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 37/113 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

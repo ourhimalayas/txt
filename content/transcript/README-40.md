@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 40/112 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 40/113 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年1月19日盖特 20210119_4](/content/transcript/2021/01/20210119-1089850.md)
+
+[郭文贵2021年1月19日盖特 20210119_5](/content/transcript/2021/01/20210119-1089852.md)
+
+[郭文贵2021年1月19日盖特 20210119_6](/content/transcript/2021/01/20210119-1089856.md)
+
+[郭文贵2021年1月19日盖特 20210119_1共产党刚刚决定的将在未来的几个月……买通，美国……重回中美贸易逆差的大时代。 买掉共产党应承担的病毒责任，以贸易方式变相的解决中共病毒在全世界的伤害……让全世界重新回到……共](/content/transcript/2021/01/20210119-1090402.md)
+
+[郭文贵2021年1月19日盖特 20210119_2我们永远记住爆料革命新中国联邦……路德访谈，英雄，科学家和无数个爆料英雄……创造的人类上最伟大一天，2020 1月19号……我们有理由有基础有事实．有根据……相信我们德受天助……得民心](/content/transcript/2021/01/20210119-1090404.md)
+
+[郭文贵2021年1月19日盖特 20210119_3这是爆料革命新中国联邦最重要的胜利一天．这是灭共的911行动，我们伟大的彭佩奥国务卿和美国的政府和美国不露名的正义的力量，给我们在这特殊的日子里送来的大礼！为了对路德访谈．在一](/content/transcript/2021/01/20210119-1090406.md)
+
+[郭文贵2021年1月18日盖特 20210118_2](/content/transcript/2021/01/20210118-1089842.md)
+
+[郭文贵2021年1月18日盖特 20210118_3](/content/transcript/2021/01/20210118-1089845.md)
 
 [郭文贵2021年1月18日盖特 20210118_4](/content/transcript/2021/01/20210118-1089859.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2021年1月9日盖特 20210109_1川普总统被形容为最失败的最懦弱．最口爆……最口炮……总统……这是正确的吗？我们如何看待过去24小时发生的媒体封杀川普总统的这些事情……文贵谈谈自己的观点，一切都已经开始！](/content/transcript/2021/01/20210109-1090346.md)
 
-[郭文贵2021年1月9日盖特 20210109_22021年1月9号上午，第二次发视频……再次集中回答国内很多战友的一些问题……](/content/transcript/2021/01/20210109-1090349.md)
 
-[郭文贵2021年1月8日盖特 20210108_1尊敬的战友们好，我们为什么要打造G系列？我们为什么不能跟随任何政客和任何政党？我们必须要成为独立的世界的重要的一股正义的力量……任何正义的力量组织．必须尊重的一个代表中国人的](/content/transcript/2021/01/20210108-1090341.md)
-
-[郭文贵2021年1月7日盖特 20210107_1美国的大选出现了这样的滑稽结果……都是在我们情报掌控之中，必然发生……一定会发生的结果，我们该如何看待昨天到现在发生的一切的事情……一切都已经开始！](/content/transcript/2021/01/20210107-1090327.md)
-
-[郭文贵2021年1月7日直播 20210107_21月6号的美国参众两院对总统选举的认证说明了什么？爆料革命如何面对一系列的世界的局势的变化。](/content/transcript/2021/01/20210107-1090329.md)
-
-[郭文贵2021年1月7日盖特 20210107_3XX你好，昨天在XXX国家安全局的逼迫下，我从网上向美国FBI举报XXX以许诺购买GTV股票进行诈骗。网址https://ic3.gov. 国安讲是上面的要求。翻墙软件都是他们提供的，我在XXX身不由己，请见谅！](/content/transcript/2021/01/20210107-1090344.md)
-
-[郭文贵2021年1月6日直播 20210106_1文贵直播：美国大选决战时刻（一）](/content/transcript/2021/01/20210106-1090298.md)
-
-[郭文贵2021年1月6日直播 20210106_2文贵直播：美国大选决战时刻（二）](/content/transcript/2021/01/20210106-1090322.md)
-
-[郭文贵2021年1月5日盖特 20210105_1北京在过去24小时发生了什么？华尔街为什么出尔反尔……取消对中共的电信公司的制裁，一切都已经开始！](/content/transcript/2021/01/20210105-1090295.md)
-
-
-## 頁面 40/112 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 40/113 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

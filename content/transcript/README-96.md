@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 96/112 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 96/113 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！](/content/transcript/2018/08/20180807-1092977.md)
+
+[郭文贵2018年8月6日直播 20180806_2晚餐朋友的家的入口都这么大！隔壁邻居却是一个中国某政治局委员情人的家！天理何在呀！](/content/transcript/2018/08/20180806-1088615.md)
+
+[郭文贵2018年8月6日视频 20180806文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！](/content/transcript/2018/08/20180806-1092962.md)
+
+[郭文贵2018年8月5日直播 20180805_2早上大爆料後去划船 划船回来了 试试直播聊聊天 再談王健之死](/content/transcript/2018/08/20180805-1088611.md)
+
+[郭文贵2018年8月5日视频 20180805王健被杀的过程和涉及的人](/content/transcript/2018/08/20180805-1092958.md)
+
+[郭文贵2018年8月4日视频 20180804出发去会晤一位刚与王岐山见过面的重要朋友，感叹水上美景](/content/transcript/2018/08/20180804-1087736.md)
+
+[郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家](/content/transcript/2018/07/20180730-1087731.md)
+
+[郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！](/content/transcript/2018/07/20180728-1088575.md)
 
 [郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！](/content/transcript/2018/07/20180722-1092909.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2018年6月30日直播 20180630_1谈郭宝胜的诈骗与对寒梅的起诉](/content/transcript/2018/06/20180630-1088520.md)
 
-[郭文贵2018年6月30日直播 20180630_2谈中国股市与经济！](/content/transcript/2018/06/20180630-1088532.md)
 
-[郭文贵2018年6月29日直播 20180629_1谈刘刚与屎诺．王岐山与错功胜为什么救海航！](/content/transcript/2018/06/20180629-1088492.md)
-
-[郭文贵2018年6月28日直播 20180628_1](/content/transcript/2018/06/20180628-1088477.md)
-
-[郭文贵2018年6月27日视频 20180627_4在船上远眺曼哈顿](/content/transcript/2018/06/20180627-1087720.md)
-
-[郭文贵2018年6月27日直播 20180627_2一边抽雪茄一边直播（第一段）](/content/transcript/2018/06/20180627-1088463.md)
-
-[郭文贵2018年6月27日直播 20180627_3一边抽雪茄一边直播（第二段）](/content/transcript/2018/06/20180627-1088472.md)
-
-[郭文贵2018年6月27日视频 20180627](/content/transcript/2018/06/20180627-1094345.md)
-
-[郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！](/content/transcript/2018/06/20180625-1094330.md)
-
-
-## 頁面 96/112 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 96/113 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)

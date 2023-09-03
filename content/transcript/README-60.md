@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 60/112 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 60/113 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年3月9日视频 20200309_1本星期將是滅共里程碑的一周](/content/transcript/2020/03/20200309-1089779.md)
+
+[郭文贵2020年3月8日视频 20200308_3](/content/transcript/2020/03/20200308-1088902.md)
+
+[郭文贵2020年3月8日谈世纪之战(下) 20200308_2谈世纪之战即将发生，CCP股市及欺民贼的末日（下）](/content/transcript/2020/03/20200308-1091912.md)
+
+[郭文贵2020年3月8日谈世纪之战（上）20200308_1谈世纪之战即将发生，CCP股市及欺民贼的末日（上）](/content/transcript/2020/03/20200308-1091918.md)
+
+[郭文贵2020年3月7日视频 20200307_2(後半段)谈国际上没有宣布疫情已经控制前大家不要出门！活着最重要！](/content/transcript/2020/03/20200307-1089776.md)
+
+[郭文贵2020年3月7日 20200307谈CCP冠状病毒始于香港，必将终于香港！](/content/transcript/2020/03/20200307-1091909.md)
+
+[郭文贵2020年3月6日视频 20200306_2感谢台湾，日本，香港的战友们为我们的战友还有法制基金的捐款者．几周以来冒着风险一直发送口罩！一切已经开始！](/content/transcript/2020/03/20200306-1089018.md)
+
+[郭文贵2020年3月6日视频 20200306_1郭文贵先生直播晒画玩艺术品](/content/transcript/2020/03/20200306-1089771.md)
 
 [郭文贵2020年3月5日视频 20200305_1与战友们分享文贵一天战役后韵晚餐……一切已经开始](/content/transcript/2020/03/20200305-1089765.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2020年2月18日 20200218警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山](/content/transcript/2020/02/20200218-1091794.md)
 
-[郭文贵2020年2月15日 20200215 告诉战友们一定要耐心在家健身健心会有解药的！CCP灭了车贷房贷](/content/transcript/2020/02/20200215-1091774.md)
 
-[郭文贵2020年2月14日谈武汉疫情 20200214战友不树敌只为灭共](/content/transcript/2020/02/20200214-1091761.md)
-
-[郭文贵2020年2月12日 20200212一切都听党的走向火葬场](/content/transcript/2020/02/20200212-1091751.md)
-
-[郭文贵2020年2月10日 20200210请战友们保存让你上班的证据](/content/transcript/2020/02/20200210-1091742.md)
-
-[郭文贵2020年2月8日第一次直播 20200208_1回答武汉疫情为何是中国共产党制造并释放出来的](/content/transcript/2020/02/20200208-1091728.md)
-
-[郭文贵2020年2月8日第二次直播 20200208_2由美国专家确定病毒非蝙蝠传播，而是来自武汉实验室人工制毒](/content/transcript/2020/02/20200208-1091732.md)
-
-[郭文贵2020年2月6日视频 20200206_2文贵接受班农先生War Room 访问](/content/transcript/2020/02/20200206-1088896.md)
-
-[郭文贵2020年2月6日视频 20200206接受班农先生战斗室访谈 谈武](/content/transcript/2020/02/20200206-1091713.md)
-
-
-## 頁面 60/112 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 60/113 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 51/112 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 51/113 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年7月25日视频 20200725_3【中英字幕版】7 月25日 班农战斗室特别节目：嘉宾郭文贵先生谈蓬佩奥演讲的重大意义，中共国洪灾真相，休斯敦战友们抗议游行 【Subtitiled】July 25, War Room Special: Guest speaker Mr Miles Guo will talk ab](/content/transcript/2020/07/20200725-1089999.md)
+
+[郭文贵2020年7月25日直播 20200725文贵如何理庞皮奥的演讲和对新中国联邦的重大意义，以及如何处理班农先生与新中国联邦和文贵的个人关系](/content/transcript/2020/07/20200725-1092360.md)
+
+[郭文贵2020年7月24日盖特 20200724文贵在这里简单地谈谈昨天国务卿的演讲](/content/transcript/2020/07/20200724-1092403.md)
+
+[郭文贵2020年7月23日视频 20200723在任何情况下，当你对你要实现的目标，有任何犹豫或者偷懒的时候……你就会失去你的成功](/content/transcript/2020/07/20200723-1089985.md)
+
+[郭文贵2020年7月22日视频 20200722_2旧金山ccp的领事馆又出事啦](/content/transcript/2020/07/20200722-1089984.md)
+
+[郭文贵2020年7月22日直播 20200722拜请所有的海外华人一定要团结一致，做好准备迎接全世界灭共对华人安全和生活的影响！](/content/transcript/2020/07/20200722-1092335.md)
+
+[郭文贵2020年7月20日视频 20200720_1大家想一想为什么郭先生和班农在船上待了这么久，就是为了做对中共的军事部署](/content/transcript/2020/07/20200720-1089981.md)
+
+[郭文贵2020年7月19日直播 20200719_1不要受“缺爹党”的影响；灭共和解决CCP病毒都到了关键时刻；大力传播今天福克斯采访班农的节目](/content/transcript/2020/07/20200719-1092484.md)
 
 [郭文贵2020年7月19日连线大卫上集 20200719_2](/content/transcript/2020/07/20200719-1092497.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2020年7月12日视频 20200712_3今天直播完以后，我继续健身，灭共的路上一定要强心健体永不放弃](/content/transcript/2020/07/20200712-1089947.md)
 
-[郭文贵2020年7月12日直播 20200712美国领导的灭共盟军将在欧洲，及北约以及亚洲和南海东海香港领域．经济．领导人制栽等．全面开始灭共！](/content/transcript/2020/07/20200712-1092359.md)
 
-[郭文贵2020年7月11日视频 20200711_1跟着郝海东先生和叶钊颖女士！学习健身1](/content/transcript/2020/07/20200711-1089926.md)
-
-[郭文贵2020年7月11日视频 20200711_2跟着郝海东先生和叶钊颖女士！学习健身2](/content/transcript/2020/07/20200711-1089928.md)
-
-[郭文贵2020年7月11日视频 20200711_3跟着郝海东先生和叶钊颖女士！学习健身3](/content/transcript/2020/07/20200711-1089931.md)
-
-[郭文贵2020年7月11日视频 20200711_4同声传译班农战斗室特别节目：郭文贵先生和4位爆料革命战友参加讨论香港国安法](/content/transcript/2020/07/20200711-1089939.md)
-
-[郭文贵2020年7月11日视频 20200711_5大日子大日子啊天大的日子啊兄弟姐妹们准备好酒吧](/content/transcript/2020/07/20200711-1089941.md)
-
-[郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦](/content/transcript/2020/07/20200711-1089943.md)
-
-[郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）](/content/transcript/2020/07/20200710-1089907.md)
-
-
-## 頁面 51/112 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 51/113 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)

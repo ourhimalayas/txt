@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 105/112 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 105/113 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年11月23日第一次直播 20171123_1就近况回答明镜电视追问](/content/transcript/2017/11/20171123-1094818.md)
+
+[郭文贵2017年11月21日Instagram健身直播 20171121](/content/transcript/2017/11/20171121-1094415.md)
+
+[郭文贵2017年11月18日Instagram直播 20171118](/content/transcript/2017/11/20171118-1094408.md)
+
+[郭文贵2017年11月17日视频 20171117文贵刚刚买了两辆车，一个奔 特利suv特别版，一个宝马760特别运动版！ 在马阿拉歌用！](/content/transcript/2017/11/20171117-1094395.md)
+
+[郭文贵2017年11月16日直播 20171116_1自称“领袖”级人物要把川普介绍给郭文贵](/content/transcript/2017/11/20171116-1093325.md)
+
+[郭文贵2017年11月15日视频 20171115_3在游艇上早餐 Instagram直播](/content/transcript/2017/11/20171115-1087708.md)
+
+[郭文贵2017年11月15日视频 20171115_4HBO專訪 Exiled Chinese Billionaire Uses YouTube To Wage A War On Corruption HBO](/content/transcript/2017/11/20171115-1087906.md)
+
+[郭文贵2017年11月15日第二次直播 20171115_2文贵与网友分享迈 阿密的穷人区新发展出来的新的设计区，这 才是真正地产开发商该干的事！创造财富以 报社会！并该恶帮穷从善！](/content/transcript/2017/11/20171115-1094392.md)
 
 [郭文贵2017年11月15日第一次直播 20171115_1在Instagram直播痛斥唐柏桥](/content/transcript/2017/11/20171115-1094706.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2017年10月23日直播 20171023_1与澳纽挺郭后援会视频通话](/content/transcript/2017/10/20171023-1093314.md)
 
-[郭文贵2017年10月21日视频 20171021十九大停播后对欧洲挺郭后援团寄语重托和厚望](/content/transcript/2017/10/20171021-1087459.md)
 
-[郭文贵2017年10月15日视频 20171015两会所有的代表们都在讨论文贵爆料](/content/transcript/2017/10/20171015-1087453.md)
-
-[郭文贵2017年10月14日视频 20171014_2吴征马云承诺19大前弄回郭文贵](/content/transcript/2017/10/20171014-1087448.md)
-
-[郭文贵2017年10月14日 20171014盗国贼全球发“不”会第四集](/content/transcript/2017/10/20171014-1094666.md)
-
-[郭文贵2017年10月13日视频 20171013_2准备明天的全球发布会，谈盗国贼的事](/content/transcript/2017/10/20171013-1087447.md)
-
-[郭文贵2017年10月13日视频 20171013分享纽约城市天际线！想大家了．没有爆料．千万别影响大家睡觉．工作！](/content/transcript/2017/10/20171013-1094041.md)
-
-[郭文贵2017年10月12日 20171012分享纽约城市天际线，想大家](/content/transcript/2017/10/20171012-1094623.md)
-
-[郭文贵2017年10月12日视频 20171012_2准备资料避开郭七条里不反的人，国内人不要冲动](/content/transcript/2017/10/20171012-1098260.md)
-
-
-## 頁面 105/112 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 105/113 [**<**](/content/transcript/README-104.md) [1](/content/transcript/README.md) ... [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) **105** [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-106.md) [查看全部](/content/transcript/README-all.md)

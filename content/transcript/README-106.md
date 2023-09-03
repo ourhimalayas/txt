@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 106/112 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) ... [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 106/113 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年10月21日视频 20171021十九大停播后对欧洲挺郭后援团寄语重托和厚望](/content/transcript/2017/10/20171021-1087459.md)
+
+[郭文贵2017年10月15日视频 20171015两会所有的代表们都在讨论文贵爆料](/content/transcript/2017/10/20171015-1087453.md)
+
+[郭文贵2017年10月14日视频 20171014_2吴征马云承诺19大前弄回郭文贵](/content/transcript/2017/10/20171014-1087448.md)
+
+[郭文贵2017年10月14日 20171014盗国贼全球发“不”会第四集](/content/transcript/2017/10/20171014-1094666.md)
+
+[郭文贵2017年10月13日视频 20171013_2准备明天的全球发布会，谈盗国贼的事](/content/transcript/2017/10/20171013-1087447.md)
+
+[郭文贵2017年10月13日视频 20171013分享纽约城市天际线！想大家了．没有爆料．千万别影响大家睡觉．工作！](/content/transcript/2017/10/20171013-1094041.md)
+
+[郭文贵2017年10月12日 20171012分享纽约城市天际线，想大家](/content/transcript/2017/10/20171012-1094623.md)
+
+[郭文贵2017年10月12日视频 20171012_2准备资料避开郭七条里不反的人，国内人不要冲动](/content/transcript/2017/10/20171012-1098260.md)
 
 [郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料](/content/transcript/2017/10/20171010-1098255.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2017年9月23日视频 20170923预告第二天全球发布会首场直播 关于盗国贼们的巨额财富私生子非法身份](/content/transcript/2017/09/20170923-1094047.md)
 
-[郭文贵2017年9月22日视频 20170922美国官员把我当成小白兔一样呵护我](/content/transcript/2017/09/20170922-1094101.md)
 
-[郭文贵2017年9月21日视频 20170921吴征在美国造谣 今明两天开董事会](/content/transcript/2017/09/20170921-1094099.md)
-
-[郭文贵2017年9月20日视频 20170920政法王最后一个工作会议 人民满意度提高？](/content/transcript/2017/09/20170920-1094096.md)
-
-[郭文贵2017年9月19日明镜专访第六期 20170919](/content/transcript/2017/09/20170919-1094587.md)
-
-[郭文贵2017年9月18日视频 20170918在安全屋准备全球发布会资料 担心中国大乱](/content/transcript/2017/09/20170918-1094095.md)
-
-[郭文贵2017年9月15日 20170915第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习](/content/transcript/2017/09/20170915-1094516.md)
-
-[郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一](/content/transcript/2017/09/20170914-1094091.md)
-
-[郭文贵2017年9月13日视频 20170913_2一小时后爆盗国贼们的生殖器治国首篇](/content/transcript/2017/09/20170913-1094089.md)
-
-
-## 頁面 106/112 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) ... [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 106/113 [**<**](/content/transcript/README-105.md) [1](/content/transcript/README.md) ... [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) **106** [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-107.md) [查看全部](/content/transcript/README-all.md)

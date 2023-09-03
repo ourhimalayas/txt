@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 56/112 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 56/113 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年5月8日连线战友文信 20200508_2](/content/transcript/2020/05/20200508-1092054.md)
+
+[郭文贵2020年5月8日连线挺郭小妹 20200508_1](/content/transcript/2020/05/20200508-1092089.md)
+
+[郭文贵2020年5月7日gtv视频 20200507_2GTV简短录播：下午9:21分，刚刚结束的重要会议，将是一个关键的一天，关键的灭共的一天...](/content/transcript/2020/05/20200507-1089006.md)
+
+[郭文贵2020年5月7日连线面具先生 20200507爆料“郭七条”还没改“不反习”的原因，因为中南坑做出让步..](/content/transcript/2020/05/20200507-1092045.md)
+
+[郭文贵2020年5月6日gtv视频 20200506_2GTV直播：Trump总统今天对CCP病毒的看法和定义，这是我所希望看到的，我相信这是来自爆料革命！](/content/transcript/2020/05/20200506-1088997.md)
+
+[郭文贵2020年5月6日连线Twins 20200506](/content/transcript/2020/05/20200506-1092031.md)
+
+[郭文贵2020年5月5日视频 20200505](/content/transcript/2020/05/20200505-1092015.md)
+
+[郭文贵2020年5月4日视频 20200504共产党完蛋前的疯狂……及爆料革命必须扮演的角色……让中国人财富和子孙安全的雅典娜计划](/content/transcript/2020/05/20200504-1092007.md)
 
 [郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..](/content/transcript/2020/05/20200503-1089003.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2020年4月19日视频 20200419三周年直播回顾](/content/transcript/2020/04/20200419-1091916.md)
 
-[郭文贵2020年4月18日视频 20200418_2War Room郭文贵先生接受班农先生采访： 中共会在美投毒 美国疫情会比上个月还要严重](/content/transcript/2020/04/20200418-1089002.md)
 
-[郭文贵2020年4月18日视频 20200418和班农先生连线后GTV直播](/content/transcript/2020/04/20200418-1091900.md)
-
-[郭文贵2020年4月17日视频 20200417_1文贵先生喝咖啡直播](/content/transcript/2020/04/20200417-1089828.md)
-
-[郭文贵2020年4月16日视频 20200416_1法制基金法制社会正在纽约曼哈顿冒着生命危险在给医院和前线捐送急救物资！](/content/transcript/2020/04/20200416-1089824.md)
-
-[郭文贵2020年4月15日视频 20200415_2](/content/transcript/2020/04/20200415-1089817.md)
-
-[郭文贵2020年4月15日视频 20200415_3請香港朋友向法治基金提供港警迫害的證據](/content/transcript/2020/04/20200415-1089833.md)
-
-[郭文贵2020年4月15日视频 20200415](/content/transcript/2020/04/20200415-1091897.md)
-
-[郭文贵2020年4月14日视频 20200414_2过去的24小时华盛顿、欧洲、日本、俄罗斯全面开始了依法灭共、全球自动灭共的新的时代](/content/transcript/2020/04/20200414-1089815.md)
-
-
-## 頁面 56/112 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 56/113 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)

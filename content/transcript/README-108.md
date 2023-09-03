@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 108/112 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 108/113 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2017年9月1日视频 20170901_2让盗国贼看看把我们当猪狗的代价是什么！](/content/transcript/2017/09/20170901-1094070.md)
+
+[郭文贵2017年9月1日视频 20170901中英 关于孟建柱和孙立军盗国第一集！是谁杀了令计划的儿子．令谷？是谁帮助江绵恒．孟的母亲等换了几次器官？是谁又杀了手术及知情者？为了器官配对．按需杀了多少人](/content/transcript/2017/09/20170901-1094678.md)
+
+[郭文贵2017年8月31日视频 20170831_2明天直播政法王第一集](/content/transcript/2017/08/20170831-1094067.md)
+
+[郭文贵2017年8月31日 20170831就近况回答明镜电视追问](/content/transcript/2017/08/20170831-1094814.md)
+
+[郭文贵2017年8月30日 20170830关于盗国贼的盗脸手段与乱伦彪的动机](/content/transcript/2017/08/20170830-1094440.md)
+
+[郭文贵2017年8月29日视频 20170829船上健身](/content/transcript/2017/08/20170829-1094065.md)
+
+[郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午](/content/transcript/2017/08/20170828-1094061.md)
+
+[郭文贵2017年8月28日 20170828文贵到底是不是国安特务，文贵与王艳平到底有没有乱伦](/content/transcript/2017/08/20170828-1094436.md)
 
 [郭文贵2017年8月27日直播 20170827_1](/content/transcript/2017/08/20170827-1093298.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2017年8月15日 20170815盗国贼和香港警察如何以警以黑治国治港](/content/transcript/2017/08/20170815-1094419.md)
 
-[郭文贵2017年8月14日直播 20170814_1报平安：我没被爆头；19大后多人将下马；预言政法系的马化腾活不过50岁？！马云的蚂蚁金服也会收归国有，从而完全控制民众舆论及民间财富。](/content/transcript/2017/08/20170814-1093284.md)
 
-[郭文贵2017年8月14日直播 20170814_2报平安推特小视频。谈谈酒后吐真言](/content/transcript/2017/08/20170814-1094013.md)
-
-[郭文贵2017年8月13日直播 20170813_1通报盗国贼反击进度，继续欺瞒海航及私生子，CCAV正加紧摆拍。。。](/content/transcript/2017/08/20170813-1094015.md)
-
-[郭文贵2017年8月12日直播 20170812_1王岐山北戴河恩威并用惹党内非议，正为刘呈杰贯君找爹妈，19大后文贵放大招](/content/transcript/2017/08/20170812-1094018.md)
-
-[郭文贵2017年8月11日直播 20170811_1船上那天说多了，刘呈杰，贯君的爹们正在北戴河夺权呢](/content/transcript/2017/08/20170811-1094020.md)
-
-[郭文贵2017年8月9日第二次直播 20170809_2报平安直播---关于四川地震 &#124; 海航贯军刘呈杰的爹](/content/transcript/2017/08/20170809-1094421.md)
-
-[郭文贵2017年8月9日第一次直播 20170809_1试试网络：一个台湾老朋友一个国内老领导与我通过电话后的感受](/content/transcript/2017/08/20170809-1094424.md)
-
-[郭文贵2017年8月7日直播 20170807_2马英九是...](/content/transcript/2017/08/20170807-1094022.md)
-
-
-## 頁面 108/112 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 108/113 [**<**](/content/transcript/README-107.md) [1](/content/transcript/README.md) ... [103](/content/transcript/README-103.md) [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) **108** [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-109.md) [查看全部](/content/transcript/README-all.md)

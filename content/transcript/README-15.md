@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 15/112 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 15/113 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年12月7日盖特 20211207_2尊敬的战友们好……全球的新中国联邦人……要准备好，在所有的国家了解共产党官员的在海外各国的资产，财产，亲人朋友的详细的资料，和当地的各国的政府合作，把这些王八蛋的爹和娘和他](/content/transcript/2021/12/20211207-1094724.md)
+
+[郭文贵2021年12月6日直播 20211206_1继文贵北京盘古家人再次被抄家后的直播](/content/transcript/2021/12/20211206-1093740.md)
+
+[郭文贵2021年12月5日直播 20211205_1全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](/content/transcript/2021/12/20211205-1093729.md)
+
+[郭文贵2021年12月4日盖特 20211204_1尊敬的战友们好，你们健身吗？传播C C P病毒疫苗解药的真相了吗？](/content/transcript/2021/12/20211204-1094717.md)
+
+[郭文贵2021年12月3日直播 20211203_1各国疫苗政策近况；国内疫苗政治，疫苗经济及疫苗灾难的最新消息；Omicron变异病毒在亚洲地区的进展；iTunes打榜记录- Hcoin To The Moon；美国世界经济变化；喜数字银行牌照及赌场牌照的意义](/content/transcript/2021/12/20211203-1094496.md)
+
+[郭文贵2021年12月1日直播 20211201_1Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](/content/transcript/2021/12/20211201-1094346.md)
+
+[郭文贵2021年11月30日直播 20211130_1健身直播](/content/transcript/2021/11/20211130-1094257.md)
+
+[郭文贵2021年11月29日盖特 20211129_1全世界的经济即将崩溃之时，随之而来的是社会动乱……政治危机，以及局域战争的开始……新中国联邦人要团结在一起，共同渡过这个人类的世纪大灾难！](/content/transcript/2021/11/20211129-1093668.md)
 
 [郭文贵2021年11月28日直播 20211128_1新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](/content/transcript/2021/11/20211128-1094249.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2021年11月18日盖特 20211118_3笨笨喜欢啃啃啃… 玩得好开心啊](/content/transcript/2021/11/20211118-1093644.md)
 
-[郭文贵2021年11月18日盖特 20211118_4笨笨说，“Snow，出来跟我玩儿嘛……” Snow说, “我不要啦，让我静静的做个美男子好不好啦 ！”????](/content/transcript/2021/11/20211118-1093645.md)
 
-[郭文贵2021年11月18日盖特 20211118_5自娱自乐模式启动????](/content/transcript/2021/11/20211118-1093649.md)
-
-[郭文贵2021年11月17日盖特 20211117_2刚刚理完发的SNOW 欢迎七哥回家……](/content/transcript/2021/11/20211117-1093630.md)
-
-[郭文贵2021年11月17日盖特 20211117_35个月的多多与2岁的笨笨……](/content/transcript/2021/11/20211117-1093633.md)
-
-[郭文贵2021年11月17日直播 20211117_1再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](/content/transcript/2021/11/20211117-1093796.md)
-
-[郭文贵2021年11月16日盖特 20211116_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机．疫苗解药的真相了吗？](/content/transcript/2021/11/20211116-1093622.md)
-
-[郭文贵2021年11月16日盖特直播 20211116_2无论是对神和人都要兑现你的承诺](/content/transcript/2021/11/20211116-1093626.md)
-
-[郭文贵2021年11月15日盖特 20211115_1尊敬的战友们好，你们健身了吗？传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/11/20211115-1093600.md)
-
-
-## 頁面 15/112 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 15/113 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

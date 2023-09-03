@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 18/112 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 18/113 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年10月23日盖特 20211023_1尊敬的战友们好．太多战友发来各种信息，文贵确实无法一一回复，有些问题等明天24号上午9:00的与战友们的大直播中，回答亲爱的兄弟姐妹们……一切都已经开始！](/content/transcript/2021/10/20211023-1093603.md)
+
+[郭文贵2021年10月22日直播 20211022_1马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的](/content/transcript/2021/10/20211022-1093414.md)
+
+[郭文贵2021年10月21日盖特 20211021_1尊敬的战友们好……虚拟货币时代的到来……和世界经济的危机……将诞生新的金融体系和金融帝国。共产党的内部的斗争腥风血雨，随时出大事儿。](/content/transcript/2021/10/20211021-1093596.md)
+
+[郭文贵2021年10月20日直播 20211020_2真人真事 采访 郭先生](/content/transcript/2021/10/20211020-1090189.md)
+
+[郭文贵2021年10月20日直播 20211020_1喜币是最真实干净的革命性货币，喜支付的商业历史性意义；马云在被进行刑事调查时没有及时如实公告，马云在西班牙操纵股价，蔡中信的房子是马云的，他洗掉了马云75%的钱；江志城的投资都](/content/transcript/2021/10/20211020-1093606.md)
+
+[郭文贵2021年10月19日盖特 20211019_1尊敬的战友们好……杰克．马．去西班牙意味着什么？](/content/transcript/2021/10/20211019-1093698.md)
+
+[郭文贵2021年10月18日盖特 20211018_1神秘的世界不．神秘的人类，神秘的宇宙，有着无穷无尽的我们未知的力量，这事预义太大了????](/content/transcript/2021/10/20211018-1093647.md)
+
+[郭文贵2021年10月18日盖特直播 20211018_2直播测试](/content/transcript/2021/10/20211018-1093696.md)
 
 [郭文贵2021年10月17日直播 20211017_1青蒿素的神奇功效；爆料孙力军，傅政华和江志诚在新加坡被抓的细节；中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争；经过疫苗灾难，灭共之后，人类会走向更好的](/content/transcript/2021/10/20211017-1093602.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2021年10月8日盖特直播 20211008_2](/content/transcript/2021/10/20211008-1093378.md)
 
-[郭文贵2021年10月8日盖特直播 20211008_3](/content/transcript/2021/10/20211008-1093381.md)
 
-[郭文贵2021年10月8日直播 20211008_4试驾RAM3500第一段](/content/transcript/2021/10/20211008-1093384.md)
-
-[郭文贵2021年10月8日直播 20211008_5试驾RAM3500第二段](/content/transcript/2021/10/20211008-1093393.md)
-
-[郭文贵2021年10月7日直播 20211007_1七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](/content/transcript/2021/10/20211007-1093368.md)
-
-[郭文贵2021年10月6日盖特 20211006_1尊敬的战友们好……中共的政治，经济，军事，粮食，房地产，金融……全部在崩溃的边缘。所有的现在整个中共的一切形式，就是大跃进的高峰时期一模一样。上蒙下骗．都在等待着敌对方早于](/content/transcript/2021/10/20211006-1093322.md)
-
-[郭文贵2021年10月5日直播 20211005_1中共国真实的地方债是15万亿美元；基金就是钱的中介，金融票据就是纸，是奴役中国人的工具，中共埋下金融的雷，全人类都要为此付出代价；中共的邪恶让华人的命运前所未有的危险；虚拟币区](/content/transcript/2021/10/20211005-1093317.md)
-
-[郭文贵2021年10月4日盖特 20211004_1衷心地感谢，国内外很多战友发来的对昨天大直播的反馈和信息。但是所有的国内的公检法的爷们儿，扪心自问，你们对得起自己的良知，和自己是个人的条件吗？自己曾经被傅振华，孙力军，孟](/content/transcript/2021/10/20211004-1093268.md)
-
-[郭文贵2021年10月3日盖特 20211003_3尊敬的战友们好！物无美恶．过则为灾。运动，一定要智慧的运动，千万不要伤了肌肉和身体，否则后悔莫及，健身绝对不能逞强，就像爆料革命灭共事业也一样，不要硬撑．在愉悦快乐，轻松中](/content/transcript/2021/10/20211003-1093259.md)
-
-
-## 頁面 18/112 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 18/113 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

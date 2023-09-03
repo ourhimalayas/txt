@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 43/112 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 43/113 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年12月18日盖特 20201218_2今天是美国正義与邪恶较量的关键日子，大領導身邊一堆王八蛋小人在捧他在誇他 使他不知道為什麼日本對中國的好感度下降 以為限電是因為經濟越來越好了](/content/transcript/2020/12/20201218-1090105.md)
+
+[郭文贵2020年12月17日盖特 20201217_1所有的战友们要对农场和战友和农场的关系有一个标准清透的认识，这是符合每个战友和农场的利益和未来！](/content/transcript/2020/12/20201217-1090096.md)
+
+[郭文贵2020年12月16日盖特 20201216_1由于Sara主动退出凤凰农场，希望凤凰农场的战友们按照喜马拉雅联盟委员会的公告，适应和自觉加入自己喜欢的农场！](/content/transcript/2020/12/20201216-1090088.md)
+
+[郭文贵2020年12月15日盖特 20201215_1 一系列的行动……会给世界留下的选择只有两条路……我们正见证．人类二千年来又一次的重要的生死时刻](/content/transcript/2020/12/20201215-1090085.md)
+
+[郭文贵2020年12月14日直播 20201214_1美国大选开始由 “滑“ 到“稽”，灭共挡不住；真心对待战友，施恩不图报](/content/transcript/2020/12/20201214-1090081.md)
+
+[郭文贵2020年12月14日盖特 20201214_2今天所有谷歌油管断网的背后真相和最后推倒共产党的防火墙，都是紧密相联的关系，推翻共產黨互聯網的行動已經開始了](/content/transcript/2020/12/20201214-1090082.md)
+
+[郭文贵2020年12月13日盖特 20201213_1GTV的投资者用自己的智慧和金钱证明了自己到底是聪明人……还是大笨蛋……好日子只是刚刚开始！](/content/transcript/2020/12/20201213-1090069.md)
+
+[郭文贵2020年12月13日盖特 20201213_2明天14号后天15号就像几周以前，我说过的一样，这是关键的日子，你们会很开心，会很兴奋的](/content/transcript/2020/12/20201213-1090072.md)
 
 [郭文贵2020年12月12日盖特 20201212_1文贵喝咖啡喝醉了……乱聊，并回答很多朋友在昨天直播后的一些有关沼泽地里的关切！](/content/transcript/2020/12/20201212-1090067.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2020年12月6日直播 20201206_1为圣人之子-朱利安尼先生祈祷????????他一定平安归来，继续灭共！](/content/transcript/2020/12/20201206-1093231.md)
 
-[郭文贵2020年12月6日盖特 20201206_2尊敬的戰友們好。文貴要做給針線活給戰友門看看...來迎接我們的中國人的苦日子到來...準備，躲避柯林斯能發生的戰爭...最好的最有價值的準確的信息...量力而行。](/content/transcript/2020/12/20201206-1093240.md)
 
-[郭文贵2020年12月5日盖特 20201205_1尊敬的戰友們好，請所有的戰友們...務必要高度重視防範ÇÇP病毒...千萬不要再有任何僥幸心理，在未來的一定時間內各種災難將一個一個的到來，我們務必參照團結謹慎，](/content/transcript/2020/12/20201205-1093217.md)
-
-[郭文贵2020年12月4日直播 20201204_1沉重直播后回答战友们的一些问题。](/content/transcript/2020/12/20201204-1093214.md)
-
-[郭文贵2020年12月3日直播 20201203_1中国人的灾难真正的开始了](/content/transcript/2020/12/20201203-1093205.md)
-
-[郭文贵2020年12月2日直播 20201202_1共产党对美国选举的操控和蓝金黄终极之战，将是上天给爆料革命、新中国联邦人最大的机会！](/content/transcript/2020/12/20201202-1093181.md)
-
-[郭文贵2020年12月1日盖特 20201201_1尊敬的戰友們好 文貴在此緊急呼籲國內外的戰友，兄弟姐妹們，務必小心病毒的再次兇猛襲來，保重自己家人](/content/transcript/2020/12/20201201-1093186.md)
-
-[郭文贵2020年11月30日直播 20201130_1新中国联邦人一定要团结有集体观念，我们靠情报和实力唤醒世界](/content/transcript/2020/11/20201130-1093366.md)
-
-[郭文贵2020年11月30日盖特 20201130_2尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201130-1093372.md)
-
-
-## 頁面 43/112 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 43/113 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)

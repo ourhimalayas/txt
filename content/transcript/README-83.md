@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 83/112 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 83/113 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年4月29日 20190429_2（2）台湾．香港．将是灭共的重要之地](/content/transcript/2019/04/20190429-1088623.md)
+
+[郭文贵2019年4月29日 20190429台湾．香港．将是灭共的重要之地……谷畜生侮骂一亿河南同胞必须受惩罚！](/content/transcript/2019/04/20190429-1092960.md)
+
+[郭文贵2019年4月28日视频 20190428_1我家就是全世界最敏感的地方](/content/transcript/2019/04/20190428-1089195.md)
+
+[郭文贵2019年4月27日视频 20190427_2-(文貴完整版) 文贵、班农、路德直播：班农先生谈关于当前委的众多问题? 文貴談当前委在美国有什么重要影响力？揭露一带一路的本质](/content/transcript/2019/04/20190427-1089168.md)
+
+[郭文贵2019年4月27日视频 20190427_3在喜马拉雅大使馆和文贵先生直播，信息量大！千万不要错过！](/content/transcript/2019/04/20190427-1089192.md)
+
+[郭文贵2019年4月27日路德和班农访谈 20190427livstream 实时转播](/content/transcript/2019/04/20190427-1092948.md)
+
+[郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊](/content/transcript/2019/04/20190426-1089160.md)
+
+[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）](/content/transcript/2019/04/20190425-1089155.md)
 
 [郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！](/content/transcript/2019/04/20190424-1092894.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2019年4月13日第三次直播 20190413_3给战友们的四条建议！紧急通知，战友必看！](/content/transcript/2019/04/20190413-1092773.md)
 
-[郭文贵2019年4月13日第二次直播 20190413_2郭文贵直播谈盗国贼的财富以及这周发生的大事！ 江家集团在中国的实际实力和未来的下场！](/content/transcript/2019/04/20190413-1092781.md)
 
-[郭文贵2019年4月13日第一次直播 20190413_1什么叫蓝通？为什么刘鹤将遣返爆料战友等21人作为中美贸易交易的条件！](/content/transcript/2019/04/20190413-1092800.md)
-
-[郭文贵2019年4月11日视频 20190411_1谈谈美国和欧洲接下来的联合行动！再谈谈在伦敦被抓朴的阿桑奇和当前危机委员会！](/content/transcript/2019/04/20190411-1089103.md)
-
-[郭文贵2019年4月10日视频 20190410_1 很多战友发给我说Larry King还有俄罗斯美女Dolgva Anastasia又开始找我们事了……造我们谣了，还有很多基金打电话取消跟我的合作！](/content/transcript/2019/04/20190410-1089095.md)
-
-[郭文贵2019年4月10日视频 20190410_2所谓的美国名主持Larry King与俄罗斯美女Dolgva Anastasia造谣文贵的事情．还在进一步的确定详细的信息中，律师建议咱不能就有关问题直播](/content/transcript/2019/04/20190410-1089097.md)
-
-[郭文贵2019年4月9日视频 20190409_2现在向战友们分享喜马拉雅大使馆内部的法制基金的办公室的一小部分．战友餐厅．以及法制基金的办公区](/content/transcript/2019/04/20190409-1089091.md)
-
-[郭文贵2019年4月9日视频 20190409谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事！](/content/transcript/2019/04/20190409-1092767.md)
-
-[郭文贵2019年4月7日视频 20190407美．欧．日．等将对中资国营．香港自贸协定．中共及香港官员的一系列的立法制栽．或调查．或列入黑名单．行动．将是中共灭亡的第一步！](/content/transcript/2019/04/20190407-1092765.md)
-
-
-## 頁面 83/112 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 83/113 [**<**](/content/transcript/README-82.md) [1](/content/transcript/README.md) ... [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) **83** [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-84.md) [查看全部](/content/transcript/README-all.md)

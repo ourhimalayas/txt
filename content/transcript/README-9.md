@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 9/112 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 9/113 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2022年3月23日直播 20220323_1俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难](/content/transcript/2022/03/20220323-1090983.md)
+
+[郭文贵2022年3月22日盖特 20220322_1尊敬的战友们好．世界经济大战……粮食大战……已经前面开始！](/content/transcript/2022/03/20220322-1090687.md)
+
+[郭文贵2022年3月21日盖特 20220321_1尊敬的战友们好．俄乌战争的救援……每时每刻．都为中国人在海外的安全奇形象增光添彩！共产党的经济和国际关系！即将崩塌。新中国联邦人一定要抓住这个机会，建立一个新的世界上的正面](/content/transcript/2022/03/20220321-1090684.md)
+
+[郭文贵2022年3月20日直播 20220320_1俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势](/content/transcript/2022/03/20220320-1090900.md)
+
+[郭文贵2022年3月19日盖特 20220319_1尊敬的战友们好中共内战．外战的大戏即将开始！](/content/transcript/2022/03/20220319-1090678.md)
+
+[郭文贵2022年3月18日盖特 20220318_2尊敬的战友们好……共产党和俄罗斯的生死相依的关系什么时候完球蛋！世界的经济危机什么时候是最坏的时候？香港病毒的感染率，和死亡率．成了世界之谜！](/content/transcript/2022/03/20220318-1090670.md)
+
+[郭文贵2022年3月18日盖特 20220318_3尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！](/content/transcript/2022/03/20220318-1090675.md)
+
+[郭文贵2022年3月18日直播 20220318_1](/content/transcript/2022/03/20220318-1090829.md)
 
 [郭文贵2022年3月17日直播 20220317_1俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](/content/transcript/2022/03/20220317-1090817.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2022年3月1日盖特 20220301_1尊敬的战友们好，俄乌战争已经彻底的改变了世界……非常可悲的事情，中国人成了全世界最被恨的人，甚至要成为最孤立最被仇恨的族类，这是什么原因呢？](/content/transcript/2022/03/20220301-1090348.md)
 
-[郭文贵2022年2月28日盖特 20220228_1尊敬的战友们好！俄乌战争正在走向不确定的危险之中。共产党正在蠢蠢欲动。侵占台湾……新中国联邦人的乌克兰人道救援大行动震撼了世界。此时此刻，我们的战友们更要坚持住我们唯真不破](/content/transcript/2022/02/20220228-1090345.md)
 
-[郭文贵2022年2月27日直播 20220227_1俄乌战争预测台海；普京嚣张中共角色；世界经济金融市场；台湾沦陷如何应对](/content/transcript/2022/02/20220227-1090334.md)
-
-[郭文贵2022年2月27日盖特 20220227_2肉窝饼来了……吃饭饭喽……](/content/transcript/2022/02/20220227-1090337.md)
-
-[郭文贵2022年2月27日盖特 20220227_3尊敬的战友们好．你们见识了吗？传播台湾危机，拯救乌克兰战区的同胞们的信息了吗？一切都已经开始！](/content/transcript/2022/02/20220227-1090342.md)
-
-[郭文贵2022年2月26日直播 20220226_1文贵大直播—GEDU专场](/content/transcript/2022/02/20220226-1090275.md)
-
-[郭文贵2022年2月26日直播 20220226_2紧急直播 救援在乌克兰中国同胞和美国友人方案](/content/transcript/2022/02/20220226-1090301.md)
-
-[郭文贵2022年2月25日直播 20220225_1乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒](/content/transcript/2022/02/20220225-1090232.md)
-
-[郭文贵2022年2月24日直播 20220224_1台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福????????????](/content/transcript/2022/02/20220224-1090190.md)
-
-
-## 頁面 9/112 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 9/113 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)

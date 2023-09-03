@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 20/112 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 20/113 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年9月20日盖特 20210920_4与战友们分享会后将进行美好的晚餐前的时刻……](/content/transcript/2021/09/20210920-1093200.md)
+
+[郭文贵2021年9月19日盖特 20210919_1尊敬的战友们好．你们传播C C P病毒解药的真相了吗？七哥未来的八九天不会有太多的直播．及发盖特视频。因为我要去山里开会……还有其他重要的事情的安排！](/content/transcript/2021/09/20210919-1093179.md)
+
+[郭文贵2021年9月19日盖特 20210919_2尊敬的战友们好，七哥忙的把这个视频给忘了发了，现在马上就补发出去感谢战友们的关心和问候！](/content/transcript/2021/09/20210919-1093180.md)
+
+[郭文贵2021年9月18日盖特 20210918_1尊敬的战友们好，你们传播共产党病毒，和疫苗的解药的信息了吗？七哥今天和明天都没有直播，七哥要去开非常非常重要的赚钱和灭共里程碑式的会议了……一切都已经开始。](/content/transcript/2021/09/20210918-1093171.md)
+
+[郭文贵2021年9月18日盖特 20210918_2限量版的林宝坚尼和杜卡迪合作的摩托车太棒了！????](/content/transcript/2021/09/20210918-1093174.md)
+
+[郭文贵2021年9月17日直播 20210917_1恒大就是旁氏骗局，中国有2.5亿人卷入，这是国家金融灾难，世界灾难；不打疫苗就是财富；SEC和解协议和纽约州总检查长的保证书的重大意义，中共司法超限战彻底失败，报假案的一定会得到严](/content/transcript/2021/09/20210917-1093112.md)
+
+[郭文贵2021年9月17日直播 20210917_2新中国联邦庆贺马丁·班农先生百岁生日快乐！The New Federal State of China Wishes Mr. Marty Bannon A Happy 100th Birthday!](/content/transcript/2021/09/20210917-1093150.md)
+
+[郭文贵2021年9月16日盖特 20210916_1尊敬的战友们好，昨天的直播，在国际政治和金融领域和有智慧的战友眼里是完全不同的一个直播的意义的结果。新中国联盟的国际大使……那瓦罗先生的加入！对我爆料革命和新中国联邦意味着](/content/transcript/2021/09/20210916-1093153.md)
 
 [郭文贵2021年9月16日盖特 20210916_2共产党正在海外穷凶极恶的派遣他那些垃圾兵团……脑残兵团……伺机报复我们的爆料革命。继他们在美国的法律超限战巨大失败后，已经导致很多平爆小组的人被免职。我们的战友们要做好准备](/content/transcript/2021/09/20210916-1093159.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2021年9月10日直播 20210910_1恒大与香港黑帮玩的假金融游戏，恒大就是中国的雷曼兄弟，七哥四年前就准确爆出今天恒大的结局；房地产商都有自己的评估机构，进行金融骗贷；习和拜登通电话说了什么；共产党就是中国的](/content/transcript/2021/09/20210910-1092987.md)
 
-[郭文贵2021年9月9日盖特 20210909_1尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，](/content/transcript/2021/09/20210909-1092990.md)
 
-[郭文贵2021年9月8日直播 20210908_1拍卖行业的鉴定，评估，律师一条龙造假；中共的信托艺术市场是骗托骗术市场，就是洗钱的工具；中国有团契会光明会和共济会，王岐山，张宏伟都是中国光明会会员；七哥的俱乐部都是全世界](/content/transcript/2021/09/20210908-1092926.md)
-
-[郭文贵2021年9月7日直播 20210907_1政治与艺术的关系：拍卖行背后都是军方的势力；所有的古董字画都是政治情报，都是洗钱和行贿；马明哲对台湾的渗透腐败都是核弹级的；最大的艺术品保险就是马明哲。解读黑天鹅事件，毛泽](/content/transcript/2021/09/20210907-1093057.md)
-
-[郭文贵2021年9月6日盖特 20210906_1尊敬的战友们好，你们传播CC P病毒疫苗的解药了吗？你们健身了吗？一切都已经开始！](/content/transcript/2021/09/20210906-1092937.md)
-
-[郭文贵2021年9月6日盖特 20210906_2尊敬的战友们好．黑天鹅事件，和延安的摇窖洞崩塌……断了共产党的根呀……因此同时发生的对台的战争方案临时的改变……这将意味着什么？天助台湾的呢……明天上午9:00继续和战友们一起大](/content/transcript/2021/09/20210906-1092939.md)
-
-[郭文贵2021年9月5日盖特 20210905_2吃饭饭啦……未来农场的必备菜！](/content/transcript/2021/09/20210905-1092933.md)
-
-[郭文贵2021年9月5日直播 20210905_1从苏联切尔诺贝利核事件看今天的中共；最纯最多的青蒿素在美国和加拿大；克里访华将要谈判的内容；陆金所是对西方的经济炸弹，经济病毒，每一股的变化背后都是蓝金黄；马明哲就是中国的](/content/transcript/2021/09/20210905-1092984.md)
-
-[郭文贵2021年9月4日盖特 20210904_1尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？](/content/transcript/2021/09/20210904-1092921.md)
-
-
-## 頁面 20/112 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 20/113 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)

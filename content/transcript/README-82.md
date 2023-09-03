@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 82/112 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 82/113 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2019年5月18日 20190518爆料王建之死原视频！世界上谁都没有](/content/transcript/2019/05/20190518-1093114.md)
+
+[郭文贵2019年5月16日视频 20190516_1西藏新疆香港台灣的同胞們 你們千萬不要放棄 我們將迎來偉大的時刻](/content/transcript/2019/05/20190516-1089225.md)
+
+[郭文贵2019年5月16日视频 20190516_2川普回到紐約 將宴請誰呢 大家都猜是七哥](/content/transcript/2019/05/20190516-1089228.md)
+
+[郭文贵2019年5月15日视频 20190515_1一个牛耳朵的诱惑，SNOW兴奋不己！](/content/transcript/2019/05/20190515-1089223.md)
+
+[郭文贵2019年5月13日视频 20190513报平安视频 关注金融市场 中共真的完了](/content/transcript/2019/05/20190513-1093093.md)
+
+[郭文贵2019年5月12日视频 20190512_2应战友们的要求．发一个snow视频，这是与SNOW散步的小视频](/content/transcript/2019/05/20190512-1089221.md)
+
+[郭文贵2019年5月12日视频 20190512母亲才是我们的国．父母才是我们的家！我们的家！愿中国所有的母亲，不要把自己的儿女送给共产党这个非法组织！任何一个加入共产党的家庭都有可能将受到全世界的制裁，未来无法到世界各](/content/transcript/2019/05/20190512-1093089.md)
+
+[郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow](/content/transcript/2019/05/20190511-1089218.md)
 
 [郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来](/content/transcript/2019/05/20190511-1093080.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2019年4月30日视频 20190430Miles reporting safety, ROL Foundation’s iphone incident](/content/transcript/2019/04/20190430-1092964.md)
 
-[郭文贵2019年4月29日 20190429_2（2）台湾．香港．将是灭共的重要之地](/content/transcript/2019/04/20190429-1088623.md)
 
-[郭文贵2019年4月29日 20190429台湾．香港．将是灭共的重要之地……谷畜生侮骂一亿河南同胞必须受惩罚！](/content/transcript/2019/04/20190429-1092960.md)
-
-[郭文贵2019年4月28日视频 20190428_1我家就是全世界最敏感的地方](/content/transcript/2019/04/20190428-1089195.md)
-
-[郭文贵2019年4月27日视频 20190427_2-(文貴完整版) 文贵、班农、路德直播：班农先生谈关于当前委的众多问题? 文貴談当前委在美国有什么重要影响力？揭露一带一路的本质](/content/transcript/2019/04/20190427-1089168.md)
-
-[郭文贵2019年4月27日视频 20190427_3在喜马拉雅大使馆和文贵先生直播，信息量大！千万不要错过！](/content/transcript/2019/04/20190427-1089192.md)
-
-[郭文贵2019年4月27日路德和班农访谈 20190427livstream 实时转播](/content/transcript/2019/04/20190427-1092948.md)
-
-[郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊](/content/transcript/2019/04/20190426-1089160.md)
-
-[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）](/content/transcript/2019/04/20190425-1089155.md)
-
-
-## 頁面 82/112 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 82/113 [**<**](/content/transcript/README-81.md) [1](/content/transcript/README.md) ... [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) **82** [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-83.md) [查看全部](/content/transcript/README-all.md)

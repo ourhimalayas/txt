@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 46/112 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 46/113 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2020年11月8日盖特 20201108_4记得文贵去过亚利桑娜州吧，我们今天将等来亚利桑娜州的重大利好信息！](/content/transcript/2020/11/20201108-1093137.md)
+
+[郭文贵2020年11月7日直播 20201107_1美国大选后文贵一起直播 第一段](/content/transcript/2020/11/20201107-1093082.md)
+
+[郭文贵2020年11月7日直播 20201107_2美国大选后文贵一起直播 - 第二段](/content/transcript/2020/11/20201107-1093094.md)
+
+[郭文贵2020年10月27日盖特 20201027太长时间没有直播，没有发照片，很多战友一直在关心和想念．惦记着文贵…你们发来的信息都收到了，今天我到了另外一个地方…录了一](/content/transcript/2020/10/20201027-1093066.md)
+
+[郭文贵2020年10月20日语音 20201020这个世界上没有信仰的魔鬼的时代它已经在。” “共产党不灭，未来人类上不可能有后来的15年](/content/transcript/2020/10/20201020-1093069.md)
+
+[郭文贵2020年10月14日盖特 20201014兄弟姐妹们你们可搂住、明天放亨特拜登照片的时候......很黄很黄...不要让孩子们看阿.](/content/transcript/2020/10/20201014-1093130.md)
+
+[郭文贵2020年10月13日直播 20201013文贵关于Gclub和GFashion上线前有关问题的声明直播](/content/transcript/2020/10/20201013-1093154.md)
+
+[郭文贵2020年10月12日盖特 20201012_1爆料革命这碗洒……????????????敬天．敬地．敬战友！](/content/transcript/2020/10/20201012-1093124.md)
 
 [郭文贵2020年10月12日盖特 20201012_2尊敬的战友们好，全球自发的惩贼．要真相．维护华人形象的现象．已经得到了很多正义的有识之士！和法律人士！的绝对的支持……我们](/content/transcript/2020/10/20201012-1093129.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2020年9月24日直播 20200924_1全球战友们一定要坚持唯真不破，依法灭贼．团结一致，迎接伟大时刻的到来](/content/transcript/2020/09/20200924-1092863.md)
 
-[郭文贵2020年9月24日直播 20200924_2测试GTV安卓版直播；中共在48小时内将打开第二个潘多拉盒子，加速灭亡；全球灭贼行动正在进行](/content/transcript/2020/09/20200924-1092876.md)
 
-[郭文贵2020年9月24日盖特 20200924_3尊敬的战友们好，谁能认出和我这么亲近的这只可爱的猫！谁就能准确地预测出美国总统大选的结果！这猫今天真是爱上我了…我一走她就](/content/transcript/2020/09/20200924-1092967.md)
-
-[郭文贵2020年9月23日盖特 20200923文贵开会前．给战友们汇报一下，国内政治以及灭共的国际形势．一切都已经开始！](/content/transcript/2020/09/20200923-1092857.md)
-
-[郭文贵2020年9月21日盖特 20200921_1文贵就有关澳喜战友．和全球战友选择农场和全球依法灭贼的行动的一些看法！](/content/transcript/2020/09/20200921-1092952.md)
-
-[郭文贵2020年9月20日盖特 20200920_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒……香港危机真相了吗？文贵与战友们分享。昨天．特别星期六的外出感受](/content/transcript/2020/09/20200920-1092936.md)
-
-[郭文贵2020年9月20日直播 20200920_2各农场加入的标准；对近期重大事件的解读](/content/transcript/2020/09/20200920-1092944.md)
-
-[郭文贵2020年9月19日做客战斗室 20200919_7班农战斗室 郭文贵专场 E395 中文整理](/content/transcript/2020/09/20200919-1092855.md)
-
-[郭文贵2020年9月19日直播 20200919_1谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（一）](/content/transcript/2020/09/20200919-1092924.md)
-
-
-## 頁面 46/112 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 46/113 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)

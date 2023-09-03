@@ -1,7 +1,23 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 31/112 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 31/113 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
+
+[郭文贵2021年5月11日盖特 20210511_2昨晚和国内统计部门的战友．通话极大的震撼了文贵……中华民族真的被共产党以．最快的速度．最愚蠢的方式，送进地狱！国将不国族将不族啊……我们只能以捶胸顿足．嚎啕大哭．来面对这残](/content/transcript/2021/05/20210511-1091323.md)
+
+[郭文贵2021年5月10日直播 20210510_1感谢战友们的生日祝福；希望战友们珍惜现在，爱家人，爱朋友，爱战友](/content/transcript/2021/05/20210510-1091311.md)
+
+[郭文贵2021年5月10日盖特 20210510_2由我们的灭共其他国的战友．送来了特别多的好消息，在此衷心地感谢秘密翻译组，英雄闫博士和博士军团在全球带来的影响为灭共做出的卓越的贡献！](/content/transcript/2021/05/20210510-1091314.md)
+
+[郭文贵2021年5月10日盖特 20210510_3一个没有幽默感，不懂得幽默感吹毛求疵的人，可能不是一个真正的了解GTV……爆料革命者！](/content/transcript/2021/05/20210510-1091317.md)
+
+[郭文贵2021年5月9日直播 20210509_1](/content/transcript/2021/05/20210509-1091296.md)
+
+[郭文贵2021年5月9日盖特 20210509_2衷心地祝愿所有天下的母亲．母亲节快乐????????????????????????????????永远平安健康！](/content/transcript/2021/05/20210509-1091299.md)
+
+[郭文贵2021年5月8日盖特 20210508_1七哥要给所有的战友们．每个人准备一个看不着摸不着，却每个人都想要的礼物……作为6月4号的，新中国联邦一周年礼物．大家猜猜是什么呢？](/content/transcript/2021/05/20210508-1091287.md)
+
+[郭文贵2021年5月7日盖特 20210507_1中国共产党这个流氓政府．为什么要在全国封杀购买比特币．和加密货币？只要共产党不让干的事儿，都是世界上最伟大的事儿，只要共产党让干的事儿．一定是世界上最坏的事！](/content/transcript/2021/05/20210507-1091276.md)
 
 [郭文贵2021年5月7日盖特 20210507_2应很多战友的要求．再录制第二段盖特．加密货币的最重要的价值是．无阻碍的全球即时流通．绝对的隐私和保密性．更重要的是零成本的点对点的绝对安全交易！还有很多很多与人类的尊严．民](/content/transcript/2021/05/20210507-1091278.md)
 
@@ -37,21 +53,5 @@
 
 [郭文贵2021年4月30日盖特 20210430_4尊敬的戰友們好！剛剛录制幾個小時的［馬背英雄］新歌之後的感想．分享給大家！感謝唐平老師！威廉王老師！辛苦的付出！和對一個完全不具備唱歌的學生！所付出的耐心！一切都已经开始！](/content/transcript/2021/04/20210430-1091207.md)
 
-[郭文贵2021年4月29日盖特 20210429_1尊敬的战友們好．你們健身了嗎！你們傳播CC P病毒．香港危機真相了嗎一切都已经开始！](/content/transcript/2021/04/20210429-1091273.md)
 
-[郭文贵2021年4月28日盖特 20210428_1為什麼這麼多人！認為趙婷的奧斯卡獎！是因為他的背景而得到的！](/content/transcript/2021/04/20210428-1091265.md)
-
-[郭文贵2021年4月28日盖特 20210428_2尊敬的戰友們好！這是今天的第二段蓋特視頻．我們應冷靜看待全世界共同的時間！充分的把握最佳的時刻與全世界合作一舉消滅共產黨！](/content/transcript/2021/04/20210428-1091269.md)
-
-[郭文贵2021年4月27日直播 20210427_1喜币正式上线，喜联储，喜美元，喜支付，金融支付系统将改变新中国联邦； CCP病毒让印度如同人间炼狱， 但是是真实的；欧日澳美都在迅速觉醒；共产党经济一定很快崩塌，不要成为牺牲品；共](/content/transcript/2021/04/20210427-1091249.md)
-
-[郭文贵2021年4月27日盖特 20210427_2偷偷餵snow冰棍！](/content/transcript/2021/04/20210427-1091260.md)
-
-[郭文贵2021年4月26日盖特 20210426_1尊敬的战友们好！为什么中国的赵婷的父母能培养出这样的孩子！为什么几十亿的中国人．却只出了一个这样有良知的中国艺术家赵婷！](/content/transcript/2021/04/20210426-1091256.md)
-
-[郭文贵2021年4月25日直播 20210425_1川普总统卸任后最后悔的三件事！拜登欧洲之行意义为何？中共内部经济一塌糊涂，民生银行是中国经济最大的雷！习已经成为孤家“险”人，以共灭共的重点是曾家是否出手。](/content/transcript/2021/04/20210425-1091201.md)
-
-[郭文贵2021年4月25日盖特 20210425_2应战友们的要求．发一段SNOW的视频](/content/transcript/2021/04/20210425-1091252.md)
-
-
-## 頁面 31/112 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [112](/content/transcript/README-112.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 31/113 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
