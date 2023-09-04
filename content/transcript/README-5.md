@@ -15,7 +15,11 @@
 
 [郭文贵2022年9月10日直播 20220910_1回響 ∙ 水调歌头 2022年中秋特别节目](/content/transcript/2022/09/20220910-1091817.md)
 
+[2022年8月2日 郭文贵先生抽雪茄庆祝台湾事实独立 全文字版](/content/transcript/2022/08/20220802-1643620.md)
+
 [2022年8月1日 郭文贵先生谈8月1日法庭听证会和我们将面对的挑战 全文字版](/content/transcript/2022/08/20220801-1639353.md)
+
+[2022年8月1日 郭文贵先生谈8月1日法庭听证会和我们将面对的挑战 全文字版](/content/transcript/2022/08/20220801-1643031.md)
 
 [2022年7月31日《文贵大直播》全文字版](/content/transcript/2022/07/20220731-1637321.md)
 
@@ -48,10 +52,6 @@
 [2022年7月6日《文贵大直播》--北天东地 全文字版](/content/transcript/2022/07/20220706-1628670.md)
 
 [2022年7月3日《文贵先生携百位战友戒烟宣誓大直播》全文字版](/content/transcript/2022/07/20220703-1628289.md)
-
-[2022年7月3日 《戒烟大直播》——女子戒烟监督团连线补播  全文字版](/content/transcript/2022/07/20220703-1628305.md)
-
-[2022年6月28日《文贵大直播》全文字版](/content/transcript/2022/06/20220628-1573683.md)
 
 
 ## 頁面 5/113 [**<**](/content/transcript/README-4.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) **5** [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-6.md) [查看全部](/content/transcript/README-all.md)

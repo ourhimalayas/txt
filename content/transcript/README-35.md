@@ -3,6 +3,10 @@
 
 ## 頁面 35/113 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年3月19日盖特 20210319_1文贵再谈为什么？阿拉斯加的会谈！引起了美国和西方的高度关注！如何看待共产党玩弄种族矛盾……以及回应很多国内战友关于文贵．二月二直播后！一些家庭问题引起的各种讨论！](/content/transcript/2021/03/20210319-1090966.md)
+
+[郭文贵2021年3月19日盖特 20210319_2所有给我发信息咨询付款的战友们，我再次强调：要与各农场高效紧密准确．地联系，并准确地填写银行信息是关键中的关键。我们正和共产党打一场帐号游击站，请战友们一定用对付游击战中的](/content/transcript/2021/03/20210319-1090968.md)
+
 [郭文贵2021年3月18日直播 20210318_1火币是中共用来控制个人信息和收割财富的高科技手段；Gcoin， Ｇdollar是保证个人财富安全，灭共的金融平台；SEC下周开始退款，九指妖的灾难即将到来](/content/transcript/2021/03/20210318-1090954.md)
 
 [郭文贵2021年3月18日盖特 20210318_2刚刚直播完后．没有声音的一段．很多战友让我再说一下，我在这里在和有个重复补播上！听战友的话有饭吃．有未来！](/content/transcript/2021/03/20210318-1090957.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年3月13日盖特 20210313_3尊敬的战友们好，明天3月14号．农历二月初二．文贵母亲两周年，祭日……文贵要沐浴更衣．与战友们严肃地聊聊，未来新中国联邦人如何重建家庭文化！和如何建立利用科技和法律孝敬老人！我](/content/transcript/2021/03/20210313-1090908.md)
 
 [郭文贵2021年3月12日盖特 20210312_1尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第一部分！](/content/transcript/2021/03/20210312-1090881.md)
-
-[郭文贵2021年3月12日盖特 20210312_2尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第二部分！](/content/transcript/2021/03/20210312-1090885.md)
-
-[郭文贵2021年3月12日盖特 20210312_3从四美女在GTV直播……看我们GTV的未来](/content/transcript/2021/03/20210312-1090889.md)
 
 
 ## 頁面 35/113 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)

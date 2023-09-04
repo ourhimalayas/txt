@@ -3,6 +3,10 @@
 
 ## 頁面 6/113 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)
 
+[2022年7月3日 《戒烟大直播》——女子戒烟监督团连线补播  全文字版](/content/transcript/2022/07/20220703-1628305.md)
+
+[2022年6月28日《文贵大直播》全文字版](/content/transcript/2022/06/20220628-1573683.md)
+
 [2022年6月27日  郭文贵先生和战友互动聊天直播 全文字版](/content/transcript/2022/06/20220627-1573679.md)
 
 [2022年6月24日《文贵大直播》全文字版](/content/transcript/2022/06/20220624-1573674.md)
@@ -48,10 +52,6 @@
 [郭文贵2022年5月11日直播 20220511_2七哥与战友们连线直播](/content/transcript/2022/05/20220511-1091586.md)
 
 [郭文贵2022年5月10日盖特 20220510_2](/content/transcript/2022/05/20220510-1091740.md)
-
-[郭文贵2022年5月10日直播 20220510_1七哥生日与战友们在线聊天](/content/transcript/2022/05/20220510-1091863.md)
-
-[郭文贵2022年5月8日直播 20220508_1母亲节谈中国母亲；疫苗灾难何去何从](/content/transcript/2022/05/20220508-1091800.md)
 
 
 ## 頁面 6/113 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)

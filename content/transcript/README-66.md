@@ -3,6 +3,10 @@
 
 ## 頁面 66/113 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年11月17日文贵大直播全文字版：对香港理工大学即将发生的人道危机提出的个人看法](/content/transcript/2019/11/20191117-1086589.md)
+
+[郭文贵2019年11月17日视频 20191117_2香港又有行动啦！香港的教堂要注意了，对教堂有行动，宗教设施，那几个教堂，我就不多说了啊](/content/transcript/2019/11/20191117-1089651.md)
+
 [郭文贵2019年11月17日 20191117对香港理工大学即将发生的人道危机提出的个人看法。](/content/transcript/2019/11/20191117-1094165.md)
 
 [2019年11月16日文贵大直播全文字版：报平安直播](/content/transcript/2019/11/20191116-1086585.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年11月6日第三次直播 20191106_3“文贵和路德在喜马拉雅大使馆直播”上部 共产党创造了几个荒唐政治事件(2)](/content/transcript/2019/11/20191106-1093877.md)
 
 [郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部](/content/transcript/2019/11/20191106-1093896.md)
-
-[郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦](/content/transcript/2019/11/20191105-1089638.md)
-
-[2019年11月4日 郭文贵先生直播--四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位 全文字版](/content/transcript/2019/11/20191104-1072004.md)
 
 
 ## 頁面 66/113 [**<**](/content/transcript/README-65.md) [1](/content/transcript/README.md) ... [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) **66** [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-67.md) [查看全部](/content/transcript/README-all.md)

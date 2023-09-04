@@ -3,6 +3,10 @@
 
 ## 頁面 63/113 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年1月5日 20200105傅希秋是挂牌特务艾未未等欺民贼将被扫入历史的垃圾桶](/content/transcript/2020/01/20200105-1091725.md)
+
+[郭文贵2020年1月4日 20200104共产党不管你咋折腾，你完蛋了](/content/transcript/2020/01/20200104-1091701.md)
+
 [郭文贵2020年1月3日中俄伊军演 20200103苏曼尼的被炸死是我们爆料革命展示实力走向](/content/transcript/2020/01/20200103-1092232.md)
 
 [郭文贵2020年1月2日 20200102聊自己的人生和武汉的非典 为战友终生戒吃牛肉！](/content/transcript/2020/01/20200102-1091687.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年12月19日视频 20191219_1由于文贵诉郭宝胜的案件在华盛顿开庭．延期一了天．今天不能直播了](/content/transcript/2019/12/20191219-1089706.md)
 
 [郭文贵2019年12月18日视频 20191218_1文贵今天还要继续开庭，所以早上5：00起床，今天只能是录制视频给大家了](/content/transcript/2019/12/20191218-1089702.md)
-
-[郭文贵2019年12月17日视频 20191217在华盛顿报平安](/content/transcript/2019/12/20191217-1094063.md)
-
-[郭文贵2019年12月16日视频 20191216维护海外华人的形象，依法惩治海外的大小欺民贼．是保护海外华人利益的必需手段！](/content/transcript/2019/12/20191216-1094060.md)
 
 
 ## 頁面 63/113 [**<**](/content/transcript/README-62.md) [1](/content/transcript/README.md) ... [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) **63** [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-64.md) [查看全部](/content/transcript/README-all.md)

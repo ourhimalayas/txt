@@ -3,6 +3,10 @@
 
 ## 頁面 71/113 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年9月29日 郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年 全文字版](/content/transcript/2019/09/20190929-1098248.md)
+
+[郭文贵2019年9月28日 20190928香港即将迎来关键一战，国庆就是CCP的末日，美将清算盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/transcript/2019/09/20190928-1093716.md)
+
 [2019年9月28郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临全文字版](/content/transcript/2019/09/20190928-1098233.md)
 
 [郭文贵2019年9月27日 20190927_2江泽民：中国要出事，你们都跑路吧](/content/transcript/2019/09/20190927-1088576.md)
@@ -48,10 +52,6 @@
 [2019年9月16日郭文贵先生直播全文字版](/content/transcript/2019/09/20190916-1098223.md)
 
 [郭文贵2019年9月15日 20190915王岐山乱港七策坐镇指挥黑警察施暴港人，香港已成为恐惧之港，全球正义力量迅速集结，现在已是黑白对决（美国的白对CCP的黑）！我们目前以传播香港危机真相为核心！中共被灭](/content/transcript/2019/09/20190915-1093632.md)
-
-[2019年9月15日 香港已成为恐惧之港全文字版](/content/transcript/2019/09/20190915-1098235.md)
-
-[郭文贵2019年9月14日 20190914尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！](/content/transcript/2019/09/20190914-1093607.md)
 
 
 ## 頁面 71/113 [**<**](/content/transcript/README-70.md) [1](/content/transcript/README.md) ... [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) **71** [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-72.md) [查看全部](/content/transcript/README-all.md)

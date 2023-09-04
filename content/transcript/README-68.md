@@ -3,6 +3,10 @@
 
 ## 頁面 68/113 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年10月27日视频 20191027试直播与战友闲聊](/content/transcript/2019/10/20191027-1093787.md)
+
+[2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-1087429.md)
+
 [郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着](/content/transcript/2019/10/20191026-1089605.md)
 
 [郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中](/content/transcript/2019/10/20191026-1093774.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191018-1093703.md)
 
 [郭文贵2019年10月17日视频 20191017_1岑子杰被害背後的真相已逐漸浮出水面 我們一定要追究 我今天整天參加秘密聽證會 不能直播](/content/transcript/2019/10/20191017-1089583.md)
-
-[2019年10月16日、17日郭文贵先生直播视频 共产党利用黑社会杀手手段 残害香港议员岑子杰先生以及被害真相浮出水面（合集）全文字版](/content/transcript/2019/10/20191016-1087415.md)
-
-[郭文贵2019年10月16日视频 20191016_1共产党利用黑社会杀手手段 残害香港议员岑子杰先生](/content/transcript/2019/10/20191016-1089581.md)
 
 
 ## 頁面 68/113 [**<**](/content/transcript/README-67.md) [1](/content/transcript/README.md) ... [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) **68** [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-69.md) [查看全部](/content/transcript/README-all.md)

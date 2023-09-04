@@ -3,6 +3,10 @@
 
 ## 頁面 65/113 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年11月28日视频 20191128_2文贵嗑瓜子等大事发生](/content/transcript/2019/11/20191128-1089684.md)
+
+[郭文贵2019年11月28日视频 20191128_3看看文贵在吃啥呢？咋子过感恩节里！与战友们分享感恩节的美食！](/content/transcript/2019/11/20191128-1089686.md)
+
 [郭文贵2019年11月27日视频 20191127_2香港有大陆法，信天主教和讲英文是高于台湾的原因](/content/transcript/2019/11/20191127-1089681.md)
 
 [郭文贵2019年11月27日 20191127再谈《香港人权与民主法案》,川普签署法案的前一分钟，中共仍在勾兑；CCP在疆狂杀滥捕甚于魔鬼](/content/transcript/2019/11/20191127-1094080.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年11月18日视频 20191118_4香港的人权法案可能今天要通过了 你能擋得住嗎共產黨](/content/transcript/2019/11/20191118-1089657.md)
 
 [郭文贵2019年11月18日 20191118香港理工大事件的背后故事和王建到底是怎么死的！ part1 2](/content/transcript/2019/11/20191118-1093975.md)
-
-[2019年11月17日文贵大直播全文字版：对香港理工大学即将发生的人道危机提出的个人看法](/content/transcript/2019/11/20191117-1086589.md)
-
-[郭文贵2019年11月17日视频 20191117_2香港又有行动啦！香港的教堂要注意了，对教堂有行动，宗教设施，那几个教堂，我就不多说了啊](/content/transcript/2019/11/20191117-1089651.md)
 
 
 ## 頁面 65/113 [**<**](/content/transcript/README-64.md) [1](/content/transcript/README.md) ... [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) **65** [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-66.md) [查看全部](/content/transcript/README-all.md)

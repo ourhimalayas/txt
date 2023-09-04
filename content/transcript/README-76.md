@@ -3,6 +3,10 @@
 
 ## 頁面 76/113 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年7月30日视频 20190730_1(精華自26分04秒起至35分27秒)习近平上位、必灭薄熙来、贾庆林出场、李源潮书生、南普陀计划](/content/transcript/2019/07/20190730-1089379.md)
+
+[郭文贵2019年7月29日第二次直播 20190729_2香港发生了什么情况 中共在以日计的步伐奔向灭亡](/content/transcript/2019/07/20190729-1093416.md)
+
 [郭文贵2019年7月29日第一次直播 20190729_1尊敬的战友们好你们健身了吗？你们往身上泼水了吗？为什么在曼哈顿举行的国际经济会议改变了议程？一切都是刚刚开始！](/content/transcript/2019/07/20190729-1093417.md)
 
 [2019年7月29日文贵大直播全文字版：共产党已经进入倒计时](/content/transcript/2019/07/20190729-1098202.md)
@@ -48,10 +52,6 @@
 [2019年7月26日文贵大直播全文字版： 江志成这个小鳖孙 和孙力军最近在干啥](/content/transcript/2019/07/20190726-1098128.md)
 
 [郭文贵2019年7月25日视频 20190725live stream: Miles letting everyone know he is safe. Please friends, remember..](/content/transcript/2019/07/20190725-1093397.md)
-
-[2019年7月25日《文贵大直播》全文字版：请战友们记住7月21号7月23号.......](/content/transcript/2019/07/20190725-1098121.md)
-
-[郭文贵2019年7月24日视频 20190724尊敬的战友们好，你们健身了吗？你们往身上泼水了吗？衷心的祝愿和祝福所有的在国内．在水灾同胞们能尽快的恢复到正常的生活……我们的心和你们在一起，一切都是刚刚开始！](/content/transcript/2019/07/20190724-1093387.md)
 
 
 ## 頁面 76/113 [**<**](/content/transcript/README-75.md) [1](/content/transcript/README.md) ... [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) **76** [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) [81](/content/transcript/README-81.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-77.md) [查看全部](/content/transcript/README-all.md)

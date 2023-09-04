@@ -3,6 +3,10 @@
 
 ## 頁面 46/113 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年11月8日直播与大卫连线 20201108_2](/content/transcript/2020/11/20201108-1093113.md)
+
+[郭文贵2020年11月8日盖特 20201108_3文贵喝完下午茶……抽雪茄抽醉了，在此……和战友聊聊……到底美国大选谁能赢？？为什么？我们为什么支持川普总统？](/content/transcript/2020/11/20201108-1093132.md)
+
 [郭文贵2020年11月8日盖特 20201108_4记得文贵去过亚利桑娜州吧，我们今天将等来亚利桑娜州的重大利好信息！](/content/transcript/2020/11/20201108-1093137.md)
 
 [郭文贵2020年11月7日直播 20201107_1美国大选后文贵一起直播 第一段](/content/transcript/2020/11/20201107-1093082.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年9月26日连线我是音雄 20200926_2《我是音雄》第一期复赛七哥空降现场，并发布震撼消息！](/content/transcript/2020/09/20200926-1092888.md)
 
 [郭文贵2020年9月26日直播 20200926_1感谢在前线依法灭贼的战友们；依法灭贼的重大意义，是对战友勇气与智慧的考验](/content/transcript/2020/09/20200926-1092983.md)
-
-[郭文贵2020年9月25日盖特 20200925尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？文贵聊聊．为什么要在全球依法灭贼！看过变态的性爱视频了](/content/transcript/2020/09/20200925-1092969.md)
-
-[郭文贵2020年9月24日直播 20200924_1全球战友们一定要坚持唯真不破，依法灭贼．团结一致，迎接伟大时刻的到来](/content/transcript/2020/09/20200924-1092863.md)
 
 
 ## 頁面 46/113 [**<**](/content/transcript/README-45.md) [1](/content/transcript/README.md) ... [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) **46** [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-47.md) [查看全部](/content/transcript/README-all.md)

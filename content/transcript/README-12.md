@@ -3,6 +3,10 @@
 
 ## 頁面 12/113 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年1月25日盖特 20220125_2尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？甜蜜蜜 你笑得甜蜜蜜 好像花儿开在春风里 开在春风里 在哪里](/content/transcript/2022/01/20220125-1089788.md)
+
+[郭文贵2022年1月25日盖特 20220125_3大功告成……馍馍出锅……](/content/transcript/2022/01/20220125-1089791.md)
+
 [郭文贵2022年1月25日直播 20220125_1紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](/content/transcript/2022/01/20220125-1089924.md)
 
 [郭文贵2022年1月24日盖特 20220124_2尊敬的战友们好……你们健身了吗？在今天大直播后，在整个中共国甜蜜蜜这首歌，已经完全找不到了，爆料革命和新中国联邦到底有多大的力量？从共产党将盘古龙头变成龟头……又将甜蜜蜜这](/content/transcript/2022/01/20220124-1089784.md)
@@ -48,10 +52,6 @@
 [郭文贵2022年1月12日直播 20220112_1伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况](/content/transcript/2022/01/20220112-1089137.md)
 
 [郭文贵2022年1月11日盖特直播 20220111_1](/content/transcript/2022/01/20220111-1089692.md)
-
-[郭文贵2022年1月10日盖特 20220110_1尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的](/content/transcript/2022/01/20220110-1088539.md)
-
-[郭文贵2022年1月9日直播 20220109_1哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王](/content/transcript/2022/01/20220109-1088522.md)
 
 
 ## 頁面 12/113 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)

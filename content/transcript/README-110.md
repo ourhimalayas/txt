@@ -3,6 +3,10 @@
 
 ## 頁面 110/113 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年7月24日第二次直播 20170724_2呼吁推友不要冲动](/content/transcript/2017/07/20170724-1094663.md)
+
+[郭文贵2017年7月18日视频 20170718做平板撑坚持20分钟！当然和十里路不换肩比不了。。。各位健身了吗？](/content/transcript/2017/07/20170718-1094033.md)
+
 [郭文贵2017年7月17日明镜专访第四期 20170717](/content/transcript/2017/07/20170717-1094656.md)
 
 [郭文贵2017年7月15日直播 20170715_2关于范冰冰起诉．海航20万亿线索的来源及美国灯塔报纸采访的回复](/content/transcript/2017/07/20170715-1093277.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年6月13日 20170613关于章立凡与胡平先生在VoA节目中对文贵的诬陷](/content/transcript/2017/06/20170613-1094288.md)
 
 [郭文贵2017年6月11日视频 20170611](/content/transcript/2017/06/20170611-1094383.md)
-
-[郭文贵2017年6月10日第二次直播 20170610_2](/content/transcript/2017/06/20170610-1094373.md)
-
-[郭文贵2017年6月10日第一次直播 20170610_1有关海南航空的公告的回复](/content/transcript/2017/06/20170610-1094378.md)
 
 
 ## 頁面 110/113 [**<**](/content/transcript/README-109.md) [1](/content/transcript/README.md) ... [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) **110** [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-111.md) [查看全部](/content/transcript/README-all.md)

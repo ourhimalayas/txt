@@ -3,6 +3,10 @@
 
 ## 頁面 97/113 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話](/content/transcript/2018/07/20180702-1088538.md)
+
+[郭文贵2018年6月30日直播 20180630_1谈郭宝胜的诈骗与对寒梅的起诉](/content/transcript/2018/06/20180630-1088520.md)
+
 [郭文贵2018年6月30日直播 20180630_2谈中国股市与经济！](/content/transcript/2018/06/20180630-1088532.md)
 
 [郭文贵2018年6月29日直播 20180629_1谈刘刚与屎诺．王岐山与错功胜为什么救海航！](/content/transcript/2018/06/20180629-1088492.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年6月2日 20180602接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术！](/content/transcript/2018/06/20180602-1094299.md)
 
 [郭文贵2018年6月1日 20180601文贵视频为什么成为盗国贼的精神艾滋！](/content/transcript/2018/06/20180601-1094265.md)
-
-[郭文贵2018年5月31日视频 20180531不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/transcript/2018/05/20180531-1092883.md)
-
-[郭文贵2018年5月30日视频 20180530文贵很好请战友们放心](/content/transcript/2018/05/20180530-1087703.md)
 
 
 ## 頁面 97/113 [**<**](/content/transcript/README-96.md) [1](/content/transcript/README.md) ... [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) **97** [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-98.md) [查看全部](/content/transcript/README-all.md)

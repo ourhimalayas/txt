@@ -3,6 +3,10 @@
 
 ## 頁面 53/113 [**<**](/content/transcript/README-52.md) [1](/content/transcript/README.md) ... [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) **53** [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-54.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年7月3日视频 20200703_2听听美国政府官员这一系列制裁和我们战友们在华盛顿抗议的一些观点以及背后的故事](/content/transcript/2020/07/20200703-1089901.md)
+
+[郭文贵2020年7月2日直播 20200702华盛顿的历史性的美东战友们的抗议，以及接下来对中共惩罚的大锤如何落下！](/content/transcript/2020/07/20200702-1092177.md)
+
 [郭文贵2020年6月30日视频 20200630_1](/content/transcript/2020/06/20200630-1089891.md)
 
 [郭文贵2020年6月30日视频 20200630_2](/content/transcript/2020/06/20200630-1089893.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年6月17日直播 20200617GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/content/transcript/2020/06/20200617-1094203.md)
 
 [郭文贵2020年6月16日直播 20200616回答战友们关于G币，GTV投资诉讼的问题；请大家注意挑拨离间的CCP特务；夏威夷将是中共的噩梦](/content/transcript/2020/06/20200616-1094197.md)
-
-[郭文贵2020年6月15日视频 20200615_6七哥耍球棒](/content/transcript/2020/06/20200615-1089836.md)
-
-[郭文贵2020年6月15日视频 20200615_7今天不直播](/content/transcript/2020/06/20200615-1089839.md)
 
 
 ## 頁面 53/113 [**<**](/content/transcript/README-52.md) [1](/content/transcript/README.md) ... [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) **53** [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-54.md) [查看全部](/content/transcript/README-all.md)

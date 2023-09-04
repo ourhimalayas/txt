@@ -3,6 +3,10 @@
 
 ## 頁面 62/113 [**<**](/content/transcript/README-61.md) [1](/content/transcript/README.md) ... [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) **62** [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-63.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年1月25日 20200125大年初一文贵严肃负责任向战友及疫区同胞报告：……武汉疫情绝对是人为不是天灾！](/content/transcript/2020/01/20200125-1091698.md)
+
+[郭文贵2020年1月24日视频 20200124_2吃完年夜飯 抽根朋友送的雪茄PARTAGAS](/content/transcript/2020/01/20200124-1089758.md)
+
 [郭文贵2020年1月24日文贵看春晚 20200124](/content/transcript/2020/01/20200124-1091671.md)
 
 [郭文贵2020年1月23日第二次直播 20200123_2向大家汇报今天的法治基金的会议花絮．24号文贵看春晚的节目的一些安排](/content/transcript/2020/01/20200123-1092137.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年1月5日视频 20200105_3文贵在这里又要浪一浪了，应战友们的要求，将今天穿的衣服录一段视频发出来，一切都是刚刚开始。](/content/transcript/2020/01/20200105-1089023.md)
 
 [郭文贵2020年1月5日视频 20200105_2郭文貴在喜馬拉雅大使館採訪班農 談美國擊斃伊朗二號人物蘇拉曼尼](/content/transcript/2020/01/20200105-1089752.md)
-
-[郭文贵2020年1月5日 20200105傅希秋是挂牌特务艾未未等欺民贼将被扫入历史的垃圾桶](/content/transcript/2020/01/20200105-1091725.md)
-
-[郭文贵2020年1月4日 20200104共产党不管你咋折腾，你完蛋了](/content/transcript/2020/01/20200104-1091701.md)
 
 
 ## 頁面 62/113 [**<**](/content/transcript/README-61.md) [1](/content/transcript/README.md) ... [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) **62** [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-63.md) [查看全部](/content/transcript/README-all.md)

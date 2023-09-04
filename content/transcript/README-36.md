@@ -3,6 +3,10 @@
 
 ## 頁面 36/113 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年3月12日盖特 20210312_2尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第二部分！](/content/transcript/2021/03/20210312-1090885.md)
+
+[郭文贵2021年3月12日盖特 20210312_3从四美女在GTV直播……看我们GTV的未来](/content/transcript/2021/03/20210312-1090889.md)
+
 [郭文贵2021年3月12日盖特 20210312_4在外面开会回来．文贵看到共产党病毒在西方世界……给中国人带来的负面影响，感到非常的恐惧和害怕，我们都要珍惜由爆料革命新中国联邦！为中国人在国际上打下这片天空！将共产党与共产](/content/transcript/2021/03/20210312-1090891.md)
 
 [郭文贵2021年3月11日盖特 20210311_1尊敬的战友们好！GTV可能被骇客的紧急通知！](/content/transcript/2021/03/20210311-1090862.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年3月1日盖特 20210301_1尊敬的战友得好！稍后在今天稍晚的时间，我将有一个重要的公告，关于GTV将退还所有的13OO投资者椅的公告……我们不会妥协，也不会被任何机构玩弄……我们爆料革命的平台，只能．越来越强越](/content/transcript/2021/03/20210301-1090811.md)
 
 [郭文贵2021年2月28日盖特 20210228_1尊敬的战友们好！文贵正在尝试，让自己获得不高兴的心情，然后今天晚上在直播！文贵谈谈共产党的流氓文化……和把我们14亿中国人民不当猪狗的流氓逻辑](/content/transcript/2021/02/20210228-1090782.md)
-
-[郭文贵2021年2月28日直播 20210228_2为了确保战友的利益，文贵做出的最终决定，确保Ｇ系列控制权一定都在战友手中](/content/transcript/2021/02/20210228-1090801.md)
-
-[郭文贵2021年2月27日盖特 20210227_1即将崩溃的共产党的经济！和全世界联合以毒灭共的大时代的开启！最大的受益者，是新中国联邦和新中国联邦的中国人民](/content/transcript/2021/02/20210227-1090772.md)
 
 
 ## 頁面 36/113 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)

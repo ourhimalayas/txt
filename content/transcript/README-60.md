@@ -3,6 +3,10 @@
 
 ## 頁面 60/113 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年3月12日直播股市暴跌(下) 20200312_2船上第二次直播华尔街股市暴跌，世界资产重新分配](/content/transcript/2020/03/20200312-1091952.md)
+
+[郭文贵2020年3月11日 20200311谈未来3到5年能健康地活着就是](/content/transcript/2020/03/20200311-1091925.md)
+
 [郭文贵2020年3月9日视频 20200309_1本星期將是滅共里程碑的一周](/content/transcript/2020/03/20200309-1089779.md)
 
 [郭文贵2020年3月8日视频 20200308_3](/content/transcript/2020/03/20200308-1088902.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年2月20日第一次直播 20200220_1参加班农战斗室第21期 谈武汉](/content/transcript/2020/02/20200220-1091819.md)
 
 [郭文贵2020年2月19日直播 20200219_2郭文贵先生加入班农先生战斗室谈武汉疫情 高清版](/content/transcript/2020/02/20200219-1088898.md)
-
-[郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播](/content/transcript/2020/02/20200219-1091799.md)
-
-[郭文贵2020年2月18日 20200218警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山](/content/transcript/2020/02/20200218-1091794.md)
 
 
 ## 頁面 60/113 [**<**](/content/transcript/README-59.md) [1](/content/transcript/README.md) ... [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) **60** [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-61.md) [查看全部](/content/transcript/README-all.md)

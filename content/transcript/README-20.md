@@ -3,6 +3,10 @@
 
 ## 頁面 20/113 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年9月20日盖特 20210920_2尊敬的战友们好……七哥在这里向所有的全球的兄弟姐妹们请安了。你们觉得未来的新中国联邦的农场总部，这样的山脉和环境怎么样？](/content/transcript/2021/09/20210920-1093195.md)
+
+[郭文贵2021年9月20日盖特 20210920_3与战友分享大自然神奇……无法解释的这种自然现象，我深信这所有的美丽都是人心，和历史，和人的行为，和上天对这里的人们的一切的裁判．给予的结果，才能有这样的自然的神奇，这种人工](/content/transcript/2021/09/20210920-1093198.md)
+
 [郭文贵2021年9月20日盖特 20210920_4与战友们分享会后将进行美好的晚餐前的时刻……](/content/transcript/2021/09/20210920-1093200.md)
 
 [郭文贵2021年9月19日盖特 20210919_1尊敬的战友们好．你们传播C C P病毒解药的真相了吗？七哥未来的八九天不会有太多的直播．及发盖特视频。因为我要去山里开会……还有其他重要的事情的安排！](/content/transcript/2021/09/20210919-1093179.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年9月12日直播 20210912_1今年年底将爆发疫苗政治的大危机，文贵再开赌局：辉瑞一定会破产，会受到国际制裁；人类最大的单笔回扣是1200亿美元，由白手套张宏伟和国开行陈元拿走，其中200亿给了江志城；扩大前海经济](/content/transcript/2021/09/20210912-1093051.md)
 
 [郭文贵2021年9月12日盖特 20210912_2一年前直播中答应送给小郑州兄弟的雪茄空盒子的事情，今天终于尘埃落定．很多老雪茄盒子都被管家给扔了！到处找才找到这几个难得的具有雪茄奇迹般的历史的记忆的盒子，大家能看得懂吗？](/content/transcript/2021/09/20210912-1093182.md)
-
-[郭文贵2021年9月11日盖特 20210911_1尊敬的战友们好．每时每刻．我们爆料革命．新中国联邦都在拯救很多无辜的生命……和影响这个世界走向阳光！我们是这个世界上最伟大的正义的力量．共产党你完蛋了。](/content/transcript/2021/09/20210911-1092996.md)
-
-[郭文贵2021年9月10日直播 20210910_1恒大与香港黑帮玩的假金融游戏，恒大就是中国的雷曼兄弟，七哥四年前就准确爆出今天恒大的结局；房地产商都有自己的评估机构，进行金融骗贷；习和拜登通电话说了什么；共产党就是中国的](/content/transcript/2021/09/20210910-1092987.md)
 
 
 ## 頁面 20/113 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)

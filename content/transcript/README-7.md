@@ -3,6 +3,10 @@
 
 ## 頁面 7/113 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年5月10日直播 20220510_1七哥生日与战友们在线聊天](/content/transcript/2022/05/20220510-1091863.md)
+
+[郭文贵2022年5月8日直播 20220508_1母亲节谈中国母亲；疫苗灾难何去何从](/content/transcript/2022/05/20220508-1091800.md)
+
 [郭文贵2022年5月7日直播 20220507_1](/content/transcript/2022/05/20220507-1091699.md)
 
 [郭文贵2022年5月6日直播 20220506_1如何应对世界经济危机；俄乌战争对我们的影响](/content/transcript/2022/05/20220506-1091691.md)
@@ -48,10 +52,6 @@
 [郭文贵2022年4月19日直播 20220419_1419五周年专场,霹雳一声断播门,文贵爆料惊鬼神,五载星火燎原势,喜马拉雅再昆仑](/content/transcript/2022/04/20220419-1091232.md)
 
 [郭文贵2022年4月18日盖特 20220418_1尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！](/content/transcript/2022/04/20220418-1091692.md)
-
-[郭文贵2022年4月17日直播 20220417_1七哥来啦](/content/transcript/2022/04/20220417-1090964.md)
-
-[郭文贵2022年4月17日盖特 20220417_2尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！](/content/transcript/2022/04/20220417-1091688.md)
 
 
 ## 頁面 7/113 [**<**](/content/transcript/README-6.md) [1](/content/transcript/README.md) ... [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) **7** [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-8.md) [查看全部](/content/transcript/README-all.md)

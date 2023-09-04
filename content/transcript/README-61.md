@@ -3,6 +3,10 @@
 
 ## 頁面 61/113 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播](/content/transcript/2020/02/20200219-1091799.md)
+
+[郭文贵2020年2月18日 20200218警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山](/content/transcript/2020/02/20200218-1091794.md)
+
 [郭文贵2020年2月15日 20200215 告诉战友们一定要耐心在家健身健心会有解药的！CCP灭了车贷房贷](/content/transcript/2020/02/20200215-1091774.md)
 
 [郭文贵2020年2月14日谈武汉疫情 20200214战友不树敌只为灭共](/content/transcript/2020/02/20200214-1091761.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年1月27日谈科比意外死亡 20200127并呼吁中共在灾难面前以人命](/content/transcript/2020/01/20200127-1091716.md)
 
 [郭文贵2020年1月26日 20200126大年初二谈为什么共产党要控制世界卫生组织．国际刑警组织．国际人权组织．中共为什么拒绝世界卫生组织给武汉疫区医生护士的防护设备和设施。2020年1月26日爆料革命三周年文贵致谢所有的战](/content/transcript/2020/01/20200126-1092308.md)
-
-[郭文贵2020年1月25日 20200125大年初一文贵严肃负责任向战友及疫区同胞报告：……武汉疫情绝对是人为不是天灾！](/content/transcript/2020/01/20200125-1091698.md)
-
-[郭文贵2020年1月24日视频 20200124_2吃完年夜飯 抽根朋友送的雪茄PARTAGAS](/content/transcript/2020/01/20200124-1089758.md)
 
 
 ## 頁面 61/113 [**<**](/content/transcript/README-60.md) [1](/content/transcript/README.md) ... [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) **61** [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-62.md) [查看全部](/content/transcript/README-all.md)

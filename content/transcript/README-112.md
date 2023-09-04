@@ -3,6 +3,10 @@
 
 ## 頁面 112/113 [**<**](/content/transcript/README-111.md) [1](/content/transcript/README.md) ... [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) **112** [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-113.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年5月15日视频 20170515_1](/content/transcript/2017/05/20170515-1094389.md)
+
+[郭文贵2017年5月13日视频 20170513](/content/transcript/2017/05/20170513-1094379.md)
+
 [郭文贵2017年5月12日视频 20170512](/content/transcript/2017/05/20170512-1094377.md)
 
 [郭文贵2017年5月11日视频 20170511](/content/transcript/2017/05/20170511-1094352.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年4月28日 20170428接受BBC采访的视频Miles Kwok was Interviewed by BBC on April 28th, 2017](/content/transcript/2017/04/20170428-1094608.md)
 
 [郭文贵2017年4月27日 20170427推友过十一万感谢视频](/content/transcript/2017/04/20170427-1094239.md)
-
-[郭文贵2017年4月26日第二次直播 20170426_2感谢推友过十万](/content/transcript/2017/04/20170426-1094234.md)
-
-[郭文贵2017年4月26日第一次直播 20170426_1感谢推友过十万感谢视频](/content/transcript/2017/04/20170426-1094237.md)
 
 
 ## 頁面 112/113 [**<**](/content/transcript/README-111.md) [1](/content/transcript/README.md) ... [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) **112** [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-113.md) [查看全部](/content/transcript/README-all.md)

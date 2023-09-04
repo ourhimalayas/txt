@@ -3,6 +3,10 @@
 
 ## 頁面 57/113 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年4月19日视频 20200419_2剛直播完跟女兒聚餐](/content/transcript/2020/04/20200419-1089825.md)
+
+[郭文贵2020年4月19日视频 20200419三周年直播回顾](/content/transcript/2020/04/20200419-1091916.md)
+
 [郭文贵2020年4月18日视频 20200418_2War Room郭文贵先生接受班农先生采访： 中共会在美投毒 美国疫情会比上个月还要严重](/content/transcript/2020/04/20200418-1089002.md)
 
 [郭文贵2020年4月18日视频 20200418和班农先生连线后GTV直播](/content/transcript/2020/04/20200418-1091900.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年4月6日视频 20200406_1](/content/transcript/2020/04/20200406-1089796.md)
 
 [郭文贵2020年4月6日视频 20200406_2](/content/transcript/2020/04/20200406-1089799.md)
-
-[郭文贵2020年4月5日GTV视频 20200405_4与木兰 路德 sara直播](/content/transcript/2020/04/20200405-1088967.md)
-
-[郭文贵2020年4月5日GTV视频 20200405_5回来了回来了。亲爱的战友们好，我们今天是试试多方连线直播](/content/transcript/2020/04/20200405-1088986.md)
 
 
 ## 頁面 57/113 [**<**](/content/transcript/README-56.md) [1](/content/transcript/README.md) ... [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) **57** [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-58.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 16/113 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年11月18日盖特 20211118_2可爱的笨笨和Snow嬉闹的日常生活](/content/transcript/2021/11/20211118-1093640.md)
+
+[郭文贵2021年11月18日盖特 20211118_3笨笨喜欢啃啃啃… 玩得好开心啊](/content/transcript/2021/11/20211118-1093644.md)
+
 [郭文贵2021年11月18日盖特 20211118_4笨笨说，“Snow，出来跟我玩儿嘛……” Snow说, “我不要啦，让我静静的做个美男子好不好啦 ！”????](/content/transcript/2021/11/20211118-1093645.md)
 
 [郭文贵2021年11月18日盖特 20211118_5自娱自乐模式启动????](/content/transcript/2021/11/20211118-1093649.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年11月7日直播 20211107_1爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；](/content/transcript/2021/11/20211107-1093849.md)
 
 [郭文贵2021年11月7日盖特 20211107_2尊敬的战友们好……工作了一整天，吃了好几顿饭非常的兴奋，一切都已经开始！](/content/transcript/2021/11/20211107-1094499.md)
-
-[郭文贵2021年11月6日盖特 20211106_1尊敬的战友们好．你们健身了吗？传播．C C P病毒．香港危机．疫苗解药的真相了吗？七哥今天一天都和DC来的朋友开会，就没有时间录长视频了……明天的大直播间！](/content/transcript/2021/11/20211106-1093748.md)
-
-[郭文贵2021年11月6日盖特 20211106_2尊敬的战友们好！正在努力加入喜联储开喜美元帐号，准备买喜币的战友们……一定准确快速正确的聪明的准备好KYC的有关材料，这是关键的关键！](/content/transcript/2021/11/20211106-1093751.md)
 
 
 ## 頁面 16/113 [**<**](/content/transcript/README-15.md) [1](/content/transcript/README.md) ... [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) **16** [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-17.md) [查看全部](/content/transcript/README-all.md)

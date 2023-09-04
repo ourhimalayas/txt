@@ -3,6 +3,10 @@
 
 ## 頁面 19/113 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年10月8日盖特 20211008_1尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世](/content/transcript/2021/10/20211008-1093374.md)
+
+[郭文贵2021年10月8日盖特直播 20211008_2](/content/transcript/2021/10/20211008-1093378.md)
+
 [郭文贵2021年10月8日盖特直播 20211008_3](/content/transcript/2021/10/20211008-1093381.md)
 
 [郭文贵2021年10月8日直播 20211008_4试驾RAM3500第一段](/content/transcript/2021/10/20211008-1093384.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年9月21日直播 20210921_12021中秋特别节目：月亮托起我们的心愿](/content/transcript/2021/09/20210921-1093257.md)
 
 [郭文贵2021年9月20日直播 20210920_1会议休息时间到山上转一转](/content/transcript/2021/09/20210920-1093190.md)
-
-[郭文贵2021年9月20日盖特 20210920_2尊敬的战友们好……七哥在这里向所有的全球的兄弟姐妹们请安了。你们觉得未来的新中国联邦的农场总部，这样的山脉和环境怎么样？](/content/transcript/2021/09/20210920-1093195.md)
-
-[郭文贵2021年9月20日盖特 20210920_3与战友分享大自然神奇……无法解释的这种自然现象，我深信这所有的美丽都是人心，和历史，和人的行为，和上天对这里的人们的一切的裁判．给予的结果，才能有这样的自然的神奇，这种人工](/content/transcript/2021/09/20210920-1093198.md)
 
 
 ## 頁面 19/113 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

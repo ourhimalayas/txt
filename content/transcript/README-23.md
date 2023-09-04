@@ -3,6 +3,10 @@
 
 ## 頁面 23/113 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年8月17日直播 20210817_1为染病毒的战友及家人祈福！爆料革命，新中国联邦的战友们要真心爱家人，真心的爱战友；各农场是海外华人互帮互助的平台](/content/transcript/2021/08/20210817-1092244.md)
+
+[郭文贵2021年8月17日盖特 20210817_2尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机真相了吗？一切都已经开始](/content/transcript/2021/08/20210817-1092619.md)
+
 [郭文贵2021年8月16日直播 20210816_1美国在阿富汗失败而中共在阿富汗成功的原因；为什么说阿富汗政变是天助新中国联邦；解读俱乐部与G系列的意义；战友们如何正确理财；喜联储将是未来沼泽地的新一极力量](/content/transcript/2021/08/20210816-1092223.md)
 
 [郭文贵2021年8月15日盖特 20210815_1尊敬的战友们大家好．北戴河会议，有些什么样的决定？共产党的经济崩溃前……会有什么要疯狂的行动，中国的私人企业家的命运将走向何方？](/content/transcript/2021/08/20210815-1092612.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年8月7日盖特 20210807_2我才知道．路大脑骗．蛇妖闫．又一重磅发表．郝海东兄弟．叶钊颖妹妹现在海南不在西班牙了](/content/transcript/2021/08/20210807-1092061.md)
 
 [郭文贵2021年8月6日盖特 20210806_1尊敬的战友们好，你们健身了吗？传播C C P病毒．郑州人祸．香港危机真相了吗？一切都已经开始。](/content/transcript/2021/08/20210806-1092053.md)
-
-[郭文贵2021年8月6日盖特 20210806_2尊敬的战友们好，全国水灾．人祸．病毒肆虐．经济接近崩溃，为什么中南坑的老杂毛？还是照样的群居北戴河呢，他们在干什么？他们想干什么？无产阶级的中国共产党，所享受的物质的生活，](/content/transcript/2021/08/20210806-1092058.md)
-
-[郭文贵2021年8月5日盖特 20210805_1尊敬的战友们好：你们健身了吗？传播CC P病毒．郑州人祸，香港危机真相了吗？一切都已经开始！](/content/transcript/2021/08/20210805-1092162.md)
 
 
 ## 頁面 23/113 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 90/113 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年11月10日视频 20181110_1距离王健发布会还有9天 文贵海上吃火锅给大家报平安(政事小哥版)](/content/transcript/2018/11/20181110-1088905.md)
+
+[郭文贵2018年11月9日视频 20181109_1昨晚上我6点多睡觉．一大早班8点钟突然到来……他昨晚上也一夜没睡．开车从华盛顿过来！为了我们的新闻发布会！为了接下来的几天按排](/content/transcript/2018/11/20181109-1088900.md)
+
 [郭文贵2018年11月8日视频 20181108王岐山与习近平谁将成为最后的共产党永久的实际控制人](/content/transcript/2018/11/20181108-1090989.md)
 
 [郭文贵2018年11月7日视频 20181107美國中期選舉後感想](/content/transcript/2018/11/20181107-1090792.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年10月22日视频 20181022_1加林槍射擊CCP](/content/transcript/2018/10/20181022-1088836.md)
 
 [郭文贵2018年10月22日视频 20181022_2打中CCP鏢靶兩次 贏得第一](/content/transcript/2018/10/20181022-1088837.md)
-
-[郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2](/content/transcript/2018/10/20181021-1087981.md)
-
-[郭文贵2018年10月21日 20181021_3澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 3](/content/transcript/2018/10/20181021-1087990.md)
 
 
 ## 頁面 90/113 [**<**](/content/transcript/README-89.md) [1](/content/transcript/README.md) ... [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) **90** [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-91.md) [查看全部](/content/transcript/README-all.md)

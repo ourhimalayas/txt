@@ -3,6 +3,10 @@
 
 ## 頁面 56/113 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年5月9日连线草根小哥 20200509_2](/content/transcript/2020/05/20200509-1092070.md)
+
+[郭文贵2020年5月9日连线魔女Peace 20200509_1](/content/transcript/2020/05/20200509-1092098.md)
+
 [郭文贵2020年5月8日连线战友文信 20200508_2](/content/transcript/2020/05/20200508-1092054.md)
 
 [郭文贵2020年5月8日连线挺郭小妹 20200508_1](/content/transcript/2020/05/20200508-1092089.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年4月22日视频 20200422](/content/transcript/2020/04/20200422-1091930.md)
 
 [郭文贵2020年4月21日视频 20200421_1简短录播](/content/transcript/2020/04/20200421-1089829.md)
-
-[郭文贵2020年4月19日视频 20200419_2剛直播完跟女兒聚餐](/content/transcript/2020/04/20200419-1089825.md)
-
-[郭文贵2020年4月19日视频 20200419三周年直播回顾](/content/transcript/2020/04/20200419-1091916.md)
 
 
 ## 頁面 56/113 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)

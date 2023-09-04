@@ -3,6 +3,10 @@
 
 ## 頁面 44/113 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月7日盖特 20201207_2尊敬的戰友們好。再次的感謝所有的戰友。為朱利安尼先生的祈禱，他現在恢复非常好。文貴在此表達衷心的感謝，一切都已經開始！](/content/transcript/2020/12/20201207-1093252.md)
+
+[郭文贵2020年12月6日直播 20201206_1为圣人之子-朱利安尼先生祈祷????????他一定平安归来，继续灭共！](/content/transcript/2020/12/20201206-1093231.md)
+
 [郭文贵2020年12月6日盖特 20201206_2尊敬的戰友們好。文貴要做給針線活給戰友門看看...來迎接我們的中國人的苦日子到來...準備，躲避柯林斯能發生的戰爭...最好的最有價值的準確的信息...量力而行。](/content/transcript/2020/12/20201206-1093240.md)
 
 [郭文贵2020年12月5日盖特 20201205_1尊敬的戰友們好，請所有的戰友們...務必要高度重視防範ÇÇP病毒...千萬不要再有任何僥幸心理，在未來的一定時間內各種災難將一個一個的到來，我們務必參照團結謹慎，](/content/transcript/2020/12/20201205-1093217.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年11月20日盖特 20201120_2尊敬的战友们好．几天来，我一直都在思考……这个难以忘记重大的爆料革命的历史的日子里……1120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，](/content/transcript/2020/11/20201120-1093242.md)
 
 [郭文贵2020年11月20日盖特 20201120_3亲爱的战友…收到啦，收到啦。](/content/transcript/2020/11/20201120-1093243.md)
-
-[郭文贵2020年11月20日直播 20201120_4王建之死 两周年](/content/transcript/2020/11/20201120-1093255.md)
-
-[郭文贵2020年11月19日直播 20201119_1](/content/transcript/2020/11/20201119-1093232.md)
 
 
 ## 頁面 44/113 [**<**](/content/transcript/README-43.md) [1](/content/transcript/README.md) ... [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) **44** [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-45.md) [查看全部](/content/transcript/README-all.md)

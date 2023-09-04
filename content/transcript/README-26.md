@@ -3,6 +3,10 @@
 
 ## 頁面 26/113 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年7月16日直播 20210716_1从近几天发生的一系列事件来看．我们爆料革命升级的一个契机](/content/transcript/2021/07/20210716-1091769.md)
+
+[郭文贵2021年7月16日盖特 20210716_2尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？](/content/transcript/2021/07/20210716-1091818.md)
+
 [郭文贵2021年7月15日直播 20210715_1人民币国际化是中共的金融陷阱，货币炸弹；人民币一毛不值，换成外汇才是自己的钱；亡腚缸，蛇妖闫重新回到流浪狗](/content/transcript/2021/07/20210715-1091748.md)
 
 [郭文贵2021年7月14日直播 20210714_1蛇妖闫，骗子王腚肛自爆，这是上天的安排；已经对他们采取法律行动，全面追责反击；新中国联邦在7月4号后已发生质的改变，接下来的90天将有灭共的重大事件发生](/content/transcript/2021/07/20210714-1091733.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年7月1日直播 20210701_1终结中国百年杀戮](/content/transcript/2021/07/20210701-1091722.md)
 
 [郭文贵2021年6月30日直播 20210630_1共产党的百年冥诞．将彻底的扭转中国人的命运……和明天7月1号我们的一整天的直播．全世界的被共产主义杀害的人们正在紧紧地联合起来．将选择最快的方式消灭中国共产党！](/content/transcript/2021/06/20210630-1091651.md)
-
-[郭文贵2021年6月29日直播 20210629_1共产党你完了百年冥诞的恐惧即将崩溃的经济．和世界对共产党的病毒追责．你共产党还会有明天吗？](/content/transcript/2021/06/20210629-1091639.md)
-
-[郭文贵2021年6月28日直播 20210628_1森林深处．与英俊漂亮的战友们连线试试直播……](/content/transcript/2021/06/20210628-1091628.md)
 
 
 ## 頁面 26/113 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

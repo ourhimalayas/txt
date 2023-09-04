@@ -3,6 +3,10 @@
 
 ## 頁面 64/113 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年12月17日视频 20191217在华盛顿报平安](/content/transcript/2019/12/20191217-1094063.md)
+
+[郭文贵2019年12月16日视频 20191216维护海外华人的形象，依法惩治海外的大小欺民贼．是保护海外华人利益的必需手段！](/content/transcript/2019/12/20191216-1094060.md)
+
 [郭文贵2019年12月15日 20191215陈峰对女性的轮奸被称为欢乐佛的．双修．是对佛教的侮辱和利用](/content/transcript/2019/12/20191215-1094031.md)
 
 [郭文贵2019年12月14日视频 20191214原来王岐山真的比我们想象的还要凶险！我说实在话，现在看习近平的智商和政治能力跟王岐山根本不是一个级别的，严格讲习的所有的过去这十几年都是王岐山手里玩了个球儿！](/content/transcript/2019/12/20191214-1094048.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年11月29日 20191129龚小夏过往点滴,龚你啥时候看过帐？](/content/transcript/2019/11/20191129-1094098.md)
 
 [郭文贵2019年11月28日视频 20191128_1欺民賊又在撒謊 美國又不行了 到處是要飯的 這幫騙子](/content/transcript/2019/11/20191128-1089683.md)
-
-[郭文贵2019年11月28日视频 20191128_2文贵嗑瓜子等大事发生](/content/transcript/2019/11/20191128-1089684.md)
-
-[郭文贵2019年11月28日视频 20191128_3看看文贵在吃啥呢？咋子过感恩节里！与战友们分享感恩节的美食！](/content/transcript/2019/11/20191128-1089686.md)
 
 
 ## 頁面 64/113 [**<**](/content/transcript/README-63.md) [1](/content/transcript/README.md) ... [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) **64** [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-65.md) [查看全部](/content/transcript/README-all.md)

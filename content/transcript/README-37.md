@@ -3,6 +3,10 @@
 
 ## 頁面 37/113 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年2月28日直播 20210228_2为了确保战友的利益，文贵做出的最终决定，确保Ｇ系列控制权一定都在战友手中](/content/transcript/2021/02/20210228-1090801.md)
+
+[郭文贵2021年2月27日盖特 20210227_1即将崩溃的共产党的经济！和全世界联合以毒灭共的大时代的开启！最大的受益者，是新中国联邦和新中国联邦的中国人民](/content/transcript/2021/02/20210227-1090772.md)
+
 [郭文贵2021年2月27日盖特 20210227_2尊敬的战友们好！七哥边工作边在G-TV看大家的直播，战友们在G-TV上直播的质量大大提高。这就是新中国联邦人的素质和能力的体现GTV Genes 一定会成为灭共的利器……社交媒体的奇迹！](/content/transcript/2021/02/20210227-1090776.md)
 
 [郭文贵2021年2月26日直播 20210226_1新中国联邦的战友们元宵节最快乐！金灿荣的讲话印证了中共的灭白计划，武统台湾计划；北京两会背后，习王江的斗争](/content/transcript/2021/02/20210226-1090765.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年2月15日盖特 20210215_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？文贵今天晚上6:40乱聊电影直播……](/content/transcript/2021/02/20210215-1090695.md)
 
 [郭文贵2021年2月15日盖特 20210215_2文贵与友们赏雪……](/content/transcript/2021/02/20210215-1090701.md)
-
-[郭文贵2021年2月15日直播 20210215_3谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟货币的好消息](/content/transcript/2021/02/20210215-1090710.md)
-
-[郭文贵2021年2月13日视频雅典娜 20210213_2雅典娜&秘翻组 2021春节联合直播：庆祝新年，未来展望。郭先生亲临给战友们抽奖！](/content/transcript/2021/02/20210213-1090637.md)
 
 
 ## 頁面 37/113 [**<**](/content/transcript/README-36.md) [1](/content/transcript/README.md) ... [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) **37** [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-38.md) [查看全部](/content/transcript/README-all.md)

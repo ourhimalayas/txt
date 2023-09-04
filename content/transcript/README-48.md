@@ -3,6 +3,10 @@
 
 ## 頁面 48/113 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年9月10日盖特 20200910_3感谢战友们的全球合力的顶．灭共之歌…干掉共产党，我们要创造更伟大的奇迹……](/content/transcript/2020/09/20200910-1092788.md)
+
+[郭文贵2020年9月9日直播 20200909文贵在喜马拉雅乱聊直播](/content/transcript/2020/09/20200909-1092779.md)
+
 [郭文贵2020年9月8日直播 20200908文贵与战友以歌灭共的新时代](/content/transcript/2020/09/20200908-1092771.md)
 
 [郭文贵2020年9月7日盖特 20200907尊敬的战友们好，你们健身了吗？你们传统播C C P病毒．香港危机真相了吗？一切都已经开始！](/content/transcript/2020/09/20200907-1092749.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年8月28日直播 20200828_1连线澳洲喜馬拉雅農場](/content/transcript/2020/08/20200828-1092843.md)
 
 [郭文贵2020年8月25日盖特 20200825_28月25号 尊敬的战友们好．请大家的焦点定在中共在美国实施的法律超限战。……，的事情，请大家关注华尔街日报，以及美国司法部，披露的中共在](/content/transcript/2020/08/20200825-1092690.md)
-
-[郭文贵2020年8月25日直播 20200825加拿大农场的战略性胜利堪比中途岛战役；司法部文件开启以法灭共；美国民主党不承认“一中”](/content/transcript/2020/08/20200825-1092829.md)
-
-[郭文贵2020年8月23日直播 20200823_1大家记住一定要今天文贵信的内容；中共制造经济危机，人道危机，人类面临大劫难；美国与中共脱钩为时已晚](/content/transcript/2020/08/20200823-1092604.md)
 
 
 ## 頁面 48/113 [**<**](/content/transcript/README-47.md) [1](/content/transcript/README.md) ... [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) **48** [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-49.md) [查看全部](/content/transcript/README-all.md)

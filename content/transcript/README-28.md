@@ -3,6 +3,10 @@
 
 ## 頁面 28/113 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年6月15日直播 20210615_1三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？](/content/transcript/2021/06/20210615-1091541.md)
+
+[郭文贵2021年6月14日直播 20210614_1马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招](/content/transcript/2021/06/20210614-1091516.md)
+
 [郭文贵2021年6月14日直播 20210614_2多方连线直播测试](/content/transcript/2021/06/20210614-1091534.md)
 
 [郭文贵2021年6月14日盖特 20210614_3](/content/transcript/2021/06/20210614-1091543.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年6月3日盖特 20210603_1尊敬的战友们好，我们一起来向万佛万神祈福，我们新中国联邦一周年……在自由之塔的庆祝活动圆满成功，也祈求万佛万神．从今天起唤醒这个贪婪被共产主义蒙蔽了的黑暗的世界！从今天起让](/content/transcript/2021/06/20210603-1091424.md)
 
 [郭文贵2021年6月2日盖特 20210602_1尊敬的战友们好，为了报复新中国联邦一周年……老杂毛们制定了九项反击政策。美国所谓的主流媒体黑谣我们．和在中共国拍卖方式抢夺方正证券股票！以及尝试对我们放毒攻击我们的科学家和](/content/transcript/2021/06/20210602-1091494.md)
-
-[郭文贵2021年6月1日盖特 20210601_1看着战友来到曼哈顿相聚！七哥冰火两重天的感受！英雄在共产党以一国之力要阻止上线！他们能成功吗？我们新中国联邦人要建设的新中国的标准是什么？](/content/transcript/2021/06/20210601-1091483.md)
-
-[郭文贵2021年6月1日盖特 20210601_2七哥不能和战友见面，后果很严重，决定干点坏事儿．报复一下厨房！](/content/transcript/2021/06/20210601-1091484.md)
 
 
 ## 頁面 28/113 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

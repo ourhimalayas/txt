@@ -3,6 +3,10 @@
 
 ## 頁面 55/113 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年5月29日视频 20200529留美的学生和华人同胞们请务必看今天文贵的视频](/content/transcript/2020/05/20200529-1092537.md)
+
+[郭文贵2020年5月27日视频 20200527_3所有被指定为个地区国家与战友们的联系负责人都不允许收集和查看任何战友的私人信息和投资相关的任何资料](/content/transcript/2020/05/20200527-1089862.md)
+
 [郭文贵2020年5月27日视频 20200527_4文贵拜请所有有良知的华人同胞们，香港同胞们．去到美国国务卿彭佩奥先生推特下面．发信息．留言．对他表示感谢！我们要坚持密集的……全24小时不停止的对他表示感激！他是我们的英雄！](/content/transcript/2020/05/20200527-1089864.md)
 
 [郭文贵2020年5月27日视频 20200527_5文贵又在海上耍浪了](/content/transcript/2020/05/20200527-1089868.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年5月10日GTV连线文欣 20200510](/content/transcript/2020/05/20200510-1092132.md)
 
 [郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统](/content/transcript/2020/05/20200510-1092423.md)
-
-[郭文贵2020年5月9日连线草根小哥 20200509_2](/content/transcript/2020/05/20200509-1092070.md)
-
-[郭文贵2020年5月9日连线魔女Peace 20200509_1](/content/transcript/2020/05/20200509-1092098.md)
 
 
 ## 頁面 55/113 [**<**](/content/transcript/README-54.md) [1](/content/transcript/README.md) ... [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) **55** [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-56.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 33/113 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年4月16日盖特 20210416_3根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！(第二段)另一](/content/transcript/2021/04/20210416-1091137.md)
+
+[郭文贵2021年4月15日直播 20210415_1以毒灭共正在全面进行；马云的进进出出；江家势力杨雄之死绝非正常；中共如同二战时的日本；七哥已经准备好方案，保证所有GTV美国投资人的核心利益](/content/transcript/2021/04/20210415-1091126.md)
+
 [郭文贵2021年4月14日盖特 20210414_1尊敬的战友们好……本来准备马上开始的直播，由于突发事件．有重要的灭共战略伙伴要开会，所以直播推迟到明天上午．9:30开始！非常非常的抱歉， 应很多战友的要求发一下的snow的视频！](/content/transcript/2021/04/20210414-1091109.md)
 
 [郭文贵2021年4月13日盖特 20210413_1尊敬的战友们好……昨天我推出健身的视频后．很多战友发信息说这个视频证明了郭3秒是事实上是郭三强……把我笑得简直是受不了了，有欺民贼说文贵只能是咬着牙做一次。????????????今天在录一](/content/transcript/2021/04/20210413-1091098.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年4月2日盖特 20210402_1投资GTV……投资的是未来！不是现在！这是个基本的常识，这也是CTV价值的所在。凤凰卫视的事件是一个最好的参考案例。 为什么中共严管下的外币大量的转向了加拿大，还有其他国家，这是正确](/content/transcript/2021/04/20210402-1091078.md)
 
 [郭文贵2021年4月1日盖特 20210401_1尊敬的战友们好…… G币……系列的投资……是我们战友独特．可拥有的资源，不能有任何沾亲带故的人加入。这是我的原则。科学家闫博士的第三次关于CCp病毒报告．再次震撼了世界，但是．我们](/content/transcript/2021/04/20210401-1091077.md)
-
-[郭文贵2021年3月31日盖特 20210331_1尊敬的战友们好！今天科学家．闫博士的第三个报告出来了????????????????????????????????????是个大日子！以毒灭共．全球联合灭共．以钱灭共…只有强大富有????(智慧)????的战友，才能达到我们最终目的](/content/transcript/2021/03/20210331-1091074.md)
-
-[郭文贵2021年3月30日直播 20210330_2警告战友们投资不要上当受骗，代持代购一定要上报联盟](/content/transcript/2021/03/20210330-1089051.md)
 
 
 ## 頁面 33/113 [**<**](/content/transcript/README-32.md) [1](/content/transcript/README.md) ... [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) **33** [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-34.md) [查看全部](/content/transcript/README-all.md)

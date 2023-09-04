@@ -3,6 +3,10 @@
 
 ## 頁面 109/113 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年8月16日视频 20170816北戴河会议发生了一个重要事件，盗国贼极力掩盖。](/content/transcript/2017/08/20170816-1094010.md)
+
+[郭文贵2017年8月15日 20170815盗国贼和香港警察如何以警以黑治国治港](/content/transcript/2017/08/20170815-1094419.md)
+
 [郭文贵2017年8月14日直播 20170814_1报平安：我没被爆头；19大后多人将下马；预言政法系的马化腾活不过50岁？！马云的蚂蚁金服也会收归国有，从而完全控制民众舆论及民间财富。](/content/transcript/2017/08/20170814-1093284.md)
 
 [郭文贵2017年8月14日直播 20170814_2报平安推特小视频。谈谈酒后吐真言](/content/transcript/2017/08/20170814-1094013.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年7月24日第三次直播 20170724_3](/content/transcript/2017/07/20170724-1093281.md)
 
 [郭文贵2017年7月24日第一次直播 20170724_1王岐山盗国贼们的恐惧](/content/transcript/2017/07/20170724-1094457.md)
-
-[郭文贵2017年7月24日第二次直播 20170724_2呼吁推友不要冲动](/content/transcript/2017/07/20170724-1094663.md)
-
-[郭文贵2017年7月18日视频 20170718做平板撑坚持20分钟！当然和十里路不换肩比不了。。。各位健身了吗？](/content/transcript/2017/07/20170718-1094033.md)
 
 
 ## 頁面 109/113 [**<**](/content/transcript/README-108.md) [1](/content/transcript/README.md) ... [104](/content/transcript/README-104.md) [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) **109** [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-110.md) [查看全部](/content/transcript/README-all.md)

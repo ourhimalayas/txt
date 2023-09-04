@@ -3,6 +3,10 @@
 
 ## 頁面 42/113 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月28日盖特 20201228_2感谢战友们的关心……回答在国内疫情灾区的战友们……相互支持，相互帮助，及我们所能提供的帮助，一切都已经开始！](/content/transcript/2020/12/20201228-1090162.md)
+
+[郭文贵2020年12月28日音频聊天 20201228_3郭先生喜马拉雅大使馆discord群答疑录音](/content/transcript/2020/12/20201228-1090170.md)
+
 [郭文贵2020年12月27日盖特 20201227_1下面刚发出去的昨天晚上录制的视频，因为说到了中共前情报头子副总参谋长二部部长熊光楷！我的手机几次被黑得不能启动，而且十几次无法上传，从昨天晚上一直到现在才刚刚的发出来，熊光](/content/transcript/2020/12/20201227-1090159.md)
 
 [郭文贵2020年12月27日音频聊天 20201227_2](/content/transcript/2020/12/20201227-1090165.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年12月20日直播 20201220_2在线回答原凤凰农场和VOG战友的问题](/content/transcript/2020/12/20201220-1090119.md)
 
 [郭文贵2020年12月20日音频聊天 20201220_3喜马拉雅大使馆Discord与战友聊天音频](/content/transcript/2020/12/20201220-1090134.md)
-
-[郭文贵2020年12月19日盖特 20201219_1尊敬的战友们好……中共的经济完全处于崩溃状态，事实证明爆料革命救命，保财，保未来！事实．时间．是最好的验证的工具！](/content/transcript/2020/12/20201219-1090106.md)
-
-[郭文贵2020年12月18日直播 20201218_1我们让美国相信中共病毒是生化武器今天终于成功了！灭共是文贵的唯一目标，绝不受任何干扰；文贵会为Ｇ系列和战友们百分百负责！](/content/transcript/2020/12/20201218-1090102.md)
 
 
 ## 頁面 42/113 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-43.md) [查看全部](/content/transcript/README-all.md)

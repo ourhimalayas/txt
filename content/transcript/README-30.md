@@ -3,6 +3,10 @@
 
 ## 頁面 30/113 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年5月21日盖特 20210521_1尊敬的战友们好，为什么在这短短的一两周内世界经济，政治，军事科学．教育各个领域．都突然的统一迅速的。在转向灭共．反共呢？为什么那么多世界上曾经否定我们的科学家的报告的人，现](/content/transcript/2021/05/20210521-1091354.md)
+
+[郭文贵2021年5月21日直播 20210521_2为新中国联邦一周年平安顺利进行．到纽约自由女神祈福](/content/transcript/2021/05/20210521-1091363.md)
+
 [郭文贵2021年5月20日盖特 20210520_2尊敬的战友们好！共产党刚刚制定了新一波．有杨娘娘．王公公．主持的攻击，新中国联邦．爆料革命的计划．文贵在这里向大家分享！](/content/transcript/2021/05/20210520-1091342.md)
 
 [郭文贵2021年5月20日盖特 20210520_3没有什么七哥一年前敢保证欧中贸易协议一定会被干掉？为什么美国突然有这么多投资，中共的大佬们迅速在中共撤回和撤资？为什么共匪敢公开反犹太民族？](/content/transcript/2021/05/20210520-1091346.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年5月13日直播 20210513_3文贵直播：以毒灭共，喜币打疼了中共，中共对文贵开始新一轮打压；秦刚女婿大使来美的首要任务；虚拟币在美国合法化的重大意义；我们已经有了喜银行](/content/transcript/2021/05/20210513-1091338.md)
 
 [郭文贵2021年5月13日盖特 20210513_4第13to完成！](/content/transcript/2021/05/20210513-1091340.md)
-
-[郭文贵2021年5月12日盖特 20210512_1尊敬的战友们好．美国在印度．马六甲．霍尔木兹海峡．等地区将派重兵意味着什么？美国商业科技领域从中共和香港全面撤出，以及在亚洲的商业贸易，金融的布局．是在做灭共后的一切准备。](/content/transcript/2021/05/20210512-1091324.md)
-
-[郭文贵2021年5月11日盖特 20210511_15月11号尊敬的战友们好！SN0W向大家请安了……](/content/transcript/2021/05/20210511-1091319.md)
 
 
 ## 頁面 30/113 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

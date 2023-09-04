@@ -3,6 +3,10 @@
 
 ## 頁面 51/113 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年7月26日视频 20200726_1衷心的感谢正在进行的全球抗议行动……的新中国联邦的所有的战友．兄弟姐妹们](/content/transcript/2020/07/20200726-1090001.md)
+
+[郭文贵2020年7月25日视频 20200725_2文贵又来欺民贼说的菜市场了！咋弄呢……又是没钱了……只能吃菜 了……](/content/transcript/2020/07/20200725-1089987.md)
+
 [郭文贵2020年7月25日视频 20200725_3【中英字幕版】7 月25日 班农战斗室特别节目：嘉宾郭文贵先生谈蓬佩奥演讲的重大意义，中共国洪灾真相，休斯敦战友们抗议游行 【Subtitiled】July 25, War Room Special: Guest speaker Mr Miles Guo will talk ab](/content/transcript/2020/07/20200725-1089999.md)
 
 [郭文贵2020年7月25日直播 20200725文贵如何理庞皮奥的演讲和对新中国联邦的重大意义，以及如何处理班农先生与新中国联邦和文贵的个人关系](/content/transcript/2020/07/20200725-1092360.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年7月14日盖特 20200714_1文贵对中国女性的坚强和伟大有了更新的认识，对中国男人的懦弱和自私有了更深度的理解，北约组织与我们一起在南海搞强拆．和接下来与美国和欧洲共同灭共的同时．将深度的合作．清除中共](/content/transcript/2020/07/20200714-1092396.md)
 
 [郭文贵2020年7月14日盖特 20200714_2美国和欧洲国家正在制定详细的行动计划，在西方世界清除欺民贼及过去几年．与共产党沟连打击爆料革命的所有人……都将受到严惩！西方国家．对共产党病毒的认识和即将带来的威胁，正在有](/content/transcript/2020/07/20200714-1092407.md)
-
-[郭文贵2020年7月12日视频 20200712_2馬上直播](/content/transcript/2020/07/20200712-1089944.md)
-
-[郭文贵2020年7月12日视频 20200712_3今天直播完以后，我继续健身，灭共的路上一定要强心健体永不放弃](/content/transcript/2020/07/20200712-1089947.md)
 
 
 ## 頁面 51/113 [**<**](/content/transcript/README-50.md) [1](/content/transcript/README.md) ... [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) **51** [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-52.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 72/113 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年9月15日 香港已成为恐惧之港全文字版](/content/transcript/2019/09/20190915-1098235.md)
+
+[郭文贵2019年9月14日 20190914尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！](/content/transcript/2019/09/20190914-1093607.md)
+
 [2019年9月14日文贵大直播全文字版：从共产党昨天在香港疯狂，说明了共产党是个彻彻底底的大流氓](/content/transcript/2019/09/20190914-1098224.md)
 
 [郭文贵2019年9月13日 20190913向战友们祝福中秋节快乐！与战友们分享第一个没有母亲的中秋节的感受！中秋团圆夜，灭共倒计时!](/content/transcript/2019/09/20190913-1093597.md)
@@ -48,10 +52,6 @@
 [2019年9月5日文贵大直播全文字版：报平安 全球从自动灭共到联合灭共的时代](/content/transcript/2019/09/20190905-1098206.md)
 
 [郭文贵2019年9月4日直播 20190904“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/transcript/2019/09/20190904-1093532.md)
-
-[2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/transcript/2019/09/20190904-1098214.md)
-
-[郭文贵2019年9月3日第三次直播 20190903_3在华盛顿直播，CCP将真正对香港进行戒严计划](/content/transcript/2019/09/20190903-1088579.md)
 
 
 ## 頁面 72/113 [**<**](/content/transcript/README-71.md) [1](/content/transcript/README.md) ... [67](/content/transcript/README-67.md) [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) **72** [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-73.md) [查看全部](/content/transcript/README-all.md)

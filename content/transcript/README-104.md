@@ -3,6 +3,10 @@
 
 ## 頁面 104/113 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年1月29日直播 20180129_1郭媒体视频郭文贵先生春节晚会节目预告](/content/transcript/2018/01/20180129-1093308.md)
+
+[郭文贵2018年1月28日视频 20180128_2Snow太可爱了](/content/transcript/2018/01/20180128-1087886.md)
+
 [郭文贵2018年1月28日直播 20180128_1郭媒体最新测试视频钓贼完整版](/content/transcript/2018/01/20180128-1093304.md)
 
 [郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗](/content/transcript/2018/01/20180127-1087878.md)
@@ -48,10 +52,6 @@
 [郭文贵2017年11月27日 20171127郭文贵纽约的房子的价格为什么发生了问题？](/content/transcript/2017/11/20171127-1094439.md)
 
 [郭文贵2017年11月26日第二次直播 20171126_2](/content/transcript/2017/11/20171126-1094423.md)
-
-[郭文贵2017年11月26日第一次直播 20171126_1在Livestream 试播](/content/transcript/2017/11/20171126-1094433.md)
-
-[郭文贵2017年11月23日第二次直播 20171123_2感恩节报平安](/content/transcript/2017/11/20171123-1094418.md)
 
 
 ## 頁面 104/113 [**<**](/content/transcript/README-103.md) [1](/content/transcript/README.md) ... [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) [102](/content/transcript/README-102.md) [103](/content/transcript/README-103.md) **104** [105](/content/transcript/README-105.md) [106](/content/transcript/README-106.md) [107](/content/transcript/README-107.md) [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-105.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 47/113 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年9月25日盖特 20200925尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？文贵聊聊．为什么要在全球依法灭贼！看过变态的性爱视频了](/content/transcript/2020/09/20200925-1092969.md)
+
+[郭文贵2020年9月24日直播 20200924_1全球战友们一定要坚持唯真不破，依法灭贼．团结一致，迎接伟大时刻的到来](/content/transcript/2020/09/20200924-1092863.md)
+
 [郭文贵2020年9月24日直播 20200924_2测试GTV安卓版直播；中共在48小时内将打开第二个潘多拉盒子，加速灭亡；全球灭贼行动正在进行](/content/transcript/2020/09/20200924-1092876.md)
 
 [郭文贵2020年9月24日盖特 20200924_3尊敬的战友们好，谁能认出和我这么亲近的这只可爱的猫！谁就能准确地预测出美国总统大选的结果！这猫今天真是爱上我了…我一走她就](/content/transcript/2020/09/20200924-1092967.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年9月10日盖特 20200910_1文贵将开创一个中老年人的生活方式，这是足球先生．郝海东老弟．羽毛球冠军．叶钊颖妹妹．虐待……郭文贵的证据](/content/transcript/2020/09/20200910-1092782.md)
 
 [郭文贵2020年9月10日盖特 20200910_2兄弟姐妹们．别人老想用钱砸咱．咋办呢？咋办呢？咋办昵？](/content/transcript/2020/09/20200910-1092786.md)
-
-[郭文贵2020年9月10日盖特 20200910_3感谢战友们的全球合力的顶．灭共之歌…干掉共产党，我们要创造更伟大的奇迹……](/content/transcript/2020/09/20200910-1092788.md)
-
-[郭文贵2020年9月9日直播 20200909文贵在喜马拉雅乱聊直播](/content/transcript/2020/09/20200909-1092779.md)
 
 
 ## 頁面 47/113 [**<**](/content/transcript/README-46.md) [1](/content/transcript/README.md) ... [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) **47** [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-48.md) [查看全部](/content/transcript/README-all.md)

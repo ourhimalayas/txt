@@ -3,6 +3,10 @@
 
 ## 頁面 40/113 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年1月20日直播 20210120_1新中国联邦见证美国120](/content/transcript/2021/01/20210120-1090412.md)
+
+[郭文贵2021年1月20日盖特 20210120_2今天是爆料革命最大的挫败的一天……也是最美好的一天……感谢很多战友发来的信息，抱歉不能一一回复????????????同时我在这里谈一下．路德访谈今天节目．观后感的感觉](/content/transcript/2021/01/20210120-1090416.md)
+
 [郭文贵2021年1月19日盖特 20210119_4](/content/transcript/2021/01/20210119-1089850.md)
 
 [郭文贵2021年1月19日盖特 20210119_5](/content/transcript/2021/01/20210119-1089852.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年1月11日盖特 20210111_1尊敬的战友们好……文贵向国内正在遭受共产党的国安．及警察．对G-TV投资者的威胁下，正在被逼迫所谓的填写虚假的投诉……和退款要求的战友们的…的两个紧急建议！](/content/transcript/2021/01/20210111-1090360.md)
 
 [郭文贵2021年1月11日盖特 20210111_2文贵第二次发盖特……特殊的今天……让我文贵更加感触很深很深刻……一个国家和民族的安全．法律．和信仰……是多么的重要……](/content/transcript/2021/01/20210111-1090362.md)
-
-[郭文贵2021年1月10日直播 20210110_1](/content/transcript/2021/01/20210110-1090356.md)
-
-[郭文贵2021年1月9日盖特 20210109_1川普总统被形容为最失败的最懦弱．最口爆……最口炮……总统……这是正确的吗？我们如何看待过去24小时发生的媒体封杀川普总统的这些事情……文贵谈谈自己的观点，一切都已经开始！](/content/transcript/2021/01/20210109-1090346.md)
 
 
 ## 頁面 40/113 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

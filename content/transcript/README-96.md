@@ -3,6 +3,10 @@
 
 ## 頁面 96/113 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！](/content/transcript/2018/08/20180807-1087742.md)
+
+[郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒](/content/transcript/2018/08/20180807-1088616.md)
+
 [郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！](/content/transcript/2018/08/20180807-1092977.md)
 
 [郭文贵2018年8月6日直播 20180806_2晚餐朋友的家的入口都这么大！隔壁邻居却是一个中国某政治局委员情人的家！天理何在呀！](/content/transcript/2018/08/20180806-1088615.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！](/content/transcript/2018/07/20180706-1092892.md)
 
 [郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价](/content/transcript/2018/07/20180704-1088543.md)
-
-[郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話](/content/transcript/2018/07/20180702-1088538.md)
-
-[郭文贵2018年6月30日直播 20180630_1谈郭宝胜的诈骗与对寒梅的起诉](/content/transcript/2018/06/20180630-1088520.md)
 
 
 ## 頁面 96/113 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)

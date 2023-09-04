@@ -3,6 +3,10 @@
 
 ## 頁面 73/113 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/transcript/2019/09/20190904-1098214.md)
+
+[郭文贵2019年9月3日第三次直播 20190903_3在华盛顿直播，CCP将真正对香港进行戒严计划](/content/transcript/2019/09/20190903-1088579.md)
+
 [郭文贵2019年9月3日第二次直播 20190903_2在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！](/content/transcript/2019/09/20190903-1093508.md)
 
 [郭文贵2019年9月3日第一次直播 20190903_1香港将是东西方大战导火线．什么是中共所谓的新型大国关系！](/content/transcript/2019/09/20190903-1093516.md)
@@ -48,10 +52,6 @@
 [2019年8月26日文贵大直播全文字版：报平安](/content/transcript/2019/08/20190826-1098184.md)
 
 [郭文贵2019年8月24日视频 20190824_1报平安，好消息不断](/content/transcript/2019/08/20190824-1089431.md)
-
-[郭文贵2019年8月24日视频 20190824_2文贵怀孕了](/content/transcript/2019/08/20190824-1089437.md)
-
-[郭文贵2019年8月23日第二次直播 20190823_2歐美這兩天將宣布1.對香港及共產黨高官個人進行制裁 2.取消香港關係法及其自由貿易區地位 3.歐美將有一系列對香港的保護措施及政策](/content/transcript/2019/08/20190823-1093677.md)
 
 
 ## 頁面 73/113 [**<**](/content/transcript/README-72.md) [1](/content/transcript/README.md) ... [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) **73** [74](/content/transcript/README-74.md) [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-74.md) [查看全部](/content/transcript/README-all.md)

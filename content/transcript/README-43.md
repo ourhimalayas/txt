@@ -3,6 +3,10 @@
 
 ## 頁面 43/113 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年12月19日盖特 20201219_1尊敬的战友们好……中共的经济完全处于崩溃状态，事实证明爆料革命救命，保财，保未来！事实．时间．是最好的验证的工具！](/content/transcript/2020/12/20201219-1090106.md)
+
+[郭文贵2020年12月18日直播 20201218_1我们让美国相信中共病毒是生化武器今天终于成功了！灭共是文贵的唯一目标，绝不受任何干扰；文贵会为Ｇ系列和战友们百分百负责！](/content/transcript/2020/12/20201218-1090102.md)
+
 [郭文贵2020年12月18日盖特 20201218_2今天是美国正義与邪恶较量的关键日子，大領導身邊一堆王八蛋小人在捧他在誇他 使他不知道為什麼日本對中國的好感度下降 以為限電是因為經濟越來越好了](/content/transcript/2020/12/20201218-1090105.md)
 
 [郭文贵2020年12月17日盖特 20201217_1所有的战友们要对农场和战友和农场的关系有一个标准清透的认识，这是符合每个战友和农场的利益和未来！](/content/transcript/2020/12/20201217-1090096.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年12月8日直播 20201208_2文贵直播做羊肉丸子和蒸大馒头 第二部分 （约翰叔叔向战友谢罪篇，感谢上天造和秘密翻译组）](/content/transcript/2020/12/20201208-1093271.md)
 
 [郭文贵2020年12月7日盖特 20201207_1尊敬的戰友們好，明天1 2月8號上午9 ：0 0至1 0 ：0 0間文貴直播做羊肉丸子，蒸大饅頭，一切都已經開始！](/content/transcript/2020/12/20201207-1093249.md)
-
-[郭文贵2020年12月7日盖特 20201207_2尊敬的戰友們好。再次的感謝所有的戰友。為朱利安尼先生的祈禱，他現在恢复非常好。文貴在此表達衷心的感謝，一切都已經開始！](/content/transcript/2020/12/20201207-1093252.md)
-
-[郭文贵2020年12月6日直播 20201206_1为圣人之子-朱利安尼先生祈祷????????他一定平安归来，继续灭共！](/content/transcript/2020/12/20201206-1093231.md)
 
 
 ## 頁面 43/113 [**<**](/content/transcript/README-42.md) [1](/content/transcript/README.md) ... [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) **43** [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-44.md) [查看全部](/content/transcript/README-all.md)

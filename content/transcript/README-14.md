@@ -3,6 +3,10 @@
 
 ## 頁面 14/113 [**<**](/content/transcript/README-13.md) [1](/content/transcript/README.md) ... [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) **14** [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-15.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年12月25日盖特直播 20211225_5蒸馍馍](/content/transcript/2021/12/20211225-1093892.md)
+
+[郭文贵2021年12月25日盖特 20211225_6在今天这个特别的日子里． 当年的齐澳塞斯库就是在12月25号被枪毙的！原来共产主义的苏联也是在12月25号解体的……这是一个伟大的日子。七哥的厨艺大显身手……馍馍蒸熟啦……](/content/transcript/2021/12/20211225-1093895.md)
+
 [郭文贵2021年12月25日视频 20211225_1谁是郭文贵第一集;The story about the Terminator of CCP ;中国共产党终结者的故事](/content/transcript/2021/12/20211225-1094426.md)
 
 [郭文贵2021年12月25日直播 20211225_2????圣诞特别节目???? “爆二代”— 希望与力量](/content/transcript/2021/12/20211225-1094624.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年12月11日盖特 20211211_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211211-1094727.md)
 
 [郭文贵2021年12月10日直播 20211210_1全球各国抵制冬奥会；数字货币市场未来变化趋势；郭先生新歌Billboard数字歌曲销售排行榜一名；Hcoin To The Moon iTunes打榜记录；对准中共高层海外春节大行动](/content/transcript/2021/12/20211210-1093945.md)
-
-[郭文贵2021年12月8日直播 20211208_1拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；新中国联邦未来1-3年对准中共高层海外大行动](/content/transcript/2021/12/20211208-1093805.md)
-
-[郭文贵2021年12月7日盖特 20211207_1尊敬的战友们好，感谢全球亿万战友的关心，文贵的亲爹已经安顿下来啦……盘古的员工已经开始维权了……并很多人的救助……请大家放心！日久见人心，战友的牵挂和担心……和对我家人和我](/content/transcript/2021/12/20211207-1094719.md)
 
 
 ## 頁面 14/113 [**<**](/content/transcript/README-13.md) [1](/content/transcript/README.md) ... [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) **14** [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-15.md) [查看全部](/content/transcript/README-all.md)

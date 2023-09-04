@@ -3,6 +3,10 @@
 
 ## 頁面 58/113 [**<**](/content/transcript/README-57.md) [1](/content/transcript/README.md) ... [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) **58** [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-59.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年4月5日GTV视频 20200405_4与木兰 路德 sara直播](/content/transcript/2020/04/20200405-1088967.md)
+
+[郭文贵2020年4月5日GTV视频 20200405_5回来了回来了。亲爱的战友们好，我们今天是试试多方连线直播](/content/transcript/2020/04/20200405-1088986.md)
+
 [郭文贵2020年4月5日GTV炖羊肉 20200405_1郭先生直播做饭 炖羊肉【完整版】](/content/transcript/2020/04/20200405-1089793.md)
 
 [郭文贵2020年4月5日GTV视频 20200405_2和路德直播](/content/transcript/2020/04/20200405-1092077.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年3月27日视频 20200327_6CCP病毒肆虐，曼哈顿大街上空无一人，法治基金工作人员依然在给战友寄送口罩物资！](/content/transcript/2020/03/20200327-1089012.md)
 
 [郭文贵2020年3月27日视频 20200327_2](/content/transcript/2020/03/20200327-1089814.md)
-
-[郭文贵2020年3月27日视频 20200327_3七哥與Snow試鏡](/content/transcript/2020/03/20200327-1089816.md)
-
-[郭文贵2020年3月27日视频 20200327_4](/content/transcript/2020/03/20200327-1089820.md)
 
 
 ## 頁面 58/113 [**<**](/content/transcript/README-57.md) [1](/content/transcript/README.md) ... [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) **58** [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-59.md) [查看全部](/content/transcript/README-all.md)

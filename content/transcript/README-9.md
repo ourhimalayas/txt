@@ -3,6 +3,10 @@
 
 ## 頁面 9/113 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年3月25日直播 20220325_1从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易](/content/transcript/2022/03/20220325-1091067.md)
+
+[郭文贵2022年3月24日盖特 20220324_1尊敬的战友们好……共产党就面临着全球经济脱钩．次级经济制裁……官员资产被查封的灾难时刻到来！共产党你玩啦！](/content/transcript/2022/03/20220324-1090688.md)
+
 [郭文贵2022年3月23日直播 20220323_1俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难](/content/transcript/2022/03/20220323-1090983.md)
 
 [郭文贵2022年3月22日盖特 20220322_1尊敬的战友们好．世界经济大战……粮食大战……已经前面开始！](/content/transcript/2022/03/20220322-1090687.md)
@@ -48,10 +52,6 @@
 [郭文贵2022年3月4日盖特 20220304_1尊敬的战友们好，今天我收到了无数个战友对我母亲三年冥诞问候！衷心地感谢兄弟姐妹们！我们只有靠真实的行动，才能保护我们的父母．姐妹．兄弟．消灭中国共产党是唯一的，让我们能快乐](/content/transcript/2022/03/20220304-1090410.md)
 
 [郭文贵2022年3月3日盖特 20220303_1尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！](/content/transcript/2022/03/20220303-1090408.md)
-
-[郭文贵2022年3月2日直播 20220302_1乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救](/content/transcript/2022/03/20220302-1090407.md)
-
-[郭文贵2022年3月1日盖特 20220301_1尊敬的战友们好，俄乌战争已经彻底的改变了世界……非常可悲的事情，中国人成了全世界最被恨的人，甚至要成为最孤立最被仇恨的族类，这是什么原因呢？](/content/transcript/2022/03/20220301-1090348.md)
 
 
 ## 頁面 9/113 [**<**](/content/transcript/README-8.md) [1](/content/transcript/README.md) ... [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) **9** [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-10.md) [查看全部](/content/transcript/README-all.md)

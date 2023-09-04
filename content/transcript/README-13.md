@@ -3,6 +3,10 @@
 
 ## 頁面 13/113 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2022年1月10日盖特 20220110_1尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的](/content/transcript/2022/01/20220110-1088539.md)
+
+[郭文贵2022年1月9日直播 20220109_1哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王](/content/transcript/2022/01/20220109-1088522.md)
+
 [郭文贵2022年1月9日盖特 20220109_2喜马拉雅七座山峰就是我们的????????????Noah‘s Ark。    诺亚方舟！](/content/transcript/2022/01/20220109-1088533.md)
 
 [郭文贵2022年1月7日视频 20220107_1Who's Miles Guo Episode 2 Artemisinin and Ivermectin谁是郭文贵 2 青蒿素和伊维菌素](/content/transcript/2022/01/20220107-1088294.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年12月25日盖特 20211225_3文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯????](/content/transcript/2021/12/20211225-1093889.md)
 
 [郭文贵2021年12月25日盖特 20211225_4尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！](/content/transcript/2021/12/20211225-1093890.md)
-
-[郭文贵2021年12月25日盖特直播 20211225_5蒸馍馍](/content/transcript/2021/12/20211225-1093892.md)
-
-[郭文贵2021年12月25日盖特 20211225_6在今天这个特别的日子里． 当年的齐澳塞斯库就是在12月25号被枪毙的！原来共产主义的苏联也是在12月25号解体的……这是一个伟大的日子。七哥的厨艺大显身手……馍馍蒸熟啦……](/content/transcript/2021/12/20211225-1093895.md)
 
 
 ## 頁面 13/113 [**<**](/content/transcript/README-12.md) [1](/content/transcript/README.md) ... [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) **13** [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-14.md) [查看全部](/content/transcript/README-all.md)

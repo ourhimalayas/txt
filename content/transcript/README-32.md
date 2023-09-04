@@ -3,6 +3,10 @@
 
 ## 頁面 32/113 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年4月30日盖特 20210430_3在此呼吁全球农场认真的服务我们的战友！将我们的农场推向一个新的高度．准备好灭共关键决战到来前的一切准备！](/content/transcript/2021/04/20210430-1091203.md)
+
+[郭文贵2021年4月30日盖特 20210430_4尊敬的戰友們好！剛剛录制幾個小時的［馬背英雄］新歌之後的感想．分享給大家！感謝唐平老師！威廉王老師！辛苦的付出！和對一個完全不具備唱歌的學生！所付出的耐心！一切都已经开始！](/content/transcript/2021/04/20210430-1091207.md)
+
 [郭文贵2021年4月29日盖特 20210429_1尊敬的战友們好．你們健身了嗎！你們傳播CC P病毒．香港危機真相了嗎一切都已经开始！](/content/transcript/2021/04/20210429-1091273.md)
 
 [郭文贵2021年4月28日盖特 20210428_1為什麼這麼多人！認為趙婷的奧斯卡獎！是因為他的背景而得到的！](/content/transcript/2021/04/20210428-1091265.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年4月16日盖特 20210416_1尊敬的战友们好……共产党在灭亡前夜……正在创造最大的经济泡沫，美国华尔街正在能制造一个世界经济的陷阱，我们如何把握住自己．踩着历史的节奏而不掉入陷阱，不被泡沫化．还要抓住的](/content/transcript/2021/04/20210416-1091128.md)
 
 [郭文贵2021年4月16日盖特 20210416_2根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！](/content/transcript/2021/04/20210416-1091132.md)
-
-[郭文贵2021年4月16日盖特 20210416_3根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！(第二段)另一](/content/transcript/2021/04/20210416-1091137.md)
-
-[郭文贵2021年4月15日直播 20210415_1以毒灭共正在全面进行；马云的进进出出；江家势力杨雄之死绝非正常；中共如同二战时的日本；七哥已经准备好方案，保证所有GTV美国投资人的核心利益](/content/transcript/2021/04/20210415-1091126.md)
 
 
 ## 頁面 32/113 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

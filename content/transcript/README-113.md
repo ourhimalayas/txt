@@ -3,6 +3,10 @@
 
 ## 頁面 113/113 [**<**](/content/transcript/README-112.md) [1](/content/transcript/README.md) ... [108](/content/transcript/README-108.md) [109](/content/transcript/README-109.md) [110](/content/transcript/README-110.md) [111](/content/transcript/README-111.md) [112](/content/transcript/README-112.md) **113** [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2017年4月26日第二次直播 20170426_2感谢推友过十万](/content/transcript/2017/04/20170426-1094234.md)
+
+[郭文贵2017年4月26日第一次直播 20170426_1感谢推友过十万感谢视频](/content/transcript/2017/04/20170426-1094237.md)
+
 [郭文贵2017年4月25日 20170425_1感谢推友过九万第一部分](/content/transcript/2017/04/20170425-1094227.md)
 
 [郭文贵2017年4月25日 20170425_2感谢推友过九万第二部分](/content/transcript/2017/04/20170425-1094229.md)

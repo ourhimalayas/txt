@@ -3,6 +3,10 @@
 
 ## 頁面 52/113 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年7月12日视频 20200712_2馬上直播](/content/transcript/2020/07/20200712-1089944.md)
+
+[郭文贵2020年7月12日视频 20200712_3今天直播完以后，我继续健身，灭共的路上一定要强心健体永不放弃](/content/transcript/2020/07/20200712-1089947.md)
+
 [郭文贵2020年7月12日直播 20200712美国领导的灭共盟军将在欧洲，及北约以及亚洲和南海东海香港领域．经济．领导人制栽等．全面开始灭共！](/content/transcript/2020/07/20200712-1092359.md)
 
 [郭文贵2020年7月11日视频 20200711_1跟着郝海东先生和叶钊颖女士！学习健身1](/content/transcript/2020/07/20200711-1089926.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年7月4日直播 20200704新中国联邦被西方政府认可吗？以及GTV投资．美国队中共有史以来最严厉的制裁意味着什么？爆料革命的下一步计划和行动](/content/transcript/2020/07/20200704-1092200.md)
 
 [郭文贵2020年7月3日视频 20200703_1海航王健被殺害2周年](/content/transcript/2020/07/20200703-1089897.md)
-
-[郭文贵2020年7月3日视频 20200703_2听听美国政府官员这一系列制裁和我们战友们在华盛顿抗议的一些观点以及背后的故事](/content/transcript/2020/07/20200703-1089901.md)
-
-[郭文贵2020年7月2日直播 20200702华盛顿的历史性的美东战友们的抗议，以及接下来对中共惩罚的大锤如何落下！](/content/transcript/2020/07/20200702-1092177.md)
 
 
 ## 頁面 52/113 [**<**](/content/transcript/README-51.md) [1](/content/transcript/README.md) ... [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) **52** [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-53.md) [查看全部](/content/transcript/README-all.md)

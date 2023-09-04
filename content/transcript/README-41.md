@@ -3,6 +3,10 @@
 
 ## 頁面 41/113 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年1月10日直播 20210110_1](/content/transcript/2021/01/20210110-1090356.md)
+
+[郭文贵2021年1月9日盖特 20210109_1川普总统被形容为最失败的最懦弱．最口爆……最口炮……总统……这是正确的吗？我们如何看待过去24小时发生的媒体封杀川普总统的这些事情……文贵谈谈自己的观点，一切都已经开始！](/content/transcript/2021/01/20210109-1090346.md)
+
 [郭文贵2021年1月9日盖特 20210109_22021年1月9号上午，第二次发视频……再次集中回答国内很多战友的一些问题……](/content/transcript/2021/01/20210109-1090349.md)
 
 [郭文贵2021年1月8日盖特 20210108_1尊敬的战友们好，我们为什么要打造G系列？我们为什么不能跟随任何政客和任何政党？我们必须要成为独立的世界的重要的一股正义的力量……任何正义的力量组织．必须尊重的一个代表中国人的](/content/transcript/2021/01/20210108-1090341.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年12月29日视频 20201229_2郭文贵先生给《我是音雄》的祝贺和期许（一）](/content/transcript/2020/12/20201229-1090167.md)
 
 [郭文贵2020年12月28日盖特 20201228_1尊敬的战友们好．文贵想和战友们聊聊……参与爆料革命的风险系数和我们现在遇到的问题后的……的应该如何面对和解决的办法，一切都已经开始！](/content/transcript/2020/12/20201228-1090160.md)
-
-[郭文贵2020年12月28日盖特 20201228_2感谢战友们的关心……回答在国内疫情灾区的战友们……相互支持，相互帮助，及我们所能提供的帮助，一切都已经开始！](/content/transcript/2020/12/20201228-1090162.md)
-
-[郭文贵2020年12月28日音频聊天 20201228_3郭先生喜马拉雅大使馆discord群答疑录音](/content/transcript/2020/12/20201228-1090170.md)
 
 
 ## 頁面 41/113 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) [45](/content/transcript/README-45.md) [46](/content/transcript/README-46.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)

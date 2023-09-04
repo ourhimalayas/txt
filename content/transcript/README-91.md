@@ -3,6 +3,10 @@
 
 ## 頁面 91/113 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2](/content/transcript/2018/10/20181021-1087981.md)
+
+[郭文贵2018年10月21日 20181021_3澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 3](/content/transcript/2018/10/20181021-1087990.md)
+
 [郭文贵2018年10月21日 20181021_1澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑](/content/transcript/2018/10/20181021-1094219.md)
 
 [郭文贵2018年10月20日视频 20181020_2Snow響應王岐山號召 從吃狗糧改吃草了](/content/transcript/2018/10/20181020-1087971.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击](/content/transcript/2018/10/20181008-1088634.md)
 
 [郭文贵2018年10月6日视频 20181006_2](/content/transcript/2018/10/20181006-1088838.md)
-
-[郭文贵2018年10月6日视频 20181006_3](/content/transcript/2018/10/20181006-1088839.md)
-
-[郭文贵2018年10月6日视频 20181006_4](/content/transcript/2018/10/20181006-1088843.md)
 
 
 ## 頁面 91/113 [**<**](/content/transcript/README-90.md) [1](/content/transcript/README.md) ... [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) **91** [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-92.md) [查看全部](/content/transcript/README-all.md)

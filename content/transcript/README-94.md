@@ -3,6 +3,10 @@
 
 ## 頁面 94/113 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年9月10日直播 20180910_3文贵在雨中建议所有的战友们观看"斯大林之死"这部电影](/content/transcript/2018/09/20180910-1088727.md)
+
+[郭文贵2018年9月10日第一次直播 20180910_1马云辞职的真正原因](/content/transcript/2018/09/20180910-1093048.md)
+
 [郭文贵2018年9月10日第二次直播 20180910_2马云辞职的真正的目的与动机漫天过海！](/content/transcript/2018/09/20180910-1093071.md)
 
 [郭文贵2018年9月9日直播 20180909_1](/content/transcript/2018/09/20180909-1088721.md)
@@ -48,10 +52,6 @@
 [郭文贵2018年8月20日视频 20180820_2Snow小视频](/content/transcript/2018/08/20180820-1088672.md)
 
 [郭文贵2018年8月20日视频 20180820](/content/transcript/2018/08/20180820-1092991.md)
-
-[郭文贵2018年8月19日直播 20180819_1紧急会议前苍促视频报平安](/content/transcript/2018/08/20180819-1088690.md)
-
-[郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了](/content/transcript/2018/08/20180818-1087767.md)
 
 
 ## 頁面 94/113 [**<**](/content/transcript/README-93.md) [1](/content/transcript/README.md) ... [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) **94** [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-95.md) [查看全部](/content/transcript/README-all.md)

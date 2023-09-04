@@ -3,6 +3,10 @@
 
 ## 頁面 54/113 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年6月15日视频 20200615_6七哥耍球棒](/content/transcript/2020/06/20200615-1089836.md)
+
+[郭文贵2020年6月15日视频 20200615_7今天不直播](/content/transcript/2020/06/20200615-1089839.md)
+
 [郭文贵2020年6月15日视频 20200615_3请应聘新中国联邦职务的战友们务必详细的提供你的个人信息和个人需求](/content/transcript/2020/06/20200615-1089875.md)
 
 [郭文贵2020年6月15日视频 20200615_4文贵衷心地向战友们就昨天错误的发出新中国联邦部长及副总理招聘广告衷心地向你们道歉️文贵将在视频中骑狗惩罚自己](/content/transcript/2020/06/20200615-1089898.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年5月30日第一次直播 20200530_1](/content/transcript/2020/05/20200530-1092571.md)
 
 [郭文贵2020年5月30日第二次直播 20200530_2请所有的战友高度关注6月2号中午和6月3号晚上和6月4号上午．三次重大直播，请准备好美食美酒！](/content/transcript/2020/05/20200530-1093019.md)
-
-[郭文贵2020年5月29日视频 20200529留美的学生和华人同胞们请务必看今天文贵的视频](/content/transcript/2020/05/20200529-1092537.md)
-
-[郭文贵2020年5月27日视频 20200527_3所有被指定为个地区国家与战友们的联系负责人都不允许收集和查看任何战友的私人信息和投资相关的任何资料](/content/transcript/2020/05/20200527-1089862.md)
 
 
 ## 頁面 54/113 [**<**](/content/transcript/README-53.md) [1](/content/transcript/README.md) ... [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) **54** [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-55.md) [查看全部](/content/transcript/README-all.md)

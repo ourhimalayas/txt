@@ -3,6 +3,10 @@
 
 ## 頁面 22/113 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年8月29日盖特 20210829_3几次大直播．我们拯救了无数个生命．巨大的影响正在改变疫苗大屠杀的壮况……所有的战友们和我的朋友们都在思考，我们的人生和我们所生存的意义：和自己的信仰和宗教的理解！认知！爆料](/content/transcript/2021/08/20210829-1092802.md)
+
+[郭文贵2021年8月29日盖特 20210829_4第二段视频……谈谈最近国内的演艺界体育节．所发生一系列的事情．和共产党正在疯狂的准备打烂台湾……打残欧州．征服世界的一些疯狂的方案和计划????????????????????????胆小的不要看这个视频](/content/transcript/2021/08/20210829-1092810.md)
+
 [郭文贵2021年8月29日盖特 20210829_2尊敬的战友们好，你们健身了吗？传播C C P病毒……香港危机．郑州人祸的真相了吗？](/content/transcript/2021/08/20210829-1092873.md)
 
 [郭文贵2021年8月28日直播 20210828_1疫苗、病毒后，宗教会因此重新改写；家庭将经历有史以来的考验，家庭观念会被改变；人类对宗教，家庭的概念彻底解体；疫苗后，文化宗教会重生；地球之外的力量和新中国联邦会拯救人类；](/content/transcript/2021/08/20210828-1092706.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年8月19日盖特 20210819_3尊敬的战友们好：吃烧鸡鸡楼……2号最辣的辣椒喽……](/content/transcript/2021/08/20210819-1092622.md)
 
 [郭文贵2021年8月18日直播 20210818_1从文化大革命，知识青年山上下乡看中国人今天的信仰；从过去文贵谈台海危机，看今天的台湾局势；中共国现状比阿富汗的今天糟千万倍，进入文革2.0；全球打榜的奇迹体现了爆料革命的实力，](/content/transcript/2021/08/20210818-1092358.md)
-
-[郭文贵2021年8月17日直播 20210817_1为染病毒的战友及家人祈福！爆料革命，新中国联邦的战友们要真心爱家人，真心的爱战友；各农场是海外华人互帮互助的平台](/content/transcript/2021/08/20210817-1092244.md)
-
-[郭文贵2021年8月17日盖特 20210817_2尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机真相了吗？一切都已经开始](/content/transcript/2021/08/20210817-1092619.md)
 
 
 ## 頁面 22/113 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)

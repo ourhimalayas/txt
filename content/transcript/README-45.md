@@ -3,6 +3,10 @@
 
 ## 頁面 45/113 [**<**](/content/transcript/README-44.md) [1](/content/transcript/README.md) ... [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) **45** [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-46.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年11月20日直播 20201120_4王建之死 两周年](/content/transcript/2020/11/20201120-1093255.md)
+
+[郭文贵2020年11月19日直播 20201119_1](/content/transcript/2020/11/20201119-1093232.md)
+
 [郭文贵2020年11月18日盖特 20201118尊敬的戰友，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！](/content/transcript/2020/11/20201118-1093215.md)
 
 [郭文贵2020年11月17日盖特 2020111772小時會不會发生啊？](/content/transcript/2020/11/20201117-1093220.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年11月9日直播 20201109](/content/transcript/2020/11/20201109-1093131.md)
 
 [郭文贵2020年11月8日直播 20201108_1](/content/transcript/2020/11/20201108-1093104.md)
-
-[郭文贵2020年11月8日直播与大卫连线 20201108_2](/content/transcript/2020/11/20201108-1093113.md)
-
-[郭文贵2020年11月8日盖特 20201108_3文贵喝完下午茶……抽雪茄抽醉了，在此……和战友聊聊……到底美国大选谁能赢？？为什么？我们为什么支持川普总统？](/content/transcript/2020/11/20201108-1093132.md)
 
 
 ## 頁面 45/113 [**<**](/content/transcript/README-44.md) [1](/content/transcript/README.md) ... [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) **45** [46](/content/transcript/README-46.md) [47](/content/transcript/README-47.md) [48](/content/transcript/README-48.md) [49](/content/transcript/README-49.md) [50](/content/transcript/README-50.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-46.md) [查看全部](/content/transcript/README-all.md)

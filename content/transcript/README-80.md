@@ -3,6 +3,10 @@
 
 ## 頁面 80/113 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思](/content/transcript/2019/06/20190620-1098085.md)
+
+[郭文贵2019年6月18日视频 20190618关于6月21日的再次示威行动](/content/transcript/2019/06/20190618-1093300.md)
+
 [2019年6月18日文贵纽约时间晚上8点直播全文字版：关于香港21日再次上街](/content/transcript/2019/06/20190618-1098084.md)
 
 [郭文贵2019年6月17日视频 20190617支持香港反送中抗议](/content/transcript/2019/06/20190617-1093290.md)
@@ -48,10 +52,6 @@
 [郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”](/content/transcript/2019/06/20190610-1089216.md)
 
 [郭文贵2019年6月10日视频 20190610_3细思小哥在喜马拉雅大使馆与小庄、文贵和班农直播](/content/transcript/2019/06/20190610-1089242.md)
-
-[郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？](/content/transcript/2019/06/20190610-1093045.md)
-
-[郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！](/content/transcript/2019/06/20190609-1092646.md)
 
 
 ## 頁面 80/113 [**<**](/content/transcript/README-79.md) [1](/content/transcript/README.md) ... [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) **80** [81](/content/transcript/README-81.md) [82](/content/transcript/README-82.md) [83](/content/transcript/README-83.md) [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-81.md) [查看全部](/content/transcript/README-all.md)

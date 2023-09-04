@@ -3,6 +3,10 @@
 
 ## 頁面 25/113 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年7月29日盖特 20210729_2尊敬的战友们好，你们健身了吗，传播CCP病毒香港危机郑州水灾真相了吗！爆料革命由路大脑袋和蛇妖闫事件，新中国联邦迎来了新的春天。。](/content/transcript/2021/07/20210729-1091852.md)
+
+[郭文贵2021年7月29日直播 20210729_1文贵是第一个说中概股会崩溃的；世界的未来和希望就是虚拟币；灭共要有耐心，不能急功近利；灭爆小组行动将持续到9月20号，更多孙力军会被抓](/content/transcript/2021/07/20210729-1091928.md)
+
 [郭文贵2021年7月28日盖特 20210728_17月28号尊敬的战友们好，为什么撤掉昨天的直播视频，为什么国内一夜之间科技大佬市场损失几万亿，为什么西方世界正期待着来自中国的多种声音，共产党你完了。](/content/transcript/2021/07/20210728-1091838.md)
 
 [郭文贵2021年7月28日盖特 20210728_2收到了你们大量的各种信息．七哥刚刚结束作证．录个视频报平安！](/content/transcript/2021/07/20210728-1091840.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年7月18日直播 20210718_2](/content/transcript/2021/07/20210718-1091815.md)
 
 [郭文贵2021年7月17日盖特 20210717_1尊敬的战友们好．新中国联邦灭共后．未来最大的挑战之一……就是让中国人有基本的辨别善恶的能力。 共产党的内部的政治斗争……已经到了最后的阶段……准备好中南城的老杂毛们……随时给](/content/transcript/2021/07/20210717-1091821.md)
-
-[郭文贵2021年7月16日直播 20210716_1从近几天发生的一系列事件来看．我们爆料革命升级的一个契机](/content/transcript/2021/07/20210716-1091769.md)
-
-[郭文贵2021年7月16日盖特 20210716_2尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？](/content/transcript/2021/07/20210716-1091818.md)
 
 
 ## 頁面 25/113 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

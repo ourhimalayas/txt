@@ -3,6 +3,10 @@
 
 ## 頁面 27/113 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年6月29日直播 20210629_1共产党你完了百年冥诞的恐惧即将崩溃的经济．和世界对共产党的病毒追责．你共产党还会有明天吗？](/content/transcript/2021/06/20210629-1091639.md)
+
+[郭文贵2021年6月28日直播 20210628_1森林深处．与英俊漂亮的战友们连线试试直播……](/content/transcript/2021/06/20210628-1091628.md)
+
 [郭文贵2021年6月28日盖特 20210628_2尊敬的战友们好，在香港和北京发生的大爆炸，死了很多人，为什么共产党要掩盖这些真相呢？](/content/transcript/2021/06/20210628-1091637.md)
 
 [郭文贵2021年6月28日盖特 20210628_3七哥和約翰哥哥討論蓋特功能改善](/content/transcript/2021/06/20210628-1091708.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年6月16日盖特 20210616_2](/content/transcript/2021/06/20210616-1089819.md)
 
 [郭文贵2021年6月16日盖特 20210616_1香港运动两周年之际，文贵感触很多……为什么最近我要再报杨澜．吴征黑森林的故事呢？](/content/transcript/2021/06/20210616-1091563.md)
-
-[郭文贵2021年6月15日直播 20210615_1三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？](/content/transcript/2021/06/20210615-1091541.md)
-
-[郭文贵2021年6月14日直播 20210614_1马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招](/content/transcript/2021/06/20210614-1091516.md)
 
 
 ## 頁面 27/113 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 18/113 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年10月24日直播 20211024_1与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远](/content/transcript/2021/10/20211024-1093490.md)
+
+[郭文贵2021年10月24日盖特 20211024_2绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？](/content/transcript/2021/10/20211024-1093608.md)
+
 [郭文贵2021年10月23日盖特 20211023_1尊敬的战友们好．太多战友发来各种信息，文贵确实无法一一回复，有些问题等明天24号上午9:00的与战友们的大直播中，回答亲爱的兄弟姐妹们……一切都已经开始！](/content/transcript/2021/10/20211023-1093603.md)
 
 [郭文贵2021年10月22日直播 20211022_1马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的](/content/transcript/2021/10/20211022-1093414.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年10月10日直播 20211010_1文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美](/content/transcript/2021/10/20211010-1093468.md)
 
 [郭文贵2021年10月10日盖特 20211010_2尊敬的战友们好，我们都应该拥有这样美好的现代的文明的生活，????????????????????你们说对不对啊？](/content/transcript/2021/10/20211010-1093471.md)
-
-[郭文贵2021年10月8日盖特 20211008_1尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世](/content/transcript/2021/10/20211008-1093374.md)
-
-[郭文贵2021年10月8日盖特直播 20211008_2](/content/transcript/2021/10/20211008-1093378.md)
 
 
 ## 頁面 18/113 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

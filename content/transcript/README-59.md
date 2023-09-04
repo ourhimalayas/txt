@@ -3,6 +3,10 @@
 
 ## 頁面 59/113 [**<**](/content/transcript/README-58.md) [1](/content/transcript/README.md) ... [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) **59** [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-60.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年3月27日视频 20200327_3七哥與Snow試鏡](/content/transcript/2020/03/20200327-1089816.md)
+
+[郭文贵2020年3月27日视频 20200327_4](/content/transcript/2020/03/20200327-1089820.md)
+
 [郭文贵2020年3月27日视频 20200327_5笨笨从来没犯过错，就是跑得慢。](/content/transcript/2020/03/20200327-1089821.md)
 
 [郭文贵2020年3月27日 20200327_1关于庄列宏，辱骂战友和天津大姐，辱骂小皮匠文贵的看法 一切美好再也回不到今天了](/content/transcript/2020/03/20200327-1091905.md)
@@ -48,10 +52,6 @@
 [郭文贵2020年3月13日 20200313船上直播分享美食谈正在发生的世界经济危机](/content/transcript/2020/03/20200313-1091959.md)
 
 [郭文贵2020年3月12日直播股市暴跌(上) 20200312_1船上直播华尔街股市暴跌，世界资产重新分配](/content/transcript/2020/03/20200312-1091937.md)
-
-[郭文贵2020年3月12日直播股市暴跌(下) 20200312_2船上第二次直播华尔街股市暴跌，世界资产重新分配](/content/transcript/2020/03/20200312-1091952.md)
-
-[郭文贵2020年3月11日 20200311谈未来3到5年能健康地活着就是](/content/transcript/2020/03/20200311-1091925.md)
 
 
 ## 頁面 59/113 [**<**](/content/transcript/README-58.md) [1](/content/transcript/README.md) ... [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) [56](/content/transcript/README-56.md) [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) **59** [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-60.md) [查看全部](/content/transcript/README-all.md)

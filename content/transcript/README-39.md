@@ -3,6 +3,10 @@
 
 ## 頁面 39/113 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2021年2月2日直播 20210202_2回答战友们关于VOG退款事宜的疑问](/content/transcript/2021/02/20210202-1090551.md)
+
+[郭文贵2021年2月1日直播 20210201_1文贵在雪中和战友们聊聊天．谈谈，中国共产党是如何欺骗中国老百姓的……](/content/transcript/2021/02/20210201-1090507.md)
+
 [郭文贵2021年2月1日盖特 20210201_2尊敬的战友们好今天的纽约，封城和缅甸的政变和全球联合灭共所有的事情……有着什么样的内在的逻辑和关系！](/content/transcript/2021/02/20210201-1090509.md)
 
 [郭文贵2021年2月1日盖特 20210201_3在国内新的一轮所谓平爆运动的．关键时刻，我相信绝大多数的共产党．体制内的有良知的．有智慧的人．应该知道．如何面对我们爆料革命．和处理，我们被九指妖．等背叛者．提供给他们的有](/content/transcript/2021/02/20210201-1090515.md)
@@ -48,10 +52,6 @@
 [郭文贵2021年1月22日盖特 20210122_2下午6:20我们正在和战友一起．等待这一切的到来……](/content/transcript/2021/01/20210122-1090426.md)
 
 [郭文贵2021年1月21日直播 20210121_1深刻总结爆料革命的成功与不足，今年重点发展Ｇ系列，壮大灭共经济体系，与美新政府合作，联合灭共](/content/transcript/2021/01/20210121-1090420.md)
-
-[郭文贵2021年1月20日直播 20210120_1新中国联邦见证美国120](/content/transcript/2021/01/20210120-1090412.md)
-
-[郭文贵2021年1月20日盖特 20210120_2今天是爆料革命最大的挫败的一天……也是最美好的一天……感谢很多战友发来的信息，抱歉不能一一回复????????????同时我在这里谈一下．路德访谈今天节目．观后感的感觉](/content/transcript/2021/01/20210120-1090416.md)
 
 
 ## 頁面 39/113 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [43](/content/transcript/README-43.md) [44](/content/transcript/README-44.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
