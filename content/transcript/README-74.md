@@ -3,6 +3,34 @@
 
 ## 頁面 74/113 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年8月29日视频 20190829_2马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(一)](/content/transcript/2019/08/20190829-1089464.md)
+
+[郭文贵2019年8月29日视频 20190829_3马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(二)](/content/transcript/2019/08/20190829-1089468.md)
+
+[2019年8月29日文贵大直播全文字版：中共是恐怖组织白宫已过10万;芬太尼, 假美元是中共3F美国的部分国家行动核心战略](/content/transcript/2019/08/20190829-1098217.md)
+
+[郭文贵2019年8月28日视频 20190828_2从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始](/content/transcript/2019/08/20190828-1089447.md)
+
+[郭文贵2019年8月28日视频 20190828解放军军车 装甲车已经开进香港香港已经进入紧急状态](/content/transcript/2019/08/20190828-1093497.md)
+
+[2019年8月28日文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始！](/content/transcript/2019/08/20190828-1098185.md)
+
+[2019年8月28日文贵大直播全文字版：解读香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产](/content/transcript/2019/08/20190828-1098193.md)
+
+[2019年08月28日文贵大直播全文字版：解放军军车 装甲车已经开进香港香港已经进入紧急状态](/content/transcript/2019/08/20190828-1098194.md)
+
+[郭文贵2019年8月27日视频 20190827_2香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产](/content/transcript/2019/08/20190827-1089443.md)
+
+[郭文贵2019年8月27日 20190827这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/transcript/2019/08/20190827-1094194.md)
+
+[2019年8月27日文贵大直播全文字版：紧急，这些招数的出台．才是共产党要拿下香港的真实目的！](/content/transcript/2019/08/20190827-1098183.md)
+
+[郭文贵2019年8月26日视频 20190826尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？非常的抱歉，前几天一直在＂床＂见人开会……没有及时向大家报平安视频！一切都是刚刚开始](/content/transcript/2019/08/20190826-1093484.md)
+
+[2019年8月26日文贵大直播全文字版：报平安](/content/transcript/2019/08/20190826-1098184.md)
+
+[郭文贵2019年8月24日视频 20190824_1报平安，好消息不断](/content/transcript/2019/08/20190824-1089431.md)
+
 [郭文贵2019年8月24日视频 20190824_2文贵怀孕了](/content/transcript/2019/08/20190824-1089437.md)
 
 [郭文贵2019年8月23日第二次直播 20190823_2歐美這兩天將宣布1.對香港及共產黨高官個人進行制裁 2.取消香港關係法及其自由貿易區地位 3.歐美將有一系列對香港的保護措施及政策](/content/transcript/2019/08/20190823-1093677.md)
@@ -24,34 +52,6 @@
 [2019年8月17号文贵大直播全文字版：回复有关今早直播后，大家发来的私信问题……](/content/transcript/2019/08/20190817-1098189.md)
 
 [郭文贵2019年8月16日视频 20190816尊敬的战友们好．你们传播香港危机的真相了吗？香港反送中运动．已经变成了国际集体反共的运动，战友们和香港同胞们一定要抓住机会，赢得这场前所未有的灭共战争，一切](/content/transcript/2019/08/20190816-1093561.md)
-
-[2019年8月16日文貴大直播全文字版：你们传播香港危机的真相了吗？香港反送中运动......](/content/transcript/2019/08/20190816-1098188.md)
-
-[郭文贵2019年8月15日视频 20190815Greetings honored friends! Have you done any workout? Have you spreaded the truth of...](/content/transcript/2019/08/20190815-1093554.md)
-
-[2019年8月15日文贵大直播全文字版：报平安直播](/content/transcript/2019/08/20190815-1098187.md)
-
-[郭文贵2019年8月14日视频 20190814Miles Kwok letting everyone know he's safe. USA has secretly investigated the presence...](/content/transcript/2019/08/20190814-1093547.md)
-
-[2019年8月14日《文贵大直播》全文字版：谈美国已秘密调查中共安插在香港警队中的PLA 操纵美国股市](/content/transcript/2019/08/20190814-1098170.md)
-
-[郭文贵2019年8月13日视频 20190813关于香港情况](/content/transcript/2019/08/20190813-1093539.md)
-
-[2019年8月13日《文贵大直播》全文字版：谈未来的48小时对香港所有上街抗议的同胞极为重要](/content/transcript/2019/08/20190813-1098172.md)
-
-[郭文贵2019年8月12日第二次直播 20190812_2 Mr. Miles Kwok live stream: letting everyone know that he is safe. What Hong Kongers...](/content/transcript/2019/08/20190812-1093513.md)
-
-[郭文贵2019年8月12日第一次直播 20190812_1在车上Miles Kwok live streaming from car: the CCP showed its true colors during its crackdown..](/content/transcript/2019/08/20190812-1093519.md)
-
-[2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压](/content/transcript/2019/08/20190812-1098190.md)
-
-[郭文贵2019年8月11日视频 20190811Mr. Miles Kwok live stream: please focus your attention on Hong Kong, in order to stop...](/content/transcript/2019/08/20190811-1093509.md)
-
-[2019年8月11日《文贵大直播》全文字版：船上直播高度关注香港](/content/transcript/2019/08/20190811-1098171.md)
-
-[郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...](/content/transcript/2019/08/20190810-1093494.md)
-
-[2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场](/content/transcript/2019/08/20190810-1098158.md)
 
 
 ## 頁面 74/113 [**<**](/content/transcript/README-73.md) [1](/content/transcript/README.md) ... [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) **74** [75](/content/transcript/README-75.md) [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-75.md) [查看全部](/content/transcript/README-all.md)

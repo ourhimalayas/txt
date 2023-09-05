@@ -3,6 +3,34 @@
 
 ## 頁面 75/113 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)
 
+[2019年8月16日文貴大直播全文字版：你们传播香港危机的真相了吗？香港反送中运动......](/content/transcript/2019/08/20190816-1098188.md)
+
+[郭文贵2019年8月15日视频 20190815Greetings honored friends! Have you done any workout? Have you spreaded the truth of...](/content/transcript/2019/08/20190815-1093554.md)
+
+[2019年8月15日文贵大直播全文字版：报平安直播](/content/transcript/2019/08/20190815-1098187.md)
+
+[郭文贵2019年8月14日视频 20190814Miles Kwok letting everyone know he's safe. USA has secretly investigated the presence...](/content/transcript/2019/08/20190814-1093547.md)
+
+[2019年8月14日《文贵大直播》全文字版：谈美国已秘密调查中共安插在香港警队中的PLA 操纵美国股市](/content/transcript/2019/08/20190814-1098170.md)
+
+[郭文贵2019年8月13日视频 20190813关于香港情况](/content/transcript/2019/08/20190813-1093539.md)
+
+[2019年8月13日《文贵大直播》全文字版：谈未来的48小时对香港所有上街抗议的同胞极为重要](/content/transcript/2019/08/20190813-1098172.md)
+
+[郭文贵2019年8月12日第二次直播 20190812_2 Mr. Miles Kwok live stream: letting everyone know that he is safe. What Hong Kongers...](/content/transcript/2019/08/20190812-1093513.md)
+
+[郭文贵2019年8月12日第一次直播 20190812_1在车上Miles Kwok live streaming from car: the CCP showed its true colors during its crackdown..](/content/transcript/2019/08/20190812-1093519.md)
+
+[2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压](/content/transcript/2019/08/20190812-1098190.md)
+
+[郭文贵2019年8月11日视频 20190811Mr. Miles Kwok live stream: please focus your attention on Hong Kong, in order to stop...](/content/transcript/2019/08/20190811-1093509.md)
+
+[2019年8月11日《文贵大直播》全文字版：船上直播高度关注香港](/content/transcript/2019/08/20190811-1098171.md)
+
+[郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...](/content/transcript/2019/08/20190810-1093494.md)
+
+[2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场](/content/transcript/2019/08/20190810-1098158.md)
+
 [郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事](/content/transcript/2019/08/20190809-1089408.md)
 
 [郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe](/content/transcript/2019/08/20190809-1093489.md)
@@ -24,34 +52,6 @@
 [2019年8月6日《文贵大直播》全文字版： 谈美国将中共定位汇率操纵国的意义](/content/transcript/2019/08/20190806-1098169.md)
 
 [郭文贵2019年8月5日视频 20190805香港大劫在即……希望香港的四个不要脸群体．能站在正义的一边帮助上街的孩子们。](/content/transcript/2019/08/20190805-1093464.md)
-
-[2019年8月5日文贵大直播全文字版：香港大劫在即······](/content/transcript/2019/08/20190805-1098157.md)
-
-[郭文贵2019年8月4日视频 20190804_1香港要出随时出大事！传统媒体界转向爆料革命？](/content/transcript/2019/08/20190804-1089406.md)
-
-[郭文贵2019年8月3日视频 20190803_2-當共產黨說不幹甚麼的時候 就是他想幹甚麼的時候](/content/transcript/2019/08/20190803-1089402.md)
-
-[郭文贵2019年8月3日视频 20190803关于起诉华尔街日报](/content/transcript/2019/08/20190803-1093455.md)
-
-[2019年8月3日文贵大直播全文字版：关注香港即将发生的大事](/content/transcript/2019/08/20190803-1098134.md)
-
-[郭文贵2019年8月2日视频 20190802_1](/content/transcript/2019/08/20190802-1089397.md)
-
-[郭文贵2019年8月1日视频 20190801_2中午1200将和几个香港命运有关的人开会……香港的命运现在处在关键的时刻……望我们所有的志在灭共的战友们．在自己安全．能力．能承受的情况下，全力以赴通过各种手段支持香港同胞们](/content/transcript/2019/08/20190801-1089385.md)
-
-[郭文贵2019年8月1日视频 20190801_3戒严令由戒严指挥部统一指挥](/content/transcript/2019/08/20190801-1089395.md)
-
-[郭文贵2019年8月1日视频 20190801共产党下达香港戒严令](/content/transcript/2019/08/20190801-1093433.md)
-
-[郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着](/content/transcript/2019/07/20190731-1089381.md)
-
-[郭文贵2019年7月31日第二次直播 20190731_3上海西郊宾馆开启共产党死亡第二战场](/content/transcript/2019/07/20190731-1093427.md)
-
-[郭文贵2019年7月31日第一次直播 20190731_1爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-1093432.md)
-
-[2019年7月31日文贵大直播全文字版：爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-1098126.md)
-
-[2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场](/content/transcript/2019/07/20190731-1098163.md)
 
 
 ## 頁面 75/113 [**<**](/content/transcript/README-74.md) [1](/content/transcript/README.md) ... [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) [73](/content/transcript/README-73.md) [74](/content/transcript/README-74.md) **75** [76](/content/transcript/README-76.md) [77](/content/transcript/README-77.md) [78](/content/transcript/README-78.md) [79](/content/transcript/README-79.md) [80](/content/transcript/README-80.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-76.md) [查看全部](/content/transcript/README-all.md)

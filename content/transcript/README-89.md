@@ -3,6 +3,34 @@
 
 ## 頁面 89/113 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年12月17日视频 20181217关于昨天被删除的视频和路德Sara女](/content/transcript/2018/12/20181217-1091943.md)
+
+[郭文贵2018年12月16日 20181216郭文贵回答战友之声的问题，聊天，怎么看待习江斗。](/content/transcript/2018/12/20181216-1091936.md)
+
+[郭文贵2018年12月14日视频 20181214肖建华的资产被分的差不多了，很快就会消失了](/content/transcript/2018/12/20181214-1091902.md)
+
+[郭文贵2018年12月12日视频 20181212](/content/transcript/2018/12/20181212-1091752.md)
+
+[郭文贵2018年12月11日视频 20181211_1文贵简单的早餐](/content/transcript/2018/12/20181211-1089076.md)
+
+[郭文贵2018年12月11日视频 20181211_2回到了美麗的藍天白雲的紐約](/content/transcript/2018/12/20181211-1089077.md)
+
+[郭文贵2018年12月10日视频 20181210_2大连刘乐国因为通过李友案件掌握了中南海的高官的很多证据被释放．他能活多久？](/content/transcript/2018/12/20181210-1089071.md)
+
+[郭文贵2018年12月10日视频 20181210纠正一下昨天直播时的几个口误！刘乐国因为掌握令计划案北大李友案太多案情](/content/transcript/2018/12/20181210-1091730.md)
+
+[郭文贵2018年12月9日视频 20181209量震床上功夫和G20中美峰會的真相，孟晚舟女士在加拿大被抓與華為公司的背后真相，張首晟先生是自殺還是被殺。](/content/transcript/2018/12/20181209-1089956.md)
+
+[郭文贵2018年12月08日视频 20181208船上跟大家聊聊天,.张首晟绝不会自杀!](/content/transcript/2018/12/20181208-1088983.md)
+
+[郭文贵2018年12月7日视频 20181207_1文贵现在会捞鱼了](/content/transcript/2018/12/20181207-1089068.md)
+
+[郭文贵2018年12月4日视频 20181204_1正在研究設計的郭戰友領帶是如何的特別](/content/transcript/2018/12/20181204-1089066.md)
+
+[郭文贵2018年12月2日视频 20181202杨澜找钥匙和G20会议的背后真相，开棺验王健的尸，谈谈王岐山，孟建柱，吴征。](/content/transcript/2018/12/20181202-1087653.md)
+
+[郭文贵2018年11月29日视频 20181129郭戰裝到了](/content/transcript/2018/11/20181129-1094422.md)
+
 [郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了](/content/transcript/2018/11/20181128-1089063.md)
 
 [郭文贵2018年11月27日视频 20181127_2](/content/transcript/2018/11/20181127-1089060.md)
@@ -24,34 +52,6 @@
 [郭文贵2018年11月21日视频 20181121丢掉放弃幻想，只要共产党存在一天我们就没有安全之日... 亲人员工们忘掉过去的文贵吧，现在的文贵，是承负着上天的使命和十四亿人民对我的寄托，我不能只为你们活着](/content/transcript/2018/11/20181121-1092849.md)
 
 [郭文贵2018年11月20日视频 20181120_3(曾宏版)郭文贵2018年11月20日王健之死與海航背後真相信息发布会](/content/transcript/2018/11/20181120-1088918.md)
-
-[郭文贵2018年11月20日视频 20181120_4路德访谈班农、文贵先生：谈谈未来制裁中共王岐山盗国贼的一系列行为](/content/transcript/2018/11/20181120-1089039.md)
-
-[郭文贵2018年11月20日视频 20181120_5(官方版後段)郭文贵2018年11月20日信息发布会](/content/transcript/2018/11/20181120-1089045.md)
-
-[郭文贵2018年11月20日直播 20181120_1信息发布会（中英文版）Miles Guo Press Briefing on 11/20/2018 (English & Mandarin)](/content/transcript/2018/11/20181120-1091831.md)
-
-[郭文贵2018年11月20日第二次直播 20181120_2信息发布会 : Miles Guo Press Briefing on 11/20/2018](/content/transcript/2018/11/20181120-1094216.md)
-
-[郭文贵2018年11月19日视频 20181119_1王建之死发布会的前一天受到各方压力](/content/transcript/2018/11/20181119-1088930.md)
-
-[郭文贵2018年11月18日视频 20181118_1](/content/transcript/2018/11/20181118-1088919.md)
-
-[郭文贵2018年11月17日视频 2018111711月20号的新闻发布会进展报告，遇到了巨大的困难，但是一定会照常进行](/content/transcript/2018/11/20181117-1091446.md)
-
-[郭文贵2018年11月16日视频 20181116_1文贵在皮埃尔酒店现场采访演习搞笑版](/content/transcript/2018/11/20181116-1088912.md)
-
-[郭文贵2018年11月16日视频 20181116_2](/content/transcript/2018/11/20181116-1088914.md)
-
-[郭文贵2018年11月15日视频 20181115_2](/content/transcript/2018/11/20181115-1088907.md)
-
-[郭文贵2018年11月15日视频 20181115_3](/content/transcript/2018/11/20181115-1088909.md)
-
-[郭文贵2018年11月15日视频 20181115发布会定在11月20日，班农主持，美国3大律师所之一Quinn参与的“以法灭共”新时代即将全面开始](/content/transcript/2018/11/20181115-1091302.md)
-
-[郭文贵2018年11月14日视频 20181114王健之死真相新聞發布會為什麼可能從11月19日延後一天改為11月20日](/content/transcript/2018/11/20181114-1091622.md)
-
-[郭文贵2018年11月13日视频 20181113民營企業家不能再成為共產黨的尿壺！](/content/transcript/2018/11/20181113-1091171.md)
 
 
 ## 頁面 89/113 [**<**](/content/transcript/README-88.md) [1](/content/transcript/README.md) ... [84](/content/transcript/README-84.md) [85](/content/transcript/README-85.md) [86](/content/transcript/README-86.md) [87](/content/transcript/README-87.md) [88](/content/transcript/README-88.md) **89** [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-90.md) [查看全部](/content/transcript/README-all.md)

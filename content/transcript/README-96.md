@@ -3,6 +3,34 @@
 
 ## 頁面 96/113 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年8月13日第一次直播 20180813_1大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/content/transcript/2018/08/20180813-1093003.md)
+
+[郭文贵2018年8月12日视频 20180812_2在Riek Owes取今年秋季服装（合成版）](/content/transcript/2018/08/20180812-1087749.md)
+
+[郭文贵2018年8月12日 20180812王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！](/content/transcript/2018/08/20180812-1094232.md)
+
+[郭文贵2018年8月11日直播 20180811_1在与川普总统同一家定制西装店直播](/content/transcript/2018/08/20180811-1088658.md)
+
+[郭文贵2018年8月10日直播 20180810_1尊敬的战友们你们健身了吗！今天我将与刑事律师团开会．关于王健被杀的案件！一切都是刚刚开始！](/content/transcript/2018/08/20180810-1088655.md)
+
+[郭文贵2018年8月9日直播 20180809_2](/content/transcript/2018/08/20180809-1088651.md)
+
+[郭文贵2018年8月9日视频 20180809海航集团纽约大楼被白宫查封只是刚刚开始！](/content/transcript/2018/08/20180809-1092989.md)
+
+[郭文贵2018年8月8日直播 20180808_1想念战友](/content/transcript/2018/08/20180808-1088618.md)
+
+[郭文贵2018年8月8日直播 20180808_2与国内来的女朋友海边兜风️️️](/content/transcript/2018/08/20180808-1088621.md)
+
+[郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台](/content/transcript/2018/08/20180808-1088626.md)
+
+[郭文贵2018年8月8日直播 20180808_4盗国贼为了掩盖杀王建的罪恶接下来将有以下的行动](/content/transcript/2018/08/20180808-1088630.md)
+
+[郭文贵2018年8月8日直播 20180808_5起诉欺民贼以爆料文贵上帝的名义诈骗的郭宝胜只是刚刚开始](/content/transcript/2018/08/20180808-1088640.md)
+
+[郭文贵2018年8月8日直播 20180808_6下一周是给盗国贼反击的时间文贵要准备发布会和刑事案件具体落实一切都是刚刚开始](/content/transcript/2018/08/20180808-1088643.md)
+
+[郭文贵2018年8月8日直播 20180808_7我将拉黑任何一个挑战喜马拉雅打击盗国贼的推号开足马力全力以赴投入全部精力物力推进爆料革命](/content/transcript/2018/08/20180808-1088648.md)
+
 [郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！](/content/transcript/2018/08/20180807-1087742.md)
 
 [郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒](/content/transcript/2018/08/20180807-1088616.md)
@@ -24,34 +52,6 @@
 [郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！](/content/transcript/2018/07/20180728-1088575.md)
 
 [郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！](/content/transcript/2018/07/20180722-1092909.md)
-
-[郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！](/content/transcript/2018/07/20180722-1092980.md)
-
-[郭文贵2018年7月21日直播 20180721_1老领导又来电话了 王建夫人请保存好手机上的证据](/content/transcript/2018/07/20180721-1088561.md)
-
-[郭文贵2018年7月21日直播 20180721_2王健的妻子,和王伟处境都很危险,吴征去法国见谁了](/content/transcript/2018/07/20180721-1088571.md)
-
-[郭文贵2018年7月20日直播 20180720_1文贵携SN0W向所有的战友们问好，一切都是刚刚开始！](/content/transcript/2018/07/20180720-1088547.md)
-
-[郭文贵2018年7月18日lns直播视频 20180718昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/content/transcript/2018/07/20180718-1092965.md)
-
-[郭文贵2018年7月17日路德访谈 20180717_4高清版 王健在法国普罗旺斯是怎么被王歧山杀死的！](/content/transcript/2018/07/20180717-1088883.md)
-
-[郭文贵2018年7月17日路德访谈（一）20180717_1郭文贵先生全球直播（第一部分）](/content/transcript/2018/07/20180717-1092927.md)
-
-[郭文贵2018年7月17日路德访谈（二）20180717_2郭文贵先生全球直播（第二部分）](/content/transcript/2018/07/20180717-1092947.md)
-
-[郭文贵2018年7月17日路德访谈（三）20180717_3郭文贵先生全球直播（第三部分）](/content/transcript/2018/07/20180717-1092957.md)
-
-[郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/transcript/2018/07/20180710-1092917.md)
-
-[郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/transcript/2018/07/20180709-1092902.md)
-
-[郭文贵2018年7月8日视频 20180708在船上报平安](/content/transcript/2018/07/20180708-1087726.md)
-
-[郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！](/content/transcript/2018/07/20180706-1092892.md)
-
-[郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价](/content/transcript/2018/07/20180704-1088543.md)
 
 
 ## 頁面 96/113 [**<**](/content/transcript/README-95.md) [1](/content/transcript/README.md) ... [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) [93](/content/transcript/README-93.md) [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) **96** [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) [99](/content/transcript/README-99.md) [100](/content/transcript/README-100.md) [101](/content/transcript/README-101.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-97.md) [查看全部](/content/transcript/README-all.md)

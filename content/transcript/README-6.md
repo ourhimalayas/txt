@@ -3,6 +3,34 @@
 
 ## 頁面 6/113 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)
 
+[2022年7月27日《文贵大直播》关于佩洛西访台等全文字版](/content/transcript/2022/07/20220727-1637307.md)
+
+[2022年7月24日  郭文贵先生直播 全文字版](/content/transcript/2022/07/20220724-1637296.md)
+
+[2022年7月22日郭文贵先生乱聊直播 全文字版](/content/transcript/2022/07/20220722-1637288.md)
+
+[2022年7月21日 郭文贵先生乱聊直播 全文字版](/content/transcript/2022/07/20220721-1637278.md)
+
+[2022年7月20日《文贵大直播》全文字版](/content/transcript/2022/07/20220720-1637270.md)
+
+[2022年7月19日郭文贵先生乱聊直播 全文字版](/content/transcript/2022/07/20220719-1628726.md)
+
+[2022年7月17日 郭文贵先生聊天直播 全文字版](/content/transcript/2022/07/20220717-1628712.md)
+
+[2022年7月14日《文贵乱聊直播》全文字版](/content/transcript/2022/07/20220714-1628704.md)
+
+[2022年7月13日《文贵大直播答疑专场》全文字版](/content/transcript/2022/07/20220713-1628697.md)
+
+[2022年7月10日《文贵大直播—量子专场》全文字版](/content/transcript/2022/07/20220710-1628686.md)
+
+[2022年7月8日《文贵直播》全文字版](/content/transcript/2022/07/20220708-1628676.md)
+
+[2022年7月7日 郭文贵先生与战友乱聊直播](/content/transcript/2022/07/20220707-1628666.md)
+
+[2022年7月6日《文贵大直播》--北天东地 全文字版](/content/transcript/2022/07/20220706-1628670.md)
+
+[2022年7月3日《文贵先生携百位战友戒烟宣誓大直播》全文字版](/content/transcript/2022/07/20220703-1628289.md)
+
 [2022年7月3日 《戒烟大直播》——女子戒烟监督团连线补播  全文字版](/content/transcript/2022/07/20220703-1628305.md)
 
 [2022年6月28日《文贵大直播》全文字版](/content/transcript/2022/06/20220628-1573683.md)
@@ -24,34 +52,6 @@
 [2022年6月12日《文贵大直播》全文字版](/content/transcript/2022/06/20220612-1573644.md)
 
 [2022年6月10日《文貴大直播》全文字版](/content/transcript/2022/06/20220610-1573640.md)
-
-[2022年6月8日 《文贵大直播》全文字版](/content/transcript/2022/06/20220608-1573628.md)
-
-[2022年6月6日 郭文贵先生吃播 全文字版](/content/transcript/2022/06/20220606-1573624.md)
-
-[2022年6月5日 郭文贵先生与“曝二代”直播 全文字版](/content/transcript/2022/06/20220605-1573615.md)
-
-[2022年6月4日《新中国联邦两周年庆典》全文字版（一）](/content/transcript/2022/06/20220604-1569567.md)
-
-[2022年6月4日 《新中国联邦两周年庆典》全文字版（二）](/content/transcript/2022/06/20220604-1573590.md)
-
-[2022年6月4日《新中国联邦两周年庆典》全文字版（三）](/content/transcript/2022/06/20220604-1573601.md)
-
-[2022年6月3日《郭先生战友见面会直播》全文字版](/content/transcript/2022/06/20220603-1552460.md)
-
-[郭文贵2022年5月13日直播 20220513_1最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用](/content/transcript/2022/05/20220513-1091627.md)
-
-[郭文贵2022年5月13日直播 20220513_2七哥与战友们连线吃播](/content/transcript/2022/05/20220513-1091656.md)
-
-[郭文贵2022年5月13日盖特 20220513_3尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一](/content/transcript/2022/05/20220513-1091746.md)
-
-[郭文贵2022年5月12日盖特 20220512_1尊敬的战友们好……共产党的经济和世界的股票市场即将崩溃，大家切勿因小失大．因投机而失去一切、务必小心！](/content/transcript/2022/05/20220512-1091743.md)
-
-[郭文贵2022年5月11日直播 20220511_1普京红场阅兵匆忙中断；香港金融市场今非昔比；变化中的国内金融政策；灭共事业进入新的阶段](/content/transcript/2022/05/20220511-1091537.md)
-
-[郭文贵2022年5月11日直播 20220511_2七哥与战友们连线直播](/content/transcript/2022/05/20220511-1091586.md)
-
-[郭文贵2022年5月10日盖特 20220510_2](/content/transcript/2022/05/20220510-1091740.md)
 
 
 ## 頁面 6/113 [**<**](/content/transcript/README-5.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [5](/content/transcript/README-5.md) **6** [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-7.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,34 @@
 
 ## 頁面 67/113 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播](/content/transcript/2019/11/20191112-1093948.md)
+
+[2019年11月11日文贵大直播全文字版：文贵与班农先生紧急直播关于香港](/content/transcript/2019/11/20191111-1079328.md)
+
+[郭文贵2019年11月11日 20191111与班农先生紧急直播关于香港](/content/transcript/2019/11/20191111-1093942.md)
+
+[2019年11月10日文贵大直播全文字版：中共区块链就是私块链; 香港打的信息战也就是爆料革命的媒体战](/content/transcript/2019/11/20191110-1078959.md)
+
+[郭文贵2019年11月10日 20191110中共区块链就是私块链; 香港打的信息战也就是爆料革命的媒体战](/content/transcript/2019/11/20191110-1094174.md)
+
+[郭文贵2019年11月9日视频 20191109共产党早已掉入塔西佗陷阱；香港保护法案和人权一定会过！](/content/transcript/2019/11/20191109-1093903.md)
+
+[郭文贵2019年11月8日视频 20191108_1正在為香港人權與民主法案準備材料](/content/transcript/2019/11/20191108-1089641.md)
+
+[郭文贵2019年11月8日视频 20191108_2戰友們好啊今天是發生很多事情啊今天是個好日子啊一天沒發信息了但是太好了啊 好事 好事啊 哈哈哈 Ps搂住搂住](/content/transcript/2019/11/20191108-1089642.md)
+
+[2019年11月7日文贵大直播全文字版：中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资](/content/transcript/2019/11/20191107-1077178.md)
+
+[郭文贵2019年11月7日 20191107中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资](/content/transcript/2019/11/20191107-1093921.md)
+
+[2019年11月6日文贵大直播全文字版：第二次直播 共产党创造了几个荒唐政治事件](/content/transcript/2019/11/20191106-1086575.md)
+
+[郭文贵2019年11月6日第二次直播 20191106_2共产党创造了几个荒唐政治事件(1)](/content/transcript/2019/11/20191106-1093858.md)
+
+[郭文贵2019年11月6日第三次直播 20191106_3“文贵和路德在喜马拉雅大使馆直播”上部 共产党创造了几个荒唐政治事件(2)](/content/transcript/2019/11/20191106-1093877.md)
+
+[郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部](/content/transcript/2019/11/20191106-1093896.md)
+
 [郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦](/content/transcript/2019/11/20191105-1089638.md)
 
 [2019年11月4日 郭文贵先生直播--四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位 全文字版](/content/transcript/2019/11/20191104-1072004.md)
@@ -24,34 +52,6 @@
 [郭文贵2019年11月2日第一次直播 20191102_1在中央公园与战友分享美景](/content/transcript/2019/11/20191102-1093919.md)
 
 [2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版](/content/transcript/2019/10/20191030-1080376.md)
-
-[郭文贵2019年10月30日特别节目下集 20191030_1与路德，sara，江财神在喜马拉雅谈区块链](/content/transcript/2019/10/20191030-1088553.md)
-
-[郭文贵2019年10月30日视频 20191030_2厨师，从今天凌晨300为我们的Sara女士．老江．路德．庄烈宏先生的午餐．烹制的法国鸭腿和5A级的日本和牛肉，我们一起在直播中吃](/content/transcript/2019/10/20191030-1089620.md)
-
-[郭文贵2019年10月30日视频 20191030_3凯琳、酒庄及文贵私人厨师现场烹煮过程直播，sara、江财神、路徳先生和庄烈宏先生一起享受美食、美酒——特别节目](/content/transcript/2019/10/20191030-1089635.md)
-
-[郭文贵2019年10月30日特别节目上集 20191030文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/transcript/2019/10/20191030-1093898.md)
-
-[郭文贵2019年10月29日视频 20191029_2美容美髮後的Snow](/content/transcript/2019/10/20191029-1089613.md)
-
-[郭文贵2019年10月29日视频 20191029_3【Joe庄随手拍】 与郭文贵先生B2战桌边 聊会爆料革命](/content/transcript/2019/10/20191029-1089618.md)
-
-[郭文贵2019年10月29日连线庄烈宏 20191029华为本身就是PLA；区块链最核心的问题是政治、军事情报和金融；签约投资郭媒体的三个原则：必须挺川普、爆料革命绝不参与美国政治、必须坚定反共；郭宝胜写信给法院，惹怒法官并被驳回](/content/transcript/2019/10/20191029-1093806.md)
-
-[2019年10月28日文贵大直播全文字版：紧急直播](/content/transcript/2019/10/20191028-1087432.md)
-
-[郭文贵2019年10月28日视频 20191028_2战友们，北京的戏已经开始上演了，会要开始了，会发生什么呢](/content/transcript/2019/10/20191028-1089607.md)
-
-[郭文贵2019年10月28日视频 20191028_3Snow](/content/transcript/2019/10/20191028-1089610.md)
-
-[郭文贵2019年10月28日视频 20191028_4【Joe庄随手拍】郭文贵先生说至今没人谈到“区块链”的关键性](/content/transcript/2019/10/20191028-1089612.md)
-
-[郭文贵2019年10月28日视频 20191028紧急直播](/content/transcript/2019/10/20191028-1093790.md)
-
-[2019年10月27日文贵大直播全文字版：与战友闲聊](/content/transcript/2019/10/20191027-1087430.md)
-
-[郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极](/content/transcript/2019/10/20191027-1089606.md)
 
 
 ## 頁面 67/113 [**<**](/content/transcript/README-66.md) [1](/content/transcript/README.md) ... [62](/content/transcript/README-62.md) [63](/content/transcript/README-63.md) [64](/content/transcript/README-64.md) [65](/content/transcript/README-65.md) [66](/content/transcript/README-66.md) **67** [68](/content/transcript/README-68.md) [69](/content/transcript/README-69.md) [70](/content/transcript/README-70.md) [71](/content/transcript/README-71.md) [72](/content/transcript/README-72.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-68.md) [查看全部](/content/transcript/README-all.md)

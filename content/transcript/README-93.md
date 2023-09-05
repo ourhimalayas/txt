@@ -3,6 +3,34 @@
 
 ## 頁面 93/113 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2018年10月3日视频 20181003_4](/content/transcript/2018/10/20181003-1088829.md)
+
+[郭文贵2018年10月3日视频 20181003_5](/content/transcript/2018/10/20181003-1088832.md)
+
+[郭文贵2018年10月1日视频 20181001_1](/content/transcript/2018/10/20181001-1088814.md)
+
+[郭文贵2018年9月30日视频 20180930_1我們恨中共 但是我耽心同胞 耽心我們的國家 他們的大難即將來臨 還不知道死活呢](/content/transcript/2018/09/20180930-1088811.md)
+
+[郭文贵2018年9月29日视频 20180929_1](/content/transcript/2018/09/20180929-1088830.md)
+
+[郭文贵2018年9月28日视频 20180928_2文贵坐车下山准备回纽约！](/content/transcript/2018/09/20180928-1088824.md)
+
+[郭文贵2018年9月28日视频 20180928文贵在会议结束后返回途中的飞机上，和战友们汇报一下会议的初步概况，一切都是刚刚开始！](/content/transcript/2018/09/20180928-1093177.md)
+
+[郭文贵2018年9月27日视频 20180927_1](/content/transcript/2018/09/20180927-1088820.md)
+
+[郭文贵2018年9月26日视频 20180926_1Snow: 搞幾個娘兒們算啥腐敗啊](/content/transcript/2018/09/20180926-1088816.md)
+
+[郭文贵2018年9月24日视频 20180924_1](/content/transcript/2018/09/20180924-1088813.md)
+
+[郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓](/content/transcript/2018/09/20180923-1088809.md)
+
+[郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議](/content/transcript/2018/09/20180923-1088810.md)
+
+[郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯](/content/transcript/2018/09/20180922-1088799.md)
+
+[郭文贵2018年9月22日视频 20180922_3文貴周末為家人做魚肉丸](/content/transcript/2018/09/20180922-1088802.md)
+
 [郭文贵2018年9月22日视频 20180922_4文貴周末為家人做魚肉丸 用趕麵杖趕魚肉](/content/transcript/2018/09/20180922-1088807.md)
 
 [郭文贵2018年9月22日视频 20180922香港．台湾．上海．股市．汇市……可能发生天翻地覆的变化！](/content/transcript/2018/09/20180922-1093149.md)
@@ -24,34 +52,6 @@
 [郭文贵2018年9月17日视频 20180917_2](/content/transcript/2018/09/20180917-1088772.md)
 
 [郭文贵2018年9月17日视频 20180917_3今天是个好日子……本来过5不食的！现在吃点粗茶淡饭！喝点中年茅台！奖励自己一下……二十几个小时连续的工作！唯独美中不足缺战友！](/content/transcript/2018/09/20180917-1088777.md)
-
-[郭文贵2018年9月17日视频 20180917(全程無駭客干擾版)王健死亡事件真相有重大进展，法国司法部已经正式立案全面重新调查！](/content/transcript/2018/09/20180917-1093075.md)
-
-[郭文贵2018年9月16日视频 20180916_3](/content/transcript/2018/09/20180916-1088636.md)
-
-[郭文贵2018年9月16日视频第一部分 20180916_1我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/content/transcript/2018/09/20180916-1093115.md)
-
-[郭文贵2018年9月16日视频第二部分 20180916_2我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！](/content/transcript/2018/09/20180916-1093146.md)
-
-[郭文贵2018年9月15日直播 20180915_1](/content/transcript/2018/09/20180915-1088768.md)
-
-[郭文贵2018年9月13日直播 20180913_1](/content/transcript/2018/09/20180913-1088765.md)
-
-[郭文贵2018年9月12日第四次直播 20180912_4谈今天去川普家，川普的办公室和餐厅完全模仿白宫；川普的厨师居然从裕达国贸出来的；当年在中南海的时候，习近平还在门外瞎转悠；李友答应帮助胡舒立生个孩子](/content/transcript/2018/09/20180912-1088758.md)
-
-[郭文贵2018年9月12日第二次直播 20180912_2文贵先生進Sara Discord聊天室前](/content/transcript/2018/09/20180912-1088763.md)
-
-[郭文贵2018年9月12日第三次直播 20180912_3某军委委员家一面墙的翡翠就价值3个亿美金；首次酒后爆文贵先生80年代－90年代起家经历；爆释永信的私生子；戒忍和尚写一个对联受8万元钱故事！](/content/transcript/2018/09/20180912-1093083.md)
-
-[郭文贵2018年9月12日第一次直播 20180912_1战友之声聊天室曝光 调查王健的一个团队被盗国贼50万美金买走所有资料；爆料和姬胜德认识过程；文贵先生早年的经历；90年代赖昌星一天赚2个亿人民币；再次承诺2亿美金成立老兵基金！](/content/transcript/2018/09/20180912-1093097.md)
-
-[郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-1088733.md)
-
-[郭文贵2018年9月11日视频 20180911_3願美國不會再有911](/content/transcript/2018/09/20180911-1088737.md)
-
-[郭文贵2018年9月11日视频 20180911文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。](/content/transcript/2018/09/20180911-1093079.md)
-
-[郭文贵2018年9月10日视频 20180910_4船上视频：刚刚从海浪中归来的感受](/content/transcript/2018/09/20180910-1087776.md)
 
 
 ## 頁面 93/113 [**<**](/content/transcript/README-92.md) [1](/content/transcript/README.md) ... [88](/content/transcript/README-88.md) [89](/content/transcript/README-89.md) [90](/content/transcript/README-90.md) [91](/content/transcript/README-91.md) [92](/content/transcript/README-92.md) **93** [94](/content/transcript/README-94.md) [95](/content/transcript/README-95.md) [96](/content/transcript/README-96.md) [97](/content/transcript/README-97.md) [98](/content/transcript/README-98.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-94.md) [查看全部](/content/transcript/README-all.md)

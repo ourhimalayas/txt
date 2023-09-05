@@ -3,6 +3,34 @@
 
 ## 頁面 56/113 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
 
+[郭文贵2020年5月23日GTV第二次直播 20200523_2文贵如何看待十几天后的六四……新宣言和内心的感受。](/content/transcript/2020/05/20200523-1092288.md)
+
+[郭文贵2020年5月23日GTV第三次直播 20200523_3文贵不会带任何战友参与做空港币重新认识香港保护香港，是我们每个中国人起码的道德底线。](/content/transcript/2020/05/20200523-1092401.md)
+
+[郭文贵2020年5月22日视频 20200522_2文贵先生在班农先生战斗室谈五四运动和呼吁美国关注香港！](/content/transcript/2020/05/20200522-1089857.md)
+
+[郭文贵2020年5月22日视频 20200522两会的所谓西部大开发是灾难大转移新的大跃进，香港官方将成为美中大战的导火索．喜马拉雅农场到底是个什么](/content/transcript/2020/05/20200522-1092274.md)
+
+[郭文贵2020年5月21日视频 20200521爆料革命为什么又要篾工还要在海外准备国中之国的基地？由G币引发的资金大外逃说明了什么？](/content/transcript/2020/05/20200521-1092256.md)
+
+[郭文贵2020年5月19日视频 20200519谁偷走了你的G币和你的信息？为什么文贵不配合专案组．伤害傅政华．孟建柱．孙立军，王岐山的家人！](/content/transcript/2020/05/20200519-1092226.md)
+
+[郭文贵2020年5月17日视频 20200517国内战友，不要在6月4号左右有任何冲动的行动，我们要灭共．灭贼．不要反真正的好企业和我们中国人的智慧](/content/transcript/2020/05/20200517-1092203.md)
+
+[郭文贵2020年5月16日视频 20200516疯狂的共产党很有可能对台湾香港下毒手](/content/transcript/2020/05/20200516-1092178.md)
+
+[郭文贵2020年5月14日视频 20200514](/content/transcript/2020/05/20200514-1092081.md)
+
+[郭文贵2020年5月14日视频 20200514_2视频恢复 ： 绝不能让任何国家利用共产党犯罪来抢着中国人的财富．Gfashion将成为战友们走向世界的综合舞台！](/content/transcript/2020/05/20200514-1092157.md)
+
+[郭文贵2020年5月13日视频 20200513GTV录播：下午7：30，是谁把银行买垮了，阴阳乾坤，隔空取钱。](/content/transcript/2020/05/20200513-1089007.md)
+
+[郭文贵2020年5月11日GTV连线长岛伟哥 20200511](/content/transcript/2020/05/20200511-1092113.md)
+
+[郭文贵2020年5月10日GTV连线文欣 20200510](/content/transcript/2020/05/20200510-1092132.md)
+
+[郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统](/content/transcript/2020/05/20200510-1092423.md)
+
 [郭文贵2020年5月9日连线草根小哥 20200509_2](/content/transcript/2020/05/20200509-1092070.md)
 
 [郭文贵2020年5月9日连线魔女Peace 20200509_1](/content/transcript/2020/05/20200509-1092098.md)
@@ -24,34 +52,6 @@
 [郭文贵2020年5月4日视频 20200504共产党完蛋前的疯狂……及爆料革命必须扮演的角色……让中国人财富和子孙安全的雅典娜计划](/content/transcript/2020/05/20200504-1092007.md)
 
 [郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..](/content/transcript/2020/05/20200503-1089003.md)
-
-[郭文贵2020年5月3日视频 20200503_2GTV简短录播 2 ：”好事太多，答应战友的雪茄，以后别忘了问我要。”](/content/transcript/2020/05/20200503-1089005.md)
-
-[郭文贵2020年5月2日 20200502爆料香港P3实验室和国际共产联盟](/content/transcript/2020/05/20200502-1091995.md)
-
-[郭文贵2020年4月30日 20200430跟正在看直播的共产党员们聊](/content/transcript/2020/04/20200430-1091988.md)
-
-[郭文贵2020年4月29日视频 20200429G币的未来价值与美国官方惩罚CCP巨额罚款查封共产党高官在西方的资产都意味着什么？](/content/transcript/2020/04/20200429-1091981.md)
-
-[郭文贵2020年4月28日视频 20200428川普总统的玫瑰园讲话开启了真正的以美灭共．以法灭共．全面查封CCP海外资产的真正的全面开始！](/content/transcript/2020/04/20200428-1091974.md)
-
-[郭文贵2020年4月27日视频 20200427](/content/transcript/2020/04/20200427-1091970.md)
-
-[郭文贵2020年4月25日视频 20200425_1 (全程英語無翻譯)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国](/content/transcript/2020/04/20200425-1089837.md)
-
-[郭文贵2020年4月25日视频 20200425_2GTV 作战工作室, 还有snow 哈哈](/content/transcript/2020/04/20200425-1089840.md)
-
-[郭文贵2020年4月25日视频 20200425_3](/content/transcript/2020/04/20200425-1089844.md)
-
-[郭文贵2020年4月25日视频 20200425_4](/content/transcript/2020/04/20200425-1089847.md)
-
-[郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国](/content/transcript/2020/04/20200425-1089851.md)
-
-[郭文贵2020年4月23日吴征靠女人上位 20200423有史以来最严重的一次被黑客袭击的．直播。建立了没有共产党的新中国！应该马上做什么？文贵强烈推荐](/content/transcript/2020/04/20200423-1091942.md)
-
-[郭文贵2020年4月22日视频 20200422](/content/transcript/2020/04/20200422-1091930.md)
-
-[郭文贵2020年4月21日视频 20200421_1简短录播](/content/transcript/2020/04/20200421-1089829.md)
 
 
 ## 頁面 56/113 [**<**](/content/transcript/README-55.md) [1](/content/transcript/README.md) ... [51](/content/transcript/README-51.md) [52](/content/transcript/README-52.md) [53](/content/transcript/README-53.md) [54](/content/transcript/README-54.md) [55](/content/transcript/README-55.md) **56** [57](/content/transcript/README-57.md) [58](/content/transcript/README-58.md) [59](/content/transcript/README-59.md) [60](/content/transcript/README-60.md) [61](/content/transcript/README-61.md) ... [113](/content/transcript/README-113.md) [**>**](/content/transcript/README-57.md) [查看全部](/content/transcript/README-all.md)
