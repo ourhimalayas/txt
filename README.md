@@ -1,7 +1,9 @@
 ﻿###  [:house:首页](/README.md) | [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-推薦文章:point_down:
+推薦文章👇
+
+[2024年法庭文件](/content/court-case-2024/README.md)
 
 [2020年6月4日新中国联邦宣言](/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
